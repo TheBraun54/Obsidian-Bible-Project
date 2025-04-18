@@ -1,1 +1,1 @@
-# World-English-Bible
+# Obsidian-Bible-Project

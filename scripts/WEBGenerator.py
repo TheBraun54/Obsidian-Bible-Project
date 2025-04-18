@@ -3,9 +3,11 @@ import csv
 from collections import defaultdict
 
 # === CONFIG ===
-csv_path = "~/Documents/Bibles/web.csv"     # Your input file
-csv_path = os.path.expanduser(csv_path)     # Expands home directory '~'
-output_base = "World-English-Bible"         # Your root output directory
+csv_path = "/data/web.csv"  # Adjusted path since file is in project root
+csv_path = os.path.join(os.path.dirname(__file__), '..', csv_path)
+csv_path = os.path.abspath(csv_path)
+
+output_base = "World-English-Bible"
 translation = "World English Bible (WEB)"
 
 # New Testament books (for tagging)
@@ -18,7 +20,6 @@ NT_BOOKS = {
 
 # Book codes for verse_id
 BOOK_CODES = {
-    # Old Testament
     "Genesis": "GEN", "Exodus": "EXO", "Leviticus": "LEV", "Numbers": "NUM", "Deuteronomy": "DEU",
     "Joshua": "JOS", "Judges": "JDG", "Ruth": "RUT", "1 Samuel": "1SA", "2 Samuel": "2SA",
     "1 Kings": "1KI", "2 Kings": "2KI", "1 Chronicles": "1CH", "2 Chronicles": "2CH",
@@ -27,10 +28,7 @@ BOOK_CODES = {
     "Jeremiah": "JER", "Lamentations": "LAM", "Ezekiel": "EZK", "Daniel": "DAN", "Hosea": "HOS",
     "Joel": "JOL", "Amos": "AMO", "Obadiah": "OBA", "Jonah": "JON", "Micah": "MIC",
     "Nahum": "NAM", "Habakkuk": "HAB", "Zephaniah": "ZEP", "Haggai": "HAG", "Zechariah": "ZEC",
-    "Malachi": "MAL",
-
-    # New Testament
-    "Matthew": "MAT", "Mark": "MRK", "Luke": "LUK", "John": "JHN", "Acts": "ACT",
+    "Malachi": "MAL", "Matthew": "MAT", "Mark": "MRK", "Luke": "LUK", "John": "JHN", "Acts": "ACT",
     "Romans": "ROM", "1 Corinthians": "1CO", "2 Corinthians": "2CO", "Galatians": "GAL",
     "Ephesians": "EPH", "Philippians": "PHP", "Colossians": "COL", "1 Thessalonians": "1TH",
     "2 Thessalonians": "2TH", "1 Timothy": "1TI", "2 Timothy": "2TI", "Titus": "TIT",
@@ -44,8 +42,7 @@ def ensure_dir(path):
 chapters = defaultdict(list)
 
 with open(csv_path, newline='', encoding='utf-8') as file:
-    # Skip the first 5 lines to reach the header
-    for _ in range(5):
+    for _ in range(5):  # Skip first 5 lines before the header
         next(file)
     reader = csv.DictReader(file)
     for row in reader:
@@ -55,7 +52,9 @@ with open(csv_path, newline='', encoding='utf-8') as file:
         verse = int(row['Verse'])
         text = row['Text'].strip()
 
-        book_code = BOOK_CODES.get(book, "UNK")
+        tag = "bible/nt" if book in NT_BOOKS else "bible/ot"
+
+        book_code = BOOK_CODES.get(book)
         verse_id = f"{book_code}{str(chapter).zfill(2)}{str(verse).zfill(2)}"
 
         book_folder = f"{book_num} - {book}"
@@ -66,7 +65,7 @@ with open(csv_path, newline='', encoding='utf-8') as file:
         folder_path = os.path.join(output_base, book_folder, chapter_folder)
         ensure_dir(folder_path)
 
-        # Create Verse File
+        # Create verse file
         verse_path = os.path.join(folder_path, verse_file)
         with open(verse_path, 'w', encoding='utf-8') as vf:
             vf.write(f"---\n")
@@ -76,7 +75,7 @@ with open(csv_path, newline='', encoding='utf-8') as file:
             vf.write(f"reference: {book} {chapter}:{verse}\n")
             vf.write(f"verse_id: {verse_id}\n")
             vf.write(f"translation: {translation}\n")
-            vf.write(f"tags: [bible/verse]\n")
+            vf.write(f"tags: [bible/verse/{tag}]\n")
             vf.write(f"strongs: []\n")
             vf.write(f"topics: []\n")
             vf.write(f"themes: []\n")
@@ -88,7 +87,7 @@ with open(csv_path, newline='', encoding='utf-8') as file:
 
         chapters[(book, chapter, book_num)].append((verse, f"![[{book} {chapter}.{verse}]]"))
 
-# Create Chapter Files
+# Create chapter files
 for (book, chapter, book_num), verse_embeds in chapters.items():
     chapter_folder = f"{book} {chapter}"
     chapter_file = f"{book} {chapter}.md"
@@ -106,7 +105,7 @@ for (book, chapter, book_num), verse_embeds in chapters.items():
         cf.write(f"chapter: {chapter}\n")
         cf.write(f"reference: {book} {chapter}\n")
         cf.write(f"translation: {translation}\n")
-        cf.write(f"tags: [bible/chapter, {tag}]\n")
+        cf.write(f"tags: [bible/chapter/{tag}]\n")
         cf.write(f"topics: []\n")
         cf.write(f"themes: []\n")
         cf.write(f"people: []\n")
@@ -116,15 +115,14 @@ for (book, chapter, book_num), verse_embeds in chapters.items():
 
         if prev_chapter > 0:
             cf.write(f"[[{book} {prev_chapter}|<-]] ")
-        cf.write(f"✞ ")
+        cf.write("✞ ")
         cf.write(f"[[{book} {next_chapter}|->]]\n\n")
 
         cf.write(f"# {book} {chapter}\n\n")
-
         for _, embed in sorted(verse_embeds):
             cf.write(embed + "\n\n")
 
         if prev_chapter > 0:
             cf.write(f"[[{book} {prev_chapter}|<-]] ")
-        cf.write(f"✞ ")
+        cf.write("✞ ")
         cf.write(f"[[{book} {next_chapter}|->]]\n")
