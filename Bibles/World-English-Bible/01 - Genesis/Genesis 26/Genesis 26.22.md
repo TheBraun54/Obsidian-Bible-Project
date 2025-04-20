@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 26
+verse: 22
+reference: Genesis 26:22
+verse_id: GEN2622
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And he removed from thence, and digged another well; and for that they strove not: and he called the name of it Rehoboth; and he said, For now Jehovah hath made room for us, and we shall be fruitful in the land.

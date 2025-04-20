@@ -1,0 +1,18 @@
+---
+book: Leviticus
+chapter: 1
+verse: 1
+reference: Leviticus 1:1
+verse_id: LEV0101
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Jehovah called unto Moses, and spake unto him out of the tent of meeting, saying,

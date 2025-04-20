@@ -1,0 +1,18 @@
+---
+book: Hosea
+chapter: 7
+verse: 12
+reference: Hosea 7:12
+verse_id: HOS0712
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+When they shall go, I will spread my net upon them; I will bring them down as the birds of the heavens; I will chastise them, as their congregation hath heard.

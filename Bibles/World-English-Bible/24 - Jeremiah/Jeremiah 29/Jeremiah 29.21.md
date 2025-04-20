@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 29
+verse: 21
+reference: Jeremiah 29:21
+verse_id: JER2921
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Thus saith Jehovah of hosts, the God of Israel, concerning Ahab the son of Kolaiah, and concerning Zedekiah the son of Maaseiah, who prophesy a lie unto you in my name: Behold, I will deliver them into the hand of Nebuchadrezzar king of Babylon; and he shall slay them before your eyes;

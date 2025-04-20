@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 5
+verse: 19
+reference: Jeremiah 5:19
+verse_id: JER0519
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And it shall come to pass, when ye shall say, Wherefore hath Jehovah our God done all these things unto us? then shalt thou say unto them, Like as ye have forsaken me, and served foreign gods in your land, so shall ye serve strangers in a land that is not yours.

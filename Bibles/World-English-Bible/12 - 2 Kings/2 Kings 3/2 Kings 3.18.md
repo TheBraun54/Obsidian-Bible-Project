@@ -1,0 +1,18 @@
+---
+book: 2 Kings
+chapter: 3
+verse: 18
+reference: 2 Kings 3:18
+verse_id: 2KI0318
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And this is but a light thing in the sight of Jehovah: he will also deliver the Moabites into your hand.

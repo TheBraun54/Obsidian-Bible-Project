@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 30
+verse: 21
+reference: Isaiah 30:21
+verse_id: ISA3021
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and thine ears shall hear a word behind thee, saying, This is the way, walk ye in it; when ye turn to the right hand, and when ye turn to the left.

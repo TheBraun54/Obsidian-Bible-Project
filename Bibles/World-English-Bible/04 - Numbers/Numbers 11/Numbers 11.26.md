@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 11
+verse: 26
+reference: Numbers 11:26
+verse_id: NUM1126
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+But there remained two men in the camp, the name of the one was Eldad, and the name of the other Medad: and the Spirit rested upon them; and they were of them that were written, but had not gone out unto the Tent; and they prophesied in the camp.

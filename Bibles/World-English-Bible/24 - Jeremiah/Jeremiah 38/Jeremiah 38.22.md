@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 38
+verse: 22
+reference: Jeremiah 38:22
+verse_id: JER3822
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+behold, all the women that are left in the king of Judah's house shall be brought forth to the king of Babylon's princes, and those women shall say, Thy familiar friends have set thee on, and have prevailed over thee: [now that] thy feet are sunk in the mire, they are turned away back.

@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 15
+verse: 29
+reference: Luke 15:29
+verse_id: LUK1529
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+But he answered and said to his father, Lo, these many years do I serve thee, and I never transgressed a commandment of thine; and [yet] thou never gavest me a kid, that I might make merry with my friends:

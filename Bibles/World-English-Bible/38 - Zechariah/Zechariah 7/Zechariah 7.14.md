@@ -1,0 +1,18 @@
+---
+book: Zechariah
+chapter: 7
+verse: 14
+reference: Zechariah 7:14
+verse_id: ZEC0714
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+but I will scatter them with a whirlwind among all the nations which they have not known. Thus the land was desolate after them, so that no man passed through nor returned: for they laid the pleasant land desolate.

@@ -1,0 +1,18 @@
+---
+book: Exodus
+chapter: 12
+verse: 16
+reference: Exodus 12:16
+verse_id: EXO1216
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And in the first day there shall be to you a holy convocation, and in the seventh day a holy convocation; no manner of work shall be done in them, save that which every man must eat, that only may be done by you.

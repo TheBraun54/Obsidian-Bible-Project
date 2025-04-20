@@ -1,0 +1,18 @@
+---
+book: Leviticus
+chapter: 22
+verse: 18
+reference: Leviticus 22:18
+verse_id: LEV2218
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Speak unto Aaron, and to his sons, and unto all the children of Israel, and say unto them, Whosoever he be of the house of Israel, or of the sojourners in Israel, that offereth his oblation, whether it be any of their vows, or any of their freewill-offerings, which they offer unto Jehovah for a burnt-offering;

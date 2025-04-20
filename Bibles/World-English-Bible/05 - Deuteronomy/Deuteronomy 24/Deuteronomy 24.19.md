@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 24
+verse: 19
+reference: Deuteronomy 24:19
+verse_id: DEU2419
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+When thou reapest thy harvest in thy field, and hast forgot a sheaf in the field, thou shalt not go again to fetch it: it shall be for the sojourner, for the fatherless, and for the widow; that Jehovah thy God may bless thee in all the work of thy hands.

@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 12
+verse: 18
+reference: Deuteronomy 12:18
+verse_id: DEU1218
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+but thou shalt eat them before Jehovah thy God in the place which Jehovah thy God shall choose, thou, and thy son, and thy daughter, and thy man-servant, and thy maid-servant, and the Levite that is within thy gates: and thou shalt rejoice before Jehovah thy God in all that thou puttest thy hand unto.

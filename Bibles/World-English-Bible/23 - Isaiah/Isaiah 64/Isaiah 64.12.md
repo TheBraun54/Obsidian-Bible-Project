@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 64
+verse: 12
+reference: Isaiah 64:12
+verse_id: ISA6412
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Wilt thou refrain thyself for these things, O Jehovah? wilt thou hold thy peace, and afflict us very sore?

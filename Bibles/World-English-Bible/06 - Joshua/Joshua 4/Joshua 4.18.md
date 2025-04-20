@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 4
+verse: 18
+reference: Joshua 4:18
+verse_id: JOS0418
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And it came to pass, when the priests that bare the ark of the covenant of Jehovah were come up out of the midst of the Jordan, and the soles of the priests' feet were lifted up unto the dry ground, that the waters of the Jordan returned unto their place, and went over all its banks, as aforetime.

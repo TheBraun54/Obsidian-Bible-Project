@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 39
+verse: 5
+reference: Genesis 39:5
+verse_id: GEN3905
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And it came to pass from the time that he made him overseer in his house, and over all that he had, that Jehovah blessed the Egyptian's house for Joseph's sake; and the blessing of Jehovah was upon all that he had, in the house and in the field.

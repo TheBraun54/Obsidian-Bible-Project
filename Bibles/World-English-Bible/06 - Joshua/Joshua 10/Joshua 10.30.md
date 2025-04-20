@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 10
+verse: 30
+reference: Joshua 10:30
+verse_id: JOS1030
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and Jehovah delivered it also, and the king thereof, into the hand of Israel; and he smote it with the edge of the sword, and all the souls that were therein; he left none remaining in it; and he did unto the king thereof as he had done unto the king of Jericho.

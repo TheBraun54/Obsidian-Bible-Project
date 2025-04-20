@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 77
+verse: 15
+reference: Psalms 77:15
+verse_id: PSA7715
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Thou hast with thine arm redeemed thy people, The sons of Jacob and Joseph. {{Selah

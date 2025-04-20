@@ -1,0 +1,18 @@
+---
+book: Amos
+chapter: 3
+verse: 15
+reference: Amos 3:15
+verse_id: AMO0315
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I will smite the winter-house with the summer-house; and the houses of ivory shall perish, and the great houses shall have an end, saith Jehovah.

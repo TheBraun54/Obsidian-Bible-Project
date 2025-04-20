@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 143
+verse: 11
+reference: Psalms 143:11
+verse_id: PSA14311
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Quicken me, O Jehovah, for thy name's sake: In thy righteousness bring my soul out of trouble.

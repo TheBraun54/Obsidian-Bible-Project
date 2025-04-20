@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 7
+verse: 41
+reference: Acts 7:41
+verse_id: ACT0741
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And they made a calf in those days, and brought a sacrifice unto the idol, and rejoiced in the works of their hands.

@@ -57,7 +57,4 @@ with open(csv_path, newline='', encoding='utf-8') as csvfile:
         with open(file_path, 'w', encoding='utf-8') as mdfile:
             mdfile.write(content)
 
-        # Debug print
-        print(f"✅ Wrote: {file_path}")
-
 print("✅ All done.")

@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 16
+verse: 1
+reference: Numbers 16:1
+verse_id: NUM1601
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Now Korah, the son of Izhar, the son of Kohath, the son of Levi, with Dathan and Abiram, the sons of Eliab, and On, the son of Peleth, sons of Reuben, took [men] :

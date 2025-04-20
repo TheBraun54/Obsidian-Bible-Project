@@ -1,0 +1,18 @@
+---
+book: 2 Chronicles
+chapter: 6
+verse: 9
+reference: 2 Chronicles 6:9
+verse_id: 2CH0609
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+nevertheless thou shalt not build the house; but thy son that shall come forth out of thy loins, he shall build the house for my name.

@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 19
+verse: 42
+reference: Joshua 19:42
+verse_id: JOS1942
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and Shaalabbin, and Aijalon, and Ithlah,

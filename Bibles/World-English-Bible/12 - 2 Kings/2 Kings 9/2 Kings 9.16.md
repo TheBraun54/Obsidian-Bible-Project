@@ -1,0 +1,18 @@
+---
+book: 2 Kings
+chapter: 9
+verse: 16
+reference: 2 Kings 9:16
+verse_id: 2KI0916
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+So Jehu rode in a chariot, and went to Jezreel; for Joram lay there. And Ahaziah king of Judah was come down to see Joram.

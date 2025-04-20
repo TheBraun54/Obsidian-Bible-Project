@@ -1,0 +1,18 @@
+---
+book: 2 Kings
+chapter: 7
+verse: 2
+reference: 2 Kings 7:2
+verse_id: 2KI0702
+translation: World English Bible (WEB)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then the captain on whose hand the king leaned answered the man of God, and said, Behold, if Jehovah should make windows in heaven, might this thing be? And he said, Behold, thou shalt see it with thine eyes, but shalt not eat thereof.
