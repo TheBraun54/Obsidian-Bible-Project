@@ -1,63 +1,130 @@
 import os
 import csv
+from collections import defaultdict
 
 # === CONFIG ===
-script_dir = os.path.dirname(os.path.abspath(__file__))
-
-# CSV file is assumed to be in ../data/strongs.csv relative to this script
-csv_path = os.path.join(script_dir, '..', 'data', 'strongs.csv')
+csv_path = "./data/asv.csv"
+csv_path = os.path.join(os.path.dirname(__file__), '..', csv_path)
 csv_path = os.path.abspath(csv_path)
 
-# Output to ../Lexicon/Greek and ../Lexicon/Hebrew
-base_output_folder = os.path.join(script_dir, '..', 'Lexicon')
-base_output_folder = os.path.abspath(base_output_folder)
+output_folder = "../Bibles/World-English-Bible"
+translation = "World English Bible (WEB)"
+
+# New Testament books (for tagging)
+NT_BOOKS = {
+    "Matthew", "Mark", "Luke", "John", "Acts", "Romans", "1 Corinthians", "2 Corinthians", "Galatians",
+    "Ephesians", "Philippians", "Colossians", "1 Thessalonians", "2 Thessalonians", "1 Timothy",
+    "2 Timothy", "Titus", "Philemon", "Hebrews", "James", "1 Peter", "2 Peter", "1 John", "2 John",
+    "3 John", "Jude", "Revelation"
+}
+
+# Book codes for verse_id
+BOOK_CODES = {
+    "Genesis": "GEN", "Exodus": "EXO", "Leviticus": "LEV", "Numbers": "NUM", "Deuteronomy": "DEU",
+    "Joshua": "JOS", "Judges": "JDG", "Ruth": "RUT", "1 Samuel": "1SA", "2 Samuel": "2SA",
+    "1 Kings": "1KI", "2 Kings": "2KI", "1 Chronicles": "1CH", "2 Chronicles": "2CH",
+    "Ezra": "EZR", "Nehemiah": "NEH", "Esther": "EST", "Job": "JOB", "Psalms": "PSA",
+    "Proverbs": "PRO", "Ecclesiastes": "ECC", "Song of Solomon": "SNG", "Isaiah": "ISA",
+    "Jeremiah": "JER", "Lamentations": "LAM", "Ezekiel": "EZK", "Daniel": "DAN", "Hosea": "HOS",
+    "Joel": "JOL", "Amos": "AMO", "Obadiah": "OBA", "Jonah": "JON", "Micah": "MIC",
+    "Nahum": "NAM", "Habakkuk": "HAB", "Zephaniah": "ZEP", "Haggai": "HAG", "Zechariah": "ZEC",
+    "Malachi": "MAL", "Matthew": "MAT", "Mark": "MRK", "Luke": "LUK", "John": "JHN", "Acts": "ACT",
+    "Romans": "ROM", "1 Corinthians": "1CO", "2 Corinthians": "2CO", "Galatians": "GAL",
+    "Ephesians": "EPH", "Philippians": "PHP", "Colossians": "COL", "1 Thessalonians": "1TH",
+    "2 Thessalonians": "2TH", "1 Timothy": "1TI", "2 Timothy": "2TI", "Titus": "TIT",
+    "Philemon": "PHM", "Hebrews": "HEB", "James": "JAS", "1 Peter": "1PE", "2 Peter": "2PE",
+    "1 John": "1JN", "2 John": "2JN", "3 John": "3JN", "Jude": "JUD", "Revelation": "REV"
+}
 
 def ensure_dir(path):
     os.makedirs(path, exist_ok=True)
 
-print(f"Reading CSV from: {csv_path}")
-print(f"Base output folder: {base_output_folder}")
+chapters = defaultdict(list)
 
-# Read the CSV and process
-with open(csv_path, newline='', encoding='utf-8') as csvfile:
-    reader = csv.DictReader(csvfile)
+with open(csv_path, newline='', encoding='utf-8') as file:
+    for _ in range(5):  # Skip first 5 lines before the header
+        next(file)
+    reader = csv.DictReader(file)
     for row in reader:
-        number = row.get('number', '').strip()
-        if not number:
-            continue
+        book = row['Book Name']
+        book_num = row['Book Number'].zfill(2)
+        chapter = int(row['Chapter'])
+        verse = int(row['Verse'])
+        text = row['Text'].strip()
 
-        # Detect folder based on prefix
-        if number.startswith('H'):
-            subfolder = 'Hebrew'
-        elif number.startswith('G'):
-            subfolder = 'Greek'
-        else:
-            subfolder = 'Other'
+        tag = "bible/nt" if book in NT_BOOKS else "bible/ot"
 
-        output_folder = os.path.join(base_output_folder, subfolder)
-        ensure_dir(output_folder)
+        book_code = BOOK_CODES.get(book)
+        verse_id = f"{book_code}{str(chapter).zfill(2)}{str(verse).zfill(2)}"
 
-        # File content
-        content = f"""# Lexicon Entry {number}
+        book_folder = f"{book_num} - {book}"
+        chapter_folder = f"{book} {chapter}"
+        verse_file = f"{book} {chapter}.{verse}.md"
+        chapter_file = f"{book} {chapter}.md"
 
-**Lemma**: {row.get('lemma', '').strip()}
+        folder_path = os.path.join(output_folder, book_folder, chapter_folder)
+        ensure_dir(folder_path)
 
-**Transliteration (xlit)**: {row.get('xlit', '').strip()}
+        # Create verse file
+        verse_path = os.path.join(folder_path, verse_file)
+        with open(verse_path, 'w', encoding='utf-8') as vf:
+            vf.write(f"---\n")
+            vf.write(f"book: {book}\n")
+            vf.write(f"chapter: {chapter}\n")
+            vf.write(f"verse: {verse}\n")
+            vf.write(f"reference: {book} {chapter}:{verse}\n")
+            vf.write(f"verse_id: {verse_id}\n")
+            vf.write(f"translation: {translation}\n")
+            vf.write(f"tags: [bible/verse/{tag}]\n")
+            vf.write(f"strongs: []\n")
+            vf.write(f"topics: []\n")
+            vf.write(f"themes: []\n")
+            vf.write(f"people: []\n")
+            vf.write(f"places: []\n")
+            vf.write(f"notes: >\n  \n")
+            vf.write(f"---\n\n")
+            vf.write(text + "\n")
 
-**Pronunciation**: {row.get('pronounce', '').strip()}
+        chapters[(book, chapter, book_num)].append((verse, f"![[{book} {chapter}.{verse}]]"))
 
-**Description**:
-{row.get('description', '').strip()}
-"""
+# Create chapter files
+for (book, chapter, book_num), verse_embeds in chapters.items():
+    chapter_folder = f"{book} {chapter}"
+    chapter_file = f"{book} {chapter}.md"
+    book_folder = f"{book_num} - {book}"
+    chapter_path = os.path.join(output_folder, book_folder, chapter_folder, chapter_file)
 
-        # File path
-        file_path = os.path.join(output_folder, f"{number}.md")
+    chapter_number = int(chapter)
+    prev_chapter = chapter_number - 1
+    next_chapter = chapter_number + 1
+    tag = "bible/nt" if book in NT_BOOKS else "bible/ot"
 
-        # Write file
-        with open(file_path, 'w', encoding='utf-8') as mdfile:
-            mdfile.write(content)
+    with open(chapter_path, 'w', encoding='utf-8') as cf:
+        cf.write("---\n")
+        cf.write(f"book: {book}\n")
+        cf.write(f"chapter: {chapter}\n")
+        cf.write(f"reference: {book} {chapter}\n")
+        cf.write(f"translation: {translation}\n")
+        cf.write(f"tags: [bible/chapter/{tag}]\n")
+        cf.write(f"topics: []\n")
+        cf.write(f"themes: []\n")
+        cf.write(f"people: []\n")
+        cf.write(f"places: []\n")
+        cf.write(f"notes: >\n  \n")
+        cf.write("---\n\n")
 
-        # Debug print
-        print(f"✅ Wrote: {file_path}")
+        if prev_chapter > 0:
+            cf.write(f"[[{book} {prev_chapter}|<-]] ")
+        cf.write("✞ ")
+        cf.write(f"[[{book} {next_chapter}|->]]\n\n")
 
-print("✅ All done.")
+        cf.write(f"# {book} {chapter}\n\n")
+        for _, embed in sorted(verse_embeds):
+            cf.write(embed + "\n\n")
+
+        if prev_chapter > 0:
+            cf.write(f"[[{book} {prev_chapter}|<-]] ")
+        cf.write("✞ ")
+        cf.write(f"[[{book} {next_chapter}|->]]\n")
+
+print(f"✅ Markdown files created in the '{output_folder}' folder.")
