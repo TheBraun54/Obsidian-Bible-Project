@@ -1,0 +1,18 @@
+---
+book: 1 Corinthians
+chapter: 14
+verse: 40
+reference: 1 Corinthians 14:40
+verse_id: 1CO1440
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Let all things be done honestly, and by order.

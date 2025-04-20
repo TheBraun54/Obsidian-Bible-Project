@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 19
+verse: 7
+reference: Jeremiah 19:7
+verse_id: JER1907
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I will bring the counsell of Iudah and Ierusalem to nought in this place, and I will cause them to fall by the sword before their enemies, & by the hand of them that seeke their liues: and their carkeises will I giue to be meate for ye foules of the heauen, and to the beastes of the fielde.

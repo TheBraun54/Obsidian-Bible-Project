@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 49
+verse: 10
+reference: Jeremiah 49:10
+verse_id: JER4910
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For I haue discouered Esau: I haue vncouered his secrets, and he shall not be able to hide himselfe: his seede is wasted, and his brethren and his neighbours, and there shall be none to say,

@@ -1,0 +1,18 @@
+---
+book: 2 Kings
+chapter: 23
+verse: 6
+reference: 2 Kings 23:6
+verse_id: 2KI2306
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And he brought out the groue from the Temple of the Lord without Ierusalem vnto the valley of Kedron, and burnt it in the valley Kedron, and stampt it to pouder, and cast the dust thereof vpon the graues of the children of the people.

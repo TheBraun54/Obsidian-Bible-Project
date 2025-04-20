@@ -1,0 +1,18 @@
+---
+book: Proverbs
+chapter: 26
+verse: 16
+reference: Proverbs 26:16
+verse_id: PRO2616
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+The sluggard is wiser in his owne conceite, then seuen men that can render a reason.

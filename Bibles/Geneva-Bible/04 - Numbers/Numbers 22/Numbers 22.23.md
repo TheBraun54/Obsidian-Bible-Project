@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 22
+verse: 23
+reference: Numbers 22:23
+verse_id: NUM2223
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when the asse saw the Angel of the Lord stand in the way, and his sworde drawen in his hand, the asse turned out of the way and went into the field, but Balaam smote the asse, to turne her into the way.

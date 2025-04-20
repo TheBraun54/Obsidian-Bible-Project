@@ -1,0 +1,18 @@
+---
+book: Amos
+chapter: 6
+verse: 2
+reference: Amos 6:2
+verse_id: AMO0602
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Goe you vnto Calneh, and see: and from thence goe you to Hamath the great: then goe downe to Gath of the Philistims: be they better then these kingdomes? or the border of their land greater then your border,

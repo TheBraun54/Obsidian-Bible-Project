@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 3
+verse: 8
+reference: Psalms 3:8
+verse_id: PSA0308
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Saluation belongeth vnto the Lorde, and thy blessing is vpon thy people. Selah.

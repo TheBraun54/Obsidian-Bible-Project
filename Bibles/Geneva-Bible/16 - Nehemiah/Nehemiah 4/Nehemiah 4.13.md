@@ -1,0 +1,18 @@
+---
+book: Nehemiah
+chapter: 4
+verse: 13
+reference: Nehemiah 4:13
+verse_id: NEH0413
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Therefore set I in the lower places behind the wall vpon the toppes of the stones, & placed the people by their families, with their swordes, their speares and their bowes.

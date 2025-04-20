@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 22
+verse: 10
+reference: Joshua 22:10
+verse_id: JOS2210
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when they came vnto the borders of Iorden (which are in the land of Canaan) then the children of Reuben, and the children of Gad, and the halfe tribe of Manasseh, built there an altar by Iorden, a great altar to see to.

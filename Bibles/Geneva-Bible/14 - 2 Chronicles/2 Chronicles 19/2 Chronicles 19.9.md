@@ -1,0 +1,18 @@
+---
+book: 2 Chronicles
+chapter: 19
+verse: 9
+reference: 2 Chronicles 19:9
+verse_id: 2CH1909
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And he charged them, saying, Thus shall yee doe in the feare of the Lord faithfully and with a perfite heart.

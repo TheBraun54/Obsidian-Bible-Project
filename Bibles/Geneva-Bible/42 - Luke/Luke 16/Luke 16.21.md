@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 16
+verse: 21
+reference: Luke 16:21
+verse_id: LUK1621
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And desired to bee refreshed with the crommes that fell from the riche mans table: yea, and the dogges came and licked his sores.

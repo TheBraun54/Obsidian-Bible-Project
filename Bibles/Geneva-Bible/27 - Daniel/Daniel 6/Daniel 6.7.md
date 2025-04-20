@@ -1,0 +1,18 @@
+---
+book: Daniel
+chapter: 6
+verse: 7
+reference: Daniel 6:7
+verse_id: DAN0607
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+All the rulers of thy kingdome, the officers and gouernours, the counsellers, and dukes haue consulted together to make a decree for the King and to establish a statute, that whosoeuer shall aske a petition of any god or man for thirtie dayes saue of thee, O King, he shalbe cast into the denne of lyons.

@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 17
+verse: 20
+reference: Jeremiah 17:20
+verse_id: JER1720
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And say vnto them, Heare the word of the Lord, ye Kings of Iudah, and al Iudah, and all the inhabitants of Ierusale, that enter in by these gates.

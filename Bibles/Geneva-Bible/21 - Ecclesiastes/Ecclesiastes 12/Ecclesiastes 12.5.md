@@ -1,0 +1,18 @@
+---
+book: Ecclesiastes
+chapter: 12
+verse: 5
+reference: Ecclesiastes 12:5
+verse_id: ECC1205
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Also they shalbe afraide of the hie thing, and feare shalbe in the way, and the almond tree shall flourish, and the grassehopper shall be a burden, and concupiscence shall be driuen away: for man goeth to the house of his age, and the mourners goe about in the streete.

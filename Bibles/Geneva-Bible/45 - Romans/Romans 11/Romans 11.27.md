@@ -1,0 +1,18 @@
+---
+book: Romans
+chapter: 11
+verse: 27
+reference: Romans 11:27
+verse_id: ROM1127
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And this is my couenant to them, When I shall take away their sinnes.

@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 11
+verse: 6
+reference: Acts 11:6
+verse_id: ACT1106
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Towarde the which when I had fastened mine eyes, I considered, and sawe foure footed beastes of the earth, and wilde beastes, and creeping things, and foules of the heauen.

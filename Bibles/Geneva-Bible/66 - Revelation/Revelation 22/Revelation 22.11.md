@@ -1,0 +1,18 @@
+---
+book: Revelation
+chapter: 22
+verse: 11
+reference: Revelation 22:11
+verse_id: REV2211
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+He that is vniust, let him be vniust stil and he which is filthie, let him be filthie still: and hee that is righteous, let him be righteous stil: and he that is holy, let him be holy still.

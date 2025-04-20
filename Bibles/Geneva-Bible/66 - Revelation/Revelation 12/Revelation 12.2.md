@@ -1,0 +1,18 @@
+---
+book: Revelation
+chapter: 12
+verse: 2
+reference: Revelation 12:2
+verse_id: REV1202
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And she was with childe, and cried traueiling in birth, and was pained readie to be deliuered.

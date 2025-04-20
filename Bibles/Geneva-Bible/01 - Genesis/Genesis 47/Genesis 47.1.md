@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 47
+verse: 1
+reference: Genesis 47:1
+verse_id: GEN4701
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then came Ioseph and tolde Pharaoh, and sayde, My father, and my brethren, and their sheepe, and their cattell, and all that they haue, are come out of the land of Canaan, and behold, they are in the land of Goshen.

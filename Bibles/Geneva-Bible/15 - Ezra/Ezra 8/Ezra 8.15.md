@@ -1,0 +1,18 @@
+---
+book: Ezra
+chapter: 8
+verse: 15
+reference: Ezra 8:15
+verse_id: EZR0815
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I gathered them to the Riuer that goeth toward Ahaua, and there abode we three dayes: then I viewed the people, and the Priests, and found there none of the sonnes of Leui.

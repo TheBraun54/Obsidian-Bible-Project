@@ -1,0 +1,18 @@
+---
+book: Exodus
+chapter: 4
+verse: 15
+reference: Exodus 4:15
+verse_id: EXO0415
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Therefore thou shalt speake vnto him, and put the wordes in his mouth, and I will be with thy mouth, and with his mouth, and will teach you what ye ought to doe.

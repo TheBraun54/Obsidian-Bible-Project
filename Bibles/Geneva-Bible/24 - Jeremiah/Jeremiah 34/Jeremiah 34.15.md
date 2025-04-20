@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 34
+verse: 15
+reference: Jeremiah 34:15
+verse_id: JER3415
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And ye were nowe turned, and had done right in my sight in proclayming libertie, euery man to his neighbour, and ye had made a couenant before mee in the house, whereupon my Name is called.

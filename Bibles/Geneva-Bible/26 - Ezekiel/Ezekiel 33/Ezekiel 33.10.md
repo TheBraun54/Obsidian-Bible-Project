@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 33
+verse: 10
+reference: Ezekiel 33:10
+verse_id: EZK3310
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Therefore, O thou sonne of man, speake vnto the house of Israel, Thus yee speake and say, If our transgressions and our sinnes bee vpon vs, and we are consumed because of them, howe should we then liue?

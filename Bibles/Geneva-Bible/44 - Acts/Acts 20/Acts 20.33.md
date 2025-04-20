@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 20
+verse: 33
+reference: Acts 20:33
+verse_id: ACT2033
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I haue coueted no mans siluer, nor gold, nor apparell.

@@ -1,0 +1,18 @@
+---
+book: Galatians
+chapter: 3
+verse: 11
+reference: Galatians 3:11
+verse_id: GAL0311
+translation: Geneva (GEN)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And that no man is iustified by the Law in the sight of God, it is euident: for the iust shall liue by faith.

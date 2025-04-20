@@ -1,0 +1,18 @@
+---
+book: Leviticus
+chapter: 13
+verse: 2
+reference: Leviticus 13:2
+verse_id: LEV1302
+translation: Geneva (GEN)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+The man that shall haue in the skin of his flesh a swelling or a skab, or a white spot, so that in the skinne of his flesh it be like the plague of leprosie, then he shalbe brought vnto Aaron the Priest, or vnto one of his sonnes the Priestes,
