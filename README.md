@@ -41,7 +41,6 @@ The verse-by-verse breakdown gives you **more granular control**, but the chapte
 ## Additional Information
 Feel free to explore and adapt the content in any way that fits your study needs. If you are interested in contributing, you are welcome to fork this repository and make modifications or improvements. There are other bibles apart of the **Bible Super Search Website** linked down below. 
 
-
 ## Data Source Locations
-[Bible Super Search](https://www.biblesupersearch.com/bible-downloads/)
-[Strongs CSV](https://github.com/mormon-documentation-project/strongs?tab=readme-ov-file)
+- [Bible Super Search](https://www.biblesupersearch.com/bible-downloads/)
+- [Strongs CSV](https://github.com/mormon-documentation-project/strongs?tab=readme-ov-file)
