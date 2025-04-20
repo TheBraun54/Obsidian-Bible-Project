@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 24
+verse: 34
+reference: Luke 24:34
+verse_id: LUK2434
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+saying, The Lord is risen indeed, and hath appeared to Simon.

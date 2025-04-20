@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 51
+verse: 2
+reference: Psalms 51:2
+verse_id: PSA5102
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Wash me thoroughly from mine iniquity, And cleanse me from my sin.

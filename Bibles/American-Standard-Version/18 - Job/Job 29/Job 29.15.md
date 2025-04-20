@@ -1,0 +1,18 @@
+---
+book: Job
+chapter: 29
+verse: 15
+reference: Job 29:15
+verse_id: JOB2915
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I was eyes to the blind, And feet was I to the lame.

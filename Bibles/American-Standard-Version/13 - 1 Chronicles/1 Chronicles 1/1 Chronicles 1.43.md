@@ -1,0 +1,18 @@
+---
+book: 1 Chronicles
+chapter: 1
+verse: 43
+reference: 1 Chronicles 1:43
+verse_id: 1CH0143
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Now these are the kings that reigned in the land of Edom, before there resigned any king over the children of Israel: Bela the son of Beor; and the name of his city was Dinhabah.

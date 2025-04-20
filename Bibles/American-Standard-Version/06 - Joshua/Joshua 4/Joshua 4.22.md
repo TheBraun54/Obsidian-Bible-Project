@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 4
+verse: 22
+reference: Joshua 4:22
+verse_id: JOS0422
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then ye shall let your children know, saying, Israel came over this Jordan on dry land.

@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 41
+verse: 12
+reference: Genesis 41:12
+verse_id: GEN4112
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And there was with us there a young man, a Hebrew, servant to the captain of the guard; and we told him, and he interpreted to us our dreams; to each man according to his dream he did interpret.

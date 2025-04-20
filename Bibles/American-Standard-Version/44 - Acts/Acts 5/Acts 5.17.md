@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 5
+verse: 17
+reference: Acts 5:17
+verse_id: ACT0517
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+But the high priest rose up, and all they that were with him (which is the sect of the Sadducees), and they were filled with jealousy,

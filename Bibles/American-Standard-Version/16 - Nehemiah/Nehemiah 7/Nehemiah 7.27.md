@@ -1,0 +1,18 @@
+---
+book: Nehemiah
+chapter: 7
+verse: 27
+reference: Nehemiah 7:27
+verse_id: NEH0727
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+The men of Anathoth, a hundred twenty and eight.

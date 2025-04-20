@@ -1,0 +1,18 @@
+---
+book: Hebrews
+chapter: 3
+verse: 9
+reference: Hebrews 3:9
+verse_id: HEB0309
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Where your fathers tried [me] by proving [me], And saw my works forty years.

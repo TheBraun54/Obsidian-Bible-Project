@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 47
+verse: 7
+reference: Genesis 47:7
+verse_id: GEN4707
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Joseph brought in Jacob his father, and set him before Pharaoh: and Jacob blessed Pharaoh.

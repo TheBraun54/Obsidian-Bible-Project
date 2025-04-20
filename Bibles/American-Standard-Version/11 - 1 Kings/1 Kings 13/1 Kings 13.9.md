@@ -1,0 +1,18 @@
+---
+book: 1 Kings
+chapter: 13
+verse: 9
+reference: 1 Kings 13:9
+verse_id: 1KI1309
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+for so was it charged me by the word of Jehovah, saying, Thou shalt eat no bread, nor drink water, neither return by the way that thou camest.

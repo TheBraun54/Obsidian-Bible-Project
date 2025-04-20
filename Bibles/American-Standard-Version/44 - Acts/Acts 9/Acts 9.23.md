@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 9
+verse: 23
+reference: Acts 9:23
+verse_id: ACT0923
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when many days were fulfilled, the Jews took counsel together to kill him:

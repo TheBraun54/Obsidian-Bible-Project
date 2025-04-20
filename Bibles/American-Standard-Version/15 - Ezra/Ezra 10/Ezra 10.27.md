@@ -1,0 +1,18 @@
+---
+book: Ezra
+chapter: 10
+verse: 27
+reference: Ezra 10:27
+verse_id: EZR1027
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And of the sons of Zattu: Elioenai, Eliashib, Mattaniah, and Jeremoth, and Zabad, and Aziza.

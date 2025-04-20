@@ -1,0 +1,18 @@
+---
+book: Job
+chapter: 10
+verse: 7
+reference: Job 10:7
+verse_id: JOB1007
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Although thou knowest that I am not wicked, And there is none that can deliver out of thy hand?

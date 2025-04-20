@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 20
+verse: 2
+reference: Ezekiel 20:2
+verse_id: EZK2002
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the word of Jehovah came unto me, saying,

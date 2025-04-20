@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 27
+verse: 7
+reference: Psalms 27:7
+verse_id: PSA2707
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Hear, O Jehovah, when I cry with my voice: Have mercy also upon me, and answer me.

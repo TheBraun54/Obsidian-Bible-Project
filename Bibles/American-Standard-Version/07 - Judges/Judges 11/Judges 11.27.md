@@ -1,0 +1,18 @@
+---
+book: Judges
+chapter: 11
+verse: 27
+reference: Judges 11:27
+verse_id: JDG1127
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I therefore have not sinned against thee, but thou doest me wrong to war against me: Jehovah, the Judge, be judge this day between the children of Israel and the children of Ammon.

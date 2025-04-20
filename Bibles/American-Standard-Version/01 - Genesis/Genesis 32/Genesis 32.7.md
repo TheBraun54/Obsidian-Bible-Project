@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 32
+verse: 7
+reference: Genesis 32:7
+verse_id: GEN3207
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then Jacob was greatly afraid and was distressed: and he divided the people that were with him, and the flocks, and the herds, and the camels, into two companies;

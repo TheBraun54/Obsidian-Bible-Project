@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 77
+verse: 12
+reference: Psalms 77:12
+verse_id: PSA7712
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I will meditate also upon all thy work, And muse on thy doings.

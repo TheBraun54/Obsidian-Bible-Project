@@ -1,0 +1,18 @@
+---
+book: 2 Chronicles
+chapter: 36
+verse: 20
+reference: 2 Chronicles 36:20
+verse_id: 2CH3620
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And them that had escaped from the sword carried he away to Babylon; and they were servants to him and his sons until the reign of the kingdom of Persia:

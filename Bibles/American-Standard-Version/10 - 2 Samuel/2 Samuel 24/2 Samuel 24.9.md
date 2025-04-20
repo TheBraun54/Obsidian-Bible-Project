@@ -1,0 +1,18 @@
+---
+book: 2 Samuel
+chapter: 24
+verse: 9
+reference: 2 Samuel 24:9
+verse_id: 2SA2409
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Joab gave up the sum of the numbering of the people unto the king: and there were in Israel eight hundred thousand valiant men that drew the sword; and the men of Judah were five hundred thousand men.

@@ -1,0 +1,18 @@
+---
+book: Judges
+chapter: 18
+verse: 20
+reference: Judges 18:20
+verse_id: JDG1820
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the priest's heart was glad, and he took the ephod, and the teraphim, and the graven image, and went in the midst of the people.

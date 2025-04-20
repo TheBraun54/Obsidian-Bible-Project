@@ -1,0 +1,18 @@
+---
+book: Nehemiah
+chapter: 7
+verse: 6
+reference: Nehemiah 7:6
+verse_id: NEH0706
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+These are the children of the province, that went up out of the captivity of those that had been carried away, whom Nebuchadnezzar the king of Babylon had carried away, and that returned unto Jerusalem and to Judah, every one unto his city;

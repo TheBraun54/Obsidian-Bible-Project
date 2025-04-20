@@ -1,0 +1,18 @@
+---
+book: Judges
+chapter: 2
+verse: 16
+reference: Judges 2:16
+verse_id: JDG0216
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Jehovah raised up judges, who saved them out of the hand of those that despoiled them.

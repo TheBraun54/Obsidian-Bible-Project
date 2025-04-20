@@ -1,0 +1,18 @@
+---
+book: Job
+chapter: 20
+verse: 19
+reference: Job 20:19
+verse_id: JOB2019
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For he hath oppressed and forsaken the poor; He hath violently taken away a house, and he shall not build it up.

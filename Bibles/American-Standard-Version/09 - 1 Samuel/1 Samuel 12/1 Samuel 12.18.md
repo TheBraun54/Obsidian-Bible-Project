@@ -1,0 +1,18 @@
+---
+book: 1 Samuel
+chapter: 12
+verse: 18
+reference: 1 Samuel 12:18
+verse_id: 1SA1218
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+So Samuel called unto Jehovah; and Jehovah sent thunder and rain that day: and all the people greatly feared Jehovah and Samuel.

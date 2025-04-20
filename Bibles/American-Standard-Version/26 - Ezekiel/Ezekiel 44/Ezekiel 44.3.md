@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 44
+verse: 3
+reference: Ezekiel 44:3
+verse_id: EZK4403
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+As for the prince, he shall sit therein as prince to eat bread before Jehovah; he shall enter by the way of the porch of the gate, and shall go out by the way of the same.

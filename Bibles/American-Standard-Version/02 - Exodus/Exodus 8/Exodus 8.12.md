@@ -1,0 +1,18 @@
+---
+book: Exodus
+chapter: 8
+verse: 12
+reference: Exodus 8:12
+verse_id: EXO0812
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Moses and Aaron went out from Pharaoh: and Moses cried unto Jehovah concerning the frogs which he had brought upon Pharaoh.

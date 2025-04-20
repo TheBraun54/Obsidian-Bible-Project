@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 29
+verse: 18
+reference: Jeremiah 29:18
+verse_id: JER2918
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I will pursue after them with the sword, with the famine, and with the pestilence, and will deliver them to be tossed to and fro among all the kingdoms of the earth, to be an execration, and an astonishment, and a hissing, and a reproach, among all the nations whither I have driven them;

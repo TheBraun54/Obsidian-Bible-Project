@@ -1,0 +1,18 @@
+---
+book: Revelation
+chapter: 13
+verse: 11
+reference: Revelation 13:11
+verse_id: REV1311
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I saw another beast coming up out of the earth; and he had two horns like unto a lamb, and he spake as a dragon.

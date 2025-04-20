@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 19
+verse: 46
+reference: Joshua 19:46
+verse_id: JOS1946
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and Me-jarkon, and Rakkon, with the border over against Joppa.

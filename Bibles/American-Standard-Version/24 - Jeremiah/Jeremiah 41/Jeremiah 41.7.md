@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 41
+verse: 7
+reference: Jeremiah 41:7
+verse_id: JER4107
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And it was so, when they came into the midst of the city, that Ishmael the son of Nethaniah slew them, [and cast them] into the midst of the pit, he, and the men that were with him.

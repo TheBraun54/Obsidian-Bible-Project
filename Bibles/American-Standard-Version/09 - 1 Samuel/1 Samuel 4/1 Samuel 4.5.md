@@ -1,0 +1,18 @@
+---
+book: 1 Samuel
+chapter: 4
+verse: 5
+reference: 1 Samuel 4:5
+verse_id: 1SA0405
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when the ark of the covenant of Jehovah came into the camp, all Israel shouted with a great shout, so that the earth rang again.

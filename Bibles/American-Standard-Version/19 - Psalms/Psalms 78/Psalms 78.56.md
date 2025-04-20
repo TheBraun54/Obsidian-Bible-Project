@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 78
+verse: 56
+reference: Psalms 78:56
+verse_id: PSA7856
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Yet they tempted and rebelled against the Most High God, And kept not his testimonies;

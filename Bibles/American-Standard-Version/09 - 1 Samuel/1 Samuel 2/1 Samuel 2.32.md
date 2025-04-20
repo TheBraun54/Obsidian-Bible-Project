@@ -1,0 +1,18 @@
+---
+book: 1 Samuel
+chapter: 2
+verse: 32
+reference: 1 Samuel 2:32
+verse_id: 1SA0232
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And thou shalt behold the affliction of [my] habitation, in all the wealth which [God] shall give Israel; and there shall not be an old man in thy house for ever.

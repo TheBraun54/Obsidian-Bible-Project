@@ -1,0 +1,115 @@
+---
+book: Judges
+chapter: 20
+reference: Judges 20
+translation: American Standard Version (ASV)
+tags: [bible/chapter/bible/ot]
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+[[Judges 19|<-]] ✞ [[Judges 21|->]]
+
+# Judges 20
+
+![[Judges 20.1]]
+
+![[Judges 20.2]]
+
+![[Judges 20.3]]
+
+![[Judges 20.4]]
+
+![[Judges 20.5]]
+
+![[Judges 20.6]]
+
+![[Judges 20.7]]
+
+![[Judges 20.8]]
+
+![[Judges 20.9]]
+
+![[Judges 20.10]]
+
+![[Judges 20.11]]
+
+![[Judges 20.12]]
+
+![[Judges 20.13]]
+
+![[Judges 20.14]]
+
+![[Judges 20.15]]
+
+![[Judges 20.16]]
+
+![[Judges 20.17]]
+
+![[Judges 20.18]]
+
+![[Judges 20.19]]
+
+![[Judges 20.20]]
+
+![[Judges 20.21]]
+
+![[Judges 20.22]]
+
+![[Judges 20.23]]
+
+![[Judges 20.24]]
+
+![[Judges 20.25]]
+
+![[Judges 20.26]]
+
+![[Judges 20.27]]
+
+![[Judges 20.28]]
+
+![[Judges 20.29]]
+
+![[Judges 20.30]]
+
+![[Judges 20.31]]
+
+![[Judges 20.32]]
+
+![[Judges 20.33]]
+
+![[Judges 20.34]]
+
+![[Judges 20.35]]
+
+![[Judges 20.36]]
+
+![[Judges 20.37]]
+
+![[Judges 20.38]]
+
+![[Judges 20.39]]
+
+![[Judges 20.40]]
+
+![[Judges 20.41]]
+
+![[Judges 20.42]]
+
+![[Judges 20.43]]
+
+![[Judges 20.44]]
+
+![[Judges 20.45]]
+
+![[Judges 20.46]]
+
+![[Judges 20.47]]
+
+![[Judges 20.48]]
+
+[[Judges 19|<-]] ✞ [[Judges 21|->]]

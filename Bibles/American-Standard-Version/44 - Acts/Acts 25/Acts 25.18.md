@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 25
+verse: 18
+reference: Acts 25:18
+verse_id: ACT2518
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Concerning whom, when the accusers stood up, they brought no charge of such evil things as I supposed;

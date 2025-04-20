@@ -1,0 +1,18 @@
+---
+book: Leviticus
+chapter: 15
+verse: 13
+reference: Leviticus 15:13
+verse_id: LEV1513
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when he that hath an issue is cleansed of his issue, then he shall number to himself seven days for his cleansing, and wash his clothes; and he shall bathe his flesh in running water, and shall be clean.

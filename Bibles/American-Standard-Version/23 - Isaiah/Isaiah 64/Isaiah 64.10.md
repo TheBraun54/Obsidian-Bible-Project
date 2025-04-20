@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 64
+verse: 10
+reference: Isaiah 64:10
+verse_id: ISA6410
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Thy holy cities are become a wilderness, Zion is become a wilderness, Jerusalem a desolation.

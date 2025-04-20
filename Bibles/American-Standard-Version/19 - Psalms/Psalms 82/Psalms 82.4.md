@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 82
+verse: 4
+reference: Psalms 82:4
+verse_id: PSA8204
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Rescue the poor and needy: Deliver them out of the hand of the wicked.

@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 107
+verse: 24
+reference: Psalms 107:24
+verse_id: PSA10724
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+These see the works of Jehovah, And his wonders in the deep.

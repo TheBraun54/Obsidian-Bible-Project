@@ -1,0 +1,18 @@
+---
+book: 1 Chronicles
+chapter: 16
+verse: 40
+reference: 1 Chronicles 16:40
+verse_id: 1CH1640
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+to offer burnt-offerings unto Jehovah upon the altar of burnt-offering continually morning and evening, even according to all that is written in the law of Jehovah, which he commanded unto Israel;

@@ -1,0 +1,18 @@
+---
+book: 2 Corinthians
+chapter: 6
+verse: 3
+reference: 2 Corinthians 6:3
+verse_id: 2CO0603
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+giving no occasion of stumbling in anything, that our ministration be not blamed;

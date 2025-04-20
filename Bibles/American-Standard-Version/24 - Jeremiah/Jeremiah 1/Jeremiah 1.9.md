@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 1
+verse: 9
+reference: Jeremiah 1:9
+verse_id: JER0109
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then Jehovah put forth his hand, and touched my mouth; and Jehovah said unto me, Behold, I have put my words in thy mouth:

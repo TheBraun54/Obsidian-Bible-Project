@@ -1,0 +1,18 @@
+---
+book: 2 Kings
+chapter: 13
+verse: 5
+reference: 2 Kings 13:5
+verse_id: 2KI1305
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+(And Jehovah gave Israel a saviour, so that they went out from under the hand of the Syrians; and the children of Israel dwelt in their tents as beforetime.

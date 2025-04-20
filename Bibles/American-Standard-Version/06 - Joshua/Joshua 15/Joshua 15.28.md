@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 15
+verse: 28
+reference: Joshua 15:28
+verse_id: JOS1528
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and Hazar-shual, and Beer-sheba, and Biziothiah,

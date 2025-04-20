@@ -1,0 +1,18 @@
+---
+book: Judges
+chapter: 2
+verse: 19
+reference: Judges 2:19
+verse_id: JDG0219
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+But it came to pass, when the judge was dead, that they turned back, and dealt more corruptly than their fathers, in following other gods to serve them, and to bow down unto them; they ceased not from their doings, nor from their stubborn way.

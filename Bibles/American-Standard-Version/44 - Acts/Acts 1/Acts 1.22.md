@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 1
+verse: 22
+reference: Acts 1:22
+verse_id: ACT0122
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+beginning from the baptism of John, unto the day that he was received up from us, of these must one become a witness with us of his resurrection.

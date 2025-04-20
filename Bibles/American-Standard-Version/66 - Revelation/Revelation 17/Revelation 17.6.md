@@ -1,0 +1,18 @@
+---
+book: Revelation
+chapter: 17
+verse: 6
+reference: Revelation 17:6
+verse_id: REV1706
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I saw the woman drunken with the blood of the saints, and with the blood of the martyrs of Jesus. And when I saw her, I wondered with a great wonder.

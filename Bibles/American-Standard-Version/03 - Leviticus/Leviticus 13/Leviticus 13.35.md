@@ -1,0 +1,18 @@
+---
+book: Leviticus
+chapter: 13
+verse: 35
+reference: Leviticus 13:35
+verse_id: LEV1335
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+But if the scall spread abroad in the skin after his cleansing,

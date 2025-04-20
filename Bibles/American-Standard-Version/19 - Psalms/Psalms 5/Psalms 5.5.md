@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 5
+verse: 5
+reference: Psalms 5:5
+verse_id: PSA0505
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+The arrogant shall not stand in thy sight: Thou hatest all workers of iniquity.

@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 37
+verse: 29
+reference: Psalms 37:29
+verse_id: PSA3729
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+The righteous shall inherit the land, And dwell therein for ever.

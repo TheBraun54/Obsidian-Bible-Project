@@ -1,0 +1,18 @@
+---
+book: Esther
+chapter: 5
+verse: 13
+reference: Esther 5:13
+verse_id: EST0513
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Yet all this availeth me nothing, so long as I see Mordecai the Jew sitting at the king's gate.

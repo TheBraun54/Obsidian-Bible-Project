@@ -1,0 +1,18 @@
+---
+book: Amos
+chapter: 5
+verse: 10
+reference: Amos 5:10
+verse_id: AMO0510
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+They hate him that reproveth in the gate, and they abhor him that speaketh uprightly.

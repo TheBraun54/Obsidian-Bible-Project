@@ -1,0 +1,18 @@
+---
+book: Hebrews
+chapter: 7
+verse: 18
+reference: Hebrews 7:18
+verse_id: HEB0718
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For there is a disannulling of a foregoing commandment because of its weakness and unprofitableness

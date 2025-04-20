@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 14
+verse: 28
+reference: Acts 14:28
+verse_id: ACT1428
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And they tarried no little time with the disciples.

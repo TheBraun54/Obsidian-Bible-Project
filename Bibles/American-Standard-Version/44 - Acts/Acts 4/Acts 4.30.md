@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 4
+verse: 30
+reference: Acts 4:30
+verse_id: ACT0430
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+while thy stretchest forth thy hand to heal; and that signs and wonders may be done through the name of thy holy Servant Jesus.

@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 42
+verse: 16
+reference: Isaiah 42:16
+verse_id: ISA4216
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I will bring the blind by a way that they know not; in paths that they know not will I lead them; I will make darkness light before them, and crooked places straight. These things will I do, and I will not forsake them.

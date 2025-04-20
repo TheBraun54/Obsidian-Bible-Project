@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 3
+verse: 45
+reference: Numbers 3:45
+verse_id: NUM0345
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Take the Levites instead of all the first-born among the children of Israel, and the cattle of the Levites instead of their cattle; and the Levites shall be mine: I am Jehovah.

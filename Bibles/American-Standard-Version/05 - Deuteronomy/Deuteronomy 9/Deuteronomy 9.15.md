@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 9
+verse: 15
+reference: Deuteronomy 9:15
+verse_id: DEU0915
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+So I turned and came down from the mount, and the mount was burning with fire: and the two tables of the covenant were in my two hands.

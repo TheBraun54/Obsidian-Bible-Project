@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 137
+verse: 7
+reference: Psalms 137:7
+verse_id: PSA13707
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Remember, O Jehovah, against the children of Edom The day of Jerusalem; Who said, Rase it, rase it, Even to the foundation thereof.

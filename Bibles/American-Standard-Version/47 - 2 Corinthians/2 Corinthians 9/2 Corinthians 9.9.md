@@ -1,0 +1,18 @@
+---
+book: 2 Corinthians
+chapter: 9
+verse: 9
+reference: 2 Corinthians 9:9
+verse_id: 2CO0909
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+as it is written, He hath scattered abroad, he hath given to the poor; His righteousness abideth for ever.

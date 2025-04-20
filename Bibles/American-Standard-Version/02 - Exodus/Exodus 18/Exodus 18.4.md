@@ -1,0 +1,18 @@
+---
+book: Exodus
+chapter: 18
+verse: 4
+reference: Exodus 18:4
+verse_id: EXO1804
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and the name of the other was Eliezer; for [he said], The God of my father was my help, and delivered me from the sword of Pharaoh.

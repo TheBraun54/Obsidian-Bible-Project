@@ -1,0 +1,18 @@
+---
+book: 2 Chronicles
+chapter: 19
+verse: 11
+reference: 2 Chronicles 19:11
+verse_id: 2CH1911
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And, behold, Amariah the chief priest is over you in all matters of Jehovah; and Zebadiah the son of Ishmael, the ruler of the house of Judah, in all the king's matters: also the Levites shall be officers before you. [ Deal courageously, and Jehovah be with the good.

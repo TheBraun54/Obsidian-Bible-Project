@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 22
+verse: 6
+reference: Ezekiel 22:6
+verse_id: EZK2206
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Behold, the princes of Israel, every one according to his power, have been in thee to shed blood.

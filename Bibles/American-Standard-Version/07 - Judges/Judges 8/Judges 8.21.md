@@ -1,0 +1,18 @@
+---
+book: Judges
+chapter: 8
+verse: 21
+reference: Judges 8:21
+verse_id: JDG0821
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then Zebah and Zalmunna said, Rise thou, and fall upon us; for as the man is, so is his strength. And Gideon arose, and slew Zebah and Zalmunna, and took the crescents that were on their camels' necks.

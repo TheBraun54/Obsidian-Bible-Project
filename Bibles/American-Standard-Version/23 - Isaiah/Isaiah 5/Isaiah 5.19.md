@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 5
+verse: 19
+reference: Isaiah 5:19
+verse_id: ISA0519
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+that say, Let him make speed, let him hasten his work, that we may see it; and let the counsel of the Holy One of Israel draw nigh and come, that we may know it!

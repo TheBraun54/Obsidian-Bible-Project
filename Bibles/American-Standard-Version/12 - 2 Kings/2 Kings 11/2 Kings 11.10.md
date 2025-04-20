@@ -1,0 +1,18 @@
+---
+book: 2 Kings
+chapter: 11
+verse: 10
+reference: 2 Kings 11:10
+verse_id: 2KI1110
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the priest delivered to the captains over hundreds the spears and shields that had been king David's, which were in the house of Jehovah.

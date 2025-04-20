@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 43
+verse: 9
+reference: Isaiah 43:9
+verse_id: ISA4309
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Let all the nations be gathered together, and let the peoples be assembled: who among them can declare this, and show us former things? let them bring their witnesses, that they may be justified; or let them hear, and say, It is truth.

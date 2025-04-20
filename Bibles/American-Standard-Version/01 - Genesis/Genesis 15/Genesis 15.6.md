@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 15
+verse: 6
+reference: Genesis 15:6
+verse_id: GEN1506
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And he believed in Jehovah; and he reckoned it to him for righteousness.

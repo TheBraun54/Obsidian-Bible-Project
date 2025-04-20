@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 11
+verse: 14
+reference: Deuteronomy 11:14
+verse_id: DEU1114
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+that I will give the rain of your land in its season, the former rain and the latter rain, that thou mayest gather in thy grain, and thy new wine, and thine oil.

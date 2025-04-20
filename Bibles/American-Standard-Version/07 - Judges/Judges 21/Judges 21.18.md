@@ -1,0 +1,18 @@
+---
+book: Judges
+chapter: 21
+verse: 18
+reference: Judges 21:18
+verse_id: JDG2118
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Howbeit we may not give them wives of our daughters, for the children of Israel had sworn, saying, Cursed be he that giveth a wife to Benjamin.

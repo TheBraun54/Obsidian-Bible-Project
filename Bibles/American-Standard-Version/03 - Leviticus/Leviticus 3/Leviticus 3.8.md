@@ -1,0 +1,18 @@
+---
+book: Leviticus
+chapter: 3
+verse: 8
+reference: Leviticus 3:8
+verse_id: LEV0308
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and he shall lay his hand upon the head of his oblation, and kill it before the tent of meeting: and Aaron's sons shall sprinkle the blood thereof upon the altar round about.

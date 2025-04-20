@@ -1,0 +1,18 @@
+---
+book: Proverbs
+chapter: 2
+verse: 20
+reference: Proverbs 2:20
+verse_id: PRO0220
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+That thou mayest walk in the way of good men, And keep the paths of the righteous.

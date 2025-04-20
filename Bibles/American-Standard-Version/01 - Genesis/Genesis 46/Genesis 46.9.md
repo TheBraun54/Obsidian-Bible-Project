@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 46
+verse: 9
+reference: Genesis 46:9
+verse_id: GEN4609
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the sons of Reuben: Hanoch, and Pallu, and Hezron, and Carmi.

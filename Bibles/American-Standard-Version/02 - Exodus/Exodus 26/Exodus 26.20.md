@@ -1,0 +1,18 @@
+---
+book: Exodus
+chapter: 26
+verse: 20
+reference: Exodus 26:20
+verse_id: EXO2620
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and for the second side of the tabernacle, on the north side, twenty boards,

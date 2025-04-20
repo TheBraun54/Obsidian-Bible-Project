@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 32
+verse: 28
+reference: Deuteronomy 32:28
+verse_id: DEU3228
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For they are a nation void of counsel, And there is no understanding in them.

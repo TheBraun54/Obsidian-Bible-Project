@@ -1,0 +1,18 @@
+---
+book: Judges
+chapter: 8
+verse: 35
+reference: Judges 8:35
+verse_id: JDG0835
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+neither showed they kindness to the house of Jerubbaal, [who is] Gideon, according to all the goodness which he had showed unto Israel.

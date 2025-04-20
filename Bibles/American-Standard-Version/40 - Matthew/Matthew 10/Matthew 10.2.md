@@ -1,0 +1,18 @@
+---
+book: Matthew
+chapter: 10
+verse: 2
+reference: Matthew 10:2
+verse_id: MAT1002
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Now the names of the twelve apostles are these: The first, Simon, who is called Peter, and Andrew his brother; James the [son] of Zebedee, and John his brother;

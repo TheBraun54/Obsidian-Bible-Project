@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 15
+verse: 22
+reference: Deuteronomy 15:22
+verse_id: DEU1522
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Thou shalt eat it within thy gates: the unclean and the clean [shall eat it] alike, as the gazelle, and as the hart.

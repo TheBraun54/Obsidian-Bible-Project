@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 41
+verse: 24
+reference: Ezekiel 41:24
+verse_id: EZK4124
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the doors had two leaves [apiece], two turning leaves: two [leaves] for the one door, and two leaves for the other.

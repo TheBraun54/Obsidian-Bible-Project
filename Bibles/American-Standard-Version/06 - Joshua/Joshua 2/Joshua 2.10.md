@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 2
+verse: 10
+reference: Joshua 2:10
+verse_id: JOS0210
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For we have heard how Jehovah dried up the water of the Red Sea before you, when ye came out of Egypt; and what ye did unto the two kings of the Amorites, that were beyond the Jordan, unto Sihon and to Og, whom ye utterly destroyed.

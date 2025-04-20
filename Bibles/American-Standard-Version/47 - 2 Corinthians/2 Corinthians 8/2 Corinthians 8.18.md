@@ -1,0 +1,18 @@
+---
+book: 2 Corinthians
+chapter: 8
+verse: 18
+reference: 2 Corinthians 8:18
+verse_id: 2CO0818
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And we have sent together with him the brother whose praise in the gospel [is spread] through all the churches;

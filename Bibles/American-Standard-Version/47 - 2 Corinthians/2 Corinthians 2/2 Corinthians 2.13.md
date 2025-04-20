@@ -1,0 +1,18 @@
+---
+book: 2 Corinthians
+chapter: 2
+verse: 13
+reference: 2 Corinthians 2:13
+verse_id: 2CO0213
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I had no relief for my spirit, because I found not Titus my brother: but taking my leave of them, I went forth into Macedonia.

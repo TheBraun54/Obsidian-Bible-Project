@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 18
+verse: 7
+reference: Deuteronomy 18:7
+verse_id: DEU1807
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+then he shall minister in the name of Jehovah his God, as all his brethren the Levites do, who stand there before Jehovah.

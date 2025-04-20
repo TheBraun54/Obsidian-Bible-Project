@@ -1,0 +1,18 @@
+---
+book: Ecclesiastes
+chapter: 10
+verse: 18
+reference: Ecclesiastes 10:18
+verse_id: ECC1018
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+By slothfulness the roof sinketh in; and through idleness of the hands the house leaketh.

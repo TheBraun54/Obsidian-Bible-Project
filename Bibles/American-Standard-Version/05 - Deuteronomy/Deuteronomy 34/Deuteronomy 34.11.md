@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 34
+verse: 11
+reference: Deuteronomy 34:11
+verse_id: DEU3411
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+in all the signs and the wonders, which Jehovah sent him to do in the land of Egypt, to Pharaoh, and to all his servants, and to all his land,

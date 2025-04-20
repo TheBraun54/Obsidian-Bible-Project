@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 28
+verse: 51
+reference: Deuteronomy 28:51
+verse_id: DEU2851
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and shall eat the fruit of thy cattle, and the fruit of thy ground, until thou be destroyed; that also shall not leave thee grain, new wine, or oil, the increase of thy cattle, or the young of thy flock, until they have caused thee to perish.

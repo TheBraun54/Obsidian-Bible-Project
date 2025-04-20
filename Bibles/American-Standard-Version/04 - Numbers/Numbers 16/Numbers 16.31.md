@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 16
+verse: 31
+reference: Numbers 16:31
+verse_id: NUM1631
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And it came to pass, as he made an end of speaking all these words, that the ground clave asunder that was under them;

@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 66
+verse: 6
+reference: Isaiah 66:6
+verse_id: ISA6606
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+A voice of tumult from the city, a voice from the temple, a voice of Jehovah that rendereth recompense to his enemies.

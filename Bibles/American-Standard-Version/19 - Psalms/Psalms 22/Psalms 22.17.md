@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 22
+verse: 17
+reference: Psalms 22:17
+verse_id: PSA2217
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I may count all my bones; They look and stare upon me.

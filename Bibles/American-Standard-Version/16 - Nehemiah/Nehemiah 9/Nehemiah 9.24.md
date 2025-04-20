@@ -1,0 +1,18 @@
+---
+book: Nehemiah
+chapter: 9
+verse: 24
+reference: Nehemiah 9:24
+verse_id: NEH0924
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+So the children went in and possessed the land, and thou subduedst before them the inhabitants of the land, the Canaanites, and gavest them into their hands, with their kings, and the peoples of the land, that they might do with them as they would.

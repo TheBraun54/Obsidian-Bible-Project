@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 22
+verse: 20
+reference: Jeremiah 22:20
+verse_id: JER2220
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Go up to Lebanon, and cry; and lift up thy voice in Bashan, and cry from Abarim; for all thy lovers are destroyed.

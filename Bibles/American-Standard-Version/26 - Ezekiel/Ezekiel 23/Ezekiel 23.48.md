@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 23
+verse: 48
+reference: Ezekiel 23:48
+verse_id: EZK2348
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Thus will I cause lewdness to cease out of the land, that all women may be taught not to do after your lewdness.

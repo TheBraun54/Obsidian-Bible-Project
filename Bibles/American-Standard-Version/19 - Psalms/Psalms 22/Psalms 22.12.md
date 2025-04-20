@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 22
+verse: 12
+reference: Psalms 22:12
+verse_id: PSA2212
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Many bulls have compassed me; Strong bulls of Bashan have beset me round.

@@ -1,0 +1,18 @@
+---
+book: Job
+chapter: 35
+verse: 12
+reference: Job 35:12
+verse_id: JOB3512
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+There they cry, but none giveth answer, Because of the pride of evil men.

@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 99
+verse: 3
+reference: Psalms 99:3
+verse_id: PSA9903
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Let them praise thy great and terrible name: Holy is he.

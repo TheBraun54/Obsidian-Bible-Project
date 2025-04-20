@@ -1,0 +1,18 @@
+---
+book: Matthew
+chapter: 22
+verse: 33
+reference: Matthew 22:33
+verse_id: MAT2233
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when the multitudes heard it, they were astonished at his teaching.

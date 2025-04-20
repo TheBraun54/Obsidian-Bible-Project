@@ -1,0 +1,18 @@
+---
+book: 1 Samuel
+chapter: 3
+verse: 10
+reference: 1 Samuel 3:10
+verse_id: 1SA0310
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Jehovah came, and stood, and called as at other times, Samuel, Samuel. Then Samuel said, Speak; for thy servant heareth.

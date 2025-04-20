@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 1
+verse: 2
+reference: Psalms 1:2
+verse_id: PSA0102
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+But his delight is in the law of Jehovah; And on his law doth he meditate day and night.

@@ -1,0 +1,18 @@
+---
+book: 2 Chronicles
+chapter: 32
+verse: 2
+reference: 2 Chronicles 32:2
+verse_id: 2CH3202
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when Hezekiah saw that Sennacherib was come, and that he was purposed to fight against Jerusalem,

@@ -1,0 +1,18 @@
+---
+book: Matthew
+chapter: 21
+verse: 45
+reference: Matthew 21:45
+verse_id: MAT2145
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when the chief priests and the Pharisees heard his parables, they perceived that he spake of them.

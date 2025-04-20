@@ -1,0 +1,18 @@
+---
+book: 1 Chronicles
+chapter: 24
+verse: 12
+reference: 1 Chronicles 24:12
+verse_id: 1CH2412
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+the eleventh to Eliashib, the twelfth to Jakim,

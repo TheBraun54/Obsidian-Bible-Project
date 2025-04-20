@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 119
+verse: 83
+reference: Psalms 119:83
+verse_id: PSA11983
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For I am become like a wine-skin in the smoke; Yet do I not forget thy statutes.

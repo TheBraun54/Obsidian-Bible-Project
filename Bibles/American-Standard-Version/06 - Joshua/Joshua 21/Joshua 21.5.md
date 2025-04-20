@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 21
+verse: 5
+reference: Joshua 21:5
+verse_id: JOS2105
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the rest of the children of Kohath had by lot out of the families of the tribe of Ephraim, and out of the tribe of Dan, and out of the half-tribe of Manasseh, ten cities.

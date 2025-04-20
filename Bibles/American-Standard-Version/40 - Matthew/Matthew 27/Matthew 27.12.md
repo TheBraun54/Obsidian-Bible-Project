@@ -1,0 +1,18 @@
+---
+book: Matthew
+chapter: 27
+verse: 12
+reference: Matthew 27:12
+verse_id: MAT2712
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And when he was accused by the chief priests and elders, he answered nothing.

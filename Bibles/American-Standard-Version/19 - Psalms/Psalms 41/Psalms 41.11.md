@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 41
+verse: 11
+reference: Psalms 41:11
+verse_id: PSA4111
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+By this I know that thou delightest in me, Because mine enemy doth not triumph over me.

@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 16
+verse: 3
+reference: Genesis 16:3
+verse_id: GEN1603
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Sarai, Abram's wife, took Hagar the Egyptian, her handmaid, after Abram had dwelt ten years in the land of Canaan, and gave her to Abram her husband to be his wife.

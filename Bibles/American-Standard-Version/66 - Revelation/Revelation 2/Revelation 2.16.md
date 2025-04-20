@@ -1,0 +1,18 @@
+---
+book: Revelation
+chapter: 2
+verse: 16
+reference: Revelation 2:16
+verse_id: REV0216
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Repent therefore; or else I come to thee quickly, and I will make war against them with the sword of my mouth.

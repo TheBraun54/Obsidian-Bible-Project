@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 62
+verse: 9
+reference: Psalms 62:9
+verse_id: PSA6209
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Surely men of low degree are vanity, and men of high degree are a lie: In the balances they will go up; They are together lighter than vanity.

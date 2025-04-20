@@ -1,0 +1,18 @@
+---
+book: Zechariah
+chapter: 13
+verse: 2
+reference: Zechariah 13:2
+verse_id: ZEC1302
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And it shall come to pass in that day, saith Jehovah of hosts, that I will cut off the names of the idols out of the land, and they shall no more be remembered; and also I will cause the prophets and the unclean spirit to pass out of the land.

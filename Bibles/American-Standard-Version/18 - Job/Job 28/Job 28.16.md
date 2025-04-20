@@ -1,0 +1,18 @@
+---
+book: Job
+chapter: 28
+verse: 16
+reference: Job 28:16
+verse_id: JOB2816
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+It cannot be valued with the gold of Ophir, With the precious onyx, or the sapphire.

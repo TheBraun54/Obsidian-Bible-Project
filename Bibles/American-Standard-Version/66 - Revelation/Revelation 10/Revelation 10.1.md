@@ -1,0 +1,18 @@
+---
+book: Revelation
+chapter: 10
+verse: 1
+reference: Revelation 10:1
+verse_id: REV1001
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I saw another strong angel coming down out of heaven, arrayed with a cloud; and the rainbow was upon his head, and his face was as the sun, and his feet as pillars of fire;

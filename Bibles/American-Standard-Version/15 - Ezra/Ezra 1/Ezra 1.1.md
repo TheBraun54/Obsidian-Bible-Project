@@ -1,0 +1,18 @@
+---
+book: Ezra
+chapter: 1
+verse: 1
+reference: Ezra 1:1
+verse_id: EZR0101
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Now in the first year of Cyrus king of Persia, that the word of Jehovah by the mouth of Jeremiah might be accomplished, Jehovah stirred up the spirit of Cyrus king of Persia, so that he made a proclamation throughout all his kingdom, and [put it] also in writing, saying,

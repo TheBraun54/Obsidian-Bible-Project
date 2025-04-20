@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 23
+verse: 52
+reference: Luke 23:52
+verse_id: LUK2352
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+this man went to Pilate, and asked for the body of Jesus.

@@ -1,0 +1,18 @@
+---
+book: Daniel
+chapter: 5
+verse: 26
+reference: Daniel 5:26
+verse_id: DAN0526
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+This is the interpretation of the thing: MENE; God hath numbered thy kingdom, and brought it to an end;

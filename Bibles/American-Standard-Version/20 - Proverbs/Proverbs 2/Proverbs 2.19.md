@@ -1,0 +1,18 @@
+---
+book: Proverbs
+chapter: 2
+verse: 19
+reference: Proverbs 2:19
+verse_id: PRO0219
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+None that go unto her return again, Neither do they attain unto the paths of life:

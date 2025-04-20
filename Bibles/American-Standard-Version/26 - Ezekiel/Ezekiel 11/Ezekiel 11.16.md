@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 11
+verse: 16
+reference: Ezekiel 11:16
+verse_id: EZK1116
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Therefore say, Thus saith the Lord Jehovah: Whereas I have removed them far off among the nations, and whereas I have scattered them among the countries, yet will I be to them a sanctuary for a little while in the countries where they are come.

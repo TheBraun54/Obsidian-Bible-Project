@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 27
+verse: 6
+reference: Acts 27:6
+verse_id: ACT2706
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And there the centurion found a ship of Alexandria sailing for Italy; and he put us therein.

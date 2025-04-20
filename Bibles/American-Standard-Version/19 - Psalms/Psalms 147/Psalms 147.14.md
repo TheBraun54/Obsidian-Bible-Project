@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 147
+verse: 14
+reference: Psalms 147:14
+verse_id: PSA14714
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+He maketh peace in thy borders; He filleth thee with the finest of the wheat.

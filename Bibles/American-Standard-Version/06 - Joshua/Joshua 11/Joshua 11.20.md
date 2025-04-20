@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 11
+verse: 20
+reference: Joshua 11:20
+verse_id: JOS1120
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For it was of Jehovah to harden their hearts, to come against Israel in battle, that he might utterly destroy them, that they might have no favor, but that he might destroy them, as Jehovah commanded Moses.

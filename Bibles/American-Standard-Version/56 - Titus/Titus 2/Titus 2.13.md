@@ -1,0 +1,18 @@
+---
+book: Titus
+chapter: 2
+verse: 13
+reference: Titus 2:13
+verse_id: TIT0213
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+looking for the blessed hope and appearing of the glory of the great God and our Saviour Jesus Christ;

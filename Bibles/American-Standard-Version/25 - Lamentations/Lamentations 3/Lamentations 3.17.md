@@ -1,0 +1,18 @@
+---
+book: Lamentations
+chapter: 3
+verse: 17
+reference: Lamentations 3:17
+verse_id: LAM0317
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And thou hast removed my soul far off from peace; I forgat prosperity.

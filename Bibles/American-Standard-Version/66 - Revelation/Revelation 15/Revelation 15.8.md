@@ -1,0 +1,18 @@
+---
+book: Revelation
+chapter: 15
+verse: 8
+reference: Revelation 15:8
+verse_id: REV1508
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the temple was filled with smoke from the glory of God, and from his power; and none was able to enter into the temple, till the seven plagues of the seven angels should be finished.

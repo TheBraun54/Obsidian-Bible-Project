@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 24
+verse: 26
+reference: Joshua 24:26
+verse_id: JOS2426
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Joshua wrote these words in the book of the law of God; and he took a great stone, and set it up there under the oak that was by the sanctuary of Jehovah.

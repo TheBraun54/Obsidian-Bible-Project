@@ -1,0 +1,18 @@
+---
+book: Psalms
+chapter: 149
+verse: 8
+reference: Psalms 149:8
+verse_id: PSA14908
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+To bind their kings with chains, And their nobles with fetters of iron;

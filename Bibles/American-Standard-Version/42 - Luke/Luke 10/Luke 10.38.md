@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 10
+verse: 38
+reference: Luke 10:38
+verse_id: LUK1038
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Now as they went on their way, he entered into a certain village: and a certain woman named Martha received him into her house.

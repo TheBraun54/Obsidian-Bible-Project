@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 9
+verse: 11
+reference: Numbers 9:11
+verse_id: NUM0911
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+In the second month on the fourteenth day at even they shall keep it; they shall eat it with unleavened bread and bitter herbs:

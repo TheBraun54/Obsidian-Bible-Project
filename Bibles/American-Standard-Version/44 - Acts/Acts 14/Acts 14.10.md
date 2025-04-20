@@ -1,0 +1,18 @@
+---
+book: Acts
+chapter: 14
+verse: 10
+reference: Acts 14:10
+verse_id: ACT1410
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+said with a loud voice, Stand upright on thy feet. And he leaped up and walked.

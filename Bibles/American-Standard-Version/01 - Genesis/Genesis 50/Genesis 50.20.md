@@ -1,0 +1,18 @@
+---
+book: Genesis
+chapter: 50
+verse: 20
+reference: Genesis 50:20
+verse_id: GEN5020
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And as for you, ye meant evil against me; but God meant it for good, to bring to pass, as it is this day, to save much people alive.

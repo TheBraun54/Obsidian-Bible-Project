@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 37
+verse: 19
+reference: Jeremiah 37:19
+verse_id: JER3719
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Where now are your prophets that prophesied unto you, saying, The king of Babylon shall not come against you, nor against this land?

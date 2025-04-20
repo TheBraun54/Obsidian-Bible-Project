@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 2
+verse: 43
+reference: Luke 2:43
+verse_id: LUK0243
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and when they had fulfilled the days, as they were returning, the boy Jesus tarried behind in Jerusalem; and his parents knew it not;

@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 15
+verse: 11
+reference: Luke 15:11
+verse_id: LUK1511
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And he said, A certain man had two sons:

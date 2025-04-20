@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 1
+verse: 48
+reference: Numbers 1:48
+verse_id: NUM0148
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For Jehovah spake unto Moses, saying,

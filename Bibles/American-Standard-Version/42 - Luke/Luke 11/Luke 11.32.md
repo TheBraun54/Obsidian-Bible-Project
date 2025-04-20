@@ -1,0 +1,18 @@
+---
+book: Luke
+chapter: 11
+verse: 32
+reference: Luke 11:32
+verse_id: LUK1132
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+The men of Nineveh shall stand up in the judgment with this generation, and shall condemn it: for they repented at the preaching of Jonah; and behold, a greater than Jonah is here.

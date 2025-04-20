@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 32
+verse: 20
+reference: Deuteronomy 32:20
+verse_id: DEU3220
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And he said, I will hide my face from them, I will see what their end shall be: For they are a very perverse generation, Children in whom is no faithfulness.

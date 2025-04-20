@@ -1,0 +1,18 @@
+---
+book: Matthew
+chapter: 9
+verse: 21
+reference: Matthew 9:21
+verse_id: MAT0921
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+for she said within herself, If I do but touch his garment, I shall be made whole.

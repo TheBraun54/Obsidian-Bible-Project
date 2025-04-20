@@ -1,0 +1,18 @@
+---
+book: 2 Samuel
+chapter: 12
+verse: 20
+reference: 2 Samuel 12:20
+verse_id: 2SA1220
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then David arose from the earth, and washed, and anointed himself, and changed his apparel; and he came into the house of Jehovah, and worshipped: then he came to his own house; and when he required, they set bread before him, and he did eat.

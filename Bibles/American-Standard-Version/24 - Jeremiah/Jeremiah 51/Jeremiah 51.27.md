@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 51
+verse: 27
+reference: Jeremiah 51:27
+verse_id: JER5127
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Set ye up a standard in the land, blow the trumpet among the nations, prepare the nations against her, call together against her the kingdoms of Ararat, Minni, and Ashkenaz: appoint a marshal against her; cause the horses to come up as the rough canker-worm.

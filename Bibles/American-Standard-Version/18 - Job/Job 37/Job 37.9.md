@@ -1,0 +1,18 @@
+---
+book: Job
+chapter: 37
+verse: 9
+reference: Job 37:9
+verse_id: JOB3709
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Out of the chamber [of the south] cometh the storm, And cold out of the north.

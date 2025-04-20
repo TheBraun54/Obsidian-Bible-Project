@@ -1,0 +1,18 @@
+---
+book: Joshua
+chapter: 8
+verse: 6
+reference: Joshua 8:6
+verse_id: JOS0806
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and they will come out after us, till we have drawn them away from the city; for they will say, They flee before us, as at the first: so we will flee before them;

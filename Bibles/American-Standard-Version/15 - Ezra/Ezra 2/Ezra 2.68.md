@@ -1,0 +1,18 @@
+---
+book: Ezra
+chapter: 2
+verse: 68
+reference: Ezra 2:68
+verse_id: EZR0268
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And some of the heads of fathers' [houses], when they came to the house of Jehovah which is in Jerusalem, offered willingly for the house of God to set it up in its place:

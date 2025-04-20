@@ -1,0 +1,18 @@
+---
+book: Deuteronomy
+chapter: 1
+verse: 9
+reference: Deuteronomy 1:9
+verse_id: DEU0109
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I spake unto you at that time, saying, I am not able to bear you myself alone:

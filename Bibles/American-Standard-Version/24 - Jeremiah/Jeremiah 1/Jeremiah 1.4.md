@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 1
+verse: 4
+reference: Jeremiah 1:4
+verse_id: JER0104
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Now the word of Jehovah came unto me, saying,

@@ -1,0 +1,18 @@
+---
+book: Leviticus
+chapter: 26
+verse: 20
+reference: Leviticus 26:20
+verse_id: LEV2620
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and your strength shall be spent in vain; for your land shall not yield its increase, neither shall the trees of the land yield their fruit.

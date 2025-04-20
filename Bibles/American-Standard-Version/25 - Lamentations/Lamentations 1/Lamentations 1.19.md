@@ -1,0 +1,18 @@
+---
+book: Lamentations
+chapter: 1
+verse: 19
+reference: Lamentations 1:19
+verse_id: LAM0119
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I called for my lovers, [but] they deceived me: My priests and mine elders gave up the ghost in the city, While they sought them food to refresh their souls.

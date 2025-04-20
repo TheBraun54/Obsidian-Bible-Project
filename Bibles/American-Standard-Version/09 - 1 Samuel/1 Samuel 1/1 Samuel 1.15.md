@@ -1,0 +1,18 @@
+---
+book: 1 Samuel
+chapter: 1
+verse: 15
+reference: 1 Samuel 1:15
+verse_id: 1SA0115
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And Hannah answered and said, No, my lord, I am a woman of a sorrowful spirit: I have drunk neither wine nor strong drink, but I poured out my soul before Jehovah.

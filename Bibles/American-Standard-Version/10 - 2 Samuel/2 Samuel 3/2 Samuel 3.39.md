@@ -1,0 +1,18 @@
+---
+book: 2 Samuel
+chapter: 3
+verse: 39
+reference: 2 Samuel 3:39
+verse_id: 2SA0339
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And I am this day weak, though anointed king; and these men the sons of Zeruiah are too hard for me: Jehovah reward the evil-doer according to his wickedness.

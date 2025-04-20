@@ -1,0 +1,18 @@
+---
+book: Jonah
+chapter: 4
+verse: 5
+reference: Jonah 4:5
+verse_id: JON0405
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Then Jonah went out of the city, and sat on the east side of the city, and there made him a booth, and sat under it in the shade, till he might see what would become of the city.

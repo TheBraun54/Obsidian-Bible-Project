@@ -1,0 +1,18 @@
+---
+book: Job
+chapter: 2
+verse: 13
+reference: Job 2:13
+verse_id: JOB0213
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+So they sat down with him upon the ground seven days and seven nights, and none spake a word unto him: for they saw that his grief was very great.

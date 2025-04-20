@@ -1,0 +1,18 @@
+---
+book: Mark
+chapter: 10
+verse: 24
+reference: Mark 10:24
+verse_id: MRK1024
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And the disciples were amazed at his words. But Jesus answereth again, and saith unto them, Children, how hard is it for them that trust in riches to enter into the kingdom of God!

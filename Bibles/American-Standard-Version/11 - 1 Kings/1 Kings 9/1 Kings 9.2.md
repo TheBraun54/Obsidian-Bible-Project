@@ -1,0 +1,18 @@
+---
+book: 1 Kings
+chapter: 9
+verse: 2
+reference: 1 Kings 9:2
+verse_id: 1KI0902
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+that Jehovah appeared to Solomon the second time, as he had appeared unto him at Gibeon.

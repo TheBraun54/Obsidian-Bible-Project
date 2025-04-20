@@ -1,0 +1,18 @@
+---
+book: Zephaniah
+chapter: 3
+verse: 4
+reference: Zephaniah 3:4
+verse_id: ZEP0304
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Her prophets are light and treacherous persons; her priests have profaned the sanctuary, they have done violence to the law.

@@ -1,0 +1,18 @@
+---
+book: Ecclesiastes
+chapter: 9
+verse: 13
+reference: Ecclesiastes 9:13
+verse_id: ECC0913
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+I have also seen wisdom under the sun on this wise, and it seemed great unto me:

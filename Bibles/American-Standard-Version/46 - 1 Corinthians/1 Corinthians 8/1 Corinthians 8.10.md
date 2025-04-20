@@ -1,0 +1,18 @@
+---
+book: 1 Corinthians
+chapter: 8
+verse: 10
+reference: 1 Corinthians 8:10
+verse_id: 1CO0810
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/nt]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+For if a man see thee who hast knowledge sitting at meat in an idol's temple, will not his conscience, if he is weak, be emboldened to eat things sacrificed to idols?

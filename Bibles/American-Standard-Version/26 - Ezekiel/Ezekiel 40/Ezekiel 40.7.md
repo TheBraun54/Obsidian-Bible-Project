@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 40
+verse: 7
+reference: Ezekiel 40:7
+verse_id: EZK4007
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And every lodge was one reed long, and one reed broad; and [the space] between the lodges was five cubits; and the threshold of the gate by the porch of the gate toward the house was one reed.

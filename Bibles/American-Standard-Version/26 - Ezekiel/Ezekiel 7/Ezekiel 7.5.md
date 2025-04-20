@@ -1,0 +1,18 @@
+---
+book: Ezekiel
+chapter: 7
+verse: 5
+reference: Ezekiel 7:5
+verse_id: EZK0705
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Thus saith the Lord Jehovah: An evil, an only evil; behold, it cometh.

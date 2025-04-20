@@ -1,0 +1,18 @@
+---
+book: 2 Kings
+chapter: 4
+verse: 12
+reference: 2 Kings 4:12
+verse_id: 2KI0412
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+And he said to Gehazi his servant, Call this Shunammite. And when he had called her, she stood before him.

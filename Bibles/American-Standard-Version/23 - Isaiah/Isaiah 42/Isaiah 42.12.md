@@ -1,0 +1,18 @@
+---
+book: Isaiah
+chapter: 42
+verse: 12
+reference: Isaiah 42:12
+verse_id: ISA4212
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Let them give glory unto Jehovah, and declare his praise in the islands.

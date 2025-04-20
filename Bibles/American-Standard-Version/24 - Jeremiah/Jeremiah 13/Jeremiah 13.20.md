@@ -1,0 +1,18 @@
+---
+book: Jeremiah
+chapter: 13
+verse: 20
+reference: Jeremiah 13:20
+verse_id: JER1320
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Lift up your eyes, and behold them that come from the north: where is the flock that was given thee, thy beautiful flock?

@@ -1,0 +1,18 @@
+---
+book: Ecclesiastes
+chapter: 3
+verse: 20
+reference: Ecclesiastes 3:20
+verse_id: ECC0320
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+All go unto one place; all are of the dust, and all turn to dust again.

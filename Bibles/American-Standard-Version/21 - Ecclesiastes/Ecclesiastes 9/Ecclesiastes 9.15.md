@@ -1,0 +1,18 @@
+---
+book: Ecclesiastes
+chapter: 9
+verse: 15
+reference: Ecclesiastes 9:15
+verse_id: ECC0915
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+Now there was found in it a poor wise man, and he by his wisdom delivered the city; yet no man remembered that same poor man.

@@ -1,0 +1,18 @@
+---
+book: Numbers
+chapter: 29
+verse: 5
+reference: Numbers 29:5
+verse_id: NUM2905
+translation: American Standard Version (ASV)
+tags: [bible/verse/bible/ot]
+strongs: []
+topics: []
+themes: []
+people: []
+places: []
+notes: >
+  
+---
+
+and one he-goat for a sin-offering, to make atonement for you;
