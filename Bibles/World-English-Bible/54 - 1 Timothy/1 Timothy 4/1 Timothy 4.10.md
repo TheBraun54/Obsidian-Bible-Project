@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For to this end we labor and strive, because we have our hope set on the living God, who is the Saviour of all men, specially of them that believe.
+For to this end we both labor and suffer reproach, because we have set our trust in the living God, who is the Savior of all men, especially of those who believe.

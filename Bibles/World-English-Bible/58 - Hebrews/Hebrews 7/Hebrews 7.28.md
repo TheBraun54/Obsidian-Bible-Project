@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the law appointeth men high priests, having infirmity; but the word of the oath, which was after the law, [appointeth] a Son, perfected for evermore.
+For the law appoints men as high priests who have weakness, but the word of the oath which came after the law appoints a Son forever who has been perfected.

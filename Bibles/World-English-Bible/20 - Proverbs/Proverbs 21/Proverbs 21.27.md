@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sacrifice of the wicked is an abomination: How much more, when he bringeth it with a wicked mind!
+The sacrifice of the wicked is an abomination: how much more, when he brings it with a wicked mind!

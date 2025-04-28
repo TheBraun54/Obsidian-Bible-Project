@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall take a censer full of coals of fire from off the altar before Jehovah, and his hands full of sweet incense beaten small, and bring it within the veil:
+He shall take a censer full of coals of fire from off the altar before Yahweh, and two handfuls of sweet incense beaten small, and bring it within the veil:

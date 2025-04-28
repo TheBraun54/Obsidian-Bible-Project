@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now concerning things sacrificed to idols: We know that we all have knowledge. Knowledge puffeth up, but love edifieth.
+Now concerning things sacrificed to idols: We know that we all have knowledge. Knowledge puffs up, but love builds up.

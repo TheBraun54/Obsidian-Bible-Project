@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fierce anger of Jehovah shall not return, until he have executed, and till he have performed the intents of his heart: in the latter days ye shall understand it.
+The fierce anger of Yahweh will not return, until he has executed, and until he has performed the intentions of his heart. In the latter days you will understand it.

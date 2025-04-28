@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gather not my soul with sinners, Nor my life with men of blood;
+Don't gather my soul with sinners, nor my life with bloodthirsty men;

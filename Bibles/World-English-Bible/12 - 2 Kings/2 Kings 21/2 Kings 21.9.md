@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they hearkened not: and Manasseh seduced them to do that which is evil more than did the nations whom Jehovah destroyed before the children of Israel.
+But they didn't listen: and Manasseh seduced them to do that which is evil more than did the nations whom Yahweh destroyed before the children of Israel.

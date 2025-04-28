@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Moab was subdued that day under the hand of Israel. And the land had rest fourscore years.
+So Moab was subdued that day under the hand of Israel. The land had rest eighty years.

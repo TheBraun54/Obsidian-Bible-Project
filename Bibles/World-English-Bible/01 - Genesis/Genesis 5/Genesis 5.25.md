@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Methuselah lived a hundred eighty and seven years, and begat Lamech:
+Methuselah lived one hundred eighty-seven years, and became the father of Lamech.

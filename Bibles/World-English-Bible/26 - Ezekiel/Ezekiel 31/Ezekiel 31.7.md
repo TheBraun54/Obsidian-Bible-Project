@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus was it fair in its greatness, in the length of its branches; for its root was by many waters.
+Thus was it beautiful in its greatness, in the length of its branches; for its root was by many waters.

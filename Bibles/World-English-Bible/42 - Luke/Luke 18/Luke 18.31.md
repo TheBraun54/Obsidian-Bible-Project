@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took unto him the twelve, and said unto them, Behold, we go up to Jerusalem, and all the things that are written through the prophets shall be accomplished unto the Son of man.
+He took the twelve aside, and said to them, "Behold, we are going up to Jerusalem, and all the things that are written through the prophets concerning the Son of Man will be completed.

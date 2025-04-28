@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the south side shall be the standard of the camp of Reuben according to their hosts: and the prince of the children of Reuben shall be Elizur the son of Shedeur.
+"On the south side shall be the standard of the camp of Reuben according to their divisions. The prince of the children of Reuben shall be Elizur the son of Shedeur.

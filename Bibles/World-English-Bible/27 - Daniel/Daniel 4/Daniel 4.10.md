@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus were the visions of my head upon my bed: I saw, and, behold, a tree in the midst of the earth; and the height thereof was great.
+Thus were the visions of my head on my bed: I saw, and behold, a tree in the midst of the earth; and its height was great.

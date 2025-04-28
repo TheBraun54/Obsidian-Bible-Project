@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall Jehovah go forth, and fight against those nations, as when he fought in the day of battle.
+Then Yahweh will go out and fight against those nations, as when he fought in the day of battle.

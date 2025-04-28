@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath chastened me sore; But he hath not given me over unto death.
+Yah has punished me severely, but he has not given me over to death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then are there crucified with him two robbers, one on the right hand and one on the left.
+Then there were two robbers crucified with him, one on his right hand and one on the left.

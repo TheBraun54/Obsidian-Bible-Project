@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the porters at the gates of the house of Jehovah, that none that was unclean in anything should enter in.
+He set the porters at the gates of the house of Yahweh, that no one who was unclean in anything should enter in.

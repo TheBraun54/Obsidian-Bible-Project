@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I brake the jaws of the unrighteous, And plucked the prey out of his teeth.
+I broke the jaws of the unrighteous, and plucked the prey out of his teeth.

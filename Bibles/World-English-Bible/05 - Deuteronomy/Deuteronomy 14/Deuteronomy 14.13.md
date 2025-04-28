@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the glede, and the falcon, and the kite after its kind,
+and the red kite, and the falcon, and the kite after its kind,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of the sons of Noah, after their generations, in their nations: and of these were the nations divided in the earth after the flood.
+These are the families of the sons of Noah, after their generations, in their nations. Of these were the nations divided in the earth after the flood.

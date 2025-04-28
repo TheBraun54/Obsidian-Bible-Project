@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Vex the Midianites, and smite them;
+"Harass the Midianites, and strike them;

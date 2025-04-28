@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they gave them for the potter's field, as the Lord appointed me.
+and they gave them for the potter's field, as the Lord commanded me."

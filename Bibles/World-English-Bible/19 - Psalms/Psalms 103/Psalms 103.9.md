@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will not always chide; Neither will he keep [his anger] for ever.
+He will not always accuse; neither will he stay angry forever.

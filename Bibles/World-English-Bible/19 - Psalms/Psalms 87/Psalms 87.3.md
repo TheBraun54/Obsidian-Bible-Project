@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Glorious things are spoken of thee, O city of God. {{Selah
+Glorious things are spoken about you, city of God. Selah.

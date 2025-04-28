@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she had said this, she went away, and called Mary her sister secretly, saying, The Teacher is here, and calleth thee.
+When she had said this, she went away, and called Mary, her sister, secretly, saying, "The Teacher is here, and is calling you."

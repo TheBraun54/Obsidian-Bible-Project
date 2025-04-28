@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, much rather, those members of the body which seem to be more feeble are necessary:
+No, much rather, those members of the body which seem to be weaker are necessary.

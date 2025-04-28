@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the one a savor from death unto death; to the other a savor from life unto life. And who is sufficient for these things?
+to the one a stench from death to death; to the other a sweet aroma from life to life. Who is sufficient for these things?

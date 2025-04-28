@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they hearkened not, nor inclined their ear to turn from their wickedness, to burn no incense unto other gods.
+But they didn't listen, nor inclined their ear to turn from their wickedness, to burn no incense to other gods.

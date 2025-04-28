@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake by his servants the prophets, saying,
+Yahweh spoke by his servants the prophets, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua passed from Lachish, and all Israel with him, unto Eglon; and they encamped against it, and fought against it;
+Joshua passed from Lachish, and all Israel with him, to Eglon; and they encamped against it fought against it.

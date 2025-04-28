@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I say, My bed shall comfort me, My couch shall ease my complaint;
+When I say, 'My bed shall comfort me. My couch shall ease my complaint;'

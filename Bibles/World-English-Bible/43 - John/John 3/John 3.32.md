@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What he hath seen and heard, of that he beareth witness; and no man receiveth his witness.
+What he has seen and heard, of that he testifies; and no one receives his witness.

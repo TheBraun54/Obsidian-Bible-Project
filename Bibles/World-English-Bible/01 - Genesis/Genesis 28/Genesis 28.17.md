@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was afraid, and said, How dreadful is this place! this is none other than the house of God, and this is the gate of heaven.
+He was afraid, and said, "How dreadful is this place! This is none other than God's house, and this is the gate of heaven."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath indignation against all the nations, and wrath against all their host: he hath utterly destroyed them, he hath delivered them to the slaughter.
+For Yahweh is enraged against all the nations, and angry with all their armies. He has utterly destroyed them. He has given them over for slaughter.

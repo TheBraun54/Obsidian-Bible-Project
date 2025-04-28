@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Against thee, thee only, have I sinned, And done that which is evil in thy sight; That thou mayest be justified when thou speakest, And be clear when thou judgest.
+Against you, and you only, have I sinned, and done that which is evil in your sight; that you may be proved right when you speak, and justified when you judge.

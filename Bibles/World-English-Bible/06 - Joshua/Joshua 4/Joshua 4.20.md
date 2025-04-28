@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those twelve stones, which they took out of the Jordan, did Joshua set up in Gilgal.
+Joshua set up those twelve stones, which they took out of the Jordan, in Gilgal.

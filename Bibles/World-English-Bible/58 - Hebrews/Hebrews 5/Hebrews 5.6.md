@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as he saith also in another [place], Thou art a priest for ever After the order of Melchizedek.
+As he says also in another place, "You are a priest forever, after the order of Melchizedek."

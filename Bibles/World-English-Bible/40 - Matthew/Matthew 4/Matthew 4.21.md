@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And going on from thence he saw two other brethren, James the [son] of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets; and he called them.
+Going on from there, he saw two other brothers, James the son of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets. He called them.

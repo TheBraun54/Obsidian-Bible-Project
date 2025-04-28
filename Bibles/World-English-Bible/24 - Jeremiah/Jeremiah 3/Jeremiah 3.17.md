@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time they shall call Jerusalem the throne of Jehovah; and all the nations shall be gathered unto it, to the name of Jehovah, to Jerusalem: neither shall they walk any more after the stubbornness of their evil heart.
+At that time they shall call Jerusalem 'The throne of Yahweh;' and all the nations shall be gathered to it, to the name of Yahweh, to Jerusalem. Neither shall they walk any more after the stubbornness of their evil heart.

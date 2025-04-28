@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, called [to be] an apostle of Jesus Christ through the will of God, and Sosthenes our brother,
+Paul, called to be an apostle of Jesus Christ through the will of God, and our brother Sosthenes,

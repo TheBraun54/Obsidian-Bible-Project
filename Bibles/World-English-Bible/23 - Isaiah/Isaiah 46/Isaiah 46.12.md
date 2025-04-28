@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken unto me, ye stout-hearted, that are far from righteousness:
+Listen to me, you stout-hearted, who are far from righteousness:

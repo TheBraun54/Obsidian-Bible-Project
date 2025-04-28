@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the men are shepherds, for they have been keepers of cattle; and they have brought their flocks, and their herds, and all that they have.
+These men are shepherds, for they have been keepers of livestock, and they have brought their flocks, and their herds, and all that they have.'

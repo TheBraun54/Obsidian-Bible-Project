@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Light is sown for the righteous, And gladness for the upright in heart.
+Light is sown for the righteous, and gladness for the upright in heart.

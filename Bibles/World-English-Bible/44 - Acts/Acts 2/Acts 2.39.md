@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For to you is the promise, and to your children, and to all that are afar off, [even] as many as the Lord our God shall call unto him.
+For the promise is to you, and to your children, and to all who are far off, even as many as the Lord our God will call to himself."

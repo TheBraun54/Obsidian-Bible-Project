@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the young men of the princes of the provinces went out first; and Ben-hadad sent out, and they told him, saying, There are men come out from Samaria.
+The young men of the princes of the provinces went out first; and Ben Hadad sent out, and they told him, saying, "Men are coming out from Samaria."

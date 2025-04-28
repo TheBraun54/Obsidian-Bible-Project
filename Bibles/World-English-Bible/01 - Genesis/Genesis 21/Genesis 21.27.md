@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham took sheep and oxen, and gave them unto Abimelech; and they two made a covenant.
+Abraham took sheep and cattle, and gave them to Abimelech. Those two made a covenant.

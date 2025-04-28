@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh worship Jehovah in holy array: Tremble before him, all the earth.
+Worship Yahweh in holy array. Tremble before him, all the earth.

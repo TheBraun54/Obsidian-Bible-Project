@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: I will bring up a company against them, and will give them to be tossed to and fro and robbed.
+For thus says the Lord Yahweh: I will bring up a company against them, and will give them to be tossed back and forth and robbed.

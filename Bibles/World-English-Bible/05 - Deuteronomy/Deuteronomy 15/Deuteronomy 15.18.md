@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall not seem hard unto thee, when thou lettest him go free from thee; for to the double of the hire of a hireling hath he served thee six years: and Jehovah thy God will bless thee in all that thou doest.
+It shall not seem hard to you, when you let him go free from you; for to the double of the hire of a hireling has he served you six years: and Yahweh your God will bless you in all that you do.

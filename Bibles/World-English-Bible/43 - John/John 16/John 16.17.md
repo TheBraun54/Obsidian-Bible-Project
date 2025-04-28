@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Some] of his disciples therefore said one to another, What is this that he saith unto us, A little while, and ye behold me not; and again a little while, and ye shall see me: and, Because I go to the Father?
+Some of his disciples therefore said to one another, "What is this that he says to us, 'A little while, and you won't see me, and again a little while, and you will see me;' and, 'Because I go to the Father?'"

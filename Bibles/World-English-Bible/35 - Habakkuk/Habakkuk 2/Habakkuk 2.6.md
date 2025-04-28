@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall not all these take up a parable against him, and a taunting proverb against him, and say, Woe to him that increaseth that which is not his! how long? and that ladeth himself with pledges! [
+Won't all these take up a parable against him, and a taunting proverb against him, and say, 'Woe to him who increases that which is not his, and who enriches himself by extortion! How long?'

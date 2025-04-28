@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Uzziah was wroth; and he had a censer in his hand to burn incense; and while he was wroth with the priests, the leprosy brake forth in his forehead before the priests in the house of Jehovah, beside the altar of incense.
+Then Uzziah was angry; and he had a censer in his hand to burn incense; and while he was angry with the priests, the leprosy broke forth in his forehead before the priests in the house of Yahweh, beside the altar of incense.

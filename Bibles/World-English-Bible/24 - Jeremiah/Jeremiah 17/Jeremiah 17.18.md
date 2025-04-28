@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be put to shame that persecute me, but let not me be put to shame; let them be dismayed, but let not me be dismayed; bring upon them the day of evil, and destroy them with double destruction.
+Let them be disappointed who persecute me, but let not me be disappointed; let them be dismayed, but don't let me be dismayed; bring on them the day of evil, and destroy them with double destruction.

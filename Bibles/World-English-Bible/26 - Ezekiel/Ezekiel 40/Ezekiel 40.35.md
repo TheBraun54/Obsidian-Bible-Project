@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought me to the north gate: and he measured [it] according to these measures;
+He brought me to the north gate: and he measured [it] according to these measures;

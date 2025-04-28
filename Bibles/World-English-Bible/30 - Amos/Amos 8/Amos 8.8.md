@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall not the land tremble for this, and every one mourn that dwelleth therein? yea, it shall rise up wholly like the River; and it shall be troubled and sink again, like the River of Egypt.
+Won't the land tremble for this, and everyone mourn who dwells in it? Yes, it will rise up wholly like the River; and it will be stirred up and sink again, like the River of Egypt.

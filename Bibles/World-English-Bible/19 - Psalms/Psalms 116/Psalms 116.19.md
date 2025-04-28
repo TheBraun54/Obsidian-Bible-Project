@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the courts of Jehovah's house, In the midst of thee, O Jerusalem. Praise ye Jehovah.
+in the courts of Yahweh's house, in the midst of you, Jerusalem. Praise Yah!

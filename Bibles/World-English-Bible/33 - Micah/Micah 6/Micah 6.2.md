@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O ye mountains, Jehovah's controversy, and ye enduring foundations of the earth; for Jehovah hath a controversy with his people, and he will contend with Israel.
+Hear, you mountains, Yahweh's controversy, and you enduring foundations of the earth; for Yahweh has a controversy with his people, and he will contend with Israel.

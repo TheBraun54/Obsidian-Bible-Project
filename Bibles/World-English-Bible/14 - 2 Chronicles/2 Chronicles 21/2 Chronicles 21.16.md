@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah stirred up against Jehoram the spirit of the Philistines, and of the Arabians that are beside the Ethiopians:
+Yahweh stirred up against Jehoram the spirit of the Philistines, and of the Arabians who are beside the Ethiopians:

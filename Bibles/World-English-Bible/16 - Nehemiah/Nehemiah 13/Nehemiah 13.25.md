@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I contended with them, and cursed them, and smote certain of them, and plucked off their hair, and made them swear by God, [saying], Ye shall not give your daughters unto their sons, nor take their daughters for your sons, or for yourselves.
+I contended with them, and cursed them, and struck certain of them, and plucked off their hair, and made them swear by God, [saying], "You shall not give your daughters to their sons, nor take their daughters for your sons, or for yourselves.

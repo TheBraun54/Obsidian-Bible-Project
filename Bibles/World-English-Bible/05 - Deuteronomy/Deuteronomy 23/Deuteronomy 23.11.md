@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but it shall be, when evening cometh on, he shall bathe himself in water; and when the sun is down, he shall come within the camp.
+but it shall be, when evening comes on, he shall bathe himself in water; and when the sun is down, he shall come within the camp.

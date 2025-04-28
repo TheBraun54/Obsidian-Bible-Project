@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He moveth his tail like a cedar: The sinews of his thighs are knit together.
+He moves his tail like a cedar. The sinews of his thighs are knit together.

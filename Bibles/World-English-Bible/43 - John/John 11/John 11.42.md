@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I knew that thou hearest me always: but because of the multitude that standeth around I said it, that they may believe that thou didst send me.
+I know that you always listen to me, but because of the multitude that stands around I said this, that they may believe that you sent me."

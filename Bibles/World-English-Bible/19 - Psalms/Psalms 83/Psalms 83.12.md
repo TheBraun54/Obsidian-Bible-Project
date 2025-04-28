@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who said, Let us take to ourselves in possession The habitations of God.
+who said, "Let us take possession of God's pasturelands."

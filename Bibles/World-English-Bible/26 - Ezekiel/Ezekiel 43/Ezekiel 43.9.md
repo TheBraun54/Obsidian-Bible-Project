@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now let them put away their whoredom, and the dead bodies of their kings, far from me; and I will dwell in the midst of them for ever.
+Now let them put away their prostitution, and the dead bodies of their kings, far from me; and I will dwell in the midst of them forever.

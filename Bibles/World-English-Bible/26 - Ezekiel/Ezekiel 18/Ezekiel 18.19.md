@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet say ye, Wherefore doth not the son bear the iniquity of the father? when the son hath done that which is lawful and right, and hath kept all my statutes, and hath done them, he shall surely live.
+Yet you say, Why doesn't the son bear the iniquity of the father? When the son has done that which is lawful and right, and has kept all my statutes, and has done them, he shall surely live.

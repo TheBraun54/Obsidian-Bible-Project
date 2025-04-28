@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or he that exhorteth, to his exhorting: he that giveth, [let him do it] with liberality; he that ruleth, with diligence; he that showeth mercy, with cheerfulness.
+or he who exhorts, to his exhorting: he who gives, let him do it with liberality; he who rules, with diligence; he who shows mercy, with cheerfulness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, The foxes have holes, and the birds of the heaven [have] nests; but the Son of man hath not where to lay his head.
+Jesus said to him, "The foxes have holes, and the birds of the sky have nests, but the Son of Man has no place to lay his head."

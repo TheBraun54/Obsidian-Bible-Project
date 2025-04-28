@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore let no one glory in men. For all things are yours;
+Therefore let no one boast in men. For all things are yours,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said after she had done all these things, She will return unto me; but she returned not: and her treacherous sister Judah saw it.
+I said after she had done all these things, 'She will return to me;' but she didn't return; and her treacherous sister Judah saw it.

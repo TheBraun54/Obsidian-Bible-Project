@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely there are mockers with me, And mine eye dwelleth upon their provocation.
+Surely there are mockers with me. My eye dwells on their provocation.

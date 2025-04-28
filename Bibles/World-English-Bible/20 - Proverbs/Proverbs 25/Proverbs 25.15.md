@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By long forbearing is a ruler persuaded, And a soft tongue breaketh the bone.
+By patience a ruler is persuaded. A soft tongue breaks the bone.

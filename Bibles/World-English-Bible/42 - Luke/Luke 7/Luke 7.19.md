@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And John calling unto him two of his disciples sent them to the Lord, saying, Art thou he that cometh, or look we for another?
+John, calling to himself two of his disciples, sent them to Jesus, saying, "Are you the one who is coming, or should we look for another?"

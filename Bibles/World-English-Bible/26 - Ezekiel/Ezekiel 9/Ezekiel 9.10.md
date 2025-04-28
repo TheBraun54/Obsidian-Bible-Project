@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for me also, mine eye shall not spare, neither will I have pity, but I will bring their way upon their head.
+As for me also, my eye shall not spare, neither will I have pity, but I will bring their way on their head.

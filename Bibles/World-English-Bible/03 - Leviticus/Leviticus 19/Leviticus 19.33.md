@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a stranger sojourn with thee in your land, ye shall not do him wrong.
+"'If a stranger lives as a foreigner with you in your land, you shall not do him wrong.

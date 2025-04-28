@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall teach them your children, talking of them, when thou sittest in thy house, and when thou walkest by the way, and when thou liest down, and when thou risest up.
+You shall teach them your children, talking of them, when you sit in your house, and when you walk by the way, and when you lie down, and when you rise up.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall bring them unto the priest, who shall offer that which is for the sin-offering first, and wring off its head from its neck, but shall not divide it asunder:
+He shall bring them to the priest, who shall first offer the one which is for the sin offering, and wring off its head from its neck, but shall not sever it completely.

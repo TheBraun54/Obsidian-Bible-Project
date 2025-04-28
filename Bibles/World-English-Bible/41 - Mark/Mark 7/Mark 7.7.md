@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in vain do they worship me, Teaching [as their] doctrines the precepts of men.
+But in vain do they worship me, teaching as doctrines the commandments of men.'

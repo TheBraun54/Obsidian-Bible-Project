@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward they asked for a king: and God gave unto them Saul the son of Kish, a man of the tribe of Benjamin, for the space of forty years.
+Afterward they asked for a king, and God gave to them Saul the son of Kish, a man of the tribe of Benjamin, for forty years.

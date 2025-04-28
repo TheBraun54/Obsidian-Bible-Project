@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Oh, my lord, as thy soul liveth, my lord, I am the woman that stood by thee here, praying unto Jehovah.
+She said, "Oh, my lord, as your soul lives, my lord, I am the woman who stood by you here, praying to Yahweh.

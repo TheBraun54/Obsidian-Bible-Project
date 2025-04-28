@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say unto them, Thus saith the Lord Jehovah: In the day when I chose Israel, and sware unto the seed of the house of Jacob, and made myself known unto them in the land of Egypt, when I sware unto them, saying, I am Jehovah your God;
+and tell them, Thus says the Lord Yahweh: In the day when I chose Israel, and swore to the seed of the house of Jacob, and made myself known to them in the land of Egypt, when I swore to them, saying, I am Yahweh your God;

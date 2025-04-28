@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of Amram's wife was Jochebed, the daughter of Levi, who was born to Levi in Egypt: and she bare unto Amram Aaron and Moses, and Miriam their sister.
+The name of Amram's wife was Jochebed, the daughter of Levi, who was born to Levi in Egypt: and she bore to Amram Aaron and Moses, and Miriam their sister.

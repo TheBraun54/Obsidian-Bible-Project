@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise; for the matter belongeth unto thee, and we are with thee: be of good courage, and do it.
+Arise; for the matter belongs to you, and we are with you. Be courageous, and do it."

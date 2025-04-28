@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What man is he that desireth life, And loveth [many] days, that he may see good?
+Who is someone who desires life, and loves many days, that he may see good?

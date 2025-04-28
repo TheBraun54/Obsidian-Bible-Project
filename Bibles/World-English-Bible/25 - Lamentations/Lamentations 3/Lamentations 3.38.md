@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of the mouth of the Most High cometh there not evil and good?
+Doesn't evil and good come out of the mouth of the Most High?

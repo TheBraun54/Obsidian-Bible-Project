@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah showed me four smiths.
+Yahweh showed me four craftsmen.

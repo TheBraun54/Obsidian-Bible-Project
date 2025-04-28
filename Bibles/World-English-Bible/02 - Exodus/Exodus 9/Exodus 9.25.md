@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the hail smote throughout all the land of Egypt all that was in the field, both man and beast; and the hail smote every herb of the field, and brake every tree of the field.
+The hail struck throughout all the land of Egypt all that was in the field, both man and animal; and the hail struck every herb of the field, and broke every tree of the field.

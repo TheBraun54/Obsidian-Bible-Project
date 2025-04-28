@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who will have pity upon thee, O Jerusalem? or who will bemoan thee? or who will turn aside to ask of thy welfare?
+For who will have pity on you, Jerusalem? or who will bemoan you? or who will turn aside to ask of your welfare?

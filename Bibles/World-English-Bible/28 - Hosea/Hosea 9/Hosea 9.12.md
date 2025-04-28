@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though they bring up their children, yet will I bereave them, so that not a man shall be left: yea, woe also to them when I depart from them!
+Though they bring up their children, yet I will bereave them, so that not a man shall be left. Indeed, woe also to them when I depart from them!

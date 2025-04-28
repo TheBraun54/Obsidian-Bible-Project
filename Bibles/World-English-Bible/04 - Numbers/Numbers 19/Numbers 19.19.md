@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the clean person shall sprinkle upon the unclean on the third day, and on the seventh day: and on the seventh day he shall purify him; and he shall wash his clothes, and bathe himself in water, and shall be clean at even.
+and the clean person shall sprinkle on the unclean on the third day, and on the seventh day: and on the seventh day he shall purify him; and he shall wash his clothes, and bathe himself in water, and shall be clean at evening.

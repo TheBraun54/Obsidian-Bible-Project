@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one that passeth over unto them that are numbered, from twenty years old and upward, shall give the offering of Jehovah.
+Everyone who passes over to those who are numbered, from twenty years old and upward, shall give the offering to Yahweh.

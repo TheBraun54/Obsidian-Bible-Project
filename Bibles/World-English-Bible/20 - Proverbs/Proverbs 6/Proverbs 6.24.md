@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To keep thee from the evil woman, From the flattery of the foreigner's tongue.
+to keep you from the immoral woman, from the flattery of the wayward wife's tongue.

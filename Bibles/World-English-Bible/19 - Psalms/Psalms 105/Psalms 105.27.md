@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They set among them his signs, And wonders in the land of Ham.
+They performed miracles among them, and wonders in the land of Ham.

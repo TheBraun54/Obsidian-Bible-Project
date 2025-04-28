@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lifted up his eyes, and saw the wayfaring man in the street of the city; and the old man said, Whither goest thou? and whence comest thou?
+He lifted up his eyes, and saw the wayfaring man in the street of the city; and the old man said, "Where are you going? Where did you come from?"

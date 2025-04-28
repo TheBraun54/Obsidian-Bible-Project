@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who shall also confirm you unto the end, [that ye be] unreproveable in the day of our Lord Jesus Christ.
+who will also confirm you until the end, blameless in the day of our Lord Jesus Christ.

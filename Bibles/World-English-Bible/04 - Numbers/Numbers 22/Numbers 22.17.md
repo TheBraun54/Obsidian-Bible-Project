@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I will promote thee unto very great honor, and whatsoever thou sayest unto me I will do: come therefore, I pray thee, curse me this people.
+for I will promote you to very great honor, and whatever you say to me I will do. Please come therefore, and curse this people for me.'"

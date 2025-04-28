@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thy life shall hang in doubt before thee; and thou shalt fear night and day, and shalt have no assurance of thy life.
+and your life shall hang in doubt before you; and you shall fear night and day, and shall have no assurance of your life.

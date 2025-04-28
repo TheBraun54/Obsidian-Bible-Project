@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will kill her children with death; and all the churches shall know that I am he that searcheth the reins and hearts: and I will give unto each one of you according to your works.
+I will kill her children with Death, and all the assemblies will know that I am he who searches the minds and hearts. I will give to each one of you according to your deeds.

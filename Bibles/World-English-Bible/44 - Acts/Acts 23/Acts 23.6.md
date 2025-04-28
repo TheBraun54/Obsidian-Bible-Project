@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Paul perceived that the one part were Sadducees and the other Pharisees, he cried out in the council, Brethren, I am a Pharisee, a son of Pharisees: touching the hope and resurrection of the dead I am called in question.
+But when Paul perceived that the one part were Sadducees and the other Pharisees, he cried out in the council, "Men and brothers, I am a Pharisee, a son of Pharisees. Concerning the hope and resurrection of the dead I am being judged!"

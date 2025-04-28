@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went forth unto the spring of the waters, and cast salt therein, and said, Thus saith Jehovah, I have healed these waters; there shall not be from thence any more death or miscarrying. [
+He went out to the spring of the waters, and threw salt into it, and said, "Thus says Yahweh, 'I have healed these waters. There shall not be from there any more death or miscarrying.'"

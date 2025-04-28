@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Man did eat the bread of the mighty: He sent them food to the full.
+Man ate the bread of angels. He sent them food to the full.

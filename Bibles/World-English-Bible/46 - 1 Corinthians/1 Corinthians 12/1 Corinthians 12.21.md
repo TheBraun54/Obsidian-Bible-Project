@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the eye cannot say to the hand, I have no need of thee: or again the head to the feet, I have no need of you.
+The eye can't tell the hand, "I have no need for you," or again the head to the feet, "I have no need for you."

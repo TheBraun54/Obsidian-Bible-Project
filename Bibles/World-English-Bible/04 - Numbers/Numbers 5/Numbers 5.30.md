@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or when the spirit of jealousy cometh upon a man, and he is jealous of his wife; then shall he set the woman before Jehovah, and the priest shall execute upon her all this law.
+or when the spirit of jealousy comes on a man, and he is jealous of his wife; then he shall set the woman before Yahweh, and the priest shall execute on her all this law.

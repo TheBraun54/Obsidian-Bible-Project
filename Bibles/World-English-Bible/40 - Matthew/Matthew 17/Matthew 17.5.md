@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he was yet speaking, behold, a bright cloud overshadowed them: and behold, a voice out of the cloud, saying, This is my beloved Son, in whom I am well pleased; hear ye him.
+While he was still speaking, behold, a bright cloud overshadowed them. Behold, a voice came out of the cloud, saying, "This is my beloved Son, in whom I am well pleased. Listen to him."

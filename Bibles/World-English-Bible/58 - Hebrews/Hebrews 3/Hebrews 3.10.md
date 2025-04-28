@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I was displeased with this generation, And said, They do always err in their heart: But they did not know my ways;
+Therefore I was displeased with that generation, and said, 'They always err in their heart, but they didn't know my ways;'

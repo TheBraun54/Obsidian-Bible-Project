@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither carry forth a burden out of your houses on the sabbath day, neither do ye any work: but hallow ye the sabbath day, as I commanded your fathers.
+neither carry forth a burden out of your houses on the Sabbath day holy, neither do any work: but make the Sabbath day, as I commanded your fathers.

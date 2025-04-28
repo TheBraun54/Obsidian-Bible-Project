@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel sent messengers unto Sihon king of the Amorites, saying,
+Israel sent messengers to Sihon king of the Amorites, saying,

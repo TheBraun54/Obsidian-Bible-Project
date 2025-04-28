@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give her of the fruit of her hands; And let her works praise her in the gates.
+Give her of the fruit of her hands! Let her works praise her in the gates!

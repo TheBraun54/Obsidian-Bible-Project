@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If an unrighteous witness rise up against any man to testify against him of wrong-doing,
+If an unrighteous witness rise up against any man to testify against him of wrongdoing,

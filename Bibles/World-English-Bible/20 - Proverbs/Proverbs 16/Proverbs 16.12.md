@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is an abomination to kings to commit wickedness; For the throne is established by righteousness.
+It is an abomination for kings to do wrong, for the throne is established by righteousness.

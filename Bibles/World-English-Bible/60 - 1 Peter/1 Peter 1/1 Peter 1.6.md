@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherein ye greatly rejoice, though now for a little while, if need be, ye have been put to grief in manifold trials,
+Wherein you greatly rejoice, though now for a little while, if need be, you have been put to grief in various trials,

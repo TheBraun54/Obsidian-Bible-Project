@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then Moses stood in the gate of the camp, and said, Whoso is on Jehovah's side, [let him come] unto me. And all the sons of Levi gathered themselves together unto him.
+then Moses stood in the gate of the camp, and said, "Whoever is on Yahweh's side, come to me!" All the sons of Levi gathered themselves together to him.

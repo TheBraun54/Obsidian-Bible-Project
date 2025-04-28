@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hear thou in heaven their prayer and their supplication, and maintain their cause.
+then hear in heaven their prayer and their supplication, and maintain their cause.

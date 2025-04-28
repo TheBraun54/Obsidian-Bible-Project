@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The small and the great are there: And the servant is free from his master.
+The small and the great are there. The servant is free from his master.

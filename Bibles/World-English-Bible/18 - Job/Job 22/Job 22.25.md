@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Almighty will be thy treasure, And precious silver unto thee.
+The Almighty will be your treasure, and precious silver to you.

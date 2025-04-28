@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their knops and their branches shall be of one piece with it; the whole of it one beaten work of pure gold.
+Their buds and their branches shall be of one piece with it, all of it one beaten work of pure gold.

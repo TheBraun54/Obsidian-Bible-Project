@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For how many soever be the promises of God, in him is the yea: wherefore also through him is the Amen, unto the glory of God through us.
+For however many are the promises of God, in him is the "Yes." Therefore also through him is the "Amen," to the glory of God through us.

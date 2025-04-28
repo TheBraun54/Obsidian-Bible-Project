@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel abode in Shittim; and the people began to play the harlot with the daughters of Moab:
+Israel stayed in Shittim; and the people began to play the prostitute with the daughters of Moab:

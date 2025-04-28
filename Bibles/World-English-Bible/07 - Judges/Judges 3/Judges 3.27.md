@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he was come, that he blew a trumpet in the hill-country of Ephraim; and the children of Israel went down with him from the hill-country, and he before them.
+It happened, when he had come, that he blew a trumpet in the hill country of Ephraim; and the children of Israel went down with him from the hill country, and he before them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said to Solomon, Because this was in thy heart, and thou hast not asked riches, wealth, or honor, nor the life of them that hate thee, neither yet hast asked long life; but hast asked wisdom and knowledge for thyself, that thou mayest judge my people, over whom I have made thee king:
+God said to Solomon, "Because this was in your heart, and you have not asked riches, wealth, or honor, nor the life of those who hate you, neither yet have asked long life; but have asked wisdom and knowledge for yourself, that you may judge my people, over whom I have made you king:

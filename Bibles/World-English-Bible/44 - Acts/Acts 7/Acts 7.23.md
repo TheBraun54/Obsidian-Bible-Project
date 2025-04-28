@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he was well-nigh forty years old, it came into his heart to visit his brethren the children of Israel.
+But when he was forty years old, it came into his heart to visit his brothers, the children of Israel.

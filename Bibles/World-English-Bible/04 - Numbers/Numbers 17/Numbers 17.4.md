@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt lay them up in the tent of meeting before the testimony, where I meet with you.
+You shall lay them up in the Tent of Meeting before the testimony, where I meet with you.

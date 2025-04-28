@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt be blessed; because they have not [wherewith] to recompense thee: for thou shalt be recompensed in the resurrection of the just.
+and you will be blessed, because they don't have the resources to repay you. For you will be repaid in the resurrection of the righteous."

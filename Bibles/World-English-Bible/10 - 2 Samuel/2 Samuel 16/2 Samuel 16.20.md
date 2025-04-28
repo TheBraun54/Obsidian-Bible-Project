@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Absalom to Ahithophel, Give your counsel what we shall do.
+Then Absalom said to Ahithophel, "Give your counsel what we shall do."

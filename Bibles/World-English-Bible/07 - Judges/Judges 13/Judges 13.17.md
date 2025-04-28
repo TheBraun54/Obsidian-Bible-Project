@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Manoah said unto the angel of Jehovah, What is thy name, that, when thy words come to pass, we may do thee honor?
+Manoah said to the angel of Yahweh, "What is your name, that when your words happen, we may honor you?"

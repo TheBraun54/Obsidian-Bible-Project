@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the same day it shall be eaten; ye shall leave none of it until the morning: I am Jehovah.
+It shall be eaten on the same day; you shall leave none of it until the morning. I am Yahweh.

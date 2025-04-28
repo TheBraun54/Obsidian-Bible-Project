@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that slandereth not with his tongue, Nor doeth evil to his friend, Nor taketh up a reproach against his neighbor;
+He who doesn't slander with his tongue, nor does evil to his friend, nor casts slurs against his fellow man;

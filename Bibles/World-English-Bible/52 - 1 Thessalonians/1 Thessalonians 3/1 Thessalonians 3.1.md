@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore when we could no longer forbear, we thought it good to be left behind at Athens alone;
+Therefore, when we couldn't stand it any longer, we thought it good to be left behind at Athens alone,

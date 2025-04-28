@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am afraid of all my sorrows, I know that thou wilt not hold me innocent.
+I am afraid of all my sorrows, I know that you will not hold me innocent.

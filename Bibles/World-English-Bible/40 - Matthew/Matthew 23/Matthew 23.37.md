@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jerusalem, Jerusalem, that killeth the prophets, and stoneth them that are sent unto her! how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!
+"Jerusalem, Jerusalem, who kills the prophets, and stones those who are sent to her! How often I would have gathered your children together, even as a hen gathers her chicks under her wings, and you would not!

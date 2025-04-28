@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But be thou sober in all things, suffer hardship, do the work of an evangelist, fulfil thy ministry.
+But you be sober in all things, suffer hardship, do the work of an evangelist, and fulfill your ministry.

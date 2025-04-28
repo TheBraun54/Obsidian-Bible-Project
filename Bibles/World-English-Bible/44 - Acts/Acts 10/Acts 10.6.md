@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he lodgeth with one Simon a tanner, whose house is by the sea side.
+He lodges with one Simon, a tanner, whose house is by the seaside."

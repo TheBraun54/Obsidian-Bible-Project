@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David gave to Ornan for the place six hundred shekels of gold by weight.
+So David gave to Ornan six hundred shekels of gold by weight for the place.

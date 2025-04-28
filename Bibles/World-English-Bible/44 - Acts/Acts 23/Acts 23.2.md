@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the high priest Ananias commanded them that stood by him to smite him on the mouth.
+The high priest, Ananias, commanded those who stood by him to strike him on the mouth.

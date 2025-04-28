@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the two tribes and the half-tribe have received their inheritance beyond the Jordan at Jericho eastward, toward the sunrising.
+the two tribes and the half-tribe have received their inheritance beyond the Jordan at Jericho eastward, toward the sunrise."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the multitude answered him, Teacher, I brought unto thee my son, who hath a dumb spirit;
+One of the multitude answered, "Teacher, I brought to you my son, who has a mute spirit;

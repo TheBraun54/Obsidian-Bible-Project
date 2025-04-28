@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore lift up the hands that hang down, and the palsied knees;
+Therefore, lift up the hands that hang down and the feeble knees,

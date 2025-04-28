@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Hannah, she spake in her heart; only her lips moved, but her voice was not heard: therefore Eli thought she had been drunken.
+Now Hannah spoke in her heart. Only her lips moved, but her voice was not heard. Therefore Eli thought she had been drunken.

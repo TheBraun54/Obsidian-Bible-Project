@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereupon were the foundations thereof fastened? Or who laid the corner-stone thereof,
+Whereupon were its foundations fastened? Or who laid its cornerstone,

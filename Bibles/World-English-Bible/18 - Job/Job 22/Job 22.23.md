@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou return to the Almighty, thou shalt be built up, If thou put away unrighteousness far from thy tents.
+If you return to the Almighty, you shall be built up, if you put away unrighteousness far from your tents.

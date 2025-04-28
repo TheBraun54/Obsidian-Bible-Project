@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because of the multitude of the whoredoms of the well-favored harlot, the mistress of witchcrafts, that selleth nations through her whoredoms, and families through her witchcrafts.
+because of the multitude of the prostitution of the alluring prostitute, the mistress of witchcraft, who sells nations through her prostitution, and families through her witchcraft.

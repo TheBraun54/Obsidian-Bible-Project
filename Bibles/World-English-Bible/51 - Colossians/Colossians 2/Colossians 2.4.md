@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This I say, that no one may delude you with persuasiveness of speech.
+Now this I say that no one may delude you with persuasiveness of speech.

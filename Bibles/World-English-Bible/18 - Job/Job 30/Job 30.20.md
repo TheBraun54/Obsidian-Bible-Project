@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I cry unto thee, and thou dost not answer me: I stand up, and thou gazest at me.
+I cry to you, and you do not answer me. I stand up, and you gaze at me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called unto him his disciples, and said unto them, Verily I say unto you, This poor widow cast in more than all they that are casting into the treasury:
+He called his disciples to himself, and said to them, "Most certainly I tell you, this poor widow gave more than all those who are giving into the treasury,

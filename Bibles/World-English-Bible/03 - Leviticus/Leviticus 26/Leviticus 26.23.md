@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if by these things ye will not be reformed unto me, but will walk contrary unto me;
+"'If by these things you won't be reformed to me, but will walk contrary to me;

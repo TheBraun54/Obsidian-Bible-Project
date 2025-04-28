@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom he also showed himself alive after his passion by many proofs, appearing unto them by the space of forty days, and speaking the things concerning the kingdom of God:
+To these he also showed himself alive after he suffered, by many proofs, appearing to them over a period of forty days, and speaking about God's Kingdom.

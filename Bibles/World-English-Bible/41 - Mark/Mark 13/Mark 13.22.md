@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for there shall arise false Christs and false prophets, and shall show signs and wonders, that they may lead astray, if possible, the elect.
+For there will arise false christs and false prophets, and will show signs and wonders, that they may lead astray, if possible, even the chosen ones.

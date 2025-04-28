@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it was day, they knew not the land: but they perceived a certain bay with a beach, and they took counsel whether they could drive the ship upon it.
+When it was day, they didn't recognize the land, but they noticed a certain bay with a beach, and they decided to try to drive the ship onto it.

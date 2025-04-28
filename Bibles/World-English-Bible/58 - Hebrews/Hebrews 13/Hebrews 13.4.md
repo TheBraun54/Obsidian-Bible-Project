@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Let] marriage [be] had in honor among all, and [let] the bed [be] undefiled: for fornicators and adulterers God will judge.
+Let marriage be held in honor among all, and let the bed be undefiled: but God will judge the sexually immoral and adulterers.

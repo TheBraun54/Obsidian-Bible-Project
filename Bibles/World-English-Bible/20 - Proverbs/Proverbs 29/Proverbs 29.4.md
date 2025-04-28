@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king by justice establisheth the land; But he that exacteth gifts overthroweth it.
+The king by justice makes the land stable, but he who takes bribes tears it down.

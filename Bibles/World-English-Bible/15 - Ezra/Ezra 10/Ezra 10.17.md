@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made an end with all the men that had married foreign women by the first day of the first month.
+They made an end with all the men who had married foreign women by the first day of the first month.

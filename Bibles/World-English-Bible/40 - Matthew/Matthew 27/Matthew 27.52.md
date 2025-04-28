@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the tombs were opened; and many bodies of the saints that had fallen asleep were raised;
+The tombs were opened, and many bodies of the saints who had fallen asleep were raised;

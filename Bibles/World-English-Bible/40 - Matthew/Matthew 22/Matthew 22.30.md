@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in the resurrection they neither marry, nor are given in marriage, but are as angels in heaven.
+For in the resurrection they neither marry, nor are given in marriage, but are like God's angels in heaven.

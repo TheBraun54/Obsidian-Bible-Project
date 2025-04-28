@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou therefore that teachest another, teachest thou not thyself? thou that preachest a man should not steal, dost thou steal?
+You therefore who teach another, don't you teach yourself? You who preach that a man shouldn't steal, do you steal?

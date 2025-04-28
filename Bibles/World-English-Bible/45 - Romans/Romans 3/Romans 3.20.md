@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because by the works of the law shall no flesh be justified in his sight; for through the law [cometh] the knowledge of sin.
+Because by the works of the law, no flesh will be justified in his sight. For through the law comes the knowledge of sin.

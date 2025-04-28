@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There they buried Abraham and Sarah his wife; there they buried Isaac and Rebekah his wife; and there I buried Leah--
+There they buried Abraham and Sarah, his wife. There they buried Isaac and Rebekah, his wife, and there I buried Leah:

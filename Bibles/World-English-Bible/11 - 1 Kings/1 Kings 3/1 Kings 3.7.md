@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O Jehovah my God, thou hast made thy servant king instead of David my father: and I am but a little child; I know not how to go out or come in.
+Now, Yahweh my God, you have made your servant king instead of David my father. I am but a little child. I don't know how to go out or come in.

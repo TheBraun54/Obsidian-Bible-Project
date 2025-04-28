@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by these ye shall become unclean: whosoever toucheth the carcass of them shall be unclean until the even;
+"'By these you will become unclean: whoever touches the carcass of them shall be unclean until the evening.

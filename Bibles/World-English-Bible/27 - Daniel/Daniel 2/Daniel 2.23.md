@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank thee, and praise thee, O thou God of my fathers, who hast given me wisdom and might, and hast now made known unto me what we desired of thee; for thou hast made known unto us the king's matter.
+I thank you, and praise you, you God of my fathers, who have given me wisdom and might, and have now made known to me what we desired of you; for you have made known to us the king's matter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came down to him, Elisha prayed unto Jehovah, and said, Smite this people, I pray thee, with blindness. And he smote them with blindness according to the word of Elisha.
+When they came down to him, Elisha prayed to Yahweh, and said, "Please strike this people with blindness." He struck them with blindness according to the word of Elisha.

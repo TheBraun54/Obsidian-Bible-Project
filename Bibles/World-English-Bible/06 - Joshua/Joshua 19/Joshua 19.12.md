@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it turned from Sarid eastward toward the sunrising unto the border of Chisloth-tabor; and it went out to Daberath, and went up to Japhia;
+It turned from Sarid eastward toward the sunrise to the border of Chisloth Tabor. It went out to Daberath, and went up to Japhia.

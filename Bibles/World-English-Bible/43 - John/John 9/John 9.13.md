@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They bring to the Pharisees him that aforetime was blind.
+They brought him who had been blind to the Pharisees.

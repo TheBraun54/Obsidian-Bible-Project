@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou stretchedst out thy right hand, The earth swallowed them.
+You stretched out your right hand. The earth swallowed them.

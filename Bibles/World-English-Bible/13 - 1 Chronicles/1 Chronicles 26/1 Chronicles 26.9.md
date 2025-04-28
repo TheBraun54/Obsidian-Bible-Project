@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Meshelemiah had sons and brethren, valiant men, eighteen.
+Meshelemiah had sons and brothers, valiant men, eighteen.

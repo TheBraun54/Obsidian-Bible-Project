@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The good man out of the good treasure of his heart bringeth forth that which is good; and the evil [man] out of the evil [treasure] bringeth forth that which is evil: for out of the abundance of the heart his mouth speaketh.
+The good man out of the good treasure of his heart brings out that which is good, and the evil man out of the evil treasure of his heart brings out that which is evil, for out of the abundance of the heart, his mouth speaks.

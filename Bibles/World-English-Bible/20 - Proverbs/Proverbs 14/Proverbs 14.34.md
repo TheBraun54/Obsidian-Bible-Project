@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Righteousness exalteth a nation; But sin is a reproach to any people.
+Righteousness exalts a nation, but sin is a disgrace to any people.

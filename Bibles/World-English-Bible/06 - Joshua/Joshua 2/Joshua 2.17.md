@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men said unto her, We will be guiltless of this thine oath which thou hast made us to swear.
+The men said to her, "We will be guiltless of this your oath which you have made us to swear.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he had an only daughter, about twelve years of age, and she was dying. But as he went the multitudes thronged him.
+for he had an only daughter, about twelve years of age, and she was dying. But as he went, the multitudes pressed against him.

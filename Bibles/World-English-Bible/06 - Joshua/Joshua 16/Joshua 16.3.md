@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it went down westward to the border of the Japhletites, unto the border of Beth-horon the nether, even unto Gezer; and the goings out thereof were at the sea.
+and it went down westward to the border of the Japhletites, to the border of Beth Horon the lower, even to Gezer; and ended at the sea.

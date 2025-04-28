@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O God, the proud are risen up against me, And a company of violent men have sought after my soul, And have not set thee before them.
+God, the proud have risen up against me. A company of violent men have sought after my soul, and they don't hold regard for you before them.

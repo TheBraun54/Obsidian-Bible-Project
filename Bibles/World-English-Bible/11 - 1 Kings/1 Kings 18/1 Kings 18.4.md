@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for it was so, when Jezebel cut off the prophets of Jehovah, that Obadiah took a hundred prophets, and hid them by fifty in a cave, and fed them with bread and water.)
+for it was so, when Jezebel cut off the prophets of Yahweh, that Obadiah took one hundred prophets, and hid them by fifty in a cave, and fed them with bread and water.)

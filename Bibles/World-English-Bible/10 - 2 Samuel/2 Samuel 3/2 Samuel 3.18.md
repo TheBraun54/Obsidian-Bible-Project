@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-now then do it; for Jehovah hath spoken of David, saying, By the hand of my servant David I will save my people Israel out of the hand of the Philistines, and out of the hand of all their enemies.
+Now then do it; for Yahweh has spoken of David, saying, 'By the hand of my servant David, I will save my people Israel out of the hand of the Philistines, and out of the hand of all their enemies.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: The children of Israel and the children of Judah are oppressed together; and all that took them captive hold them fast; they refuse to let them go.
+Thus says Yahweh of Armies: The children of Israel and the children of Judah are oppressed together; and all who took them captive hold them fast; they refuse to let them go.

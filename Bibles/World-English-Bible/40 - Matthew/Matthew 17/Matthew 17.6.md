@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the disciples heard it, they fell on their face, and were sore afraid.
+When the disciples heard it, they fell on their faces, and were very afraid.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed to thyself, lest thou make a covenant with the inhabitants of the land whither thou goest, lest it be for a snare in the midst of thee:
+Be careful, lest you make a covenant with the inhabitants of the land where you are going, lest it be for a snare in the midst of you:

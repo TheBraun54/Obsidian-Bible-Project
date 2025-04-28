@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said, Why hast thou troubled us? Jehovah shall trouble thee this day. And all Israel stoned him with stones; and they burned them with fire, and stoned them with stones.
+Joshua said, "Why have you troubled us? Yahweh will trouble you this day." All Israel stoned him with stones, and they burned them with fire and stoned them with stones.

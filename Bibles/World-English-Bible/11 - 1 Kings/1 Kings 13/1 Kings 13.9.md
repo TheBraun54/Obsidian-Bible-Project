@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for so was it charged me by the word of Jehovah, saying, Thou shalt eat no bread, nor drink water, neither return by the way that thou camest.
+for so was it commanded me by the word of Yahweh, saying, 'You shall eat no bread, nor drink water, neither return by the way that you came.'"

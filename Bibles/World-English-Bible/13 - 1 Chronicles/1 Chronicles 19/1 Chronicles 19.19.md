@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the servants of Hadarezer saw that they were put to the worse before Israel, they made peace with David, and served him: neither would the Syrians help the children of Ammon any more.
+When the servants of Hadadezer saw that they were defeated by Israel, they made peace with David, and served him: neither would the Syrians help the children of Ammon any more.

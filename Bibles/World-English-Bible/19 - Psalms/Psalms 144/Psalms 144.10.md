@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art he that giveth salvation unto kings; Who rescueth David his servant from the hurtful sword.
+You are he who gives salvation to kings, who rescues David, his servant, from the deadly sword.

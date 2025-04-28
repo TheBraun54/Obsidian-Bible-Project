@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah said unto Onan, Go in unto thy brother's wife, and perform the duty of a husband's brother unto her, and raise up seed to thy brother.
+Judah said to Onan, "Go in to your brother's wife, and perform the duty of a husband's brother to her, and raise up seed to your brother."

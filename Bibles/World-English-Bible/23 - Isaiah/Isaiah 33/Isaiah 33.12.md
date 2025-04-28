@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the peoples shall be as the burnings of lime, as thorns cut down, that are burned in the fire.
+The peoples will be like the burning of lime, like thorns that are cut down and burned in the fire.

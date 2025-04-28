@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cast him forth out of the vineyard, and killed him. What therefore will the lord of the vineyard do unto them?
+They threw him out of the vineyard, and killed him. What therefore will the lord of the vineyard do to them?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after this he built an outer wall to the city of David, on the west side of Gihon, in the valley, even to the entrance at the fish gate; and he compassed Ophel about [with it], and raised it up to a very great height: and he put valiant captains in all the fortified cities of Judah.
+Now after this he built an outer wall to the city of David, on the west side of Gihon, in the valley, even to the entrance at the fish gate; and he encircled Ophel [with it], and raised it up to a very great height: and he put valiant captains in all the fortified cities of Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore let your hands be strong, and be ye valiant; for Saul your lord is dead, and also the house of Judah have anointed me king over them.
+Now therefore let your hands be strong, and be valiant; for Saul your lord is dead, and also the house of Judah have anointed me king over them."

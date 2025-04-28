@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If she be a wall, We will build upon her a turret of silver: And if she be a door, We will inclose her with boards of cedar.
+If she is a wall, we will build on her a turret of silver. if she is a door, we will enclose her with boards of cedar. Beloved

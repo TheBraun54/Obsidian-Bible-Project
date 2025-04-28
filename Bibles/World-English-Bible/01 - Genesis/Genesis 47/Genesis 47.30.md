@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when I sleep with my fathers, thou shalt carry me out of Egypt, and bury me in their burying-place. And he said, I will do as thou hast said.
+but when I sleep with my fathers, you shall carry me out of Egypt, and bury me in their burying place." He said, "I will do as you have said."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast its fruit before the time in the field, saith Jehovah of hosts.
+I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast its fruit before its time in the field," says Yahweh of Armies.

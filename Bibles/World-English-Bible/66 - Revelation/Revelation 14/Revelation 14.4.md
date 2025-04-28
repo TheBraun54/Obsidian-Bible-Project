@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they that were not defiled with women; for they are virgins. These [are] they that follow the Lamb whithersoever he goeth. These were purchased from among men, [to be] the firstfruits unto God and unto the Lamb.
+These are those who were not defiled with women, for they are virgins. These are those who follow the Lamb wherever he goes. These were redeemed by Jesus from among men, the first fruits to God and to the Lamb.

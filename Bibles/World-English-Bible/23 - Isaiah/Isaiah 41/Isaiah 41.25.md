@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have raised up one from the north, and he is come; from the rising of the sun one that calleth upon my name: and he shall come upon rulers as upon mortar, and as the potter treadeth clay.
+"I have raised up one from the north, and he has come; from the rising of the sun, one who calls on my name; and he shall come on rulers as on mortar, and as the potter treads clay.

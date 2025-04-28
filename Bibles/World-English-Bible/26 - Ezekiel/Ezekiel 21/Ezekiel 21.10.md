@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it is sharpened that it may make a slaughter; it is furbished that it may be as lightning: shall we then make mirth? the rod of my son, it contemneth every tree.
+it is sharpened that it may make a slaughter; it is furbished that it may be as lightning: shall we then make mirth? the rod of my son, it condemns every tree.

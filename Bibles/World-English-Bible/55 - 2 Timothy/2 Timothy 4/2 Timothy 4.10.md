@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Demas forsook me, having loved this present world, and went to Thessalonica; Crescens to Galatia, Titus to Dalmatia.
+for Demas left me, having loved this present world, and went to Thessalonica; Crescens to Galatia, and Titus to Dalmatia.

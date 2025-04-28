@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter, an apostle of Jesus Christ, to the elect who are sojourners of the Dispersion in Pontus, Galatia, Cappadocia, Asia, and Bithynia,
+Peter, an apostle of Jesus Christ, to the chosen ones who are living as foreigners in the Dispersion in Pontus, Galatia, Cappadocia, Asia, and Bithynia,

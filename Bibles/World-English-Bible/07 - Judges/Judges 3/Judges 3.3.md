@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ namely], the five lords of the Philistines, and all the Canaanites, and the Sidonians, and the Hivites that dwelt in mount Lebanon, from mount Baal-hermon unto the entrance of Hamath.
+[namely], the five lords of the Philistines, and all the Canaanites, and the Sidonians, and the Hivites who lived on Mount Lebanon, from Mount Baal Hermon to the entrance of Hamath.

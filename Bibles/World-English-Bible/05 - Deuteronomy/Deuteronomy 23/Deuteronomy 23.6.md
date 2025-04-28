@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not seek their peace nor their prosperity all thy days for ever.
+You shall not seek their peace nor their prosperity all your days forever.

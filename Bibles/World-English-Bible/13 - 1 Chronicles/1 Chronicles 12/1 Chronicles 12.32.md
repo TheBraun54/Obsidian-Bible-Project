@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the children of Issachar, men that had understanding of the times, to know what Israel ought to do, the heads of them were two hundred; and all their brethren were at their commandment.
+Of the children of Issachar, men who had understanding of the times, to know what Israel ought to do, the heads of them were two hundred; and all their brothers were at their commandment.

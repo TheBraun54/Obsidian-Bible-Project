@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that saith, I know him, and keepeth not his commandments, is a liar, and the truth is not in him;
+One who says, "I know him," and doesn't keep his commandments, is a liar, and the truth isn't in him.

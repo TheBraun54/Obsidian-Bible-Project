@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed to thyself, and to thy teaching. Continue in these things; for in doing this thou shalt save both thyself and them that hear thee.
+Pay attention to yourself, and to your teaching. Continue in these things, for in doing this you will save both yourself and those who hear you.

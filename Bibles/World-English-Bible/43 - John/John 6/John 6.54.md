@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that eateth my flesh and drinketh my blood hath eternal life: and I will raise him up at the last day.
+He who eats my flesh and drinks my blood has eternal life, and I will raise him up at the last day.

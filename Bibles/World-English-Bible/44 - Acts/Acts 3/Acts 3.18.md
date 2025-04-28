@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the things which God foreshowed by the mouth of all the prophets, that his Christ should suffer, he thus fulfilled.
+But the things which God announced by the mouth of all his prophets, that Christ should suffer, he thus fulfilled.

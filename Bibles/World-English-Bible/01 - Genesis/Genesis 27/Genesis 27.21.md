@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac said unto Jacob, Come near, I pray thee, that I may feel thee, my son, whether thou be my very son Esau or not.
+Isaac said to Jacob, "Please come near, that I may feel you, my son, whether you are really my son Esau or not."

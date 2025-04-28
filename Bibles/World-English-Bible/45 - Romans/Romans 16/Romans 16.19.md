@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For your obedience is come abroad unto all men. I rejoice therefore over you: but I would have you wise unto that which is good, and simple unto that which is evil.
+For your obedience has become known to all. I rejoice therefore over you. But I desire to have you wise in that which is good, but innocent in that which is evil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for the villages, with their fields, some of the children of Judah dwelt in Kiriath-arba and the towns thereof, and in Dibon and the towns thereof, and in Jekabzeel and the villages thereof,
+As for the villages, with their fields, some of the children of Judah lived in Kiriath Arba and its towns, and in Dibon and its towns, and in Jekabzeel and its villages,

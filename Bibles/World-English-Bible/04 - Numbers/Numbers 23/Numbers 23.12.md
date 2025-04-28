@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, Must I not take heed to speak that which Jehovah putteth in my mouth?
+He answered and said, "Must I not take heed to speak that which Yahweh puts in my mouth?"

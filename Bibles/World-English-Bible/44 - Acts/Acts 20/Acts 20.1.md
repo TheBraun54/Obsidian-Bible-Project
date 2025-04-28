@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the uproar ceased, Paul having sent for the disciples and exhorted them, took leave of them, and departed to go into Macedonia.
+After the uproar had ceased, Paul sent for the disciples, took leave of them, and departed to go into Macedonia.

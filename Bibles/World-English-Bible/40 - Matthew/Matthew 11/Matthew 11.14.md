@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye are willing to receive [it], this is Elijah, that is to come.
+If you are willing to receive it, this is Elijah, who is to come.

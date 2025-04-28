@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was made with cherubim and palm-trees; and a palm-tree was between cherub and cherub, and every cherub had two faces;
+It was made with cherubim and palm trees; and a palm tree was between cherub and cherub, and every cherub had two faces;

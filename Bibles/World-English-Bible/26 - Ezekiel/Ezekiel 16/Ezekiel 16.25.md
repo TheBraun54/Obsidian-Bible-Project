@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast built thy lofty place at the head of every way, and hast made thy beauty an abomination, and hast opened thy feet to every one that passed by, and multiplied thy whoredom.
+You have built your lofty place at the head of every way, and have made your beauty an abomination, and have opened your feet to everyone who passed by, and multiplied your prostitution.

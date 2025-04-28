@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now as soon as it was day, there was no small stir among the soldiers, what was become of Peter.
+Now as soon as it was day, there was no small stir among the soldiers about what had become of Peter.

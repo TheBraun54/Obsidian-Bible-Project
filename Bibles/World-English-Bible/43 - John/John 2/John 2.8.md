@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Draw out now, and bear unto the ruler of the feast. And they bare it.
+He said to them, "Now draw some out, and take it to the ruler of the feast." So they took it.

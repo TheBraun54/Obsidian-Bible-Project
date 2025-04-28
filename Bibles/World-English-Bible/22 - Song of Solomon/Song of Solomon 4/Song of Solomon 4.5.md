@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy two breasts are like two fawns That are twins of a roe, Which feed among the lilies.
+Your two breasts are like two fawns that are twins of a roe, which feed among the lilies.

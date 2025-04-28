@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: For three transgressions of Moab, yea, for four, I will not turn away the punishment thereof; because he burned the bones of the king of Edom into lime:
+Thus says Yahweh: "For three transgressions of Moab, yes, for four, I will not turn away its punishment; because he burned the bones of the king of Edom into lime;

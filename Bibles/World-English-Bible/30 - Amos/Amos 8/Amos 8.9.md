@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, saith the Lord Jehovah, that I will cause the sun to go down at noon, and I will darken the earth in the clear day.
+It will happen in that day," says the Lord Yahweh, "that I will cause the sun to go down at noon, and I will darken the earth in the clear day.

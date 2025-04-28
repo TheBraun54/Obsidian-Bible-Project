@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah, that hath given rest unto his people Israel, according to all that he promised: there hath not failed one word of all his good promise, which he promised by Moses his servant.
+"Blessed be Yahweh, who has given rest to his people Israel, according to all that he promised. There has not failed one word of all his good promise, which he promised by Moses his servant.

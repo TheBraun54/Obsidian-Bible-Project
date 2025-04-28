@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou openest thy hand, And satisfiest the desire of every living thing.
+You open your hand, and satisfy the desire of every living thing.

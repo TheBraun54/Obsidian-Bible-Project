@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-howbeit in the church I had rather speak five words with my understanding, that I might instruct others also, than ten thousand words in a tongue.
+However in the assembly I would rather speak five words with my understanding, that I might instruct others also, than ten thousand words in another language.

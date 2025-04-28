@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ben-hadad hearkened unto king Asa, and sent the captains of his armies against the cities of Israel; and they smote Ijon, and Dan, and Abel-maim, and all the store-cities of Naphtali.
+Ben Hadad listened to king Asa, and sent the captains of his armies against the cities of Israel; and they struck Ijon, and Dan, and Abel Maim, and all the storage cities of Naphtali.

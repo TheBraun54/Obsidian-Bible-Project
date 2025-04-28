@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sing a new song, saying, Worthy art thou to take the book, and to open the seals thereof: for thou was slain, and didst purchase unto God with thy blood [men] of every tribe, and tongue, and people, and nation,
+They sang a new song, saying, "You are worthy to take the book, and to open its seals: for you were killed, and bought us for God with your blood, out of every tribe, language, people, and nation,

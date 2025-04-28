@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Concerning the prophets. My heart within me is broken, all my bones shake; I am like a drunken man, and like a man whom wine hath overcome, because of Jehovah, and because of his holy words.
+Concerning the prophets. My heart within me is broken, all my bones shake; I am like a drunken man, and like a man whom wine has overcome, because of Yahweh, and because of his holy words.

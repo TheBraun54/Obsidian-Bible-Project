@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of the third river is Hiddekel: that is it which goeth in front of Assyria. And the fourth river is the Euphrates.
+The name of the third river is Hiddekel: this is the one which flows in front of Assyria. The fourth river is the Euphrates.

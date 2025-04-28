@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Cursed be Canaan; A servant of servants shall he be unto his brethren.
+He said, "Canaan is cursed. He will be servant of servants to his brothers."

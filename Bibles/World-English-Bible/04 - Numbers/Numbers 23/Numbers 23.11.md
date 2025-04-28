@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak said unto Balaam, What hast thou done unto me? I took thee to curse mine enemies, and, behold, thou hast blessed them altogether.
+Balak said to Balaam, "What have you done to me? I took you to curse my enemies, and behold, you have blessed them altogether."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the tenth day of this seventh month ye shall have a holy convocation; and ye shall afflict your souls: ye shall do no manner of work;
+"'On the tenth day of this seventh month you shall have a holy convocation; and you shall afflict your souls: you shall do no kind of work;

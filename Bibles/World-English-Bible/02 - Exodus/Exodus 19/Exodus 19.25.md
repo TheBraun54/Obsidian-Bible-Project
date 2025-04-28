@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Moses went down unto the people, and told them.
+So Moses went down to the people, and told them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, Disperse yourselves among the people, and say unto them, Bring me hither every man his ox, and every man his sheep, and slay them here, and eat; and sin not against Jehovah in eating with the blood. And all the people brought every man his ox with him that night, and slew them there.
+Saul said, "Disperse yourselves among the people, and tell them, 'Bring me here every man his ox, and every man his sheep, and kill them here, and eat; and don't sin against Yahweh in eating meat with the blood.'" All the people brought every man his ox with him that night, and killed them there.

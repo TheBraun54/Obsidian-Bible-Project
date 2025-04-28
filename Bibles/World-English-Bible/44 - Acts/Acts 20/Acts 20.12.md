@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought the lad alive, and were not a little comforted.
+They brought the boy in alive, and were greatly comforted.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He built the upper gate of the house of Jehovah, and on the wall of Ophel he built much.
+He built the upper gate of the house of Yahweh, and on the wall of Ophel he built much.

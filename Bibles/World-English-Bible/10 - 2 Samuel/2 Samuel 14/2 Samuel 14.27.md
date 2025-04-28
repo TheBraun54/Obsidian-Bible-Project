@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Absalom there were born three sons, and one daughter, whose name was Tamar: she was a woman of a fair countenance.
+To Absalom there were born three sons, and one daughter, whose name was Tamar: she was a woman of a beautiful face.

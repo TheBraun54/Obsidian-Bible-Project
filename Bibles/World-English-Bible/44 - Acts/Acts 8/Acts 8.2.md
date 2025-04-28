@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And devout men buried Stephen, and made great lamentation over him.
+Devout men buried Stephen, and lamented greatly over him.

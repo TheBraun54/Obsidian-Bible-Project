@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: I am jealous for Zion with great jealousy, and I am jealous for her with great wrath.
+Thus says Yahweh of Armies: "I am jealous for Zion with great jealousy, and I am jealous for her with great wrath."

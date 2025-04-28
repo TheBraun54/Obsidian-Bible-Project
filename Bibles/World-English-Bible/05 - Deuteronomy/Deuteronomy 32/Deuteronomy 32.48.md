@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses that selfsame day, saying,
+Yahweh spoke to Moses that same day, saying,

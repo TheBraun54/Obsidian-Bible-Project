@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the fortieth year, in the eleventh month, on the first day of the month, that Moses spake unto the children of Israel, according unto all that Jehovah had given him in commandment unto them;
+It happened in the fortieth year, in the eleventh month, on the first day of the month, that Moses spoke to the children of Israel, according to all that Yahweh had given him in commandment to them;

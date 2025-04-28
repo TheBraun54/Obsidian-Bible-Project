@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore say thou unto them, Thus saith Jehovah of hosts: Return unto me, saith Jehovah of hosts, and I will return unto you, saith Jehovah of hosts.
+Therefore tell them: Thus says Yahweh of Armies: 'Return to me,' says Yahweh of Armies, 'and I will return to you,' says Yahweh of Armies.

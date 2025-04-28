@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have not learned wisdom, Neither have I the knowledge of the Holy One.
+I have not learned wisdom, neither do I have the knowledge of the Holy One.

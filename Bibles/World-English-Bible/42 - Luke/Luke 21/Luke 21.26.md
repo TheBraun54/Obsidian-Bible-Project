@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-men fainting for fear, and for expectation of the things which are coming on the world: for the powers of the heavens shall be shaken.
+men fainting for fear, and for expectation of the things which are coming on the world: for the powers of the heavens will be shaken.

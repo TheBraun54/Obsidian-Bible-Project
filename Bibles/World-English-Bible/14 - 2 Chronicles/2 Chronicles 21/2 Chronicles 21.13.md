@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but hast walked in the way of the kings of Israel, and hast made Judah and the inhabitants of Jerusalem to play the harlot, like as the house of Ahab did, and also hast slain thy brethren of thy father's house, who were better than thyself:
+but have walked in the way of the kings of Israel, and have made Judah and the inhabitants of Jerusalem to play the prostitute, like the house of Ahab did, and also have slain your brothers of your father's house, who were better than yourself:

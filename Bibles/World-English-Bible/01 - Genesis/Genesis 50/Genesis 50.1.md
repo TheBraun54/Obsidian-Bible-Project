@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph fell upon his father's face, and wept upon him, and kissed him.
+Joseph fell on his father's face, wept on him, and kissed him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will make that which was lame a remnant, and that which was cast far off a strong nation: and Jehovah will reign over them in mount Zion from henceforth even for ever.
+and I will make that which was lame a remnant, and that which was cast far off a strong nation: and Yahweh will reign over them on Mount Zion from then on, even forever."

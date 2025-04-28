@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if ye thoroughly amend your ways and your doings; if ye thoroughly execute justice between a man and his neighbor;
+For if you thoroughly amend your ways and your doings; if you thoroughly execute justice between a man and his neighbor;

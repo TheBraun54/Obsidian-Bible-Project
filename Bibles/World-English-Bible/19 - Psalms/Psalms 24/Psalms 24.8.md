@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is the King of glory? Jehovah strong and mighty, Jehovah mighty in battle.
+Who is the King of glory? Yahweh strong and mighty, Yahweh mighty in battle.

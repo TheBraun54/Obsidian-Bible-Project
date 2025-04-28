@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall no stranger eat of the holy thing: a sojourner of the priest's, or a hired servant, shall not eat of the holy thing.
+"'No stranger shall eat of the holy thing: a foreigner living with the priests, or a hired servant, shall not eat of the holy thing.

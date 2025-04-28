@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the blind receive their sight, and the lame walk, the lepers are cleansed, and the deaf hear, and the dead are raised up, and the poor have good tidings preached to them.
+the blind receive their sight, the lame walk, the lepers are cleansed, the deaf hear, the dead are raised up, and the poor have good news preached to them.

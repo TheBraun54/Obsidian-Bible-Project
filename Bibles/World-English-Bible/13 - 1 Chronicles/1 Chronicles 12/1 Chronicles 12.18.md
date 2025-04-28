@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the Spirit came upon Amasai, who was chief of the thirty, [and he said], Thine are we, David, and on thy side, thou son of Jesse: peace, peace be unto thee, and peace be to thy helpers; for thy God helpeth thee. Then David received them, and made them captains of the band.
+Then the Spirit came on Amasai, who was chief of the thirty, [and he said], "We are yours, David, and on your side, you son of Jesse: peace, peace be to you, and peace be to your helpers; for your God helps you." Then David received them, and made them captains of the band.

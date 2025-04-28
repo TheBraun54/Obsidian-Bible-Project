@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When it goeth well with the righteous, the city rejoiceth; And when the wicked perish, there is shouting.
+When it goes well with the righteous, the city rejoices. When the wicked perish, there is shouting.

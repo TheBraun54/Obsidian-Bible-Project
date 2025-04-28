@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye the spoil of silver, take the spoil of gold; for there is no end of the store, the glory of all goodly furniture.
+Take the spoil of silver. Take the spoil of gold, for there is no end of the store, the glory of all goodly furniture.

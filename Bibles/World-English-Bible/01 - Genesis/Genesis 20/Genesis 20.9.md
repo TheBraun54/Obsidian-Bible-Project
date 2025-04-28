@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Abimelech called Abraham, and said unto him, What hast thou done unto us? and wherein have I sinned against thee, that thou hast brought on me and on my kingdom a great sin? thou hast done deeds unto me that ought not to be done.
+Then Abimelech called Abraham, and said to him, "What have you done to us? How have I sinned against you, that you have brought on me and on my kingdom a great sin? You have done deeds to me that ought not to be done!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou seest many things, but thou observest not; his ears are open, but he heareth not.
+You see many things, but don't observe. His ears are open, but he doesn't listen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fortified cities were Ziddim, Zer, and Hammath, Rakkath, and Chinnereth,
+The fortified cities were Ziddim, Zer, Hammath, Rakkath, Chinnereth,

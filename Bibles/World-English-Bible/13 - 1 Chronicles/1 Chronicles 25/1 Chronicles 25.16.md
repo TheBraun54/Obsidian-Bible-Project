@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the ninth to Mattaniah, his sons and his brethren, twelve:
+the ninth to Mattaniah, his sons and his brothers, twelve:

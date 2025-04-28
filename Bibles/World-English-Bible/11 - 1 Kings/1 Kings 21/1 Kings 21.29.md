@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seest thou how Ahab humbleth himself before me? because he humbleth himself before me, I will not bring the evil in his days; but in his son's days will I bring the evil upon his house.
+"See how Ahab humbles himself before me? Because he humbles himself before me, I will not bring the evil in his days; but in his son's days will I bring the evil on his house."

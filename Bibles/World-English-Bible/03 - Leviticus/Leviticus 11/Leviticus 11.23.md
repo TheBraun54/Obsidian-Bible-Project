@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all winged creeping things, which have four feet, are an abomination unto you.
+But all winged creeping things which have four feet, are an abomination to you.

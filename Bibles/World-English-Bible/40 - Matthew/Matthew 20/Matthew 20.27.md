@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and whosoever would be first among you shall be your servant:
+Whoever desires to be first among you shall be your bondservant,

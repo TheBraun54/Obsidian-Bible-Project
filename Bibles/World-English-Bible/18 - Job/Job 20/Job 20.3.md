@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have heard the reproof which putteth me to shame; And the spirit of my understanding answereth me.
+I have heard the reproof which puts me to shame. The spirit of my understanding answers me.

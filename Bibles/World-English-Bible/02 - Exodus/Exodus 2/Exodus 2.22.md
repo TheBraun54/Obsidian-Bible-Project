@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she bare a son, and he called his name Gershom; for he said, I have been a sojourner in a foreign land.
+She bore a son, and he named him Gershom, for he said, "I have lived as a foreigner in a foreign land."

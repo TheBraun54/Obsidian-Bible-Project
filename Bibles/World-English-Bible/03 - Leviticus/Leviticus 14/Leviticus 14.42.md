@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall take other stones, and put them in the place of those stones; and he shall take other mortar, and shall plaster the house.
+They shall take other stones, and put them in the place of those stones; and he shall take other mortar, and shall plaster the house.

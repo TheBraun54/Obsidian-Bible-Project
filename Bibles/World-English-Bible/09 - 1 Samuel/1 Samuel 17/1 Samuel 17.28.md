@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eliab his eldest brother heard when he spake unto the men; and Eliab's anger was kindled against David, and he said, Why art thou come down? and with whom hast thou left those few sheep in the wilderness? I know thy pride, and the naughtiness of thy heart; for thou art come down that thou mightest see the battle.
+Eliab his eldest brother heard when he spoke to the men; and Eliab's anger was kindled against David, and he said, "Why have you come down? With whom have you left those few sheep in the wilderness? I know your pride, and the naughtiness of your heart; for you have come down that you might see the battle."

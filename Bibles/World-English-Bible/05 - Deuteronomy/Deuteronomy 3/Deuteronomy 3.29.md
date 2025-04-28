@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So we abode in the valley over against Beth-peor.
+So we stayed in the valley over against Beth Peor.

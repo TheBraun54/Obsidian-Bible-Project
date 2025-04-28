@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it shall come to pass in the latter days, that I will bring back the captivity of Elam, saith Jehovah.
+But it shall happen in the latter days, that I will bring back the captivity of Elam, says Yahweh.

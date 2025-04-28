@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the multitude saw what Paul had done, they lifted up their voice, saying in the speech of Lycaonia, The gods are come down to us in the likeness of men.
+When the multitude saw what Paul had done, they lifted up their voice, saying in the language of Lycaonia, "The gods have come down to us in the likeness of men!"

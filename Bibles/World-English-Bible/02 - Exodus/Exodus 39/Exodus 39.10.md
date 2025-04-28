@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they set in it four rows of stones. A row of sardius, topaz, and carbuncle was the first row;
+They set in it four rows of stones. A row of ruby, topaz, and beryl was the first row;

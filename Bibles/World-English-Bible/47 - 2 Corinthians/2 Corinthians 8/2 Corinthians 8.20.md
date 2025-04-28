@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Avoiding this, that any man should blame us in [the matter of] this bounty which is ministered by us:
+We are avoiding this, that any man should blame us concerning this abundance which is administered by us.

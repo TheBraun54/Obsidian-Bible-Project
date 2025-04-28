@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to this agree the words of the prophets; as it is written,
+This agrees with the words of the prophets. As it is written,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there rose up certain of the sect of the Pharisees who believed, saying, It is needful to circumcise them, and to charge them to keep the law of Moses.
+But some of the sect of the Pharisees who believed rose up, saying, "It is necessary to circumcise them, and to command them to keep the law of Moses."

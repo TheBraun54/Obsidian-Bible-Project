@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Syrians fled before Israel; and David slew of the Syrians [the men of] seven thousand chariots, and forty thousand footmen, and killed Shophach the captain of the host.
+The Syrians fled before Israel; and David killed of the Syrians [the men of] seven thousand chariots, and forty thousand footmen, and killed Shophach the captain of the army.

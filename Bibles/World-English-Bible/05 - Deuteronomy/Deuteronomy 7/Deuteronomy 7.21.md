@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not be affrighted at them; for Jehovah thy God is in the midst of thee, a great God and a terrible.
+You shall not be scared of them; for Yahweh your God is in the midst of you, a great and awesome God.

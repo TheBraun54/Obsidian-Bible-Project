@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border shall turn about from Azmon unto the brook of Egypt, and the goings out thereof shall be at the sea.
+and the border shall turn about from Azmon to the brook of Egypt, and the goings out of it shall be at the sea.

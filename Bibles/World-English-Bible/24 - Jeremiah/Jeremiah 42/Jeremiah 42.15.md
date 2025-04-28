@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-now therefore hear ye the word of Jehovah, O remnant of Judah: Thus saith Jehovah of hosts, the God of Israel, If ye indeed set your faces to enter into Egypt, and go to sojourn there;
+now therefore hear the word of Yahweh, O remnant of Judah: Thus says Yahweh of Armies, the God of Israel, If you indeed set your faces to enter into Egypt, and go to live there;

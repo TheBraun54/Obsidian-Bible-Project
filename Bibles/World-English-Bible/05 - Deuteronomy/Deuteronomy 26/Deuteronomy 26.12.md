@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou hast made an end of tithing all the tithe of thine increase in the third year, which is the year of tithing, then thou shalt give it unto the Levite, to the sojourner, to the fatherless, and to the widow, that they may eat within thy gates, and be filled.
+When you have made an end of tithing all the tithe of your increase in the third year, which is the year of tithing, then you shall give it to the Levite, to the foreigner, to the fatherless, and to the widow, that they may eat within your gates, and be filled.

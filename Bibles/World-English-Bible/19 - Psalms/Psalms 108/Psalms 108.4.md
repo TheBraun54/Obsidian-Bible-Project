@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy lovingkindness is great above the heavens; And thy truth [reacheth] unto the skies.
+For your loving kindness is great above the heavens. Your faithfulness reaches to the skies.

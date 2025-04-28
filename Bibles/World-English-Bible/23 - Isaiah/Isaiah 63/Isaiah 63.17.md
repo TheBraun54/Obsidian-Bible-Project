@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, why dost thou make us to err from thy ways, and hardenest our heart from thy fear? Return for thy servants' sake, the tribes of thine inheritance.
+O Yahweh, why do you make us to err from your ways, and harden our heart from your fear? Return for your servants' sake, the tribes of your inheritance.

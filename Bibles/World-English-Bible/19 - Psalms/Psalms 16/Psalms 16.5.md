@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is the portion of mine inheritance and of my cup: Thou maintainest my lot.
+Yahweh assigned my portion and my cup. You made my lot secure.

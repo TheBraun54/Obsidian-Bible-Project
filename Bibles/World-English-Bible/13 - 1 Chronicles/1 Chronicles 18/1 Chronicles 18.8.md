@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from Tibhath and from Cun, cities of Hadarezer, David took very much brass, wherewith Solomon made the brazen sea, and the pillars, and the vessels of brass.
+From Tibhath and from Cun, cities of Hadadezer, David took very much brass, with which Solomon made the bronze sea, and the pillars, and the vessels of brass.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto you, that even so there shall be joy in heaven over one sinner that repenteth, [more] than over ninety and nine righteous persons, who need no repentance.
+I tell you that even so there will be more joy in heaven over one sinner who repents, than over ninety-nine righteous people who need no repentance.

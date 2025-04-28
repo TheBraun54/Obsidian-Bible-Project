@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which indeed is less than all seeds; but when it is grown, it is greater than the herbs, and becometh a tree, so that the birds of the heaven come and lodge in the branches thereof.
+which indeed is smaller than all seeds. But when it is grown, it is greater than the herbs, and becomes a tree, so that the birds of the air come and lodge in its branches."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The legs of the lame hang loose: So is a parable in the mouth of fools.
+Like the legs of the lame that hang loose: so is a parable in the mouth of fools.

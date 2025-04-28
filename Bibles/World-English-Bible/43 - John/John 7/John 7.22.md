@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moses hath given you circumcision (not that it is of Moses, but of the fathers); and on the sabbath ye circumcise a man.
+Moses has given you circumcision (not that it is of Moses, but of the fathers), and on the Sabbath you circumcise a boy.

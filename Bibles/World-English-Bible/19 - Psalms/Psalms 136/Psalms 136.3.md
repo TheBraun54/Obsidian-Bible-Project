@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh give thanks unto the Lord of lords; For his lovingkindness [endureth] for ever:
+Give thanks to the Lord of lords; for his loving kindness endures forever:

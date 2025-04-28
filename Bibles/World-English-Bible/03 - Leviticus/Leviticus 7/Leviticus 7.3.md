@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall offer of it all the fat thereof: the fat tail, and the fat that covereth the inwards,
+He shall offer all of its fat: the fat tail, and the fat that covers the innards,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then? only that in every way, whether in pretence or in truth, Christ is proclaimed; and therein I rejoice, yea, and will rejoice.
+What does it matter? Only that in every way, whether in pretense or in truth, Christ is proclaimed. I rejoice in this, yes, and will rejoice.

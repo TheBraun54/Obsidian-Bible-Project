@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also he made before the house two pillars of thirty and five cubits high, and the capital that was on the top of each of them was five cubits.
+Also he made before the house two pillars of thirty-five cubits high, and the capital that was on the top of each of them was five cubits.

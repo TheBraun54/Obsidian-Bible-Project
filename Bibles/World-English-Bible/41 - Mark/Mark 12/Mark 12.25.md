@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when they shall rise from the dead, they neither marry, nor are given in marriage; but are as angels in heaven.
+For when they will rise from the dead, they neither marry, nor are given in marriage, but are like angels in heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake this parable; A certain man had a fig tree planted in his vineyard; and he came seeking fruit thereon, and found none.
+He spoke this parable. "A certain man had a fig tree planted in his vineyard, and he came seeking fruit on it, and found none.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rizpah the daughter of Aiah took sackcloth, and spread it for her upon the rock, from the beginning of harvest until water was poured upon them from heaven; and she suffered neither the birds of the heavens to rest on them by day, nor the beasts of the field by night.
+Rizpah the daughter of Aiah took sackcloth, and spread it for her on the rock, from the beginning of harvest until water was poured on them from the sky. She allowed neither the birds of the sky to rest on them by day, nor the animals of the field by night.

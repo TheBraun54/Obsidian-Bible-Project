@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Rehoboam took counsel with the old men, that had stood before Solomon his father while he yet lived, saying, What counsel give ye me to return answer to this people?
+King Rehoboam took counsel with the old men, who had stood before Solomon his father while he yet lived, saying, "What counsel do you give me to return answer to this people?"

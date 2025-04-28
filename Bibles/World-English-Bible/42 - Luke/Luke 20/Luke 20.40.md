@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they durst not any more ask him any question.
+They didn't dare to ask him any more questions.

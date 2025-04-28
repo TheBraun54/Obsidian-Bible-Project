@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Manasseh slept with his fathers, and they buried him in his own house: and Amon his son reigned in his stead.
+So Manasseh slept with his fathers, and they buried him in his own house: and Amon his son reigned in his place.

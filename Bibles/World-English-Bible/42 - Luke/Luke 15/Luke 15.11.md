@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, A certain man had two sons:
+He said, "A certain man had two sons.

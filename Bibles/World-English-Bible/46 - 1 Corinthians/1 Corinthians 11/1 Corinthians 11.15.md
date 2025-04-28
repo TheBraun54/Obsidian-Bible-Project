@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if a woman have long hair, it is a glory to her: for her hair is given her for a covering.
+But if a woman has long hair, it is a glory to her, for her hair is given to her for a covering.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called the name of the place Massah, and Meribah, because of the striving of the children of Israel, and because they tempted Jehovah, saying, Is Jehovah among us, or not?
+He called the name of the place Massah, and Meribah, because the children of Israel quarreled, and because they tested Yahweh, saying, "Is Yahweh among us, or not?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when he had found him, he brought him unto Antioch. And it came to pass, that even for a whole year they were gathered together with the church, and taught much people, and that the disciples were called Christians first in Antioch.
+When he had found him, he brought him to Antioch. It happened, that for a whole year they were gathered together with the assembly, and taught many people. The disciples were first called Christians in Antioch.

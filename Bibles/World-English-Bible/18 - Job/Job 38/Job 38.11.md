@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And said, Hitherto shalt thou come, but no further; And here shall thy proud waves be stayed?
+and said, 'Here you may come, but no further. Here your proud waves shall be stayed?'

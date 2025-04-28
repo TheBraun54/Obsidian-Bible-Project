@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say, I pray thee, thou art my sister; that it may be well with me for thy sake, and that my soul may live because of thee.
+Please say that you are my sister, that it may be well with me for your sake, and that my soul may live because of you."

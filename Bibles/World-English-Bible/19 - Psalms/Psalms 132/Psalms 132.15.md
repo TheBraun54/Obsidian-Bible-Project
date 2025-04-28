@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will abundantly bless her provision: I will satisfy her poor with bread.
+I will abundantly bless her provision. I will satisfy her poor with bread.

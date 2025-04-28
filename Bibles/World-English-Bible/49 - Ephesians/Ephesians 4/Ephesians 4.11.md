@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave some [to be] apostles; and some, prophets; and some, evangelists; and some, pastors and teachers;
+He gave some to be apostles; and some, prophets; and some, evangelists; and some, shepherds and teachers;

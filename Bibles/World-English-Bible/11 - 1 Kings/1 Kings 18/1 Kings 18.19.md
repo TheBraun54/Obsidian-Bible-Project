@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore send, and gather to me all Israel unto mount Carmel, and the prophets of Baal four hundred and fifty, and the prophets of the Asherah four hundred, that eat at Jezebel's table.
+Now therefore send, and gather to me all Israel to Mount Carmel, and four hundred fifty of the prophets of Baal, and four hundred of the prophets of the Asherah, who eat at Jezebel's table."

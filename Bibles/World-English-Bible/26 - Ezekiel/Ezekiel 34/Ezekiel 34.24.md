@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, Jehovah, will be their God, and my servant David prince among them; I, Jehovah, have spoken it.
+I, Yahweh, will be their God, and my servant David prince among them; I, Yahweh, have spoken it.

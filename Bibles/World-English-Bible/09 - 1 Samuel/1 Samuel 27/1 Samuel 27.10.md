@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Achish said, Against whom have ye made a raid to-day? And David said, Against the South of Judah, and against the South of the Jerahmeelites, and against the South of the Kenites.
+Achish said, "Against whom have you made a raid today?" David said, "Against the South of Judah, against the South of the Jerahmeelites, and against the South of the Kenites."

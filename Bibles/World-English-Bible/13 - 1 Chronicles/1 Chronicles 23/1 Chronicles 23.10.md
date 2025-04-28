@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Shimei: Jahath, Zina, and Jeush, and Beriah. These four were the sons of Shimei.
+The sons of Shimei: Jahath, Zina, and Jeush, and Beriah. These four were the sons of Shimei.

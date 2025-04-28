@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told the king of Jericho, saying, Behold, there came men in hither to-night of the children of Israel to search out the land.
+The king of Jericho was told, "Behold, men of the children of Israel came in here tonight to spy out the land."

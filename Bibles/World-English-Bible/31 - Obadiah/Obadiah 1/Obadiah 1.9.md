@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy mighty men, O Teman, shall be dismayed, to the end that every one may be cut off from the mount of Esau by slaughter.
+Your mighty men, Teman, will be dismayed, to the end that everyone may be cut off from the mountain of Esau by slaughter.

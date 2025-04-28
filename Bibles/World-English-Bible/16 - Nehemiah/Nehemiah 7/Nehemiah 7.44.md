@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The singers: the children of Asaph, a hundred forty and eight.
+The singers: the children of Asaph, one hundred forty-eight.

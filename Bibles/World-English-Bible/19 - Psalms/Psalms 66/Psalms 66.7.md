@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He ruleth by his might for ever; His eyes observe the nations: Let not the rebellious exalt themselves. {{Selah
+He rules by his might forever. His eyes watch the nations. Don't let the rebellious rise up against him. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Tattenai, the governor beyond the River, Shethar-bozenai, and their companions, because that Darius the king had sent, did accordingly with all diligence.
+Then Tattenai, the governor beyond the River, Shetharbozenai, and their companions, because that Darius the king had sent, did accordingly with all diligence.

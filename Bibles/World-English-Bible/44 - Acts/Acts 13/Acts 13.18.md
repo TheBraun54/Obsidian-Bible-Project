@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for about the time of forty years as a nursing-father bare he them in the wilderness.
+For a period of about forty years he put up with them in the wilderness.

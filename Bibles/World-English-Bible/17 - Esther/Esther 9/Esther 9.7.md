@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Parshandatha, and Dalphon, and Aspatha,
+They killed Parshandatha, Dalphon, Aspatha,

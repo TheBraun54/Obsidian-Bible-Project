@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will walk among you, and will be your God, and ye shall be my people.
+I will walk among you, and will be your God, and you will be my people.

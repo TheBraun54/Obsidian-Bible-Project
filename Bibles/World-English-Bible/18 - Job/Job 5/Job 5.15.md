@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he saveth from the sword of their mouth, Even the needy from the hand of the mighty.
+But he saves from the sword of their mouth, even the needy from the hand of the mighty.

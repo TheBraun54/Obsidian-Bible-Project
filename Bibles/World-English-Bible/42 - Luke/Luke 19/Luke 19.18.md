@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the second came, saying, Thy pound, Lord, hath made five pounds.
+"The second came, saying, 'Your mina, Lord, has made five minas.'

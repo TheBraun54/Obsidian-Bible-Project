@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, after that I have plucked them up, I will return and have compassion on them; and I will bring them again, every man to his heritage, and every man to his land.
+It shall happen, after that I have plucked them up, I will return and have compassion on them; and I will bring them again, every man to his heritage, and every man to his land.

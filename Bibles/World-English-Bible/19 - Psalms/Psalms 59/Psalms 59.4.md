@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They run and prepare themselves without [my] fault: Awake thou to help me, and behold.
+I have done no wrong, yet they are ready to attack me. Rise up, behold, and help me!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God said unto me, Thou shalt not build a house for my name, because thou art a man of war, and hast shed blood.
+But God said to me, 'You shall not build a house for my name, because you are a man of war, and have shed blood.'

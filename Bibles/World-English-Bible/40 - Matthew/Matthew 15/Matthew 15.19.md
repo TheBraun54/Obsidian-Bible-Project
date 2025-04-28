@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For out of the heart come forth evil thoughts, murders, adulteries, fornications, thefts, false witness, railings:
+For out of the heart come forth evil thoughts, murders, adulteries, sexual sins, thefts, false testimony, and blasphemies.

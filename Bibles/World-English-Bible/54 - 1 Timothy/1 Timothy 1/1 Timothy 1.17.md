@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now unto the King eternal, immortal, invisible, the only God, [be] honor and glory for ever and ever. Amen.
+Now to the King eternal, immortal, invisible, to God who alone is wise, be honor and glory forever and ever. Amen.

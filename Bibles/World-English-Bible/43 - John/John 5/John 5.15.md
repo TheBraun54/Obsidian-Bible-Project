@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The man went away, and told the Jews that it was Jesus who had made him whole.
+The man went away, and told the Jews that it was Jesus who had made him well.

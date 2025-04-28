@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Egypt spake to the Hebrew midwives, of whom the name of the one was Shiphrah, and the name of the other Puah:
+The king of Egypt spoke to the Hebrew midwives, of whom the name of the one was Shiphrah, and the name of the other Puah,

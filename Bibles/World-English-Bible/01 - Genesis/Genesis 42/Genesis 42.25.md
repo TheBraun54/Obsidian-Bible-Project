@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Joseph commanded to fill their vessels with grain, and to restore every man's money into his sack, and to give them provisions for the way: and thus was it done unto them.
+Then Joseph gave a command to fill their bags with grain, and to restore each man's money into his sack, and to give them food for the way. So it was done to them.

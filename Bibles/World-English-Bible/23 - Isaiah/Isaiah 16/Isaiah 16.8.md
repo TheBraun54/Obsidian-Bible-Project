@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the fields of Heshbon languish, [and] the vine of Sibmah; the lords of the nations have broken down the choice branches thereof, which reached even unto Jazer, which wandered into the wilderness; its shoots were spread abroad, they passed over the sea.
+For the fields of Heshbon languish with the vine of Sibmah. The lords of the nations have broken down its choice branches, which reached even to Jazer, which wandered into the wilderness. Its shoots were spread abroad. They passed over the sea.

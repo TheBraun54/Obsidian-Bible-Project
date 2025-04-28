@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the place of his habitation he looketh forth Upon all the inhabitants of the earth,
+From the place of his habitation he looks out on all the inhabitants of the earth,

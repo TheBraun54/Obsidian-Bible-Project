@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For of the wise man, even as of the fool, there is no remembrance for ever; seeing that in the days to come all will have been long forgotten. And how doth the wise man die even as the fool!
+For of the wise man, even as of the fool, there is no memory for ever, since in the days to come all will have been long forgotten. Indeed, the wise man must die just like the fool!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his father had not displeased him at any time in saying, Why hast thou done so? and he was also a very goodly man; and he was born after Absalom.
+His father had not displeased him at any time in saying, "Why have you done so?" and he was also a very handsome man; and he was born after Absalom.

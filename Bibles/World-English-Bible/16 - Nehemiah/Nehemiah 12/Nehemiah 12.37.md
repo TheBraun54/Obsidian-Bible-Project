@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the fountain gate, and straight before them, they went up by the stairs of the city of David, at the ascent of the wall, above the house of David, even unto the water gate eastward.
+By the spring gate, and straight before them, they went up by the stairs of the city of David, at the ascent of the wall, above the house of David, even to the water gate eastward.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before I formed thee in the belly I knew thee, and before thou camest forth out of the womb I sanctified thee; I have appointed thee a prophet unto the nations.
+"Before I formed you in the belly, I knew you. Before you came forth out of the womb, I sanctified you. I have appointed you a prophet to the nations."

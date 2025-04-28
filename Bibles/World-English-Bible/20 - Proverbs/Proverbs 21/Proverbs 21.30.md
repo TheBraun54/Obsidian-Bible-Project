@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no wisdom nor understanding Nor counsel against Jehovah.
+There is no wisdom nor understanding nor counsel against Yahweh.

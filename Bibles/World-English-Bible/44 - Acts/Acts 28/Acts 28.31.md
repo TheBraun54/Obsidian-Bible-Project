@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-preaching the kingdom of God, and teaching the things concerning the Lord Jesus Christ with all boldness, none forbidding him.
+preaching the Kingdom of God, and teaching the things concerning the Lord Jesus Christ with all boldness, without hindrance.

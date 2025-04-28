@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, when they heard it, glorified God; and they said unto him, Thou seest, brother, how many thousands there are among the Jews of them that have believed; and they are all zealous for the law:
+They, when they heard it, glorified God. They said to him, "You see, brother, how many thousands there are among the Jews of those who have believed, and they are all zealous for the law.

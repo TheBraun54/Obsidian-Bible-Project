@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Damascus is waxed feeble, she turneth herself to flee, and trembling hath seized on her: anguish and sorrows have taken hold of her, as of a woman in travail.
+Damascus has grown feeble, she turns herself to flee, and trembling has seized on her: anguish and sorrows have taken hold of her, as of a woman in travail.

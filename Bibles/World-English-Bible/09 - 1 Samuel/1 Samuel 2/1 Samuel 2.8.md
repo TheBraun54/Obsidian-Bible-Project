@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He raiseth up the poor out of the dust, He lifteth up the needy from the dunghill, To make them sit with princes, And inherit the throne of glory: For the pillars of the earth are Jehovah's, And he hath set the world upon them.
+He raises up the poor out of the dust. He lifts up the needy from the dunghill, To make them sit with princes, and inherit the throne of glory. For the pillars of the earth are Yahweh's. He has set the world on them.

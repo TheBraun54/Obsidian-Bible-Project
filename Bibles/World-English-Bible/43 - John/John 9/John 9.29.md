@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We know that God hath spoken unto Moses: but as for this man, we know not whence he is.
+We know that God has spoken to Moses. But as for this man, we don't know where he comes from."

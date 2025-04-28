@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then death worketh in us, but life in you.
+So then death works in us, but life in you.

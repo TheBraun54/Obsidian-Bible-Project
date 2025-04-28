@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made upon the skirts of the robe pomegranates of blue, and purple, and scarlet, [and] twined [linen] .
+They made on the skirts of the robe pomegranates of blue, purple, scarlet, and twined linen.

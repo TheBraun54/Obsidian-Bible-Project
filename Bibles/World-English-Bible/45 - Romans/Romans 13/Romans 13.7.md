@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Render to all their dues: tribute to whom tribute [is due] ; custom to whom custom; fear to whom fear; honor to whom honor.
+Give therefore to everyone what you owe: taxes to whom taxes are due; customs to whom customs; respect to whom respect; honor to whom honor.

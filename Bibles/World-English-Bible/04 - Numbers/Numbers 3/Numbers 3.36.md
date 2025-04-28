@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the appointed charge of the sons of Merari shall be the boards of the tabernacle, and the bars thereof, and the pillars thereof, and the sockets thereof, and all the instruments thereof, and all the service thereof,
+The appointed duty of the sons of Merari shall be the tabernacle's boards, its bars, its pillars, its sockets, all its instruments, all its service,

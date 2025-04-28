@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they were filled with madness; and communed one with another what they might do to Jesus.
+But they were filled with rage, and talked with one another about what they might do to Jesus.

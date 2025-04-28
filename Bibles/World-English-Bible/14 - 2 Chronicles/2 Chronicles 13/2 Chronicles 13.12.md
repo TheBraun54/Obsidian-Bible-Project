@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, God is with us at our head, and his priests with the trumpets of alarm to sound an alarm against you. O children of Israel, fight ye not against Jehovah, the God of your fathers; for ye shall not prosper.
+Behold, God is with us at our head, and his priests with the trumpets of alarm to sound an alarm against you. Children of Israel, don't fight against Yahweh, the God of your fathers; for you shall not prosper."

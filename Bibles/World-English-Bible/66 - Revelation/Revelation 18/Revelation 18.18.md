@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and cried out as they looked upon the smoke of her burning, saying, What [city] is like the great city?
+and cried out as they looked at the smoke of her burning, saying, 'What is like the great city?'

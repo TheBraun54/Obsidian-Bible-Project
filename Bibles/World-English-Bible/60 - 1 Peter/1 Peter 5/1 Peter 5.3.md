@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither as lording it over the charge allotted to you, but making yourselves ensamples to the flock.
+neither as lording it over those entrusted to you, but making yourselves examples to the flock.

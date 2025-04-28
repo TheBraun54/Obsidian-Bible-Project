@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they constrained him, saying, Abide with us; for it is toward evening, and the day is now far spent. And he went in to abide with them.
+They urged him, saying, "Stay with us, for it is almost evening, and the day is almost over." He went in to stay with them.

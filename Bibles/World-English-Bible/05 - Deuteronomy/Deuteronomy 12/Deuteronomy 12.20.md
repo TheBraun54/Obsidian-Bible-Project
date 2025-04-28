@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jehovah thy God shall enlarge thy border, as he hath promised thee, and thou shalt say, I will eat flesh, because thy soul desireth to eat flesh; thou mayest eat flesh, after all the desire of thy soul.
+When Yahweh your God shall enlarge your border, as he has promised you, and you shall say, "I want to eat meat," because your soul desires to eat meat; you may eat meat, after all the desire of your soul.

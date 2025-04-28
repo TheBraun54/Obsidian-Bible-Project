@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon this many of his disciples went back, and walked no more with him.
+At this, many of his disciples went back, and walked no more with him.

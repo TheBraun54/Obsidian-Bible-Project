@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have no pleasure in the death of him that dieth, saith the Lord Jehovah: wherefore turn yourselves, and live.
+For I have no pleasure in the death of him who dies, says the Lord Yahweh: therefore turn yourselves, and live.

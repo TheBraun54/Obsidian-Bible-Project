@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they established a decree to make proclamation throughout all Israel, from Beer-sheba even to Dan, that they should come to keep the passover unto Jehovah, the God of Israel, at Jerusalem: for they had not kept it [ in great numbers in such sort as it is written.
+So they established a decree to make proclamation throughout all Israel, from Beersheba even to Dan, that they should come to keep the Passover to Yahweh, the God of Israel, at Jerusalem: for they had not kept it in great numbers in such sort as it is written.

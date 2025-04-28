@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he that betrayed him had given them a token, saying, Whomsoever I shall kiss, that is he; take him, and lead him away safely.
+Now he who betrayed him had given them a sign, saying, "Whoever I will kiss, that is he. Seize him, and lead him away safely."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went up from thence to Beer-sheba.
+He went up from there to Beersheba.

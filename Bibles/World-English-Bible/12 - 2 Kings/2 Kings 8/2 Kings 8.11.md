@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he settled his countenance stedfastly [upon him], until he was ashamed: and the man of God wept.
+He settled his gaze steadfastly [on him], until he was ashamed. Then the man of God wept.

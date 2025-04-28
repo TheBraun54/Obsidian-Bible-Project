@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha said, As Jehovah of hosts liveth, before whom I stand, surely, were it not that I regard the presence of Jehoshaphat the king of Judah, I would not look toward thee, nor see thee.
+Elisha said, "As Yahweh of Armies lives, before whom I stand, surely, were it not that I respect the presence of Jehoshaphat the king of Judah, I would not look toward you, nor see you.

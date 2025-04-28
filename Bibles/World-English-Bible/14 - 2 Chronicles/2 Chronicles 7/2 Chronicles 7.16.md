@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For now have I chosen and hallowed this house, that my name may be there for ever; and mine eyes and my heart shall be there perpetually.
+For now have I chosen and made this house holy, that my name may be there forever; and my eyes and my heart shall be there perpetually.

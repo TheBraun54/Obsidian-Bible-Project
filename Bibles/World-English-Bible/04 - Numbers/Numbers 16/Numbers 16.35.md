@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fire came forth from Jehovah, and devoured the two hundred and fifty men that offered the incense.
+Fire came forth from Yahweh, and devoured the two hundred fifty men who offered the incense.

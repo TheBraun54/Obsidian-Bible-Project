@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the high priest rent his garments, saying, He hath spoken blasphemy: what further need have we of witnesses? behold, now ye have heard the blasphemy:
+Then the high priest tore his clothing, saying, "He has spoken blasphemy! Why do we need any more witnesses? Behold, now you have heard his blasphemy.

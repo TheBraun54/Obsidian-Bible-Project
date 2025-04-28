@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the man that shall be unclean, and shall not purify himself, that soul shall be cut off from the midst of the assembly, because he hath defiled the sanctuary of Jehovah: the water for impurity hath not been sprinkled upon him; he is unclean.
+But the man who shall be unclean, and shall not purify himself, that soul shall be cut off from the midst of the assembly, because he has defiled the sanctuary of Yahweh: the water for impurity has not been sprinkled on him; he is unclean.

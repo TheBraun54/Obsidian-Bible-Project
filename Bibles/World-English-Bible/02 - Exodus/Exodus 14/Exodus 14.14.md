@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will fight for you, and ye shall hold your peace.
+Yahweh will fight for you, and you shall be still."

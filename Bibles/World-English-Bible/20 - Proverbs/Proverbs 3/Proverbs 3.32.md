@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the perverse is an abomination to Jehovah; But his friendship is with the upright.
+For the perverse is an abomination to Yahweh, but his friendship is with the upright.

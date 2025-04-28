@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall thy barns be filled with plenty, And thy vats shall overflow with new wine.
+so your barns will be filled with plenty, and your vats will overflow with new wine.

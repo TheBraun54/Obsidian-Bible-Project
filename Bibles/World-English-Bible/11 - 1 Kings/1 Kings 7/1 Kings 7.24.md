@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And under the brim of it round about there were knops which did compass it, for ten cubits, compassing the sea round about: the knops were in two rows, cast when it was cast.
+Under its brim around there were buds which encircled it, for ten cubits, encircling the sea: the buds were in two rows, cast when it was cast.

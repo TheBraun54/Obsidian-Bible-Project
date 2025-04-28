@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They answered and said unto him, Thou wast altogether born in sins, and dost thou teach us? And they cast him out.
+They answered him, "You were altogether born in sins, and do you teach us?" They threw him out.

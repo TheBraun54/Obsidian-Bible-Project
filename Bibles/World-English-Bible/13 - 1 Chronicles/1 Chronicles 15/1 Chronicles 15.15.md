@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of the Levites bare the ark of God upon their shoulders with the staves thereon, as Moses commanded according to the word of Jehovah.
+The children of the Levites bore the ark of God on their shoulders with the poles thereon, as Moses commanded according to the word of Yahweh.

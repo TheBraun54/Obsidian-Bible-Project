@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous perisheth, and no man layeth it to heart; and merciful men are taken away, none considering that the righteous is taken away from the evil [to come] .
+The righteous perishes, and no man lays it to heart; and merciful men are taken away, none considering that the righteous is taken away from the evil [to come].

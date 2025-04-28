@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the congregation, saying, Get you up from about the tabernacle of Korah, Dathan, and Abiram.
+"Speak to the congregation, saying, 'Get away from around the tent of Korah, Dathan, and Abiram!'"

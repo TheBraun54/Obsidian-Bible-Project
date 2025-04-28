@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath heard my supplication; Jehovah will receive my prayer.
+Yahweh has heard my supplication. Yahweh accepts my prayer.

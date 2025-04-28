@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thanks unto thee, O Jehovah, among the peoples; And I will sing praises unto thee among the nations.
+I will give thanks to you, Yahweh, among the nations. I will sing praises to you among the peoples.

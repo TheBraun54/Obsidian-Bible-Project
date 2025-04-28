@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-partly, being made a gazingstock both by reproaches and afflictions; and partly, becoming partakers with them that were so used.
+partly, being exposed to both reproaches and oppressions; and partly, becoming partakers with those who were treated so.

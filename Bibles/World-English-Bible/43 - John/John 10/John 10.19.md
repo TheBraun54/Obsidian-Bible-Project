@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There arose a division again among the Jews because of these words.
+Therefore a division arose again among the Jews because of these words.

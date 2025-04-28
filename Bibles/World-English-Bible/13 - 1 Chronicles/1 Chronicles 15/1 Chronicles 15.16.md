@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David spake to the chief of the Levites to appoint their brethren the singers, with instruments of music, psalteries and harps and cymbals, sounding aloud and lifting up the voice with joy.
+David spoke to the chief of the Levites to appoint their brothers the singers, with instruments of music, stringed instruments and harps and cymbals, sounding aloud and lifting up the voice with joy.

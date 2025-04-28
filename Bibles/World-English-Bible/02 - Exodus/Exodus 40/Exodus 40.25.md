@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lighted the lamps before Jehovah; as Jehovah commanded Moses.
+He lit the lamps before Yahweh, as Yahweh commanded Moses.

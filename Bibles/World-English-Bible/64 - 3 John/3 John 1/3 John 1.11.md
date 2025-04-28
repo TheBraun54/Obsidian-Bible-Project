@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, imitate not that which is evil, but that which is good. He that doeth good is of God: he that doeth evil hath not seen God.
+Beloved, don't imitate that which is evil, but that which is good. He who does good is of God. He who does evil hasn't seen God.

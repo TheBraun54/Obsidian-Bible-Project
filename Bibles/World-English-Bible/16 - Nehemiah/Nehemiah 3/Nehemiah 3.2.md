@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto him builded the men of Jericho. And next to them builded Zaccur the son of Imri.
+Next to him built the men of Jericho. Next to them built Zaccur the son of Imri.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath put my brethren far from me, And mine acquaintance are wholly estranged from me.
+"He has put my brothers far from me. My acquaintances are wholly estranged from me.

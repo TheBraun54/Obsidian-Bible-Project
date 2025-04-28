@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Where wilt thou that we make ready?
+They said to him, "Where do you want us to prepare?"

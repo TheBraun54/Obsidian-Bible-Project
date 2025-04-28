@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought the letter to the king of Israel, saying, And now when this letter is come unto thee, behold, I have sent Naaman my servant to thee, that thou mayest recover him of his leprosy.
+He brought the letter to the king of Israel, saying, "Now when this letter has come to you, behold, I have sent Naaman my servant to you, that you may heal him of his leprosy."

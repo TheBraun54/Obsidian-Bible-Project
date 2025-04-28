@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The land also shall be left by them, and shall enjoy its sabbaths, while it lieth desolate without them: and they shall accept of the punishment of their iniquity; because, even because they rejected mine ordinances, and their soul abhorred my statutes.
+The land also will be left by them, and will enjoy its sabbaths while it lies desolate without them: and they will accept the punishment of their iniquity; because, even because they rejected my ordinances, and their soul abhorred my statutes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That against God thou turnest thy spirit, And lettest words go out of thy mouth?
+That you turn your spirit against God, and let such words go out of your mouth?

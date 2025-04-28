@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have sent the brethren, that our glorying on your behalf may not be made void in this respect; that, even as I said, ye may be prepared:
+But I have sent the brothers that our boasting on your behalf may not be in vain in this respect, that, just as I said, you may be prepared,

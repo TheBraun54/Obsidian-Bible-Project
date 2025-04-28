@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that thou hadst hearkened to my commandments! then had thy peace been as a river, and thy righteousness as the waves of the sea:
+Oh that you had listened to my commandments! then your peace would have been like a river, and your righteousness like the waves of the sea:

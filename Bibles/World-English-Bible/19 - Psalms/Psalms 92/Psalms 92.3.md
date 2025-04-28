@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With an instrument of ten strings, and with the psaltery; With a solemn sound upon the harp.
+with the ten-stringed lute, with the harp, and with the melody of the lyre.

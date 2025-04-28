@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also vex the hearts of many peoples, when I shall bring thy destruction among the nations, into the countries which thou hast not known.
+I will also trouble the hearts of many peoples, when I shall bring your destruction among the nations, into the countries which you have not known.

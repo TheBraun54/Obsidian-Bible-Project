@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God is the judge: He putteth down one, and lifteth up another.
+But God is the judge. He puts down one, and lifts up another.

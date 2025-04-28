@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the armies which are in heaven followed him upon white horses, clothed in fine linen, white [and] pure.
+The armies which are in heaven followed him on white horses, clothed in white, pure, fine linen.

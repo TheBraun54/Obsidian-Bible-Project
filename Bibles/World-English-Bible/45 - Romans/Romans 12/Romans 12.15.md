@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice with them that rejoice; weep with them that weep.
+Rejoice with those who rejoice. Weep with those who weep.

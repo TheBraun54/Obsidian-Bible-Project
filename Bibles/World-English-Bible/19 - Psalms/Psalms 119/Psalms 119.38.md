@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Confirm unto thy servant thy word, Which [is in order] unto the fear of thee.
+Fulfill your promise to your servant, that you may be feared.

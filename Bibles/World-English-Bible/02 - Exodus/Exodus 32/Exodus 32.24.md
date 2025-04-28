@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto them, Whosoever hath any gold, let them break it off: so they gave it me; and I cast it into the fire, and there came out this calf.
+I said to them, 'Whoever has any gold, let them take it off:' so they gave it to me; and I threw it into the fire, and out came this calf."

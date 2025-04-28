@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Hinder me not, seeing Jehovah hath prospered my way; send me away that I may go to my master.
+He said to them, "Don't hinder me, since Yahweh has prospered my way. Send me away that I may go to my master."

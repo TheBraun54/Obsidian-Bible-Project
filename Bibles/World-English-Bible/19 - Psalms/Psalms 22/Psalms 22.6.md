@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I am a worm, and no man; A reproach of men, and despised of the people.
+But I am a worm, and no man; a reproach of men, and despised by the people.

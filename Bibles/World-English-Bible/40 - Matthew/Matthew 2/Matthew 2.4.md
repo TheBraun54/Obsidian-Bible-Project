@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And gathering together all the chief priests and scribes of the people, he inquired of them where the Christ should be born.
+Gathering together all the chief priests and scribes of the people, he asked them where the Christ would be born.

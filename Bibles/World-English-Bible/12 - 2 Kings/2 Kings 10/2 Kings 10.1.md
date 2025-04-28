@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Ahab had seventy sons in Samaria. And Jehu wrote letters, and sent to Samaria, unto the rulers of Jezreel, even the elders, and unto them that brought up [the sons of] Ahab, saying,
+Now Ahab had seventy sons in Samaria. Jehu wrote letters, and sent to Samaria, to the rulers of Jezreel, even the elders, and to those who brought up [the sons of] Ahab, saying,

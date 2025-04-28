@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the famine was over all the face of the earth: and Joseph opened all the store-houses, and sold unto the Egyptians; and the famine was sore in the land of Egypt.
+The famine was over all the surface of the earth. Joseph opened all the store houses, and sold to the Egyptians. The famine was severe in the land of Egypt.

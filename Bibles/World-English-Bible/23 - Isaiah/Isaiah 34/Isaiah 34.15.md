@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall the dart-snake make her nest, and lay, and hatch, and gather under her shade; yea, there shall the kites be gathered, every one with her mate.
+The arrow snake will make her nest there, and lay, hatch, and gather under her shade. Yes, the kites will be gathered there, every one with her mate.

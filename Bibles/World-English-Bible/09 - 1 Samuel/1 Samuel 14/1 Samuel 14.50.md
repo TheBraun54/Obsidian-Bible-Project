@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the name of Saul's wife was Ahinoam the daughter of Ahimaaz. And the name of the captain of his host was Abner the son of Ner, Saul's uncle.
+and the name of Saul's wife was Ahinoam the daughter of Ahimaaz. The name of the captain of his army was Abner the son of Ner, Saul's uncle.

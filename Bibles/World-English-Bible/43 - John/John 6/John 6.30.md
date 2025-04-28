@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, What then doest thou for a sign, that we may see, and believe thee? what workest thou?
+They said therefore to him, "What then do you do for a sign, that we may see, and believe you? What work do you do?

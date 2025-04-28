@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went out about the third hour, and saw others standing in the marketplace idle;
+He went out about the third hour, and saw others standing idle in the marketplace.

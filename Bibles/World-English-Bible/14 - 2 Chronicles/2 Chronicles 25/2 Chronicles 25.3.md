@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass, when the kingdom was established unto him, that he slew his servants that had killed the king his father.
+Now it happened, when the kingdom was established to him, that he killed his servants who had killed the king his father.

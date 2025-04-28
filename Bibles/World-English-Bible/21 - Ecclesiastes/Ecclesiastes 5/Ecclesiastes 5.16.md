@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this also is a grievous evil, that in all points as he came, so shall he go: and what profit hath he that he laboreth for the wind?
+This also is a grievous evil, that in all points as he came, so shall he go. And what profit does he have who labors for the wind?

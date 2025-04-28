@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither shall they say, Lo, here! or, There! for lo, the kingdom of God is within you.
+neither will they say, 'Look, here!' or, 'Look, there!' for behold, the Kingdom of God is within you."

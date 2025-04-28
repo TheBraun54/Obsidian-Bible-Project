@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause I also, having heard of the faith in the Lord Jesus which is among you, and the love which [ye show] toward all the saints,
+For this cause I also, having heard of the faith in the Lord Jesus which is among you, and the love which you have toward all the saints,

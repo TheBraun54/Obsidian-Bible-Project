@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore say, Behold, I give unto him my covenant of peace:
+Therefore say, 'Behold, I give to him my covenant of peace:

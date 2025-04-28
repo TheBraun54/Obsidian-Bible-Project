@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is a man of war: Jehovah is his name.
+Yahweh is a man of war. Yahweh is his name.

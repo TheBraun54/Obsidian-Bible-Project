@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of a truth I say unto you, that he will set him over all that he hath.
+Truly I tell you, that he will set him over all that he has.

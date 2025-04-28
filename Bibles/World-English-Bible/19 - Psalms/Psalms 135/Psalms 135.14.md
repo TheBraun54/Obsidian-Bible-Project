@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will judge his people, And repent himself concerning his servants.
+For Yahweh will judge his people, and have compassion on his servants.

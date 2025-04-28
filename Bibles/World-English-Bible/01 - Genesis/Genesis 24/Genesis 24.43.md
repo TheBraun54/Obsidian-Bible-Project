@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, I am standing by the fountain of water; and let it come to pass, that the maiden that cometh forth to draw, to whom I shall say, Give me, I pray thee, a little water from thy pitcher to drink;
+behold, I am standing by this spring of water. Let it happen, that the maiden who comes forth to draw, to whom I will say, "Please give me a little water from your pitcher to drink,"

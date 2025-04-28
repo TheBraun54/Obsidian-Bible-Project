@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who moreover assayed to profane the temple: on whom also we laid hold:
+He even tried to profane the temple, and we arrested him.

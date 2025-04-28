@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the nations shall walk amidst the light thereof: and the kings of the earth bring their glory into it.
+The nations will walk in its light. The kings of the earth bring the glory and honor of the nations into it.

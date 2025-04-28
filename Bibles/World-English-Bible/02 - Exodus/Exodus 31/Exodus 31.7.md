@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the tent of meeting, and the ark of the testimony, and the mercy-seat that is thereupon, and all the furniture of the Tent,
+the Tent of Meeting, the ark of the testimony, the mercy seat that is on it, all the furniture of the Tent,

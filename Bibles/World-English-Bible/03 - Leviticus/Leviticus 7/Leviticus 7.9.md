@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every meal-offering that is baken in the oven, and all that is dressed in the frying-pan, and on the baking-pan, shall be the priest's that offereth it.
+Every meal offering that is baked in the oven, and all that is dressed in the pan, and on the griddle, shall be the priest's who offers it.

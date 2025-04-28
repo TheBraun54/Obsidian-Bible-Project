@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there arise a matter too hard for thee in judgment, between blood and blood, between plea and plea, and between stroke and stroke, being matters of controversy within thy gates; then shalt thou arise, and get thee up unto the place which Jehovah thy God shall choose;
+If there arises a matter too hard for you in judgment, between blood and blood, between plea and plea, and between stroke and stroke, being matters of controversy within your gates; then you shall arise, and go up to the place which Yahweh your God shall choose;

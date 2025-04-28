@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cast lots, as well the small as the great, according to their fathers' houses, for every gate.
+They cast lots, the small as well as the great, according to their fathers' houses, for every gate.

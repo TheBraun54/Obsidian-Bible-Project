@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall sprinkle the blood upon the altar of Jehovah at the door of the tent of meeting, and burn the fat for a sweet savor unto Jehovah.
+The priest shall sprinkle the blood on the altar of Yahweh at the door of the Tent of Meeting, and burn the fat for a pleasant aroma to Yahweh.

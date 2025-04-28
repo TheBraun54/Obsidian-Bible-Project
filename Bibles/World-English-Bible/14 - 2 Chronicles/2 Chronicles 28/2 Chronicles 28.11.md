@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now hear me therefore, and send back the captives, that ye have taken captive of your brethren; for the fierce wrath of Jehovah is upon you.
+Now hear me therefore, and send back the captives, that you have taken captive from your brothers; for the fierce wrath of Yahweh is on you."

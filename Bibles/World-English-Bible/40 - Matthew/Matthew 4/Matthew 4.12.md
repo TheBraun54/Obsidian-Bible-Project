@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when he heard that John was delivered up, he withdrew into Galilee;
+Now when Jesus heard that John was delivered up, he withdrew into Galilee.

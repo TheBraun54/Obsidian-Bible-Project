@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He then having received the sop went out straightway: and it was night.
+Therefore, having received that morsel, he went out immediately. It was night.

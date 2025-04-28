@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take one of the he-lambs, and offer him for a trespass-offering, and the log of oil, and wave them for a wave-offering before Jehovah:
+"The priest shall take one of the male lambs, and offer him for a trespass offering, with the log of oil, and wave them for a wave offering before Yahweh.

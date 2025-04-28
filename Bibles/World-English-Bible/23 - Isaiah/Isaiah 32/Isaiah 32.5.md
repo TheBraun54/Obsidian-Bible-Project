@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fool shall be no more called noble, nor the churl said to be bountiful.
+The fool will no longer be called noble, nor the scoundrel be highly respected.

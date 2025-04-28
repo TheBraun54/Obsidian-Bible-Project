@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day, saith Jehovah, there shall be the noise of a cry from the fish gate, and a wailing from the second quarter, and a great crashing from the hills.
+In that day, says Yahweh, there will be the noise of a cry from the fish gate, a wailing from the second quarter, and a great crashing from the hills.

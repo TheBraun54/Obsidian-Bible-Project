@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea and a sword shall pierce through thine own soul; that thoughts out of many hearts may be revealed.
+Yes, a sword will pierce through your own soul, that the thoughts of many hearts may be revealed."

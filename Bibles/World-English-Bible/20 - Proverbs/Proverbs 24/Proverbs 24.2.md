@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their heart studieth oppression, And their lips talk of mischief.
+for their hearts plot violence, and their lips talk about mischief.

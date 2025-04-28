@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all nations shall call you happy; for ye shall be a delightsome land, saith Jehovah of hosts.
+"All nations shall call you blessed, for you will be a delightful land," says Yahweh of Armies.

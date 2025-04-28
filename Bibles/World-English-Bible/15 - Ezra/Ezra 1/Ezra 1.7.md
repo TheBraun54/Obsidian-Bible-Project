@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Cyrus the king brought forth the vessels of the house of Jehovah, which Nebuchadnezzar had brought forth out of Jerusalem, and had put in the house of his gods;
+Also Cyrus the king brought forth the vessels of the house of Yahweh, which Nebuchadnezzar had brought forth out of Jerusalem, and had put in the house of his gods;

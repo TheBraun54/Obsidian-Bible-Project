@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore behold the king whom ye have chosen, and whom ye have asked for: and, behold, Jehovah hath set a king over you.
+Now therefore see the king whom you have chosen, and whom you have asked for: and behold, Yahweh has set a king over you.

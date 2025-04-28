@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before I was afflicted I went astray; But now I observe thy word.
+Before I was afflicted, I went astray; but now I observe your word.

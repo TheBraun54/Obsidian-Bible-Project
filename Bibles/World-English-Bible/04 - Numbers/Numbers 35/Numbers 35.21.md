@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or in enmity smote him with his hand, so that he died; he that smote him shall surely be put to death; he is a murderer: the avenger of blood shall put the murderer to death, when he meeteth him.
+or in enmity struck him with his hand, so that he died; he who struck him shall surely be put to death; he is a murderer: the avenger of blood shall put the murderer to death, when he meets him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sent a message unto Joseph, saying, Thy father did command before he died, saying,
+They sent a message to Joseph, saying, "Your father commanded before he died, saying,

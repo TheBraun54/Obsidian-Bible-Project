@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Mattithiah, and Eliphelehu, and Mikneiah, and Obed-edom, and Jeiel, and Azaziah, with harps set to the Sheminith, to lead.
+and Mattithiah, and Eliphelehu, and Mikneiah, and Obed-Edom, and Jeiel, and Azaziah, with harps tuned to the eight-stringed lyre, to lead.

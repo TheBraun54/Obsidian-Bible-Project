@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By their fruits ye shall know them. Do [men] gather grapes of thorns, or figs of thistles?
+By their fruits you will know them. Do you gather grapes from thorns, or figs from thistles?

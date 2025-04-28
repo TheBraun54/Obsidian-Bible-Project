@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he received from God the Father honor and glory, when there was borne such a voice to him by the Majestic Glory, This is my beloved Son, in whom I am well pleased:
+For he received from God the Father honor and glory, when the voice came to him from the Majestic Glory, "This is my beloved Son, in whom I am well pleased."

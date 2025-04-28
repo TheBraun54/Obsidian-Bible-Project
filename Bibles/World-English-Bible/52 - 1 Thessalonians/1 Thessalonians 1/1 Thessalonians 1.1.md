@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, and Silvanus, and Timothy, unto the church of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace.
+Paul, Silvanus, and Timothy, to the assembly of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace from God our Father and the Lord Jesus Christ.

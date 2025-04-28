@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seeing one [of them] suffer wrong, he defended him, and avenged him that was oppressed, smiting the Egyptian:
+Seeing one of them suffer wrong, he defended him, and avenged him who was oppressed, striking the Egyptian.

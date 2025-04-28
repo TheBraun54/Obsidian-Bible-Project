@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is great in Zion; And he is high above all the peoples.
+Yahweh is great in Zion. He is high above all the peoples.

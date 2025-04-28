@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, beloved, seeing that ye look for these things, give diligence that ye may be found in peace, without spot and blameless in his sight.
+Therefore, beloved, seeing that you look for these things, be diligent to be found in peace, without blemish and blameless in his sight.

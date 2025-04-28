@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will hope continually, And will praise thee yet more and more.
+But I will always hope, and will add to all of your praise.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border went up to Debir from the valley of Achor, and so northward, looking toward Gilgal, that is over against the ascent of Adummim, which is on the south side of the river; and the border passed along to the waters of En-shemesh, and the goings out thereof were at En-rogel;
+The border went up to Debir from the valley of Achor, and so northward, looking toward Gilgal, that is over against the ascent of Adummim, which is on the south side of the river. The border passed along to the waters of En Shemesh, and ended at En Rogel.

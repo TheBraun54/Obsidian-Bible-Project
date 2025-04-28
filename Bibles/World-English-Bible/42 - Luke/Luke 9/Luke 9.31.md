@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who appeared in glory, and spake of his decease which he was about to accomplish at Jerusalem.
+who appeared in glory, and spoke of his departure, which he was about to accomplish at Jerusalem.

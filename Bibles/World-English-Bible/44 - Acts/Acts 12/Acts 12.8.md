@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel said unto him, Gird thyself, and bind on thy sandals. And he did so. And he saith unto him, Cast thy garment about thee, and follow me.
+The angel said to him, "Get dressed and put on your sandals." He did so. He said to him, "Put on your cloak, and follow me."

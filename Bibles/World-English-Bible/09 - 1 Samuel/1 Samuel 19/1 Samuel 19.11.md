@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul sent messengers unto David's house, to watch him, and to slay him in the morning: and Michal, David's wife, told him, saying, If thou save not thy life to-night, to-morrow thou wilt be slain.
+Saul sent messengers to David's house, to watch him, and to kill him in the morning. Michal, David's wife, told him, saying, "If you don't save your life tonight, tomorrow you will be killed."

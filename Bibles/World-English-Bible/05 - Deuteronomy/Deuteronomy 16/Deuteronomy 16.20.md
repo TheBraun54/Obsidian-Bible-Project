@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which is altogether just shalt thou follow, that thou mayest live, and inherit the land which Jehovah thy God giveth thee.
+You shall follow that which is altogether just, that you may live, and inherit the land which Yahweh your God gives you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to them that were in Aroer, and to them that were in Siphmoth, and to them that were in Eshtemoa,
+and to those who were in Aroer, and to those who were in Siphmoth, and to those who were in Eshtemoa,

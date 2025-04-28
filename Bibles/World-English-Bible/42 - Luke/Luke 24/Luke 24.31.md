@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their eyes were opened, and they knew him; and he vanished out of their sight.
+Their eyes were opened, and they recognized him, and he vanished out of their sight.

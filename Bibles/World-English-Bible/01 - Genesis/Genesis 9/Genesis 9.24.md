@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Noah awoke from his wine, and knew what his youngest son had done unto him.
+Noah awoke from his wine, and knew what his youngest son had done to him.

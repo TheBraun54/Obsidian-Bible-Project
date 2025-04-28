@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah my God, if I have done this; If there be iniquity in my hands;
+Yahweh, my God, if I have done this, if there is iniquity in my hands,

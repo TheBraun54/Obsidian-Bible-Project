@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also he made the molten sea of ten cubits from brim to brim, round in compass; and the height thereof was five cubits; and a line of thirty cubits compassed it round about.
+Also he made the molten sea of ten cubits from brim to brim, round in compass; and its height was five cubits; and a line of thirty cubits encircled it.

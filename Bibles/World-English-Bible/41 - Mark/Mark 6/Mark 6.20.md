@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Herod feared John, knowing that he was a righteous and holy man, and kept him safe. And when he heard him, he was much perplexed; and he heard him gladly.
+for Herod feared John, knowing that he was a righteous and holy man, and kept him safe. When he heard him, he did many things, and he heard him gladly.

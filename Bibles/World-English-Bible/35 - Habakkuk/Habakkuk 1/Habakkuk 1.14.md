@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and makest men as the fishes of the sea, as the creeping things, that have no ruler over them?
+and make men like the fish of the sea, like the creeping things, that have no ruler over them?

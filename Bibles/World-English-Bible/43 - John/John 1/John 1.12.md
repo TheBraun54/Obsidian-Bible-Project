@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as many as received him, to them gave he the right to become children of God, [even] to them that believe on his name:
+But as many as received him, to them he gave the right to become God's children, to those who believe in his name:

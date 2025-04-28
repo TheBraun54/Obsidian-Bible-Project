@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hazael king of Syria died; and Benhadad his son reigned in his stead.
+Hazael king of Syria died; and Benhadad his son reigned in his place.

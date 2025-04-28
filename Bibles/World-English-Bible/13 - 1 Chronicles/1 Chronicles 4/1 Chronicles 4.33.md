@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all their villages that were round about the same cities, unto Baal. These were their habitations, and they have their genealogy.
+and all their villages that were around the same cities, to Baal. These were their habitations, and they have their genealogy.

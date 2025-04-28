@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt speak unto him, saying, Thus saith Jehovah, Hast thou killed and also taken possession? And thou shalt speak unto him, saying, Thus saith Jehovah, In the place where dogs licked the blood of Naboth shall dogs lick thy blood, even thine.
+You shall speak to him, saying, 'Thus says Yahweh, "Have you killed and also taken possession?"' You shall speak to him, saying, 'Thus says Yahweh, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'"

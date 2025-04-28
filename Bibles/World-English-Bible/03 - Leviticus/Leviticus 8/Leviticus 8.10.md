@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took the anointing oil, and anointed the tabernacle and all that was therein, and sanctified them.
+Moses took the anointing oil, and anointed the tabernacle and all that was in it, and sanctified them.

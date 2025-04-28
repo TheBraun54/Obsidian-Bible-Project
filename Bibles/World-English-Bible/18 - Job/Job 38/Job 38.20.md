@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thou shouldest take it to the bound thereof, And that thou shouldest discern the paths to the house thereof?
+that you should take it to its bound, that you should discern the paths to its house?

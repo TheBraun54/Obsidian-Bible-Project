@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Shemer: Ahi, and Rohgah, Jehubbah, and Aram.
+The sons of Shemer: Ahi, and Rohgah, Jehubbah, and Aram.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abijah stood up upon mount Zemaraim, which is in the hill-country of Ephraim, and said, Hear me, O Jeroboam and all Israel:
+Abijah stood up on Mount Zemaraim, which is in the hill country of Ephraim, and said, "Hear me, Jeroboam and all Israel:

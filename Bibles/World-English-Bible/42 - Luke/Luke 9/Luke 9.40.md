@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I besought thy disciples to cast it out; and they could not.
+I begged your disciples to cast it out, and they couldn't."

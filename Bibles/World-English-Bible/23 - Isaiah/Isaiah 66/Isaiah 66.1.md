@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Heaven is my throne, and the earth is my footstool: what manner of house will ye build unto me? and what place shall be my rest?
+Thus says Yahweh, "Heaven is my throne, and the earth is my footstool: what kind of house will you build to me? and what place shall be my rest?

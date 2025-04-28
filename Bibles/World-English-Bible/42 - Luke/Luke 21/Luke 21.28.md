@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when these things begin to come to pass, look up, and lift up your heads; because your redemption draweth nigh.
+But when these things begin to happen, look up, and lift up your heads, because your redemption is near."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I bought the field that was in Anathoth of Hanamel mine uncle's son, and weighed him the money, even seventeen shekels of silver.
+I bought the field that was in Anathoth of Hanamel my uncle's son, and weighed him the money, even seventeen shekels of silver.

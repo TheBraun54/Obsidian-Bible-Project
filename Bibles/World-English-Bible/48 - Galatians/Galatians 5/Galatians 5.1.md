@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For freedom did Christ set us free: stand fast therefore, and be not entangled again in a yoke of bondage.
+Stand firm therefore in the liberty by which Christ has made us free, and don't be entangled again with a yoke of bondage.

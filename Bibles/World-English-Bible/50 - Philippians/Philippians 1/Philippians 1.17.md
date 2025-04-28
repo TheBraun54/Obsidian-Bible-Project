@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the other proclaim Christ of faction, not sincerely, thinking to raise up affliction for me in my bonds.
+but the latter out of love, knowing that I am appointed for the defense of the Good News.

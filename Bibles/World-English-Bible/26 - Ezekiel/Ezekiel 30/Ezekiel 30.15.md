@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will pour my wrath upon Sin, the stronghold of Egypt; and I will cut off the multitude of No.
+I will pour my wrath on Sin, the stronghold of Egypt; and I will cut off the multitude of No.

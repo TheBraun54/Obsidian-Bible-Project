@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-every raven after its kind,
+any kind of raven,

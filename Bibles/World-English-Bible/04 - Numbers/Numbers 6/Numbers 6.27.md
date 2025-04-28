@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall they put my name upon the children of Israel; and I will bless them.
+"So they shall put my name on the children of Israel; and I will bless them."

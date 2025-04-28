@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to offer burnt-offerings unto Jehovah upon the altar of burnt-offering continually morning and evening, even according to all that is written in the law of Jehovah, which he commanded unto Israel;
+to offer burnt offerings to Yahweh on the altar of burnt offering continually morning and evening, even according to all that is written in the law of Yahweh, which he commanded to Israel;

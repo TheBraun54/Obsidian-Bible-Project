@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To such as keep his covenant, And to those that remember his precepts to do them.
+to those who keep his covenant, to those who remember to obey his precepts.

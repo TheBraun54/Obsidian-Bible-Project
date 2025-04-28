@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for both prophet and priest are profane; yea, in my house have I found their wickedness, saith Jehovah.
+for both prophet and priest are profane; yes, in my house have I found their wickedness, says Yahweh.

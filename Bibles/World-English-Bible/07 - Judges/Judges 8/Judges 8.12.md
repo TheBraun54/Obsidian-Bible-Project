@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zebah and Zalmunna fled; and he pursued after them; and he took the two kings of Midian, Zebah and Zalmunna, and discomfited all the host.
+Zebah and Zalmunna fled; and he pursued after them; and he took the two kings of Midian, Zebah and Zalmunna, and confused all the army.

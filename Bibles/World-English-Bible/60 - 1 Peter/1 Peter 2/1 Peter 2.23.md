@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, when he was reviled, reviled not again; when he suffered threatened not; but committed [himself] to him that judgeth righteously:
+Who, when he was cursed, didn't curse back. When he suffered, didn't threaten, but committed himself to him who judges righteously;

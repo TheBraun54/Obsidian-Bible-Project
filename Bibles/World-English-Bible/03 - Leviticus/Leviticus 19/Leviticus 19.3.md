@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall fear every man his mother, and his father; and ye shall keep my sabbaths: I am Jehovah your God.
+"'Each one of you shall respect his mother and his father. You shall keep my Sabbaths. I am Yahweh your God.

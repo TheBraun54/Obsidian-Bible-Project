@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath swallowed down riches, and he shall vomit them up again; God will cast them out of his belly.
+He has swallowed down riches, and he shall vomit them up again. God will cast them out of his belly.

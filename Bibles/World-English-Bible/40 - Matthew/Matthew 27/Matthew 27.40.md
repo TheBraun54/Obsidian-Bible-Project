@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saying, Thou that destroyest the temple, and buildest it in three days, save thyself: if thou art the Son of God, come down from the cross.
+and saying, "You who destroy the temple, and build it in three days, save yourself! If you are the Son of God, come down from the cross!"

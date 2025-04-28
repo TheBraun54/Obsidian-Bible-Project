@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there fell of Benjamin eighteen thousand men; all these [were] men of valor.
+There fell of Benjamin eighteen thousand men; all these [were] men of valor.

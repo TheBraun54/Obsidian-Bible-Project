@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now she had liers-in-wait abiding in the inner chamber. And she said unto him, The Philistines are upon thee, Samson. And he brake the withes, as a string of tow is broken when it toucheth the fire. So his strength was not known.
+Now she had an ambush waiting in the inner room. She said to him, "The Philistines are on you, Samson!" He broke the cords, as a string of tow is broken when it touches the fire. So his strength was not known.

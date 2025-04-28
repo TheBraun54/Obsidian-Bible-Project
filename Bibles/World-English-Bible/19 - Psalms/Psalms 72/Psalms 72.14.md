@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will redeem their soul from oppression and violence; And precious will their blood be in his sight:
+He will redeem their soul from oppression and violence. Their blood will be precious in his sight.

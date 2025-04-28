@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it is thou, O king, that art grown and become strong; for thy greatness is grown, and reacheth unto heaven, and thy dominion to the end of the earth.
+it is you, O king, that are grown and become strong; for your greatness is grown, and reaches to the sky, and your dominion to the end of the earth.

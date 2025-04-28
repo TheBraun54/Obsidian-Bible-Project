@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Kedar, and of the kingdoms of Hazor, which Nebuchadrezzar king of Babylon smote. Thus saith Jehovah: Arise ye, go up to Kedar, and destroy the children of the east.
+Of Kedar, and of the kingdoms of Hazor, which Nebuchadnezzar king of Babylon struck. Thus says Yahweh: Arise, go up to Kedar, and destroy the children of the east.

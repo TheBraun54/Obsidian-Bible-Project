@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah God of hosts, Who is a mighty one, like unto thee, O Jehovah? And thy faithfulness is round about thee.
+Yahweh, God of Armies, who is a mighty one, like you? Yah, your faithfulness is around you.

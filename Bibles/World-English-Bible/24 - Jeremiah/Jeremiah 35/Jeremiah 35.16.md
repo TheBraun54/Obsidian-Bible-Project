@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forasmuch as the sons of Jonadab the son of Rechab have performed the commandment of their father which he commanded them, but this people hath not hearkened unto me;
+Because the sons of Jonadab the son of Rechab have performed the commandment of their father which he commanded them, but this people has not listened to me;

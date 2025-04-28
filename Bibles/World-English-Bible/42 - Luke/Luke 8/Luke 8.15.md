@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that in the good ground, these are such as in an honest and good heart, having heard the word, hold it fast, and bring forth fruit with patience.
+That in the good ground, these are such as in an honest and good heart, having heard the word, hold it tightly, and bring forth fruit with patience.

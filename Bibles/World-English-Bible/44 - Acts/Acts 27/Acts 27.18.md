@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as we labored exceedingly with the storm, the next day they began to throw the [the freight] overboard;
+As we labored exceedingly with the storm, the next day they began to throw things overboard.

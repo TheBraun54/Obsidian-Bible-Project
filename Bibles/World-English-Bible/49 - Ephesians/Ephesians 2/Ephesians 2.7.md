@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that in the ages to come he might show the exceeding riches of his grace in kindness toward us in Christ Jesus:
+that in the ages to come he might show the exceeding riches of his grace in kindness toward us in Christ Jesus;

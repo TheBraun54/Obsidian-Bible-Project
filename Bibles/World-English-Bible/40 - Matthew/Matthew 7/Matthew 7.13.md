@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Enter ye in by the narrow gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many are they that enter in thereby.
+"Enter in by the narrow gate; for wide is the gate and broad is the way that leads to destruction, and many are those who enter in by it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I beseech you, brethren (ye know the house of Stephanas, that it is the firstfruits of Achaia, and that they have set themselves to minister unto the saints),
+Now I beg you, brothers (you know the house of Stephanas, that it is the first fruits of Achaia, and that they have set themselves to serve the saints),

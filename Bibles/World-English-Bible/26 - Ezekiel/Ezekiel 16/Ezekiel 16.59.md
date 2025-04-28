@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: I will also deal with thee as thou hast done, who hast despised the oath in breaking the covenant.
+For thus says the Lord Yahweh: I will also deal with you as you have done, who have despised the oath in breaking the covenant.

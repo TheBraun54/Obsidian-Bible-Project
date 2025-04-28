@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah of hosts came [to me], saying,
+The word of Yahweh of Armies came to me.

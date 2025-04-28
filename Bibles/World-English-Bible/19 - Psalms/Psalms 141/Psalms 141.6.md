@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their judges are thrown down by the sides of the rock; And they shall hear my words; For they are sweet.
+Their judges are thrown down by the sides of the rock. They will hear my words, for they are well spoken.

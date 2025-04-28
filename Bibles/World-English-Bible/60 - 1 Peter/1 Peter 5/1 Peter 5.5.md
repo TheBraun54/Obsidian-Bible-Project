@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Likewise, ye younger, be subject unto the elder. Yea, all of you gird yourselves with humility, to serve one another: for God resisteth the proud, but giveth grace to the humble.
+Likewise, you younger ones, be subject to the elder. Yes, all of you clothe yourselves with humility, to subject yourselves to one another; for "God resists the proud, but gives grace to the humble."

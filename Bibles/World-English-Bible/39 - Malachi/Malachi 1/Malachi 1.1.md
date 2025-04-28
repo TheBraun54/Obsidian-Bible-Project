@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of the word of Jehovah to Israel by Malachi.
+An oracle: the word of Yahweh to Israel by Malachi.

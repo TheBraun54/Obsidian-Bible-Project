@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For she leaveth her eggs on the earth, And warmeth them in the dust,
+For she leaves her eggs on the earth, warms them in the dust,

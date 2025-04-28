@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he went back with him, and did eat bread in his house, and drank water.
+So he went back with him, and ate bread in his house, and drank water.

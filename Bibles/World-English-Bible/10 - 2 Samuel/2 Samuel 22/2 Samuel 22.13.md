@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the brightness before him Coals of fire were kindled.
+At the brightness before him, coals of fire were kindled.

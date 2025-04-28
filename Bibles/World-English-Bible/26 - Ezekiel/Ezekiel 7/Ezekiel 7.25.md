@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Destruction cometh; and they shall seek peace, and there shall be none.
+Destruction comes; and they shall seek peace, and there shall be none.

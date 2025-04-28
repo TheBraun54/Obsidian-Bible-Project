@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, I have surely seen the affliction of my people that are in Egypt, and have heard their cry by reason of their taskmasters; for I know their sorrows;
+Yahweh said, "I have surely seen the affliction of my people who are in Egypt, and have heard their cry because of their taskmasters, for I know their sorrows.

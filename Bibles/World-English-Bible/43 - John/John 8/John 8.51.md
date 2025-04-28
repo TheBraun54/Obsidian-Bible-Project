@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, If a man keep my word, he shall never see death.
+Most certainly, I tell you, if a person keeps my word, he will never see death."

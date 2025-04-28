@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The old lion perisheth for lack of prey, And the whelps of the lioness are scattered abroad.
+The old lion perishes for lack of prey. The cubs of the lioness are scattered abroad.

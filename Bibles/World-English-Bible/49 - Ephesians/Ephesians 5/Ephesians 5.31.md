@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause shall a man leave his father and mother, and shall cleave to his wife; and the two shall become one flesh.
+"For this cause a man will leave his father and mother, and will be joined to his wife. The two will become one flesh."

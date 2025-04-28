@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will lay the dead bodies of the children of Israel before their idols; and I will scatter your bones round about your altars.
+I will lay the dead bodies of the children of Israel before their idols; and I will scatter your bones around your altars.

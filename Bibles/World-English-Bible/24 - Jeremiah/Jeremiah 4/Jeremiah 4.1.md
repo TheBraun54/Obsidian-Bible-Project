@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou wilt return, O Israel, saith Jehovah, if thou wilt return unto me, and if thou wilt put away thine abominations out of my sight; then shalt thou not be removed;
+"If you will return, Israel," says Yahweh, "if you will return to me, and if you will put away your abominations out of my sight; then you shall not be removed;

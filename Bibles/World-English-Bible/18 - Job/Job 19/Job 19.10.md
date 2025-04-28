@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath broken me down on every side, and I am gone; And my hope hath he plucked up like a tree.
+He has broken me down on every side, and I am gone. My hope he has plucked up like a tree.

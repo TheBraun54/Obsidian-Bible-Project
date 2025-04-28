@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram journeyed, going on still toward the South.
+Abram traveled, going on still toward the South.

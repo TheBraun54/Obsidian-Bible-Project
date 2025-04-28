@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah, Because thy filthiness was poured out, and thy nakedness uncovered through thy whoredoms with thy lovers; and because of all the idols of thy abominations, and for the blood of thy children, that thou didst give unto them;
+Thus says the Lord Yahweh, Because your filthiness was poured out, and your nakedness uncovered through your prostitution with your lovers; and because of all the idols of your abominations, and for the blood of your children, that you gave to them;

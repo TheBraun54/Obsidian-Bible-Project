@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who will render to every man according to his works:
+who "will pay back to everyone according to their works:"

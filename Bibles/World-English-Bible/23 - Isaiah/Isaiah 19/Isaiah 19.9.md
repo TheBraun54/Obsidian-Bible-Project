@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover they that work in combed flax, and they that weave white cloth, shall be confounded.
+Moreover those who work in combed flax, and those who weave white cloth, will be confounded.

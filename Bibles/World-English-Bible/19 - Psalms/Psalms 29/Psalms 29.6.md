@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh them also to skip like a calf; Lebanon and Sirion like a young wild-ox.
+He makes them also to skip like a calf; Lebanon and Sirion like a young, wild ox.

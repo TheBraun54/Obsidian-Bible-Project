@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah taketh pleasure in them that fear him, In those that hope in his lovingkindness.
+Yahweh takes pleasure in those who fear him, in those who hope in his loving kindness.

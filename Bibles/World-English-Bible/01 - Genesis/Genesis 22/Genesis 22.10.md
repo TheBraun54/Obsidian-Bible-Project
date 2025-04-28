@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham stretched forth his hand, and took the knife to slay his son.
+Abraham stretched forth his hand, and took the knife to kill his son.

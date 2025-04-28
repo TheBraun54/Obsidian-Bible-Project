@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Joab was come out from David, he sent messengers after Abner, and they brought him back from the well of Sirah: but David knew it not.
+When Joab had come out from David, he sent messengers after Abner, and they brought him back from the well of Sirah; but David didn't know it.

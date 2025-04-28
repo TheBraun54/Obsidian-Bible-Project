@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Moses suffered to write a bill of divorcement, and to put her away.
+They said, "Moses allowed a certificate of divorce to be written, and to divorce her."

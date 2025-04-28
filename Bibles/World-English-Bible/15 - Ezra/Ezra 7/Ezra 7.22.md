@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto a hundred talents of silver, and to a hundred measures of wheat, and to a hundred baths of wine, and to a hundred baths of oil, and salt without prescribing how much.
+to one hundred talents of silver, and to one hundred measures of wheat, and to one hundred baths of wine, and to one hundred baths of oil, and salt without prescribing how much.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Clubs are counted as stubble: He laugheth at the rushing of the javelin.
+Clubs are counted as stubble. He laughs at the rushing of the javelin.

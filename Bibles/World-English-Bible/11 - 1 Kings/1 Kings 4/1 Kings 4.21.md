@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon ruled over all the kingdoms from the River unto the land of the Philistines, and unto the border of Egypt: they brought tribute, and served Solomon all the days of his life.
+Solomon ruled over all the kingdoms from the River to the land of the Philistines, and to the border of Egypt: they brought tribute, and served Solomon all the days of his life.

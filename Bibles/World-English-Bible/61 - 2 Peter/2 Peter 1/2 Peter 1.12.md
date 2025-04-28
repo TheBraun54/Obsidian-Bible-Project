@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I shall be ready always to put you in remembrance of these things, though ye know them, and are established in the truth which is with [you] .
+Therefore I will not be negligent to remind you of these things, though you know them, and are established in the present truth.

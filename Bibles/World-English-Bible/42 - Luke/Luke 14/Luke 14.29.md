@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest haply, when he hath laid a foundation, and is not able to finish, all that behold begin to mock him,
+Or perhaps, when he has laid a foundation, and is not able to finish, everyone who sees begins to mock him,

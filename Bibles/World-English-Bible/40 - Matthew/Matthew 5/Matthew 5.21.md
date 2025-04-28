@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have heard that it was said to them of old time, Thou shalt not kill; and whosoever shall kill shall be in danger of the judgment:
+"You have heard that it was said to the ancient ones, 'You shall not murder;' and 'Whoever shall murder shall be in danger of the judgment.'

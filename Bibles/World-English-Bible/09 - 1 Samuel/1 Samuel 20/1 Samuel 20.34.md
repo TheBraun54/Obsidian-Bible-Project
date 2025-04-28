@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jonathan arose from the table in fierce anger, and did eat no food the second day of the month; for he was grieved for David, because his father had done him shame.
+So Jonathan arose from the table in fierce anger, and ate no food the second day of the month; for he was grieved for David, because his father had done him shame.

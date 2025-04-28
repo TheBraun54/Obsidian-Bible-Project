@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he, being merciful, forgave [their] iniquity, and destroyed [them] not: Yea, many a time turned he his anger away, And did not stir up all his wrath.
+But he, being merciful, forgave iniquity, and didn't destroy them. Yes, many times he turned his anger away, and didn't stir up all his wrath.

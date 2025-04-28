@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let mine outcasts dwell with thee; as for Moab, be thou a covert to him from the face of the destroyer. For the extortioner is brought to nought, destruction ceaseth, the oppressors are consumed out of the land.
+Let my outcasts dwell with you! As for Moab, be a hiding place for him from the face of the destroyer. For the extortioner is brought to nothing. Destruction ceases. The oppressors are consumed out of the land.

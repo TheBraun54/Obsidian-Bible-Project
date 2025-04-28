@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gather up thy wares out of the land, O thou that abidest in the siege.
+Gather up your wares out of the land, you who live under siege.

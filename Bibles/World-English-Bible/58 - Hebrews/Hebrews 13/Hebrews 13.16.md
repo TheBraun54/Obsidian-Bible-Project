@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to do good and to communicate forget not: for with such sacrifices God is well pleased.
+But don't forget to be doing good and sharing, for with such sacrifices God is well pleased.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came he unto the gate which looketh toward the east, and went up the steps thereof: and he measured the threshold of the gate, one reed broad; and the other threshold, one reed broad.
+Then came he to the gate which looks toward the east, and went up its steps: and he measured the threshold of the gate, one reed broad; and the other threshold, one reed broad.

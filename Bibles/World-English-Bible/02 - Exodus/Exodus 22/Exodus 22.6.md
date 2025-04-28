@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If fire break out, and catch in thorns, so that the shocks of grain, or the standing grain, or the field are consumed; he that kindled the fire shall surely make restitution.
+"If fire breaks out, and catches in thorns so that the shocks of grain, or the standing grain, or the field are consumed; he who kindled the fire shall surely make restitution.

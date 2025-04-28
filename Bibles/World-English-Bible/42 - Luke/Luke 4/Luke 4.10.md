@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for it is written, He shall give his angels charge concerning thee, to guard thee:
+for it is written, 'He will put his angels in charge of you, to guard you;'

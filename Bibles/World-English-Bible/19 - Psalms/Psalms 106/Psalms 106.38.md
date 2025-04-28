@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And shed innocent blood, Even the blood of their sons and of their daughters, Whom they sacrificed unto the idols of Canaan; And the land was polluted with blood.
+They shed innocent blood, even the blood of their sons and of their daughters, whom they sacrificed to the idols of Canaan. The land was polluted with blood.

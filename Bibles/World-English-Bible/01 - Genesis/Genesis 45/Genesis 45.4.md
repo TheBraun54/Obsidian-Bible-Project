@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto his brethren, Come near to me, I pray you. And they came near. And he said, I am Joseph your brother, whom ye sold into Egypt.
+Joseph said to his brothers, "Come near to me, please." They came near. "He said, I am Joseph, your brother, whom you sold into Egypt.

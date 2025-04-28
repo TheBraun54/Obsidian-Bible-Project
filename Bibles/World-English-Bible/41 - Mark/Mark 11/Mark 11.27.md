@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come again to Jerusalem: and as he was walking in the temple, there come to him the chief priests, and the scribes, and the elders;
+They came again to Jerusalem, and as he was walking in the temple, the chief priests, and the scribes, and the elders came to him,

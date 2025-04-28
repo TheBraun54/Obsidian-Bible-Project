@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were gathered unto him worthless men, base fellows, that strengthened themselves against Rehoboam the son of Solomon, when Rehoboam was young and tender-hearted, and could not withstand them.
+There were gathered to him worthless men, base fellows, who strengthened themselves against Rehoboam the son of Solomon, when Rehoboam was young and tenderhearted, and could not withstand them.

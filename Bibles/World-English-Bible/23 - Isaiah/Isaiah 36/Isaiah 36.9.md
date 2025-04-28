@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How then canst thou turn away the face of one captain of the least of my master's servants, and put thy trust on Egypt for chariots and for horsemen?
+How then can you turn away the face of one captain of the least of my master's servants, and put your trust on Egypt for chariots and for horsemen?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-until Jehovah give rest unto your brethren, as unto you, and they also possess the land which Jehovah your God giveth them beyond the Jordan: then shall ye return every man unto his possession, which I have given you.
+until Yahweh gives rest to your brothers, as to you, and they also possess the land which Yahweh your God gives them beyond the Jordan: then you shall return every man to his possession, which I have given you."

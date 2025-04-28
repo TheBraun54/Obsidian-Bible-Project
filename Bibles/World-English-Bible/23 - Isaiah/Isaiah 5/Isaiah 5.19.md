@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that say, Let him make speed, let him hasten his work, that we may see it; and let the counsel of the Holy One of Israel draw nigh and come, that we may know it!
+Who say, "Let him make speed, let him hasten his work, that we may see it; and let the counsel of the Holy One of Israel draw near and come, that we may know it!"

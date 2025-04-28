@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said one to another, Behold, this dreamer cometh.
+They said one to another, "Behold, this dreamer comes.

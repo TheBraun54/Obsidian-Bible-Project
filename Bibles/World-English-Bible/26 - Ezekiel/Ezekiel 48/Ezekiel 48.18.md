@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the residue in the length, answerable unto the holy oblation, shall be ten thousand eastward, and ten thousand westward; and it shall be answerable unto the holy oblation; and the increase thereof shall be for food unto them that labor in the city.
+The remainder in the length, answerable to the holy offering, shall be ten thousand eastward, and ten thousand westward; and it shall be answerable to the holy offering; and its increase shall be for food to those who labor in the city.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Quench not the Spirit;
+Don't quench the Spirit.

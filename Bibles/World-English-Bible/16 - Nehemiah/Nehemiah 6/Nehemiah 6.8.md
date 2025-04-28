@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I sent unto him, saying, There are no such things done as thou sayest, but thou feignest them out of thine own heart.
+Then I sent to him, saying, "There are no such things done as you say, but you imagine them out of your own heart."

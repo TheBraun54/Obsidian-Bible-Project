@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All go unto one place; all are of the dust, and all turn to dust again.
+All go to one place. All are from the dust, and all turn to dust again.

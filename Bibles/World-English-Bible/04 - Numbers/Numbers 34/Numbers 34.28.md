@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the tribe of the children of Naphtali a prince, Pedahel the son of Ammihud.
+Of the tribe of the children of Naphtali a prince, Pedahel the son of Ammihud."

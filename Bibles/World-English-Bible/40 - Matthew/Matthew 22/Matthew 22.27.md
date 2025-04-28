@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after them all, the woman died.
+After them all, the woman died.

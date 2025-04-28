@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and blue, and purple, and scarlet, and fine linen, and goats' [hair] ,
+blue, purple, scarlet, fine linen, goats' hair,

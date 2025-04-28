@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked up, and said, I see men; for I behold [them] as trees, walking.
+He looked up, and said, "I see men; for I see them like trees walking."

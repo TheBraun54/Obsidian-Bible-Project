@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He breaketh me with breach upon breach; He runneth upon me like a giant.
+He breaks me with breach on breach. He runs on me like a giant.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Ye are they that justify yourselves in the sight of men; but God knoweth your hearts: for that which is exalted among men is an abomination in the sight of God.
+He said to them, "You are those who justify yourselves in the sight of men, but God knows your hearts. For that which is exalted among men is an abomination in the sight of God.

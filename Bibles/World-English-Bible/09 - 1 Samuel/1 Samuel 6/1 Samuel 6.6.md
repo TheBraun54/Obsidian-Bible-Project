@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore then do ye harden your hearts, as the Egyptians and Pharaoh hardened their hearts? When he had wrought wonderfully among them, did they not let the people go, and they departed?
+Why then do you harden your hearts, as the Egyptians and Pharaoh hardened their hearts? When he had worked wonderfully among them, didn't they let the people go, and they departed?

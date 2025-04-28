@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who by his strength setteth fast the mountains, Being girded about with might;
+Who by his power forms the mountains, having armed yourself with strength;

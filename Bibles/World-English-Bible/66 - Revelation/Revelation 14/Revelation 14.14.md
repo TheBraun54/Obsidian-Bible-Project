@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw, and behold, a white cloud; and on the cloud [I saw] one sitting like unto a son of man, having on his head a golden crown, and in his hand sharp sickle.
+I looked, and behold, a white cloud; and on the cloud one sitting like a son of man, having on his head a golden crown, and in his hand a sharp sickle.

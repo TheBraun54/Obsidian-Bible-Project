@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou my threshing, and the grain of my floor! that which I have heard from Jehovah of hosts, the God of Israel, have I declared unto you.
+You are my threshing, and the grain of my floor!" That which I have heard from Yahweh of Armies, the God of Israel, I have declared to you.

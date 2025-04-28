@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rise up for our help, And redeem us for thy lovingkindness' sake.
+Rise up to help us. Redeem us for your loving kindness' sake. For the Chief Musician. Set to "The Lilies." A contemplation by the sons of Korah. A wedding song.

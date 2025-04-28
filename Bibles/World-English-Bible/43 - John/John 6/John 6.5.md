@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore lifting up his eyes, and seeing that a great multitude cometh unto him, saith unto Philip, Whence are we to buy bread, that these may eat?
+Jesus therefore lifting up his eyes, and seeing that a great multitude was coming to him, said to Philip, "Where are we to buy bread, that these may eat?"

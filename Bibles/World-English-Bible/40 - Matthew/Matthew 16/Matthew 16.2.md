@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said unto them, When it is evening, ye say, [It will be] fair weather: for the heaven is red.
+But he answered them, "When it is evening, you say, 'It will be fair weather, for the sky is red.'

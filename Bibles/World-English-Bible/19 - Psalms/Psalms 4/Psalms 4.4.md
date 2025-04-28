@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stand in awe, and sin not: Commune with your own heart upon your bed, and be still. {{Selah
+Stand in awe, and don't sin. Search your own heart on your bed, and be still. Selah.

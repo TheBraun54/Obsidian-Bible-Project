@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this they said, trying him, that they might have [whereof] to accuse him. But Jesus stooped down, and with his finger wrote on the ground.
+They said this testing him, that they might have something to accuse him of. But Jesus stooped down, and wrote on the ground with his finger.

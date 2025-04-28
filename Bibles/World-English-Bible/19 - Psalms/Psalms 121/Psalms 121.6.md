@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun shall not smite thee by day, Nor the moon by night.
+The sun will not harm you by day, nor the moon by night.

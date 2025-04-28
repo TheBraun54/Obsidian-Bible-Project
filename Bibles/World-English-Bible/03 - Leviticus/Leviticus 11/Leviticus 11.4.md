@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless these shall ye not eat of them that chew the cud, or of them that part the hoof: the camel, because he cheweth the cud but parteth not the hoof, he is unclean unto you.
+"'Nevertheless these you shall not eat of those that chew the cud, or of those who part the hoof: the camel, because he chews the cud but doesn't have a parted hoof, he is unclean to you.

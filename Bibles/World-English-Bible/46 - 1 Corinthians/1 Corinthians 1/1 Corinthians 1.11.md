@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it hath been signified unto me concerning you, my brethren, by them [that are of the household] of Chloe, that there are contentions among you.
+For it has been reported to me concerning you, my brothers, by those who are from Chloe's household, that there are contentions among you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king commanded, and they hewed out great stones, costly stones, to lay the foundation of the house with wrought stone.
+The king commanded, and they cut out great stones, costly stones, to lay the foundation of the house with worked stone.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For hath any said unto God, I have borne [chastisement], I will not offend [any more] :
+"For has any said to God, 'I am guilty, but I will not offend any more.

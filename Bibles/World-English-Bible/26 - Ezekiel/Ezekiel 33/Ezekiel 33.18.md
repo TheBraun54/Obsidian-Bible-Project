@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the righteous turneth from his righteousness, and committeth iniquity, he shall even die therein.
+When the righteous turns from his righteousness, and commits iniquity, he shall even die therein.

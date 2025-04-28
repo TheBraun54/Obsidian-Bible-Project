@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From heaven fought the stars, From their courses they fought against Sisera.
+From the sky the stars fought. From their courses, they fought against Sisera.

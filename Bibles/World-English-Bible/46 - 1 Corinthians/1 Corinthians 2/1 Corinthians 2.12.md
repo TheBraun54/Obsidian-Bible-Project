@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we received, not the spirit of the world, but the spirit which is from God; that we might know the things that were freely given to us of God.
+But we received, not the spirit of the world, but the Spirit which is from God, that we might know the things that were freely given to us by God.

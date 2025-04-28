@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah the Tishbite, who was of the sojourners of Gilead, said unto Ahab, As Jehovah, the God of Israel, liveth, before whom I stand, there shall not be dew nor rain these years, but according to my word.
+Elijah the Tishbite, who was of the foreigners of Gilead, said to Ahab, "As Yahweh, the God of Israel, lives, before whom I stand, there shall not be dew nor rain these years, but according to my word."

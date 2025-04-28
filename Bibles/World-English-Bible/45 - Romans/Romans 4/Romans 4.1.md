@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then shall we say that Abraham, our forefather, hath found according to the flesh?
+What then will we say that Abraham, our forefather, has found according to the flesh?

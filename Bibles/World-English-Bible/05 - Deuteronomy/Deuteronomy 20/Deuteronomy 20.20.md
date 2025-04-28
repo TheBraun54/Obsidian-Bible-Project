@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only the trees of which thou knowest that they are not trees for food, thou shalt destroy and cut them down; and thou shalt build bulwarks against the city that maketh war with thee, until it fall.
+Only the trees of which you know that they are not trees for food, you shall destroy and cut them down; and you shall build bulwarks against the city that makes war with you, until it fall.

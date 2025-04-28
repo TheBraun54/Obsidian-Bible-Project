@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it was day, the Jews banded together, and bound themselves under a curse, saying that they would neither eat nor drink till they had killed Paul.
+When it was day, some of the Jews banded together, and bound themselves under a curse, saying that they would neither eat nor drink until they had killed Paul.

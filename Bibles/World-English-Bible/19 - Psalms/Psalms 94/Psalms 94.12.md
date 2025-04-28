@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man whom thou chastenest, O Jehovah, And teachest out of thy law;
+Blessed is the man whom you discipline, Yah, and teach out of your law;

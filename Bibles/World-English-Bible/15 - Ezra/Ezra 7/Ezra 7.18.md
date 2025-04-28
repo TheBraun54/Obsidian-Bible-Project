@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever shall seem good to thee and to thy brethren to do with the rest of the silver and the gold, that do ye after the will of your God.
+Whatever shall seem good to you and to your brothers to do with the rest of the silver and the gold, do that after the will of your God.

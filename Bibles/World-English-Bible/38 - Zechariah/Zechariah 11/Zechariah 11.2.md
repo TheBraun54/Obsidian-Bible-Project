@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wail, O fir-tree, for the cedar is fallen, because the goodly ones are destroyed: wail, O ye oaks of Bashan, for the strong forest is come down.
+Wail, fir tree, for the cedar has fallen, because the stately ones are destroyed. Wail, you oaks of Bashan, for the strong forest has come down.

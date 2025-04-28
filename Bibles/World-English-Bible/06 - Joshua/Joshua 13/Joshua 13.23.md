@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border of the children of Reuben was the Jordan, and the border [thereof] . This was the inheritance of the children of Reuben according to their families, the cities and the villages thereof.
+The border of the children of Reuben was the bank of the Jordan. This was the inheritance of the children of Reuben according to their families, the cities and its villages.

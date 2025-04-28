@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward came out his brother, that had the scarlet thread upon his hand: and his name was called Zerah.
+Afterward his brother came out, that had the scarlet thread on his hand, and his name was called Zerah.

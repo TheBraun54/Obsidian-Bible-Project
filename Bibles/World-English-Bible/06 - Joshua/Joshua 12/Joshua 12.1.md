@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the kings of the land, whom the children of Israel smote, and possessed their land beyond the Jordan toward the sunrising, from the valley of the Arnon unto mount Hermon, and all the Arabah eastward:
+Now these are the kings of the land, whom the children of Israel struck, and possessed their land beyond the Jordan toward the sunrise, from the valley of the Arnon to Mount Hermon, and all the Arabah eastward:

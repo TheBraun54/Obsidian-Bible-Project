@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast devised shame to thy house, by cutting off many peoples, and hast sinned against thy soul.
+You have devised shame to your house, by cutting off many peoples, and have sinned against your soul.

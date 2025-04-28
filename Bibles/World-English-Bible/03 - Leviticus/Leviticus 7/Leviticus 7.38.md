@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which Jehovah commanded Moses in mount Sinai, in the day that he commanded the children of Israel to offer their oblations unto Jehovah, in the wilderness of Sinai.
+which Yahweh commanded Moses in Mount Sinai, in the day that he commanded the children of Israel to offer their offerings to Yahweh, in the wilderness of Sinai.

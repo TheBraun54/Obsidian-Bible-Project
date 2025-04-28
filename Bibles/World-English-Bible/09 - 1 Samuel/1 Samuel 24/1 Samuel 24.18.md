@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou hast declared this day how that thou hast dealt well with me, forasmuch as when Jehovah had delivered me up into thy hand, thou killedst me not.
+You have declared this day how you have dealt well with me, because when Yahweh had delivered me up into your hand, you didn't kill me.

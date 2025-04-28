@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For many bare false witness against him, and their witness agreed not together.
+For many gave false testimony against him, and their testimony didn't agree with each other.

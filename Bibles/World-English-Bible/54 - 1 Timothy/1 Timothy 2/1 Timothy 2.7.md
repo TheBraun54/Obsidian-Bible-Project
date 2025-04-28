@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereunto I was appointed a preacher and an apostle (I speak the truth, I lie not), a teacher of the Gentiles in faith and truth.
+to which I was appointed a preacher and an apostle (I am telling the truth in Christ, not lying), a teacher of the Gentiles in faith and truth.

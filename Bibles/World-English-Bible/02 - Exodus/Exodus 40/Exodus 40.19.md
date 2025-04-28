@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spread the tent over the tabernacle, and put the covering of the tent above upon it; as Jehovah commanded Moses.
+He spread the covering over the tent, and put the roof of the tabernacle above on it, as Yahweh commanded Moses.

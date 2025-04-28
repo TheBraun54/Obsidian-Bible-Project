@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Israel hath cast off that which is good: the enemy shall pursue him.
+Israel has cast off that which is good. The enemy will pursue him.

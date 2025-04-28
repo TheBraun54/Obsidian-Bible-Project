@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There dwelt men of Tyre also therein, who brought in fish, and all manner of wares, and sold on the sabbath unto the children of Judah, and in Jerusalem.
+There lived men of Tyre also therein, who brought in fish, and all kinds of wares, and sold on the Sabbath to the children of Judah, and in Jerusalem.

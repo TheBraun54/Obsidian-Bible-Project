@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One of the two that heard John [speak], and followed him, was Andrew, Simon Peter's brother.
+One of the two who heard John, and followed him, was Andrew, Simon Peter's brother.

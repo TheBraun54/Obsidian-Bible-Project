@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a man in thy kingdom, in whom is the spirit of the holy gods; and in the days of thy father light and understanding and wisdom, like the wisdom of the gods, were found in him; and the king Nebuchadnezzar thy father, the king, [I say], thy father, made him master of the magicians, enchanters, Chaldeans, and soothsayers;
+There is a man in your kingdom, in whom is the spirit of the holy gods; and in the days of your father light and understanding and wisdom, like the wisdom of the gods, were found in him; and the king Nebuchadnezzar your father, the king, [I say], your father, made him master of the magicians, enchanters, Chaldeans, and soothsayers;

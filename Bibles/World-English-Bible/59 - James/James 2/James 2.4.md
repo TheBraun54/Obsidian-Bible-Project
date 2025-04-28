@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-do ye not make distinctions among yourselves, and become judges with evil thoughts?
+haven't you shown partiality among yourselves, and become judges with evil thoughts?

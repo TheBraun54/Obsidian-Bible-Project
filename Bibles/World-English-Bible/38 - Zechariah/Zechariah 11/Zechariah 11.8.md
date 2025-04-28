@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I cut off the three shepherds in one month; for my soul was weary of them, and their soul also loathed me.
+I cut off the three shepherds in one month; for my soul was weary of them, and their soul also loathed me.

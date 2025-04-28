@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they opposed themselves and blasphemed, he shook out his raiment and said unto them, Your blood [be] upon your own heads; I am clean: from henceforth I will go unto the Gentiles. [
+When they opposed him and blasphemed, he shook out his clothing and said to them, "Your blood be on your own heads! I am clean. From now on, I will go to the Gentiles!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But abide thou in the things which thou hast learned and hast been assured of, knowing of whom thou hast learned them.
+But you remain in the things which you have learned and have been assured of, knowing from whom you have learned them.

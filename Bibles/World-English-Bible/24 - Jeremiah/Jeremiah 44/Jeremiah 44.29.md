@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be the sign unto you, saith Jehovah, that I will punish you in this place, that ye may know that my words shall surely stand against you for evil:
+This shall be the sign to you, says Yahweh, that I will punish you in this place, that you may know that my words shall surely stand against you for evil:

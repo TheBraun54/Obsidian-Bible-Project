@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that heard it said, Then who can be saved?
+Those who heard it said, "Then who can be saved?"

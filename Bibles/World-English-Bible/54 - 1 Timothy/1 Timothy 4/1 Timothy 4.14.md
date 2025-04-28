@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands of the presbytery.
+Don't neglect the gift that is in you, which was given to you by prophecy, with the laying on of the hands of the elders.

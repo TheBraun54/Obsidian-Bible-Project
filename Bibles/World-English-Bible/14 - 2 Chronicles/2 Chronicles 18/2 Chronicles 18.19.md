@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Who shall entice Ahab king of Israel, that he may go up and fall at Ramoth-gilead? And one spake saying after this manner, and another saying after that manner.
+Yahweh said, 'Who shall entice Ahab king of Israel, that he may go up and fall at Ramoth Gilead?' One spoke saying in this way, and another saying in that way.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if I go and prepare a place for you, I come again, and will receive you unto myself; that where I am, [there] ye may be also.
+If I go and prepare a place for you, I will come again, and will receive you to myself; that where I am, you may be there also.

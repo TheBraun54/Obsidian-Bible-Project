@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jehovah thy God will send the hornet among them, until they that are left, and hide themselves, perish from before thee.
+Moreover Yahweh your God will send the hornet among them, until those who are left, and hide themselves, perish from before you.

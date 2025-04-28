@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Otherwise if I had dealt falsely against his life (and there is no matter hid from the king), then thou thyself wouldest have set thyself against [me] .
+Otherwise if I had dealt falsely against his life (and there is no matter hidden from the king), then you yourself would have set yourself against me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore am I terrified at his presence; When I consider, I am afraid of him.
+Therefore I am terrified at his presence. When I consider, I am afraid of him.

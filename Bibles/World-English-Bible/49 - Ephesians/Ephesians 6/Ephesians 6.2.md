@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor thy father and mother (which is the first commandment with promise),
+"Honor your father and mother," which is the first commandment with a promise:

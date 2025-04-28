@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have not gone back from the commandment of his lips; I have treasured up the words of his mouth more than my necessary food.
+I haven't gone back from the commandment of his lips. I have treasured up the words of his mouth more than my necessary food.

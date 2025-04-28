@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make me to hear joy and gladness, That the bones which thou hast broken may rejoice.
+Let me hear joy and gladness, That the bones which you have broken may rejoice.

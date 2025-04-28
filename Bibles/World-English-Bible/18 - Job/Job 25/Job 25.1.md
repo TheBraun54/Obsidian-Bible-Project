@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Bildad the Shuhite, and said,
+Then Bildad the Shuhite answered,

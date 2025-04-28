@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am Jehovah that brought you up out of the land of Egypt, to be your God: ye shall therefore be holy, for I am holy.
+For I am Yahweh who brought you up out of the land of Egypt, to be your God. You shall therefore be holy, for I am holy.

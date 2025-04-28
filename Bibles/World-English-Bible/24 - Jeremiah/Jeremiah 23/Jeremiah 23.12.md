@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore their way shall be unto them as slippery places in the darkness: they shall be driven on, and fall therein; for I will bring evil upon them, even the year of their visitation, saith Jehovah.
+Therefore their way shall be to them as slippery places in the darkness: they shall be driven on, and fall therein; for I will bring evil on them, even the year of their visitation, says Yahweh.

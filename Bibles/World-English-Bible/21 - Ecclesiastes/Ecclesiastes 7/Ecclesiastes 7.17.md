@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not overmuch wicked, neither be thou foolish: why shouldest thou die before thy time?
+Don't be too wicked, neither be foolish. Why should you die before your time?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they like Adam have transgressed the covenant: there have they dealt treacherously against me.
+But they, like Adam, have broken the covenant. They were unfaithful to me, there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for God doth know that in the day ye eat thereof, then your eyes shall be opened, and ye shall be as God, knowing good and evil.
+for God knows that in the day you eat it, your eyes will be opened, and you will be like God, knowing good and evil."

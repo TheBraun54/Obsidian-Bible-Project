@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Into thy hand I commend my spirit: Thou hast redeemed me, O Jehovah, thou God of truth.
+Into your hand I commend my spirit. You redeem me, Yahweh, God of truth.

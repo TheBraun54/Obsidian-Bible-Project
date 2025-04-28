@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then there came two women that were harlots, unto the king, and stood before him.
+Then two women who were prostitutes came to the king, and stood before him.

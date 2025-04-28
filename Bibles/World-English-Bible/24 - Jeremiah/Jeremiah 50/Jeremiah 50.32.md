@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the proud one shall stumble and fall, and none shall raise him up; and I will kindle a fire in his cities, and it shall devour all that are round about him.
+The proud one shall stumble and fall, and none shall raise him up; and I will kindle a fire in his cities, and it shall devour all who are around him.

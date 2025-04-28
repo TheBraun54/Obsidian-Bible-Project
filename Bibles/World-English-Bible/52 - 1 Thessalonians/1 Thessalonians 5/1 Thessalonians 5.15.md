@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See that none render unto any one evil for evil; but always follow after that which is good, one toward another, and toward all.
+See that no one returns evil for evil to anyone, but always follow after that which is good, for one another, and for all.

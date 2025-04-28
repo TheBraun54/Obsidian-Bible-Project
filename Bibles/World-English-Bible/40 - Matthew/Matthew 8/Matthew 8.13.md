@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto the centurion, Go thy way; as thou hast believed, [so] be it done unto thee. And the servant was healed in that hour.
+Jesus said to the centurion, "Go your way. Let it be done for you as you have believed." His servant was healed in that hour.

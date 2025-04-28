@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Ye shall not see wind, neither shall ye see rain; yet that valley shall be filled with water, and ye shall drink, both ye and your cattle and your beasts.
+For thus says Yahweh, 'You will not see wind, neither will you see rain; yet that valley shall be filled with water, and you will drink, both you and your livestock and your animals.

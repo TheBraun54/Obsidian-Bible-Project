@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look on every one that is proud, [and] bring him low; And tread down the wicked where they stand.
+Look at everyone who is proud, and humble him. Crush the wicked in their place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his servant, Come and let us draw near to one of these places; and we will lodge in Gibeah, or in Ramah.
+He said to his servant, "Come and let us draw near to one of these places; and we will lodge in Gibeah, or in Ramah."

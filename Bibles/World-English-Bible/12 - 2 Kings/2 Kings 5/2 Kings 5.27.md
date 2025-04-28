@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The leprosy therefore of Naaman shall cleave unto thee, and unto thy seed for ever. And he went out from his presence a leper [as white] as snow.
+Therefore the leprosy of Naaman will cling to you and to your seed forever." He went out from his presence a leper, as white as snow.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when I bring a cloud over the earth, that the bow shall be seen in the cloud,
+It will happen, when I bring a cloud over the earth, that the rainbow will be seen in the cloud,

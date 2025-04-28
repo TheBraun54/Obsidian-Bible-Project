@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The altar also was rent, and the ashes poured out from the altar, according to the sign which the man of God had given by the word of Jehovah.
+The altar also was split apart, and the ashes poured out from the altar, according to the sign which the man of God had given by the word of Yahweh.

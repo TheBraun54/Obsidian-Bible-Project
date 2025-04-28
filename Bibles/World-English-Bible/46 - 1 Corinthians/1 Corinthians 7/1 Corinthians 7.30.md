@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and those that weep, as though they wept not; and those that rejoice, as though they rejoiced not; and those that buy, as though they possessed not;
+and those who weep, as though they didn't weep; and those who rejoice, as though they didn't rejoice; and those who buy, as though they didn't possess;

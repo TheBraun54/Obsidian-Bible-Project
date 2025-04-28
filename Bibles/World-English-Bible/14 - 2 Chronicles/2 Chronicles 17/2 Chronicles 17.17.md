@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Benjamin: Eliada a mighty man of valor, and with him two hundred thousand armed with bow and shield;
+Of Benjamin: Eliada a mighty man of valor, and with him two hundred thousand armed with bow and shield;

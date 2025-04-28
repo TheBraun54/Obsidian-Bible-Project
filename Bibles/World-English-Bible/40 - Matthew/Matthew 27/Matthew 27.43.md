@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He trusteth on God; let him deliver him now, if he desireth him: for he said, I am the Son of God.
+He trusts in God. Let God deliver him now, if he wants him; for he said, 'I am the Son of God.'"

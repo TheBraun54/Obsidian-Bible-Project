@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, There came up a man to meet us, and said unto us, Go, turn again unto the king that sent you, and say unto him, Thus saith Jehovah, Is it because there is no God in Israel, that thou sendest to inquire of Baal-zebub, the god of Ekron? therefore thou shalt not come down from the bed whither thou art gone up, but shalt surely die.
+They said to him, "A man came up to meet us, and said to us, 'Go, return to the king who sent you, and tell him, "Thus says Yahweh, 'Is it because there is no God in Israel, that you send to inquire of Baal Zebub, the god of Ekron? Therefore you shall not come down from the bed where you have gone up, but shall surely die.'"'"

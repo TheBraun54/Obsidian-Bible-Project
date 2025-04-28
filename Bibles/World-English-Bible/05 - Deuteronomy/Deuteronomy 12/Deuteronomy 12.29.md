@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jehovah thy God shall cut off the nations from before thee, whither thou goest in to dispossess them, and thou dispossessest them, and dwellest in their land;
+When Yahweh your God shall cut off the nations from before you, where you go in to dispossess them, and you dispossess them, and dwell in their land;

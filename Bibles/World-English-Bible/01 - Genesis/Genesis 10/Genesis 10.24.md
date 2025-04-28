@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Arpachshad begat Shelah; and Shelah begat Eber.
+Arpachshad became the father of Shelah. Shelah became the father of Eber.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they have devoured Jacob, And laid waste his habitation.
+For they have devoured Jacob, and destroyed his homeland.

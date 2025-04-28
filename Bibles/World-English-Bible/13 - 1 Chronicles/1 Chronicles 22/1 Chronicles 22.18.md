@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not Jehovah your God with you? and hath he not given you rest on every side? for he hath delivered the inhabitants of the land into my hand; and the land is subdued before Jehovah, and before his people.
+"Isn't Yahweh your God with you? Hasn't he given you rest on every side? For he has delivered the inhabitants of the land into my hand; and the land is subdued before Yahweh, and before his people.

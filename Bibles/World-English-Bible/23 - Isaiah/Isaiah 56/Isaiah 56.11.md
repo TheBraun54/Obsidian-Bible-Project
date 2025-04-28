@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, the dogs are greedy, they can never have enough; and these are shepherds that cannot understand: they have all turned to their own way, each one to his gain, from every quarter.
+Yes, the dogs are greedy, they can never have enough; and these are shepherds who can't understand: they have all turned to their own way, each one to his gain, from every quarter.

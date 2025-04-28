@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every creature of God is good, and nothing is to be rejected, if it be received with thanksgiving:
+For every creature of God is good, and nothing is to be rejected, if it is received with thanksgiving.

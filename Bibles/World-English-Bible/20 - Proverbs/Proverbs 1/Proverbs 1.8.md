@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, hear the instruction of thy father, And forsake not the law of thy mother:
+My son, listen to your father's instruction, and don't forsake your mother's teaching:

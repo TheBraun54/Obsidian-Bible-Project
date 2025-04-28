@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Obed begat Jehu, and Jehu begat Azariah,
+and Obed became the father of Jehu, and Jehu became the father of Azariah,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this continued for the space of two years; so that all they that dwelt in Asia heard the word of the Lord, both Jews and Greeks.
+This continued for two years, so that all those who lived in Asia heard the word of the Lord Jesus, both Jews and Greeks.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that by understanding made the heavens; For his lovingkindness [endureth] for ever:
+To him who by understanding made the heavens; for his loving kindness endures forever:

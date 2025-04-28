@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sang one to another in praising and giving thanks unto Jehovah, [saying], For he is good, for his lovingkindness [endureth] for ever toward Israel. And all the people shouted with a great shout, when they praised Jehovah, because the foundation of the house of Jehovah was laid.
+They sang one to another in praising and giving thanks to Yahweh, "For he is good, for his loving kindness endures forever toward Israel." All the people shouted with a great shout, when they praised Yahweh, because the foundation of the house of Yahweh was laid.

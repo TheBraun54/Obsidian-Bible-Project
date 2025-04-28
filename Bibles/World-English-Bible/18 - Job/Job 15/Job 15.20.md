@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked man travaileth with pain all his days, Even the number of years that are laid up for the oppressor.
+the wicked man writhes in pain all his days, even the number of years that are laid up for the oppressor.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why will ye be still stricken, that ye revolt more and more? the whole head is sick, and the whole heart faint.
+Why should you be beaten more, that you revolt more and more? The whole head is sick, and the whole heart faint.

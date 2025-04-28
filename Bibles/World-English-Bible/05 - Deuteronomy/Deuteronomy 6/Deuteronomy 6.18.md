@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt do that which is right and good in the sight of Jehovah; that it may be well with thee, and that thou mayest go in and possess the good land which Jehovah sware unto thy fathers,
+You shall do that which is right and good in the sight of Yahweh; that it may be well with you, and that you may go in and possess the good land which Yahweh swore to your fathers,

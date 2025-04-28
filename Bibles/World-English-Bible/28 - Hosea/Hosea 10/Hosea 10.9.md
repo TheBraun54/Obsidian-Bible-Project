@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Israel, thou hast sinned from the days of Gibeah: there they stood; the battle against the children of iniquity doth not overtake them in Gibeah.
+"Israel, you have sinned from the days of Gibeah. There they remained. The battle against the children of iniquity doesn't overtake them in Gibeah.

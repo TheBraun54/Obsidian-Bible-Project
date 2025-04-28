@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, if sinners entice thee, Consent thou not.
+My son, if sinners entice you, don't consent.

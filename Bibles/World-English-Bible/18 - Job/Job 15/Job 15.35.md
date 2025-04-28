@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They conceive mischief, and bring forth iniquity, And their heart prepareth deceit.
+They conceive mischief, and bring forth iniquity. Their heart prepares deceit."

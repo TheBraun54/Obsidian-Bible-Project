@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say then, Did God cast off his people? God forbid. For I also am an Israelite, of the seed of Abraham, of the tribe of Benjamin.
+I ask then, did God reject his people? May it never be! For I also am an Israelite, a descendant of Abraham, of the tribe of Benjamin.

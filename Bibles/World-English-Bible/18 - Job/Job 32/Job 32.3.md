@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also against his three friends was his wrath kindled, because they had found no answer, and yet had condemned Job.
+Also his wrath was kindled against his three friends, because they had found no answer, and yet had condemned Job.

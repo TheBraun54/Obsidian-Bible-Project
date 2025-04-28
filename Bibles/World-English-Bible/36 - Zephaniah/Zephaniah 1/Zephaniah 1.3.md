@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will consume man and beast; I will consume the birds of the heavens, and the fishes of the sea, and the stumblingblocks with the wicked; and I will cut off man from off the face of the ground, saith Jehovah.
+I will sweep away man and animal. I will sweep away the birds of the sky, the fish of the sea, and the heaps of rubble with the wicked. I will cut off man from the surface of the earth, says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When ye come to appear before me, who hath required this at your hand, to trample my courts?
+When you come to appear before me, who has required this at your hand, to trample my courts?

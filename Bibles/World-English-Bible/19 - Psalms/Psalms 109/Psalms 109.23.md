@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am gone like the shadow when it declineth: I am tossed up and down as the locust.
+I fade away like an evening shadow. I am shaken off like a locust.

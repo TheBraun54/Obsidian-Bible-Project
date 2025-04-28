@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there remained among the children of Israel seven tribes, which had not yet divided their inheritance.
+Seven tribes remained among the children of Israel, which had not yet divided their inheritance.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went away, and found a colt tied at the door without in the open street; and they loose him.
+They went away, and found a young donkey tied at the door outside in the open street, and they untied him.

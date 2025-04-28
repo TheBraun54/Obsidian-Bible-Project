@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All this have I seen in my days of vanity: there is a righteous man that perisheth in his righteousness, and there is a wicked man that prolongeth [his life] in his evil-doing.
+All this have I seen in my days of vanity: there is a righteous man who perishes in his righteousness, and there is a wicked man who lives long in his evildoing.

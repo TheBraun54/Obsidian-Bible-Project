@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Aaron shall offer the Levites before Jehovah for a wave-offering, on the behalf of the children of Israel, that it may be theirs to do the service of Jehovah.
+and Aaron shall offer the Levites before Yahweh for a wave offering, on the behalf of the children of Israel, that it may be theirs to do the service of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No man, when he hath lighted a lamp, putteth it in a cellar, neither under the bushel, but on the stand, that they which enter in may see the light.
+"No one, when he has lit a lamp, puts it in a cellar or under a basket, but on a stand, that those who come in may see the light.

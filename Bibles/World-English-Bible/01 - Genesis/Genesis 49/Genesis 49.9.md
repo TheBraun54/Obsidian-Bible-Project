@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judah is a lion's whelp; From the prey, my son, thou art gone up: He stooped down, he couched as a lion, And as a lioness; who shall rouse him up?
+Judah is a lion's cub. From the prey, my son, you have gone up. He stooped down, he crouched as a lion, as a lioness. Who will rouse him up?

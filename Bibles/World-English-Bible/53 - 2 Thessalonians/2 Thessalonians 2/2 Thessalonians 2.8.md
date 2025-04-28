@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And then shall be revealed the lawless one, whom the Lord Jesus shall slay with the breath of his mouth, and bring to nought by the manifestation of his coming;
+Then the lawless one will be revealed, whom the Lord will kill with the breath of his mouth, and destroy by the manifestation of his coming;

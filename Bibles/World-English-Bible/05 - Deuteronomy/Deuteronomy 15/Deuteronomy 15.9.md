@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware that there be not a base thought in thy heart, saying, The seventh year, the year of release, is at hand; and thine eye be evil against thy poor brother, and thou give him nought; and he cry unto Jehovah against thee, and it be sin unto thee.
+Beware that there not be a base thought in your heart, saying, "The seventh year, the year of release, is at hand;" and your eye be evil against your poor brother, and you give him nothing; and he cry to Yahweh against you, and it be sin to you.

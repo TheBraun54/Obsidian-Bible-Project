@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is the liar but he that denieth that Jesus is the Christ? This is the antichrist, [even] he that denieth the Father and the Son.
+Who is the liar but he who denies that Jesus is the Christ? This is the Antichrist, he who denies the Father and the Son.

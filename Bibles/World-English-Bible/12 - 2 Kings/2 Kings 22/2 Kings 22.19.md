@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because thy heart was tender, and thou didst humble thyself before Jehovah, when thou heardest what I spake against this place, and against the inhabitants thereof, that they should become a desolation and a curse, and hast rent thy clothes, and wept before me; I also have heard thee, saith Jehovah.
+because your heart was tender, and you humbled yourself before Yahweh, when you heard what I spoke against this place, and against its inhabitants, that they should become a desolation and a curse, and have torn your clothes, and wept before me; I also have heard you,' says Yahweh.

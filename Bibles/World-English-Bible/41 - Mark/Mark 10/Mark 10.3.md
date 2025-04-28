@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said unto them, What did Moses command you?
+He answered, "What did Moses command you?"

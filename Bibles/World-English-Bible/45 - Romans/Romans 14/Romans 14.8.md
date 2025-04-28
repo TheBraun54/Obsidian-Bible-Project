@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whether we live, we live unto the Lord; or whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord's.
+For if we live, we live to the Lord. Or if we die, we die to the Lord. If therefore we live or die, we are the Lord's.

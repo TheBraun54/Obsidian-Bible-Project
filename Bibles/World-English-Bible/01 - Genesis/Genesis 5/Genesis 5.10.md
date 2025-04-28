@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Enosh lived after he begat Kenan eight hundred and fifteen years, and begat sons and daughters:
+Enosh lived after he became the father of Kenan, eight hundred fifteen years, and became the father of sons and daughters.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(and he bade them teach the children of Judah [the song of] the bow: behold, it is written in the book of Jashar):
+(and he commanded them to teach the children of Judah [the song of] the bow: behold, it is written in the book of Jashar):

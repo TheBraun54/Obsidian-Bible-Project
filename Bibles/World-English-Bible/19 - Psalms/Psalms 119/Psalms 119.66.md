@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teach me good judgment and knowledge; For I have believed in thy commandments.
+Teach me good judgment and knowledge, for I believe in your commandments.

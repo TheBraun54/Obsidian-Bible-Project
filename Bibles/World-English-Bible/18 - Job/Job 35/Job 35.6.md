@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou hast sinned, what effectest thou against him? And if thy transgressions be multiplied, what doest thou unto him?
+If you have sinned, what effect do you have against him? If your transgressions are multiplied, what do you do to him?

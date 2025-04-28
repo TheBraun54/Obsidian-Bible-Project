@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will not be afraid of ten thousands of the people That have set themselves against me round about.
+I will not be afraid of tens of thousands of people who have set themselves against me on every side.

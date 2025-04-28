@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto you, that many shall come from the east and the west, and shall sit down with Abraham, and Isaac, and Jacob, in the kingdom of heaven:
+I tell you that many will come from the east and the west, and will sit down with Abraham, Isaac, and Jacob in the Kingdom of Heaven,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, their valiant ones cry without; the ambassadors of peace weep bitterly.
+Behold, their valiant ones cry outside; the ambassadors of peace weep bitterly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the revolters are gone deep in making slaughter; but I am a rebuker of them all.
+The rebels are deep in slaughter; but I discipline all of them.

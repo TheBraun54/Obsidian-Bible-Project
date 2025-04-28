@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, Adonijah reigneth; and thou, my lord the king, knowest it not:
+Now, behold, Adonijah reigns; and you, my lord the king, don't know it.

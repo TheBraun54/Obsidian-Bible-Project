@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None that go unto her return again, Neither do they attain unto the paths of life:
+None who go to her return again, neither do they attain to the paths of life:

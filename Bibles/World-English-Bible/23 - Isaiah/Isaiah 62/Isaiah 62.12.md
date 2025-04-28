@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall call them The holy people, The redeemed of Jehovah: and thou shalt be called Sought out, A city not forsaken.
+They shall call them The holy people, The redeemed of Yahweh: and you shall be called Sought out, A city not forsaken.

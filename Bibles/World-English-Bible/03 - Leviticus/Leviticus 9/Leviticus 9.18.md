@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He slew also the ox and the ram, the sacrifice of peace-offerings, which was for the people: and Aaron's sons delivered unto him the blood, which he sprinkled upon the altar round about,
+He also killed the bull and the ram, the sacrifice of peace offerings, which was for the people: and Aaron's sons delivered to him the blood, which he sprinkled around on the altar,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto her, Be not afraid: for what seest thou? And the woman said unto Saul, I see a god coming up out of the earth.
+The king said to her, "Don't be afraid. For what do you see?" The woman said to Saul, "I see a god coming up out of the earth."

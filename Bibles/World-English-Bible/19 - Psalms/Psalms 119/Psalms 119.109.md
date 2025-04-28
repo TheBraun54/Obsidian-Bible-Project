@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul is continually in my hand; Yet do I not forget thy law.
+My soul is continually in my hand, yet I won't forget your law.

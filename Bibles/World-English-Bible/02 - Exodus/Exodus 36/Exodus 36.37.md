@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made a screen for the door of the Tent, of blue, and purple, and scarlet, and fine twined linen, the work of the embroiderer;
+He made a screen for the door of the tent, of blue, purple, scarlet, and fine twined linen, the work of an embroiderer;

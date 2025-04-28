@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David himself said in the Holy Spirit, The Lord said unto my Lord, Sit thou on my right hand, Till I make thine enemies the footstool of thy feet.
+For David himself said in the Holy Spirit, 'The Lord said to my Lord, "Sit at my right hand, until I make your enemies the footstool of your feet."'

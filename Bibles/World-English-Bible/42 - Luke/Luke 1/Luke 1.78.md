@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of the tender mercy of our God, Whereby the dayspring from on high shall visit us,
+because of the tender mercy of our God, whereby the dawn from on high will visit us,

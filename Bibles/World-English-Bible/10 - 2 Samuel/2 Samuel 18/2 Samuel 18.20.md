@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab said unto him, Thou shalt not be the bearer of tidings this day, but thou shalt bear tidings another day; but this day thou shalt bear no tidings, because the king's son is dead.
+Joab said to him, "You shall not be the bearer of news this day, but you shall bear news another day. But today you shall bear no news, because the king's son is dead."

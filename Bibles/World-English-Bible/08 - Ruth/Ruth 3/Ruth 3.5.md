@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto her, All that thou sayest I will do.
+She said to her, "All that you say I will do."

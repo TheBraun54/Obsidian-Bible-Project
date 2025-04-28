@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In Jehovah shall all the seed of Israel be justified, and shall glory.
+In Yahweh shall all the seed of Israel be justified, and shall glory.

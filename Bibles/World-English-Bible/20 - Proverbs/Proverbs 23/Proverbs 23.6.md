@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Eat thou not the bread of him that hath an evil eye, Neither desire thou his dainties:
+Don't eat the food of him who has a stingy eye, and don't crave his delicacies:

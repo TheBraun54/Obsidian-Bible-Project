@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Eliud begat Eleazar; and Eleazar begat Matthan; and Matthan begat Jacob;
+Eliud became the father of Eleazar. Eleazar became the father of Matthan. Matthan became the father of Jacob.

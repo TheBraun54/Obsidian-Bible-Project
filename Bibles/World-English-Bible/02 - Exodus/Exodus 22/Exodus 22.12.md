@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if it be stolen from him, he shall make restitution unto the owner thereof.
+But if it is stolen from him, he shall make restitution to its owner.

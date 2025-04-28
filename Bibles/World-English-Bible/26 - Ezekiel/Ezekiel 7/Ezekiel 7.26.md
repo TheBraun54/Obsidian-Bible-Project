@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mischief shall come upon mischief, and rumor shall be upon rumor; and they shall seek a vision of the prophet; but the law shall perish from the priest, and counsel from the elders.
+Mischief shall come on mischief, and rumor shall be on rumor; and they shall seek a vision of the prophet; but the law shall perish from the priest, and counsel from the elders.

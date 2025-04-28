@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the river upon the bank thereof, on this side and on that side, shall grow every tree for food, whose leaf shall not whither, neither shall the fruit thereof fail: it shall bring forth new fruit every month, because the waters thereof issue out of the sanctuary; and the fruit thereof shall be for food, and the leaf thereof for healing.
+By the river on its bank, on this side and on that side, shall grow every tree for food, whose leaf shall not wither, neither shall its fruit fail: it shall bring forth new fruit every month, because its waters issue out of the sanctuary; and its fruit shall be for food, and its leaf for healing.

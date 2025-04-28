@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if ye refuse and rebel, ye shall be devoured with the sword; for the mouth of Jehovah hath spoken it.
+but if you refuse and rebel, you shall be devoured with the sword; for the mouth of Yahweh has spoken it."

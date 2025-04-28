@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they returned to Joshua, and said unto him, Let not all the people go up; but let about two or three thousand men go up and smite Ai; make not all the people to toil thither; for they are but few.
+They returned to Joshua, and said to him, "Don't let all the people go up; but let about two or three thousand men go up and strike Ai. Don't make all the people to toil there, for there are only a few of them."

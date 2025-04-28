@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the seventh day ye shall have a holy convocation: ye shall do no servile work.
+On the seventh day you shall have a holy convocation: you shall do no servile work.

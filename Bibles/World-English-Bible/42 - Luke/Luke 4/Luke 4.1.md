@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus, full of the Holy Spirit, returned from the Jordan, and was led in the Spirit in the wilderness
+Jesus, full of the Holy Spirit, returned from the Jordan, and was led by the Spirit into the wilderness

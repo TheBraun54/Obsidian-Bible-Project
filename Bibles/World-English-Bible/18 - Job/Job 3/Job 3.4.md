@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let that day be darkness; Let not God from above seek for it, Neither let the light shine upon it.
+Let that day be darkness. Don't let God from above seek for it, neither let the light shine on it.

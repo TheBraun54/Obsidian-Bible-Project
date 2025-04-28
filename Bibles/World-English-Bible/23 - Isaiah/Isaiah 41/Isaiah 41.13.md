@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I, Jehovah thy God, will hold thy right hand, saying unto thee, Fear not; I will help thee.
+For I, Yahweh your God, will hold your right hand, saying to you, 'Don't be afraid. I will help you.'

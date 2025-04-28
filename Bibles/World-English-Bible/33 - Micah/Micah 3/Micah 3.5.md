@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah concerning the prophets that make my people to err; that bite with their teeth, and cry, Peace; and whoso putteth not into their mouths, they even prepare war against him:
+Thus says Yahweh concerning the prophets who lead my people astray; for those who feed their teeth, they proclaim, "Peace!" and whoever doesn't provide for their mouths, they prepare war against him:

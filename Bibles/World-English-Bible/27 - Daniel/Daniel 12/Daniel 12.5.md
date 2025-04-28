@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I, Daniel, looked, and, behold, there stood other two, the one on the brink of the river on this side, and the other on the brink of the river on that side.
+Then I, Daniel, looked, and behold, two others stood, one on the river bank on this side, and the other on the river bank on that side.

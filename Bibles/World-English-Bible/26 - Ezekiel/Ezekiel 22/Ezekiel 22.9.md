@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Slanderous men have been in thee to shed blood; and in thee they have eaten upon the mountains: in the midst of thee they have committed lewdness.
+Slanderous men have been in you to shed blood; and in you they have eaten on the mountains: in the midst of you they have committed lewdness.

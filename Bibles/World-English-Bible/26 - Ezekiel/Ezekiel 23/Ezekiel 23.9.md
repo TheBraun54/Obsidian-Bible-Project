@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I delivered her into the hand of her lovers, into the hand of the Assyrians, upon whom she doted.
+Therefore I delivered her into the hand of her lovers, into the hand of the Assyrians, on whom she doted.

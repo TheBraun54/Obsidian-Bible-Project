@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The copy of the letter that Tattenai, the governor beyond the River, and Shethar-bozenai, and his companions the Apharsachites, who were beyond the River, sent unto Darius the king;
+The copy of the letter that Tattenai, the governor beyond the River, and Shetharbozenai, and his companions the Apharsachites, who were beyond the River, sent to Darius the king;

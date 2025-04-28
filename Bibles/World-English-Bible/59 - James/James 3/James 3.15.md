@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This wisdom is not [a wisdom] that cometh down from above, but is earthly, sensual, devilish.
+This wisdom is not that which comes down from above, but is earthly, sensual, and demonic.

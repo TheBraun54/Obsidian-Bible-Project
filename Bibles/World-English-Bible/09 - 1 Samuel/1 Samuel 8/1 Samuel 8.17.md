@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will take the tenth of your flocks: and ye shall be his servants.
+He will take the tenth of your flocks: and you shall be his servants.

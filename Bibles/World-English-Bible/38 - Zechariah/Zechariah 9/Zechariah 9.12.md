@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn you to the stronghold, ye prisoners of hope: even to-day do I declare that I will render double unto thee.
+Turn to the stronghold, you prisoners of hope! Even today I declare that I will restore double to you.

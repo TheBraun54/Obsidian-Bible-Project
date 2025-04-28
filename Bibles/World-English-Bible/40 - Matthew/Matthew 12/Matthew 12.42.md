@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The queen of the south shall rise up in the judgment with this generation, and shall condemn it: for she came from the ends of the earth to hear the wisdom of Solomon; and behold, a greater than Solomon is here.
+The queen of the south will rise up in the judgment with this generation, and will condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and behold, someone greater than Solomon is here.

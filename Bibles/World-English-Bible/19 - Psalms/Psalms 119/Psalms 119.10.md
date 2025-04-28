@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With my whole heart have I sought thee: Oh let me not wander from thy commandments.
+With my whole heart, I have sought you. Don't let me wander from your commandments.

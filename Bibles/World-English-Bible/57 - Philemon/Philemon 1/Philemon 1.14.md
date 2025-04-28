@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but without thy mind I would do nothing; that thy goodness should not be as of necessity, but of free will.
+But I was willing to do nothing without your consent, that your goodness would not be as of necessity, but of free will.

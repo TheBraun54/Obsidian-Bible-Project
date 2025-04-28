@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To satisfy the waste and desolate [ground], And to cause the tender grass to spring forth?
+to satisfy the waste and desolate ground, to cause the tender grass to spring forth?

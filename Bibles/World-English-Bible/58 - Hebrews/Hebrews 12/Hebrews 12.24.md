@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to Jesus the mediator of a new covenant, and to the blood of sprinkling that speaketh better than [that of] Abel.
+to Jesus, the mediator of a new covenant, and to the blood of sprinkling that speaks better than that of Abel.

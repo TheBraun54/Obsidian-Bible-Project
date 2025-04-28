@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not your heart be troubled: believe in God, believe also in me.
+"Don't let your heart be troubled. Believe in God. Believe also in me.

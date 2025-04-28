@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And confirmed the same unto Jacob for a statute, To Israel for an everlasting covenant,
+He confirmed the same to Jacob for a statute, and to Israel for an everlasting covenant,

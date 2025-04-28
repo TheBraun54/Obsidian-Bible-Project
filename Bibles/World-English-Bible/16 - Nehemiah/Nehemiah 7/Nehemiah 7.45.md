@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The porters: the children of Shallum, the children of Ater, the children of Talmon, the children of Akkub, the children of Hatita, the children of Shobai, a hundred thirty and eight.
+The porters: the children of Shallum, the children of Ater, the children of Talmon, the children of Akkub, the children of Hatita, the children of Shobai, one hundred thirty-eight.

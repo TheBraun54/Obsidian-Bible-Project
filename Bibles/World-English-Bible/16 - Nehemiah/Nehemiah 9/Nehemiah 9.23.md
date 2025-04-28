@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their children also multipliedst thou as the stars of heaven, and broughtest them into the land concerning which thou didst say to their fathers, that they should go in to possess it.
+You also multiplied their children as the stars of the sky, and brought them into the land concerning which you said to their fathers, that they should go in to possess it.

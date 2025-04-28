@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So she went, and came unto the man of God to mount Carmel. And it came to pass, when the man of God saw her afar off, that he said to Gehazi his servant, Behold, yonder is the Shunammite:
+So she went, and came to the man of God to Mount Carmel. It happened, when the man of God saw her afar off, that he said to Gehazi his servant, "Behold, there is the Shunammite.

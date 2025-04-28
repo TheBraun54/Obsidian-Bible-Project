@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thanks be to God, who giveth us the victory through our Lord Jesus Christ.
+But thanks be to God, who gives us the victory through our Lord Jesus Christ.

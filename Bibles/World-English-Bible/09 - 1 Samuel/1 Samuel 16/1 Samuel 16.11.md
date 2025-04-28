@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto Jesse, Are here all thy children? And he said, There remaineth yet the youngest, and, behold, he is keeping the sheep. And Samuel said unto Jesse, Send and fetch him; for we will not sit down till he come hither.
+Samuel said to Jesse, "Are all your children here?" He said, "There remains yet the youngest, and behold, he is keeping the sheep." Samuel said to Jesse, "Send and get him; for we will not sit down until he comes here."

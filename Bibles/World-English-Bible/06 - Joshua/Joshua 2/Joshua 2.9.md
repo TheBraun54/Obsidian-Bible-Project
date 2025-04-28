@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she said unto the men, I know that Jehovah hath given you the land, and that the fear of you is fallen upon us, and that all the inhabitants of the land melt away before you.
+and she said to the men, "I know that Yahweh has given you the land, and that the fear of you has fallen on us, and that all the inhabitants of the land melt away before you.

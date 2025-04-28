@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They smote also the tents of cattle, and carried away sheep in abundance, and camels, and returned to Jerusalem.
+They struck also the tents of livestock, and carried away sheep in abundance, and camels, and returned to Jerusalem.

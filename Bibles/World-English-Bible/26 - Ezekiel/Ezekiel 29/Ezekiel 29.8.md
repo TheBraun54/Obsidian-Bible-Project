@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Behold, I will bring a sword upon thee, and will cut off from thee man and beast.
+Therefore thus says the Lord Yahweh: "Behold, I will bring a sword on you, and will cut off man and animal from you.

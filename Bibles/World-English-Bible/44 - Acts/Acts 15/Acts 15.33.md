@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after they had spent some time [there], they were dismissed in peace from the brethren unto those that had sent them forth.
+After they had spent some time there, they were sent back with greetings from the brothers to the apostles.

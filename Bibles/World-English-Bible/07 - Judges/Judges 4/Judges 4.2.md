@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah sold them into the hand of Jabin king of Canaan, that reigned in Hazor; the captain of whose host was Sisera, who dwelt in Harosheth of the Gentiles.
+Yahweh sold them into the hand of Jabin king of Canaan, who reigned in Hazor; the captain of whose army was Sisera, who lived in Harosheth of the Gentiles.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ even] the Spirit of truth: whom the world cannot receive; for it beholdeth him not, neither knoweth him: ye know him; for he abideth with you, and shall be in you.
+the Spirit of truth, whom the world can't receive; for it doesn't see him, neither knows him. You know him, for he lives with you, and will be in you.

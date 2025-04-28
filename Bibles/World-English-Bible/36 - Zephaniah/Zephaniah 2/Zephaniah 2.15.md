@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the joyous city that dwelt carelessly, that said in her heart, I am, and there is none besides me: how is she become a desolation, a place for beasts to lie down in! every one that passeth by her shall hiss, and wag his hand.
+This is the joyous city that lived carelessly, that said in her heart, "I am, and there is none besides me." How she has become a desolation, a place for animals to lie down in! Everyone who passes by her will hiss, and shake their fists.

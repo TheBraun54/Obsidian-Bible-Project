@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, This is that which Jehovah hath spoken, To-morrow is a solemn rest, a holy sabbath unto Jehovah: bake that which ye will bake, and boil that which ye will boil; and all that remaineth over lay up for you to be kept until the morning.
+He said to them, "This is that which Yahweh has spoken, 'Tomorrow is a solemn rest, a holy Sabbath to Yahweh. Bake that which you want to bake, and boil that which you want to boil; and all that remains over lay up for yourselves to be kept until the morning.'"

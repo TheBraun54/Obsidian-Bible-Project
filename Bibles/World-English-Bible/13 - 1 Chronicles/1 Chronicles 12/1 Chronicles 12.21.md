@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they helped David against the band of rovers: for they were all mighty men of valor, and were captains in the host.
+They helped David against the band of rovers: for they were all mighty men of valor, and were captains in the army.

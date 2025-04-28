@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I arrive, whomsoever ye shall approve, them will I send with letters to carry your bounty unto Jerusalem:
+When I arrive, I will send whoever you approve with letters to carry your gracious gift to Jerusalem.

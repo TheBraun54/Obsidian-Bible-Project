@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Eliakim the son of Hilkiah, and Shebnah, and Joah, unto Rabshakeh, Speak, I pray thee, to thy servants in the Syrian language; for we understand it: and speak not with us in the Jews' language, in the ears of the people that are on the wall.
+Then Eliakim the son of Hilkiah, and Shebnah, and Joah, said to Rabshakeh, "Please speak to your servants in the Syrian language; for we understand it. Don't speak with us in the Jews' language, in the hearing of the people who are on the wall."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Laban heard the tidings of Jacob his sister's son, that he ran to meet him, and embraced him, and kissed him, and brought him to his house. And he told Laban all these things.
+It happened, when Laban heard the news of Jacob, his sister's son, that he ran to meet Jacob, and embraced him, and kissed him, and brought him to his house. Jacob told Laban all these things.

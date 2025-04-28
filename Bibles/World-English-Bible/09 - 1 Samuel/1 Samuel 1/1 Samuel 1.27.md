@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this child I prayed; and Jehovah hath given me my petition which I asked of him:
+For this child I prayed; and Yahweh has given me my petition which I asked of him.

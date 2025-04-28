@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel were mustered, and were victualled, and went against them: and the children of Israel encamped before them like two little flocks of kids; but the Syrians filled the country.
+The children of Israel were mustered, and were provisioned, and went against them. The children of Israel encamped before them like two little flocks of young goats; but the Syrians filled the country.

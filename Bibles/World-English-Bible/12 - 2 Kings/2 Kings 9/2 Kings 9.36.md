@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore they came back, and told him. And he said, This is the word of Jehovah, which he spake by his servant Elijah the Tishbite, saying, In the portion of Jezreel shall the dogs eat the flesh of Jezebel;
+Therefore they came back, and told him. He said, "This is the word of Yahweh, which he spoke by his servant Elijah the Tishbite, saying, 'The dogs will eat the flesh of Jezebel on the plot of Jezreel,

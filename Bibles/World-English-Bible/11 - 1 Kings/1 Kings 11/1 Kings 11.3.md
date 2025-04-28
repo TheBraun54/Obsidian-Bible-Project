@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had seven hundred wives, princesses, and three hundred concubines; and his wives turned away his heart.
+He had seven hundred wives, princesses, and three hundred concubines; and his wives turned away his heart.

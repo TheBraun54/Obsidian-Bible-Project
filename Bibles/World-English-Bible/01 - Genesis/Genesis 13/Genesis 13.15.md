@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for all the land which thou seest, to thee will I give it, and to thy seed for ever.
+for all the land which you see, I will give to you, and to your offspring forever.

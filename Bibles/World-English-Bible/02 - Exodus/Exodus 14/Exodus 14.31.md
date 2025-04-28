@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel saw the great work which Jehovah did upon the Egyptians, and the people feared Jehovah: and they believed in Jehovah, and in his servant Moses.
+Israel saw the great work which Yahweh did to the Egyptians, and the people feared Yahweh; and they believed in Yahweh, and in his servant Moses.

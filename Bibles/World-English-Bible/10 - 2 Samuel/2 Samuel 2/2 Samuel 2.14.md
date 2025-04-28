@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abner said to Joab, Let the young men, I pray thee, arise and play before us. And Joab said, Let them arise.
+Abner said to Joab, "Please let the young men arise and play before us!" Joab said, "Let them arise!"

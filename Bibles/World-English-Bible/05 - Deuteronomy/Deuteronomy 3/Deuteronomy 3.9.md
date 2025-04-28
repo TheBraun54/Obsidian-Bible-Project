@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-([ which] Hermon the Sidonians call Sirion, and the Amorites call it Senir;)
+([which] Hermon the Sidonians call Sirion, and the Amorites call it Senir;)

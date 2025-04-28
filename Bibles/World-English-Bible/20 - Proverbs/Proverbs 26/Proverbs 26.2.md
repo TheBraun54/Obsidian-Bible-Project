@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the sparrow in her wandering, as the swallow in her flying, So the curse that is causeless alighteth not.
+Like a fluttering sparrow, like a darting swallow, so the undeserved curse doesn't come to rest.

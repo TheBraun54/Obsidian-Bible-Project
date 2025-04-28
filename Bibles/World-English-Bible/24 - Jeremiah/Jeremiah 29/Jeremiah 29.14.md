@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will be found of you, saith Jehovah, and I will turn again your captivity, and I will gather you from all the nations, and from all the places whither I have driven you, saith Jehovah; and I will bring you again unto the place whence I caused you to be carried away captive.
+I will be found by you, says Yahweh, and I will turn again your captivity, and I will gather you from all the nations, and from all the places where I have driven you, says Yahweh; and I will bring you again to the place from where I caused you to be carried away captive.

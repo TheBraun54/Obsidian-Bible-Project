@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and spake unto those that stood before him, saying, Take the filthy garments from off him. And unto him he said, Behold, I have caused thine iniquity to pass from thee, and I will clothe thee with rich apparel.
+He answered and spoke to those who stood before him, saying, "Take the filthy garments off of him." To him he said, "Behold, I have caused your iniquity to pass from you, and I will clothe you with rich clothing."

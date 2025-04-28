@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall their strong cities be as the forsaken places in the wood and on the mountain top, which were forsaken from before the children of Israel; and it shall be a desolation.
+In that day, their strong cities will be like the forsaken places in the woods and on the mountain top, which were forsaken from before the children of Israel; and it will be a desolation.

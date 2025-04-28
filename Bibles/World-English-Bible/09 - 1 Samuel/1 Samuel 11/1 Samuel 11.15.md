@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people went to Gilgal; and there they made Saul king before Jehovah in Gilgal; and there they offered sacrifices of peace-offerings before Jehovah; and there Saul and all the men of Israel rejoiced greatly.
+All the people went to Gilgal; and there they made Saul king before Yahweh in Gilgal; and there they offered sacrifices of peace offerings before Yahweh; and there Saul and all the men of Israel rejoiced greatly.

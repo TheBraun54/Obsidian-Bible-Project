@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou gatherest [the grapes of] thy vineyard, thou shalt not glean it after thee: it shall be for the sojourner, for the fatherless, and for the widow.
+When you gather [the grapes of] your vineyard, you shall not glean it after yourselves: it shall be for the foreigner, for the fatherless, and for the widow.

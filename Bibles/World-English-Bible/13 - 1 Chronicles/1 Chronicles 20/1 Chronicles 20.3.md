@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought forth the people that were therein, and cut [them] with saws, and with harrows of iron, and with axes. And thus did David unto all the cities of the children of Ammon. And David and all the people returned to Jerusalem.
+He brought forth the people who were therein, and cut [them] with saws, and with iron picks, and with axes. David did so to all the cities of the children of Ammon. David and all the people returned to Jerusalem.

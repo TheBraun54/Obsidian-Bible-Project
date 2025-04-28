@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ What] then if ye should behold the Son of man ascending where he was before?
+Then what if you would see the Son of Man ascending to where he was before?

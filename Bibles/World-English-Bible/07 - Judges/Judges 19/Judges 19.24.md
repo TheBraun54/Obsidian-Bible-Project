@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, here is my daughter a virgin, and his concubine; them I will bring out now, and humble ye them, and do with them what seemeth good unto you: but unto this man do not any such folly.
+Behold, here is my virgin daughter and his concubine. I will bring them out now. Humble them, and do with them what seems good to you; but to this man don't do any such folly."

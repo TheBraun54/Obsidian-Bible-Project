@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Much every way: first of all, that they were intrusted with the oracles of God.
+Much in every way! Because first of all, they were entrusted with the oracles of God.

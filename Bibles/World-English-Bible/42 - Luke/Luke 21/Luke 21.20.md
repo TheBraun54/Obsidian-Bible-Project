@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when ye see Jerusalem compassed with armies, then know that her desolation is at hand.
+"But when you see Jerusalem surrounded by armies, then know that its desolation is at hand.

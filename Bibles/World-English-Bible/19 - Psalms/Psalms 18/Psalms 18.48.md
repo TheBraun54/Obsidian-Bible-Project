@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He rescueth me from mine enemies; Yea, thou liftest me up above them that rise up against me; Thou deliverest me from the violent man.
+He rescues me from my enemies. Yes, you lift me up above those who rise up against me. You deliver me from the violent man.

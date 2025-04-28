@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will take thee, and thou shalt reign according to all that thy soul desireth, and shalt be king over Israel.
+I will take you, and you shall reign according to all that your soul desires, and shall be king over Israel.

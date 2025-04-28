@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, as for thy waste and thy desolate places, and thy land that hath been destroyed, surely now shalt thou be too strait for the inhabitants, and they that swallowed thee up shall be far away.
+"For, as for your waste and your desolate places, and your land that has been destroyed, surely now you shall be too small for the inhabitants, and those who swallowed you up shall be far away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will roar from Zion, and utter his voice from Jerusalem; and the heavens and the earth shall shake: but Jehovah will be a refuge unto his people, and a stronghold to the children of Israel.
+Yahweh will roar from Zion, and thunder from Jerusalem; and the heavens and the earth will shake; but Yahweh will be a refuge to his people, and a stronghold to the children of Israel.

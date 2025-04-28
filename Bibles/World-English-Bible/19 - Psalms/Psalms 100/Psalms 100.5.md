@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah is good; His lovingkindness [endureth] for ever, And his faithfulness unto all generations.
+For Yahweh is good. His loving kindness endures forever, his faithfulness to all generations. A Psalm by David.

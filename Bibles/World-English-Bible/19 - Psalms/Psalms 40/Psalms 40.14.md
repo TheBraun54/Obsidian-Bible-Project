@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be put to shame and confounded together That seek after my soul to destroy it: Let them be turned backward and brought to dishonor That delight in my hurt.
+Let them be disappointed and confounded together who seek after my soul to destroy it. Let them be turned backward and brought to dishonor who delight in my hurt.

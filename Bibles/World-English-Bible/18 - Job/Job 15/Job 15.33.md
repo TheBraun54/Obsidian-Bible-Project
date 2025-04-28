@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall shake off his unripe grape as the vine, And shall cast off his flower as the olive-tree.
+He shall shake off his unripe grape as the vine, and shall cast off his flower as the olive tree.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that he would grant you, according to the riches of his glory, that ye may be strengthened with power through his Spirit in the inward man;
+that he would grant you, according to the riches of his glory, that you may be strengthened with power through his Spirit in the inward man;

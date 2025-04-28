@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt part it in pieces, and pour oil thereon: it is a meal-offering.
+You shall cut it in pieces, and pour oil on it. It is a meal offering.

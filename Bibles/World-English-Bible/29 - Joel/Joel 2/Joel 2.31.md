@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun shall be turned into darkness, and the moon into blood, before the great and terrible day of Jehovah cometh.
+The sun will be turned into darkness, and the moon into blood, before the great and terrible day of Yahweh comes.

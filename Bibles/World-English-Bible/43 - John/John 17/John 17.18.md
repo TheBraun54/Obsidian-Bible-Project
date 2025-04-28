@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As thou didst send me into the world, even so sent I them into the world.
+As you sent me into the world, even so I have sent them into the world.

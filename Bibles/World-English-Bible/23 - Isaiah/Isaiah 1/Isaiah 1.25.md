@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will turn my hand upon thee, and thoroughly purge away thy dross, and will take away all thy tin;
+and I will turn my hand on you, thoroughly purge away your dross, and will take away all your tin.

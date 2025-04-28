@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whensoever any controversy shall come to you from your brethren that dwell in their cities, between blood and blood, between law and commandment, statutes and ordinances, ye shall warn them, that they be not guilty towards Jehovah, and so wrath come upon you and upon your brethren: this do, and ye shall not be guilty.
+Whenever any controversy shall come to you from your brothers who dwell in their cities, between blood and blood, between law and commandment, statutes and ordinances, you shall warn them, that they not be guilty towards Yahweh, and so wrath come on you and on your brothers. Do this, and you shall not be guilty.

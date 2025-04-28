@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this thou hast, that thou hatest the works of the Nicolaitans, which I also hate.
+But this you have, that you hate the works of the Nicolaitans, which I also hate.

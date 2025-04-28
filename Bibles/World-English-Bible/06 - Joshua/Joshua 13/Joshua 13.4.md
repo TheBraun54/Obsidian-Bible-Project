@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-on the south; all the land of the Canaanites, and Mearah that belongeth to the Sidonians, unto Aphek, to the border of the Amorites;
+on the south; all the land of the Canaanites, and Mearah that belongs to the Sidonians, to Aphek, to the border of the Amorites;

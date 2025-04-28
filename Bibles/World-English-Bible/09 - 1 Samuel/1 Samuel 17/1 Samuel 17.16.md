@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistine drew near morning and evening, and presented himself forty days.
+The Philistine drew near morning and evening, and presented himself forty days.

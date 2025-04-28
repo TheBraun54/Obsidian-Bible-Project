@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou art fair, my love; Behold thou art fair; Thine eyes are [as] doves.
+Behold, you are beautiful, my love. Behold, you are beautiful. Your eyes are doves. Beloved

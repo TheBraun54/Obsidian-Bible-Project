@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My brethren, hold not the faith of our Lord Jesus Christ, [the Lord] of glory, with respect of persons.
+My brothers, don't hold the faith of our Lord Jesus Christ of glory with partiality.

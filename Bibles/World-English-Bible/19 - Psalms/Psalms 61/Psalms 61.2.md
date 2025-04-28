@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the end of the earth will I call unto thee, when my heart is overwhelmed: Lead me to the rock that is higher than I.
+From the end of the earth, I will call to you, when my heart is overwhelmed. Lead me to the rock that is higher than I.

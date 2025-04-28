@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Lord, behold, here are two swords. And he said unto them, It is enough.
+They said, "Lord, behold, here are two swords." He said to them, "That is enough."

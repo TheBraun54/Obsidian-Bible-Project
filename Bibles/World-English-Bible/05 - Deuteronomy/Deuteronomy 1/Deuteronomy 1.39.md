@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover your little ones, that ye said should be a prey, and your children, that this day have no knowledge of good or evil, they shall go in thither, and unto them will I give it, and they shall possess it.
+Moreover your little ones, whom you said should be a prey, and your children, who this day have no knowledge of good or evil, they shall go in there, and to them will I give it, and they shall possess it.

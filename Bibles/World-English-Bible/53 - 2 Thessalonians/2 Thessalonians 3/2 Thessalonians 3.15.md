@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [yet] count him not as an enemy, but admonish him as a brother.
+Don't count him as an enemy, but admonish him as a brother.

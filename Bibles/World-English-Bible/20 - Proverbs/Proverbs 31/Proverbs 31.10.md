@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A worthy woman who can find? For her price is far above rubies.
+Who can find a worthy woman? For her price is far above rubies.

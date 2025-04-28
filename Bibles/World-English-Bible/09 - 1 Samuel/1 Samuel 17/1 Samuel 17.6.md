@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had greaves of brass upon his legs, and a javelin of brass between his shoulders.
+He had brass shin armor on his legs, and a javelin of brass between his shoulders.

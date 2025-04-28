@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For man also knoweth not his time: as the fishes that are taken in an evil net, and as the birds that are caught in the snare, even so are the sons of men snared in an evil time, when it falleth suddenly upon them.
+For man also doesn't know his time. As the fish that are taken in an evil net, and as the birds that are caught in the snare, even so are the sons of men snared in an evil time, when it falls suddenly on them.

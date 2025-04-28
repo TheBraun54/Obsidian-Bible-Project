@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah God, turn not away the face of thine anointed: remember [thy] lovingkindnesses to David thy servant.
+"Yahweh God, don't turn away the face of your anointed: remember [your] loving kindnesses to David your servant."

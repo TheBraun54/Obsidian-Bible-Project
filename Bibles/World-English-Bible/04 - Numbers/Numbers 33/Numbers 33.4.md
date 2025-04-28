@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-while the Egyptians were burying all their first-born, whom Jehovah had smitten among them: upon their gods also Jehovah executed judgments.
+while the Egyptians were burying all their firstborn, whom Yahweh had struck among them: on their gods also Yahweh executed judgments.

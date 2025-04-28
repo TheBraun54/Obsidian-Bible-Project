@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in the fourth year all the fruit thereof shall be holy, for giving praise unto Jehovah.
+But in the fourth year all its fruit shall be holy, for giving praise to Yahweh.

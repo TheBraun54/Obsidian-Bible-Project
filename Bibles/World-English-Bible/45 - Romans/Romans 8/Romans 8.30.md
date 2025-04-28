@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and whom he foreordained, them he also called: and whom he called, them he also justified: and whom he justified, them he also glorified.
+Whom he predestined, those he also called. Whom he called, those he also justified. Whom he justified, those he also glorified.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Maschil of Asaph]. Give ear, O my people, to my law: Incline your ears to the words of my mouth.
+Hear my teaching, my people. Turn your ears to the words of my mouth.

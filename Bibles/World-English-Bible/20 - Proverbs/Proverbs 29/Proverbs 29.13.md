@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The poor man and the oppressor meet together; Jehovah lighteneth the eyes of them both.
+The poor man and the oppressor have this in common: Yahweh gives sight to the eyes of both.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Joshua, saying,
+Yahweh spoke to Joshua, saying,

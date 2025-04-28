@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then understood the disciples that he spake unto them of John the Baptist.
+Then the disciples understood that he spoke to them of John the Baptizer.

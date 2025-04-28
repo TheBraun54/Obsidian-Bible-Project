@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He devoureth the barren that beareth not, And doeth not good to the widow.
+He devours the barren who don't bear. He shows no kindness to the widow.

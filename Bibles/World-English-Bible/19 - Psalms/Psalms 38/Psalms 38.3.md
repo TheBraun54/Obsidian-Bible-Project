@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no soundness in my flesh because of thine indignation; Neither is there any health in my bones because of my sin.
+There is no soundness in my flesh because of your indignation, neither is there any health in my bones because of my sin.

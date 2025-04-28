@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the saints of the Most High shall receive the kingdom, and possess the kingdom for ever, even for ever and ever.
+But the saints of the Most High shall receive the kingdom, and possess the kingdom forever, even forever and ever.

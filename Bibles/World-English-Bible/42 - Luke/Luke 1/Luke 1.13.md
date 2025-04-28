@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the angel said unto him, Fear not, Zacharias: because thy supplication is heard, and thy wife Elisabeth shall bear thee a son, and thou shalt call his name John.
+But the angel said to him, "Don't be afraid, Zacharias, because your request has been heard, and your wife, Elizabeth, will bear you a son, and you shall call his name John.

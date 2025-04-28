@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore murmured concerning him, because he said, I am the bread which came down out of heaven.
+The Jews therefore murmured concerning him, because he said, "I am the bread which came down out of heaven."

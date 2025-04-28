@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when she travailed, that one put out a hand: and the midwife took and bound upon his hand a scarlet thread, saying, This came out first.
+When she travailed, one put out a hand, and the midwife took and tied a scarlet thread on his hand, saying, "This came out first."

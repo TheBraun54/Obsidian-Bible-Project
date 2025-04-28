@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall call the nobles thereof to the kingdom, but none shall be there; and all its princes shall be nothing.
+They shall call its nobles to the kingdom, but none shall be there; and all its princes shall be nothing.

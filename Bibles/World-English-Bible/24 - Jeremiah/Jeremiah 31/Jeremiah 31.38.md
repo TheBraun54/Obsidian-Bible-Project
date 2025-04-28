@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the days come, saith Jehovah, that the city shall be built to Jehovah from the tower of Hananel unto the gate of the corner.
+Behold, the days come, says Yahweh, that the city shall be built to Yahweh from the tower of Hananel to the gate of the corner.

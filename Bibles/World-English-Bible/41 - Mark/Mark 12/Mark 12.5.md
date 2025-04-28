@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent another; and him they killed: and many others; beating some, and killing some.
+Again he sent another; and they killed him; and many others, beating some, and killing some.

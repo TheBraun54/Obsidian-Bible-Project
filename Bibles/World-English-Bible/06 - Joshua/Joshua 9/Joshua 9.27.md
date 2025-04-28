@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua made them that day hewers of wood and drawers of water for the congregation, and for the altar of Jehovah, unto this day, in the place which he should choose.
+That day Joshua made them wood cutters and drawers of water for the congregation and for the altar of Yahweh, to this day, in the place which he should choose.

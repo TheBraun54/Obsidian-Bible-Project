@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto their children in the wilderness, Walk ye not in the statutes of your fathers, neither observe their ordinances, nor defile yourselves with their idols.
+I said to their children in the wilderness, Don't walk in the statutes of your fathers, neither observe their ordinances, nor defile yourselves with their idols.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Simon Peter answered and said, Thou art the Christ, the Son of the living God.
+Simon Peter answered, "You are the Christ, the Son of the living God."

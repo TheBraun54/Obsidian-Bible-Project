@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have said, It is vain to serve God; and what profit is it that we have kept his charge, and that we have walked mournfully before Jehovah of hosts?
+You have said, 'It is vain to serve God;' and 'What profit is it that we have followed his instructions, and that we have walked mournfully before Yahweh of Armies?

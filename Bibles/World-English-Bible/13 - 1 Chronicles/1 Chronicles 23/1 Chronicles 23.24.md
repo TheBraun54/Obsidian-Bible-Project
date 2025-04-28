@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were the sons of Levi after their fathers' houses, even the heads of the fathers' [houses] of those of them that were counted, in the number of names by their polls, who did the work for the service of the house of Jehovah, from twenty years old and upward.
+These were the sons of Levi after their fathers' houses, even the heads of the fathers' houses of those who were counted individually, in the number of names by their polls, who did the work for the service of the house of Yahweh, from twenty years old and upward.

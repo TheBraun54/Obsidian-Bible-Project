@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in none other is there salvation: for neither is there any other name under heaven, that is given among men, wherein we must be saved.
+There is salvation in none other, for neither is there any other name under heaven, that is given among men, by which we must be saved!"

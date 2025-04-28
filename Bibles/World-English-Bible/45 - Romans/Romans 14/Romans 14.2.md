@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One man hath faith to eat all things: but he that is weak eateth herbs.
+One man has faith to eat all things, but he who is weak eats only vegetables.

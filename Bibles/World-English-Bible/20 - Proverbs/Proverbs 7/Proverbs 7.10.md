@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, there met him a woman With the attire of a harlot, and wily of heart.
+Behold, there a woman met him with the attire of a prostitute, and with crafty intent.

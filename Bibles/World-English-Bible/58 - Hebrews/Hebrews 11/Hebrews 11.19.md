@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-accounting that God [is] able to raise up, even from the dead; from whence he did also in a figure receive him back.
+concluding that God is able to raise up even from the dead. Figuratively speaking, he also did receive him back from the dead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what is our hope, or joy, or crown of glorying? Are not even ye, before our Lord Jesus at his coming?
+For what is our hope, or joy, or crown of rejoicing? Isn't it even you, before our Lord Jesus at his coming?

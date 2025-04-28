@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they ministered with song before the tabernacle of the tent of meeting, until Solomon had built the house of Jehovah in Jerusalem: and they waited on their office according to their order. [
+They ministered with song before the tabernacle of the Tent of Meeting, until Solomon had built the house of Yahweh in Jerusalem: and they waited on their office according to their order.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Else if thou bless with the spirit, how shall he that filleth the place of the unlearned say the Amen at thy giving of thanks, seeing he knoweth not what thou sayest?
+Otherwise if you bless with the spirit, how will he who fills the place of the unlearned say the "Amen" at your giving of thanks, seeing he doesn't know what you say?

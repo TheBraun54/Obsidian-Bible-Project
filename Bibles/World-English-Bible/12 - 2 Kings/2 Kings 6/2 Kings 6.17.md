@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha prayed, and said, Jehovah, I pray thee, open his eyes, that he may see. And Jehovah opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha.
+Elisha prayed, and said, "Yahweh, please open his eyes, that he may see." Yahweh opened the eyes of the young man; and he saw: and behold, the mountain was full of horses and chariots of fire around Elisha.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the Jews of Thessalonica had knowledge that the word of God was proclaimed of Paul at Beroea also, they came thither likewise, stirring up and troubling the multitudes.
+But when the Jews of Thessalonica had knowledge that the word of God was proclaimed by Paul at Beroea also, they came there likewise, agitating the multitudes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [Abraham] planted a tamarisk tree in Beer-sheba, and called there on the name of Jehovah, the Everlasting God.
+Abraham planted a tamarisk tree in Beersheba, and called there on the name of Yahweh, the Everlasting God.

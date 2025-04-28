@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah thy God, he will go over before thee; he will destroy these nations from before thee, and thou shalt dispossess them: [and] Joshua, he shall go over before thee, as Jehovah hath spoken.
+Yahweh your God, he will go over before you; he will destroy these nations from before you, and you shall dispossess them: [and] Joshua, he shall go over before you, as Yahweh has spoken.

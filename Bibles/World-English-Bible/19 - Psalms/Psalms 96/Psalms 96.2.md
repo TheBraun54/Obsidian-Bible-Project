@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto Jehovah, bless his name; Show forth his salvation from day to day.
+Sing to Yahweh! Bless his name! Proclaim his salvation from day to day!

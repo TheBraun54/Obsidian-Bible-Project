@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-riseth from supper, and layeth aside his garments; and he took a towel, and girded himself.
+arose from supper, and laid aside his outer garments. He took a towel, and wrapped a towel around his waist.

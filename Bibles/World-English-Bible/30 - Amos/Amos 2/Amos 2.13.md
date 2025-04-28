@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will press [you] in your place, as a cart presseth that is full of sheaves.
+Behold, I will crush you in your place, as a cart crushes that is full of grain.

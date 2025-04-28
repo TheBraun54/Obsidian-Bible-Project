@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he discerned him not, because his hands were hairy, as his brother Esau's hands: so he blessed him.
+He didn't recognize him, because his hands were hairy, like his brother, Esau's hands. So he blessed him.

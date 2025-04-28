@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the governor said unto them, that they should not eat of the most holy things, till there stood up a priest with Urim and with Thummim.
+The governor said to them, that they should not eat of the most holy things, until there stood up a priest with Urim and with Thummim.

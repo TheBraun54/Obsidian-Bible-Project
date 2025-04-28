@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Judge me, O Jehovah, for I have walked in mine integrity: I have trusted also in Jehovah without wavering.
+Judge me, Yahweh, for I have walked in my integrity. I have trusted also in Yahweh without wavering.

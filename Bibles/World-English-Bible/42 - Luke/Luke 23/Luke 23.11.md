@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Herod with his soldiers set him at nought, and mocked him, and arraying him in gorgeous apparel sent him back to Pilate.
+Herod with his soldiers humiliated him and mocked him. Dressing him in luxurious clothing, they sent him back to Pilate.

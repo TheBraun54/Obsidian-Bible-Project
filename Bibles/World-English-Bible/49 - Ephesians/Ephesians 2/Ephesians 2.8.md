@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for by grace have ye been saved through faith; and that not of yourselves, [it is] the gift of God;
+for by grace you have been saved through faith, and that not of yourselves; it is the gift of God,

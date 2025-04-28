@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None shall be weary nor stumble among them; none shall slumber nor sleep; neither shall the girdle of their loins be loosed, nor the latchet of their shoes be broken:
+None shall be weary nor stumble among them; none shall slumber nor sleep; neither shall the belt of their waist be untied, nor the latchet of their shoes be broken:

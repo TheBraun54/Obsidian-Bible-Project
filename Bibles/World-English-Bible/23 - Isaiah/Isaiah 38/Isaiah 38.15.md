@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall I say? he hath both spoken unto me, and himself hath done it: I shall go softly all my years because of the bitterness of my soul.
+What will I say? He has both spoken to me, and himself has done it. I will walk carefully all my years because of the anguish of my soul.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy right hand, O Jehovah, is glorious in power, Thy right hand, O Jehovah, dasheth in pieces the enemy.
+Your right hand, Yahweh, is glorious in power. Your right hand, Yahweh, dashes the enemy in pieces.

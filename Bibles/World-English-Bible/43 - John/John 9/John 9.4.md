@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We must work the works of him that sent me, while it is day: the night cometh, when no man can work.
+I must work the works of him who sent me, while it is day. The night is coming, when no one can work.

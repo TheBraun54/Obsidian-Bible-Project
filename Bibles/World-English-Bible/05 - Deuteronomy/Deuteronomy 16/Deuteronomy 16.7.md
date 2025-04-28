@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt roast and eat it in the place which Jehovah thy God shall choose: and thou shalt turn in the morning, and go unto thy tents.
+You shall roast and eat it in the place which Yahweh your God shall choose: and you shall turn in the morning, and go to your tents.

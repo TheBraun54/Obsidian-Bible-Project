@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the band and the chief captain, and the officers of the Jews, seized Jesus and bound him,
+So the detachment, the commanding officer, and the officers of the Jews, seized Jesus and bound him,

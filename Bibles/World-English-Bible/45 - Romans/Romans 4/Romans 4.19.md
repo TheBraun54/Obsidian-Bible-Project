@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And without being weakened in faith he considered his own body now as good as dead (he being about a hundred years old), and the deadness of Sarah's womb;
+Without being weakened in faith, he didn't consider his own body, already having been worn out, (he being about a hundred years old), and the deadness of Sarah's womb.

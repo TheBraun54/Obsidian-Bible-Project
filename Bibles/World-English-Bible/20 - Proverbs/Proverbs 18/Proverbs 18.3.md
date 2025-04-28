@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the wicked cometh, there cometh also contempt, And with ignominy [cometh] reproach.
+When wickedness comes, contempt also comes, and with shame comes disgrace.

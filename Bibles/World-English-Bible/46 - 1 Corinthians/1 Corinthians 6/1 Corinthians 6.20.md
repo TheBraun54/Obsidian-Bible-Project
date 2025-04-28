@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for ye were bought with a price: glorify God therefore in your body.
+for you were bought with a price. Therefore glorify God in your body and in your spirit, which are God's.

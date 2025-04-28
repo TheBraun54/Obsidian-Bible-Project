@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have heard the defaming of many, Terror on every side: While they took counsel together against me, they devised to take away my life.
+For I have heard the slander of many, terror on every side, while they conspire together against me, they plot to take away my life.

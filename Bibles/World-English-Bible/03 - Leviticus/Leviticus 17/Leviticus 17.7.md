@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall no more sacrifice their sacrifices unto the he-goats, after which they play the harlot. This shall be a statute for ever unto them throughout their generations.
+They shall no more sacrifice their sacrifices to the goat idols, after which they play the prostitute. This shall be a statute forever to them throughout their generations.'

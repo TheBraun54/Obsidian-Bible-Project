@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, I pray thee, let the power of the Lord be great, according as thou hast spoken, saying,
+Now please let the power of the Lord be great, according as you have spoken, saying,

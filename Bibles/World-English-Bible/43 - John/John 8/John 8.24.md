@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said therefore unto you, that ye shall die in your sins: for except ye believe that I am [he], ye shall die in your sins.
+I said therefore to you that you will die in your sins; for unless you believe that I am he, you will die in your sins."

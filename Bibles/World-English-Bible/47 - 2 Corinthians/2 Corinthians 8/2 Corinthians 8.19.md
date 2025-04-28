@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and not only so, but who was also appointed by the churches to travel with us in [the matter of] this grace, which is ministered by us to the glory of the Lord, and [to show] our readiness:
+Not only so, but who was also appointed by the assemblies to travel with us in this grace, which is served by us to the glory of the Lord himself, and to show our readiness.

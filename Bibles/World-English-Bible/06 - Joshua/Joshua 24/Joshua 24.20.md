@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye forsake Jehovah, and serve foreign gods, then he will turn and do you evil, and consume you, after that he hath done you good.
+If you forsake Yahweh, and serve foreign gods, then he will turn and do you evil, and consume you, after he has done you good."

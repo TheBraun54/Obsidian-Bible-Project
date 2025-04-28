@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who redeemeth thy life from destruction; Who crowneth thee with lovingkindness and tender mercies;
+who redeems your life from destruction; who crowns you with loving kindness and tender mercies;

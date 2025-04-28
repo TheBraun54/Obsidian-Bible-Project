@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, that whosoever shall call on the name of the Lord shall be saved.
+It will be, that whoever will call on the name of the Lord will be saved.'

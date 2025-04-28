@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the word might be fulfilled which he spake, Of those whom thou hast given me I lost not one.
+that the word might be fulfilled which he spoke, "Of those whom you have given me, I have lost none."

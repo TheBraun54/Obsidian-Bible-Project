@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Go down, charge the people, lest they break through unto Jehovah to gaze, and many of them perish.
+Yahweh said to Moses, "Go down, warn the people, lest they break through to Yahweh to gaze, and many of them perish.

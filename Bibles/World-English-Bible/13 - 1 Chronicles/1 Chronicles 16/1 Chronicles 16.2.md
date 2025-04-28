@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when David had made an end of offering the burnt-offering and the peace-offerings, he blessed the people in the name of Jehovah.
+When David had made an end of offering the burnt offering and the peace offerings, he blessed the people in the name of Yahweh.

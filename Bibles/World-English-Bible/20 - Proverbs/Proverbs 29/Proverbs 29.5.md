@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man that flattereth his neighbor Spreadeth a net for his steps.
+A man who flatters his neighbor spreads a net for his feet.

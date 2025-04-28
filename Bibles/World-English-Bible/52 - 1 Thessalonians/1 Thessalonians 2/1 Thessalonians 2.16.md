@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-forbidding us to speak to the Gentiles that they may be saved; to fill up their sins always: but the wrath is come upon them to the uttermost.
+forbidding us to speak to the Gentiles that they may be saved; to fill up their sins always. But wrath has come on them to the uttermost.

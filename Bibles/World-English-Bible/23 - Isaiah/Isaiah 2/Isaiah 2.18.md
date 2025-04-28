@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the idols shall utterly pass away.
+The idols shall utterly pass away.

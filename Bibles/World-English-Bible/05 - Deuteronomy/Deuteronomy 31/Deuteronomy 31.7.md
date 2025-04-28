@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses called unto Joshua, and said unto him in the sight of all Israel, Be strong and of good courage: for thou shalt go with this people into the land which Jehovah hath sworn unto their fathers to give them; and thou shalt cause them to inherit it.
+Moses called to Joshua, and said to him in the sight of all Israel, "Be strong and courageous: for you shall go with this people into the land which Yahweh has sworn to their fathers to give them; and you shall cause them to inherit it.

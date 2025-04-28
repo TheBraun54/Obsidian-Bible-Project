@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt speak unto the children of Israel, saying, If a man die, and have no son, then ye shall cause his inheritance to pass unto his daughter.
+You shall speak to the children of Israel, saying, 'If a man dies, and has no son, then you shall cause his inheritance to pass to his daughter.

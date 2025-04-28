@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, Lord, art good, and ready to forgive, And abundant in lovingkindness unto all them that call upon thee.
+For you, Lord, are good, and ready to forgive; abundant in loving kindness to all those who call on you.

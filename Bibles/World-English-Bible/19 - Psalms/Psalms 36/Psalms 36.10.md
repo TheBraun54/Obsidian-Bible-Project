@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh continue thy lovingkindness unto them that know thee, And thy righteousness to the upright in heart.
+Oh continue your loving kindness to those who know you, your righteousness to the upright in heart.

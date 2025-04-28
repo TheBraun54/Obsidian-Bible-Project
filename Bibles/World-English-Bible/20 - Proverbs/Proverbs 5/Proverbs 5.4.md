@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in the end she is bitter as wormwood, Sharp as a two-edged sword.
+But in the end she is as bitter as wormwood, and as sharp as a two-edged sword.

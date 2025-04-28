@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with many such parables spake he the word unto them, as they were able to hear it;
+With many such parables he spoke the word to them, as they were able to hear it.

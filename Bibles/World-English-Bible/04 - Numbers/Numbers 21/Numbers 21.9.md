@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses made a serpent of brass, and set it upon the standard: and it came to pass, that if a serpent had bitten any man, when he looked unto the serpent of brass, he lived.
+Moses made a serpent of brass, and set it on the standard: and it happened, that if a serpent had bitten any man, when he looked to the serpent of brass, he lived.

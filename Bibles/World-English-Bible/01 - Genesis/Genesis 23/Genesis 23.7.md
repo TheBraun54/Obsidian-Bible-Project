@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham rose up, and bowed himself to the people of the land, even to the children of Heth.
+Abraham rose up, and bowed himself to the people of the land, even to the children of Heth.

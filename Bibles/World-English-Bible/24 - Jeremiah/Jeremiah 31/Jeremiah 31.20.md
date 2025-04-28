@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is Ephraim my dear son? is he a darling child? for as often as I speak against him, I do earnestly remember him still: therefore my heart yearneth for him; I will surely have mercy upon him, saith Jehovah.
+Is Ephraim my dear son? is he a darling child? for as often as I speak against him, I do earnestly remember him still: therefore my heart yearns for him; I will surely have mercy on him, says Yahweh.

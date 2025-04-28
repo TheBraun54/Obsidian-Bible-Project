@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou shalt remember Jehovah thy God, for it is he that giveth thee power to get wealth; that he may establish his covenant which he sware unto thy fathers, as at this day.
+But you shall remember Yahweh your God, for it is he who gives you power to get wealth; that he may establish his covenant which he swore to your fathers, as at this day.

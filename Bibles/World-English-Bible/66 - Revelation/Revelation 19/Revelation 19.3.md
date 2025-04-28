@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a second time they say, Hallelujah. And her smoke goeth up for ever and ever.
+A second said, "Hallelujah! Her smoke goes up forever and ever."

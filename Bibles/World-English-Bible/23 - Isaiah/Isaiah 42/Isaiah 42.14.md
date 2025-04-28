@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have long time holden my peace; I have been still, and refrained myself: [now] will I cry out like a travailing woman; I will gasp and pant together.
+"I have been silent a long time. I have been quiet and restrained myself. Now I will cry out like a travailing woman. I will both gasp and pant.

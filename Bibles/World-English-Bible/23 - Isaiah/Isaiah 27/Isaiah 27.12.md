@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that Jehovah will beat off [his fruit] from the flood of the River unto the brook of Egypt; and ye shall be gathered one by one, O ye children of Israel.
+It will happen in that day, that Yahweh will thresh from the flowing stream of the Euphrates to the brook of Egypt; and you will be gathered one by one, children of Israel.

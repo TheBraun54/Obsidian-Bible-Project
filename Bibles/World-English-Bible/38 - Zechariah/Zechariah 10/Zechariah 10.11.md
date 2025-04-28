@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will pass through the sea of affliction, and will smite the waves in the sea, and all the depths of the Nile shall dry up; and the pride of Assyria shall be brought down, and the sceptre of Egypt shall depart.
+He will pass through the sea of affliction, and will strike the waves in the sea, and all the depths of the Nile will dry up; and the pride of Assyria will be brought down, and the scepter of Egypt will depart.

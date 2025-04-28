@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again a second time he went away, and prayed, saying, My Father, if this cannot pass away, except I drink it, thy will be done.
+Again, a second time he went away, and prayed, saying, "My Father, if this cup can't pass away from me unless I drink it, your desire be done."

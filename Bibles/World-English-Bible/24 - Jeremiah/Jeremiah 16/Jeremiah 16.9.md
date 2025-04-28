@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts, the God of Israel: Behold, I will cause to cease out of this place, before your eyes and in your days, the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride.
+For thus says Yahweh of Armies, the God of Israel: Behold, I will cause to cease out of this place, before your eyes and in your days, the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride.

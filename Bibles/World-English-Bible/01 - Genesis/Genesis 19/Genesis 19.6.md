@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lot went out unto them to the door, and shut the door after him.
+Lot went out to them to the door, and shut the door after him.

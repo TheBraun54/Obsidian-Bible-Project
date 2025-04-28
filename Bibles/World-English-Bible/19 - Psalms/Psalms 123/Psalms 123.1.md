@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. Unto thee do I lift up mine eyes, O thou that sittest in the heavens.
+To you I do lift up my eyes, you who sit in the heavens.

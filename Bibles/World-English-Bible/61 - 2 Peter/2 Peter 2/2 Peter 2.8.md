@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for that righteous man dwelling among them, in seeing and hearing, vexed [his] righteous soul from day to day with [their] lawless deeds):
+(for that righteous man dwelling among them, was tormented in his righteous soul from day to day with seeing and hearing lawless deeds):

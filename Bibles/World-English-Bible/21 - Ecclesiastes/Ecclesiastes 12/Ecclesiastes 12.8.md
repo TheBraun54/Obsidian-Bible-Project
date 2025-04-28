@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Vanity of vanities, saith the Preacher; all is vanity.
+"Vanity of vanities," says the Preacher. "All is vanity!"

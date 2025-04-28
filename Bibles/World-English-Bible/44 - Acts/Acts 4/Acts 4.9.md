@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if we this day are examined concerning a good deed done to an impotent man, by what means this man is made whole;
+if we are examined today concerning a good deed done to a crippled man, by what means this man has been healed,

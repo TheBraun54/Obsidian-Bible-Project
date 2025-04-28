@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teach me thy way, O Jehovah; I will walk in thy truth: Unite my heart to fear thy name.
+Teach me your way, Yahweh. I will walk in your truth. Make my heart undivided to fear your name.

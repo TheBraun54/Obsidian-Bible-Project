@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah appeared unto him, and said, Go not down into Egypt; dwell in the land which I shall tell thee of:
+Yahweh appeared to him, and said, "Don't go down into Egypt. Live in the land I will tell you about.

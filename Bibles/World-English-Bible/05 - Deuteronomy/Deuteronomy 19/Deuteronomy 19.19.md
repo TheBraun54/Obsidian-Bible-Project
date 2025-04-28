@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall ye do unto him, as he had thought to do unto his brother: so shalt thou put away the evil from the midst of thee.
+then you shall do to him as he had thought to do to his brother: so you shall put away the evil from the midst of you.

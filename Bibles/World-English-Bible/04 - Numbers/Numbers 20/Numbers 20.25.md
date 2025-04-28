@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take Aaron and Eleazar his son, and bring them up unto mount Hor;
+Take Aaron and Eleazar his son, and bring them up to Mount Hor;

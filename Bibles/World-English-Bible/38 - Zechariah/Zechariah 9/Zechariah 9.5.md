@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ashkelon shall see it, and fear; Gaza also, and shall be sore pained; and Ekron, for her expectation shall be put to shame; and the king shall perish from Gaza, and Ashkelon shall not be inhabited.
+Ashkelon will see it, and fear; Gaza also, and will writhe in agony; as will Ekron, for her expectation will be disappointed; and the king will perish from Gaza, and Ashkelon will not be inhabited.

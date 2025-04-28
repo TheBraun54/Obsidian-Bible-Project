@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Take them alive. And they took them alive, and slew them at the pit of the shearing-house, even two and forty men; neither left he any of them.
+He said, "Take them alive!" They took them alive, and killed them at the pit of the shearing house, even forty-two men. He didn't leave any of them.

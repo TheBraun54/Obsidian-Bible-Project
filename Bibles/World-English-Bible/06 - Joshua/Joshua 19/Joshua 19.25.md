@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their border was Helkath, and Hali, and Beten, and Achshaph,
+Their border was Helkath, Hali, Beten, Achshaph,

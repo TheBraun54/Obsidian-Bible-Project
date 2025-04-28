@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people that were in the gate, and the elders, said, We are witnesses. Jehovah make the woman that is come into thy house like Rachel and like Leah, which two did build the house of Israel: and do thou worthily in Ephrathah, and be famous in Beth-lehem:
+All the people who were in the gate, and the elders, said, "We are witnesses. May Yahweh make the woman who has come into your house like Rachel and like Leah, which two built the house of Israel; and treat you worthily in Ephrathah, and be famous in Bethlehem.

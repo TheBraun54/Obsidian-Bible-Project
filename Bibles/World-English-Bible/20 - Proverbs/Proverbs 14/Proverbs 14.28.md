@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the multitude of people is the king's glory; But in the want of people is the destruction of the prince.
+In the multitude of people is the king's glory, but in the lack of people is the destruction of the prince.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto the carpenters, and to the builders, and to the masons, and for buying timber and hewn stone to repair the house.
+to the carpenters, and to the builders, and to the masons, and for buying timber and cut stone to repair the house.

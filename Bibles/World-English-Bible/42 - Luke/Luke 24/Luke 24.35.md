@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rehearsed the things [that happened] in the way, and how he was known of them in the breaking of the bread.
+They related the things that happened along the way, and how he was recognized by them in the breaking of the bread.

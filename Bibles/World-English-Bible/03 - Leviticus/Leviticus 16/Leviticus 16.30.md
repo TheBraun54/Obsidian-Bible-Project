@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for on this day shall atonement be made for you, to cleanse you; from all your sins shall ye be clean before Jehovah.
+for on this day shall atonement be made for you, to cleanse you; from all your sins you shall be clean before Yahweh.

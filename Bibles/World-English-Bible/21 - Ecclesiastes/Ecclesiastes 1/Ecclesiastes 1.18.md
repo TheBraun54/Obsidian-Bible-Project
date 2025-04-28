@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in much wisdom is much grief; and he that increaseth knowledge increaseth sorrow.
+For in much wisdom is much grief; and he who increases knowledge increases sorrow.

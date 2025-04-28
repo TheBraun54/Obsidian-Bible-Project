@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let integrity and uprightness preserve me, For I wait for thee.
+Let integrity and uprightness preserve me, for I wait for you.

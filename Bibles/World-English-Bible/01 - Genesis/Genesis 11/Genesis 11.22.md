@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Serug lived thirty years, and begat Nahor:
+Serug lived thirty years, and became the father of Nahor.

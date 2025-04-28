@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being filled with all unrighteousness, wickedness, covetousness, maliciousness; full of envy, murder, strife, deceit, malignity; whisperers,
+being filled with all unrighteousness, sexual immorality, wickedness, covetousness, malice; full of envy, murder, strife, deceit, evil habits, secret slanderers,

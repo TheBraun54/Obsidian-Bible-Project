@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jair the son of Manasseh went and took the towns thereof, and called them Havvoth-jair.
+Jair the son of Manasseh went and took its towns, and called them Havvoth Jair.

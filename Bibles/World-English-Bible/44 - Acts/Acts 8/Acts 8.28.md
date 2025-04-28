@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he was returning and sitting in his chariot, and was reading the prophet Isaiah.
+He was returning and sitting in his chariot, and was reading the prophet Isaiah.

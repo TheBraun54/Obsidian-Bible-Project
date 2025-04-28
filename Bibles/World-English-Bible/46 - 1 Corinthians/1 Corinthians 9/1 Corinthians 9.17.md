@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if I do this of mine own will, I have a reward: but if not of mine own will, I have a stewardship intrusted to me.
+For if I do this of my own will, I have a reward. But if not of my own will, I have a stewardship entrusted to me.

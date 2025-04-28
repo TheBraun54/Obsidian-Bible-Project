@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sihon king of the Amorites; For his lovingkindness [endureth] for ever;
+Sihon king of the Amorites; for his loving kindness endures forever;

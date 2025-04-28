@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word which came to Jeremiah from Jehovah, after that Nebuzaradan the captain of the guard had let him go from Ramah, when he had taken him being bound in chains among all the captives of Jerusalem and Judah, that were carried away captive unto Babylon.
+The word which came to Jeremiah from Yahweh, after that Nebuzaradan the captain of the guard had let him go from Ramah, when he had taken him being bound in chains among all the captives of Jerusalem and Judah, who were carried away captive to Babylon.

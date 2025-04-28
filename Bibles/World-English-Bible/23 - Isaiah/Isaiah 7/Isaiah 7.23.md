@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that every place, where there were a thousand vines at a thousand silverlings, shall be for briers and thorns.
+It will happen in that day that every place where there were a thousand vines at a thousand silver shekels, shall be for briers and thorns.

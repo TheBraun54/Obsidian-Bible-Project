@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that all the peoples of the earth may know the hand of Jehovah, that it is mighty; that ye may fear Jehovah your God for ever.
+that all the peoples of the earth may know the hand of Yahweh, that it is mighty; that you may fear Yahweh your God forever.'"

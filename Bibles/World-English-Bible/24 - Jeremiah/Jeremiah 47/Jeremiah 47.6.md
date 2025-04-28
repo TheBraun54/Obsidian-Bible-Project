@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou sword of Jehovah, how long will it be ere thou be quiet? put up thyself into thy scabbard; rest, and be still.
+You sword of Yahweh, how long will it be before you be quiet? Put up yourself into your scabbard; rest, and be still.

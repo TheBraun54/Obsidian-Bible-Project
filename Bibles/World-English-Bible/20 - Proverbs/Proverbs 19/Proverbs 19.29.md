@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judgments are prepared for scoffers, And stripes for the back of fools.
+Penalties are prepared for scoffers, and beatings for the backs of fools.

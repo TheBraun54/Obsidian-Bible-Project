@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but these two things shall come to thee in a moment in one day, the loss of children, and widowhood; in their full measure shall they come upon thee, in the multitude of thy sorceries, and the great abundance of thine enchantments.
+but these two things shall come to you in a moment in one day, the loss of children, and widowhood; in their full measure shall they come on you, in the multitude of your sorceries, and the great abundance of your enchantments.

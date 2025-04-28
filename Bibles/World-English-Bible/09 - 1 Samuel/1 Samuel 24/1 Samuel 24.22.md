@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David sware unto Saul. And Saul went home; but David and his men gat them up unto the stronghold.
+David swore to Saul. Saul went home; but David and his men went up to the stronghold.

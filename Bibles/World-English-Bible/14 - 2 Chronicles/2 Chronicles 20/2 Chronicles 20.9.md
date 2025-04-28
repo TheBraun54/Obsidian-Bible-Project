@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If evil come upon us, the sword, judgment, or pestilence, or famine, we will stand before this house, and before thee, (for thy name is in this house,) and cry unto thee in our affliction, and thou wilt hear and save.
+'If evil comes on us--the sword, judgment, pestilence, or famine--we will stand before this house, and before you, (for your name is in this house), and cry to you in our affliction, and you will hear and save.'

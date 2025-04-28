@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Salmon begat Boaz, and Boaz begat Obed,
+and Salmon became the father of Boaz, and Boaz became the father of Obed,

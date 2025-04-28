@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, they lie in wait for my soul; The mighty gather themselves together against me: Not for my transgression, nor for my sin, O Jehovah.
+For, behold, they lie in wait for my soul. The mighty gather themselves together against me, not for my disobedience, nor for my sin, Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they went on the way, a certain man said unto him, I will follow thee whithersoever thou goest.
+As they went on the way, a certain man said to him, "I want to follow you wherever you go, Lord."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A remnant shall return, [even] the remnant of Jacob, unto the mighty God.
+A remnant will return, even the remnant of Jacob, to the mighty God.

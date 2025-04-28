@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border went up to Beth-hoglah, and passed along by the north of Beth-arabah; and the border went up to the stone of Bohan the son of Reuben;
+The border went up to Beth Hoglah, and passed along by the north of Beth Arabah; and the border went up to the stone of Bohan the son of Reuben.

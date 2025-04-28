@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou wouldest seek diligently unto God, And make thy supplication to the Almighty;
+If you want to seek God diligently, make your supplication to the Almighty.

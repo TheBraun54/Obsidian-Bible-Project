@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will command, saith Jehovah, and cause them to return to this city; and they shall fight against it, and take it, and burn it with fire: and I will make the cities of Judah a desolation, without inhabitant.
+Behold, I will command, says Yahweh, and cause them to return to this city; and they shall fight against it, and take it, and burn it with fire: and I will make the cities of Judah a desolation, without inhabitant.

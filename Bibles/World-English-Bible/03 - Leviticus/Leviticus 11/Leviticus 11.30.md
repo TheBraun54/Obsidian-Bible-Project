@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the gecko, and the land-crocodile, and the lizard, and the sand-lizard, and the chameleon.
+the gecko, and the monitor lizard, the wall lizard, the skink, and the chameleon.

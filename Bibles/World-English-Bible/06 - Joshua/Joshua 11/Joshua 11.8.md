@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah delivered them into the hand of Israel, and they smote them, and chased them unto great Sidon, and unto Misrephoth-maim, and unto the valley of Mizpeh eastward; and they smote them, until they left them none remaining.
+Yahweh delivered them into the hand of Israel, and they struck them, and chased them to great Sidon, and to Misrephoth Maim, and to the valley of Mizpeh eastward. They struck them until they left them none remaining.

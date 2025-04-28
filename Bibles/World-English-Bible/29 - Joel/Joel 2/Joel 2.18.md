@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was Jehovah jealous for his land, and had pity on his people.
+Then Yahweh was jealous for his land, And had pity on his people.

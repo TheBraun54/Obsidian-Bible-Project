@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I called for my lovers, [but] they deceived me: My priests and mine elders gave up the ghost in the city, While they sought them food to refresh their souls.
+I called for my lovers, [but] they deceived me: My priests and my elders gave up the spirit in the city, While they sought them food to refresh their souls.

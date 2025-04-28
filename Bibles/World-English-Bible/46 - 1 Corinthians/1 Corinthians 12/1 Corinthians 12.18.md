@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now hath God set the members each one of them in the body, even as it pleased him.
+But now God has set the members, each one of them, in the body, just as he desired.

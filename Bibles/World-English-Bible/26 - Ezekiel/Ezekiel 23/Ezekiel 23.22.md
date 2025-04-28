@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, O Oholibah, thus saith the Lord Jehovah: Behold, I will raise up thy lovers against thee, from whom thy soul is alienated, and I will bring them against thee on every side:
+Therefore, Oholibah, thus says the Lord Yahweh: Behold, I will raise up your lovers against you, from whom your soul is alienated, and I will bring them against you on every side:

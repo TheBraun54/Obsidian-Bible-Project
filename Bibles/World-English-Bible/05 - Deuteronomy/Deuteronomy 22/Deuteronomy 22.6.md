@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a bird's nest chance to be before thee in the way, in any tree or on the ground, with young ones or eggs, and the dam sitting upon the young, or upon the eggs, thou shalt not take the dam with the young:
+If a bird's nest chance to be before you in the way, in any tree or on the ground, with young ones or eggs, and the hen sitting on the young, or on the eggs, you shall not take the hen with the young:

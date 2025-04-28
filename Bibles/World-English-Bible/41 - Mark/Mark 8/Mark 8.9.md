@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were about four thousand: and he sent them away.
+Those who had eaten were about four thousand. Then he sent them away.

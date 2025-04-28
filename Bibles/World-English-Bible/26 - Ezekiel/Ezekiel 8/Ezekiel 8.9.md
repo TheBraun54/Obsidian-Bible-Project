@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Go in, and see the wicked abominations that they do here.
+He said to me, Go in, and see the wicked abominations that they do here.

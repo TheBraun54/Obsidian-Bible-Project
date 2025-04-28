@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the barbarians showed us no common kindness; for they kindled a fire, and received us all, because of the present rain, and because of the cold.
+The natives showed us uncommon kindness; for they kindled a fire, and received us all, because of the present rain, and because of the cold.

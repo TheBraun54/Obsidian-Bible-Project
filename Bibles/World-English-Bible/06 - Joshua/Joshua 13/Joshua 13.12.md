@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all the kingdom of Og in Bashan, who reigned in Ashtaroth and in Edrei (the same was left of the remnant of the Rephaim); for these did Moses smite, and drove them out.
+all the kingdom of Og in Bashan, who reigned in Ashtaroth and in Edrei (the same was left of the remnant of the Rephaim); for Moses attacked these, and drove them out.

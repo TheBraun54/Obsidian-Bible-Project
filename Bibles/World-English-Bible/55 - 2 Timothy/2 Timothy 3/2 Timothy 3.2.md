@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For men shall be lovers of self, lovers of money, boastful, haughty, railers, disobedient to parents, unthankful, unholy,
+For men will be lovers of self, lovers of money, boastful, arrogant, blasphemers, disobedient to parents, unthankful, unholy,

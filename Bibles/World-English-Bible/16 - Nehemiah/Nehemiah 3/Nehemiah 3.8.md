@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Next unto him repaired Uzziel the son of Harhaiah, goldsmiths. And next unto him repaired Hananiah one of the perfumers, and they fortified Jerusalem even unto the broad wall.
+Next to him repaired Uzziel the son of Harhaiah, goldsmiths. Next to him repaired Hananiah one of the perfumers, and they fortified Jerusalem even to the broad wall.

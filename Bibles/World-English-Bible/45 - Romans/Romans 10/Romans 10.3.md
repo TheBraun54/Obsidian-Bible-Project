@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For being ignorant of God's righteousness, and seeking to establish their own, they did not subject themselves to the righteousness of God.
+For being ignorant of God's righteousness, and seeking to establish their own righteousness, they didn't subject themselves to the righteousness of God.

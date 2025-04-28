@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thus saith Jehovah of hosts; Behold, I will send upon them the sword, the famine, and the pestilence, and will make them like vile figs, that cannot be eaten, they are so bad.
+thus says Yahweh of Armies; Behold, I will send on them the sword, the famine, and the pestilence, and will make them like vile figs, that can't be eaten, they are so bad.

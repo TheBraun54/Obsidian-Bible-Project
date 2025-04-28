@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fourth kingdom shall be strong as iron, forasmuch as iron breaketh in pieces and subdueth all things; and as iron that crusheth all these, shall it break in pieces and crush.
+The fourth kingdom shall be strong as iron, because iron breaks in pieces and subdues all things; and as iron that crushes all these, shall it break in pieces and crush.

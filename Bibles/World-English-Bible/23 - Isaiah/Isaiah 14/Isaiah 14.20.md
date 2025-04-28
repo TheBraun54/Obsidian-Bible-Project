@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not be joined with them in burial, because thou hast destroyed thy land, thou hast slain thy people; the seed of evil-doers shall not be named for ever.
+You will not join them in burial, because you have destroyed your land. You have killed your people. The seed of evildoers will not be named forever.

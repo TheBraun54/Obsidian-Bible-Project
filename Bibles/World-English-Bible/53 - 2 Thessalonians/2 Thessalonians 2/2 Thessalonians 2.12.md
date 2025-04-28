@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they all might be judged who believed not the truth, but had pleasure in unrighteousness.
+that they all might be judged who didn't believe the truth, but had pleasure in unrighteousness.

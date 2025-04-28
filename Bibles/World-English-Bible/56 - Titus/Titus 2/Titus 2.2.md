@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that aged men be temperate, grave, sober-minded, sound in faith, in love, in patience:
+that older men should be temperate, sensible, sober minded, sound in faith, in love, and in patience:

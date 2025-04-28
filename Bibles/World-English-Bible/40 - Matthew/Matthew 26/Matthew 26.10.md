@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus perceiving it said unto them, Why trouble ye the woman? for she hath wrought a good work upon me.
+However, knowing this, Jesus said to them, "Why do you trouble the woman? Because she has done a good work for me.

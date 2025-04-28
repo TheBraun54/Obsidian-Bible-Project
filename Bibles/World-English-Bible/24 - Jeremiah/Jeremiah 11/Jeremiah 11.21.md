@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah concerning the men of Anathoth, that seek thy life, saying, Thou shalt not prophesy in the name of Jehovah, that thou die not by our hand;
+Therefore thus says Yahweh concerning the men of Anathoth, who seek your life, saying, You shall not prophesy in the name of Yahweh, that you not die by our hand;

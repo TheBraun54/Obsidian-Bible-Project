@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the chief captain commanded him be brought into the castle, bidding that he should be examined by scourging, that he might know for what cause they so shouted against him.
+the commanding officer commanded him to be brought into the barracks, ordering him to be examined by scourging, that he might know for what crime they shouted against him like that.

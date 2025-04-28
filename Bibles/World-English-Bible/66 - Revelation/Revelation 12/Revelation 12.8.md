@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they prevailed not, neither was their place found any more in heaven.
+They didn't prevail, neither was a place found for him any more in heaven.

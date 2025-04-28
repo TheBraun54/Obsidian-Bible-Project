@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses laid up the rods before Jehovah in the tent of the testimony.
+Moses laid up the rods before Yahweh in the tent of the testimony.

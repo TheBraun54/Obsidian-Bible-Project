@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look therefore whether the light that is in thee be not darkness.
+Therefore see whether the light that is in you isn't darkness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the land is subdued before Jehovah; then afterward ye shall return, and be guiltless towards Jehovah, and towards Israel; and this land shall be unto you for a possession before Jehovah.
+and the land is subdued before Yahweh; then afterward you shall return, and be guiltless towards Yahweh, and towards Israel; and this land shall be to you for a possession before Yahweh.

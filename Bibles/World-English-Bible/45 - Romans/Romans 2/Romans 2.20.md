@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a corrector of the foolish, a teacher of babes, having in the law the form of knowledge and of the truth;
+a corrector of the foolish, a teacher of babies, having in the law the form of knowledge and of the truth.

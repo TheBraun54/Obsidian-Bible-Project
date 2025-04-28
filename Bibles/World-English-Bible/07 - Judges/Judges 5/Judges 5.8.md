@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They chose new gods; Then was war in the gates: Was there a shield or spear seen Among forty thousand in Israel?
+They chose new gods. Then war was in the gates. Was there a shield or spear seen among forty thousand in Israel?

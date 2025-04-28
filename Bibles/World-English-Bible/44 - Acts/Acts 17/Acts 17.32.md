@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when they heard of the resurrection of the dead, some mocked; but others said, We will hear thee concerning this yet again.
+Now when they heard of the resurrection of the dead, some mocked; but others said, "We want to hear you again concerning this."

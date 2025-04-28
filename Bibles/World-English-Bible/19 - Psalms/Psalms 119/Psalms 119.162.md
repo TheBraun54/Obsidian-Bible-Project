@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I rejoice at thy word, As one that findeth great spoil.
+I rejoice at your word, as one who finds great spoil.

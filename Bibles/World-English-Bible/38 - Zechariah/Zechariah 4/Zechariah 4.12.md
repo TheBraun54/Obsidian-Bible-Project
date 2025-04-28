@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I answered the second time, and said unto him, What are these two olive-branches, which are beside the two golden spouts, that empty the golden [oil] out of themselves?
+I asked him the second time, "What are these two olive branches, which are beside the two golden spouts, that pour the golden oil out of themselves?"

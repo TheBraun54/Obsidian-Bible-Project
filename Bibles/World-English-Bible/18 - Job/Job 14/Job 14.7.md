@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is hope of a tree, If it be cut down, that it will sprout again, And that the tender branch thereof will not cease.
+"For there is hope for a tree, If it is cut down, that it will sprout again, that the tender branch of it will not cease.

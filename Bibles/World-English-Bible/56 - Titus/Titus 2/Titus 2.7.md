@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in all things showing thyself an ensample of good works; in thy doctrine [showing] uncorruptness, gravity,
+in all things showing yourself an example of good works; in your teaching showing integrity, seriousness, incorruptibility,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they say unto me, Thou must prophesy again over many peoples and nations and tongues and kings.
+They told me, "You must prophesy again over many peoples, nations, languages, and kings."

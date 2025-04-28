@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou didst cast me into the depth, in the heart of the seas, And the flood was round about me; All thy waves and thy billows passed over me.
+For you threw me into the depths, in the heart of the seas. The flood was all around me. All your waves and your billows passed over me.

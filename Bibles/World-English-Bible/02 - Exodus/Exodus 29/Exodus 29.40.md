@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and with the one lamb a tenth part [of an ephah] of fine flour mingled with the fourth part of a hin of beaten oil; and the fourth part of a hin of wine for a drink-offering.
+and with the one lamb a tenth part of an ephah of fine flour mixed with the fourth part of a hin of beaten oil, and the fourth part of a hin of wine for a drink offering.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, from the day that the ark abode in Kiriath-jearim, that the time was long; for it was twenty years: and all the house of Israel lamented after Jehovah.
+It happened, from the day that the ark stayed in Kiriath Jearim, that the time was long; for it was twenty years: and all the house of Israel lamented after Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Timothy, guard that which is committed unto [thee], turning away from the profane babblings and oppositions of the knowledge which is falsely so called;
+Timothy, guard that which is committed to you, turning away from the empty chatter and oppositions of the knowledge which is falsely so called;

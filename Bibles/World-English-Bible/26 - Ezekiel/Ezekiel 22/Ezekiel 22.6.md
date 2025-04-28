@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the princes of Israel, every one according to his power, have been in thee to shed blood.
+Behold, the princes of Israel, everyone according to his power, have been in you to shed blood.

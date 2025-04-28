@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shall it be done for each bullock, or for each ram, or for each of the he-lambs, or of the kids.
+Thus shall it be done for each bull, or for each ram, or for each of the male lambs, or of the young goats.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they took away the stone. And Jesus lifted up his eyes, and said, Father, I thank thee that thou heardest me.
+So they took away the stone from the place where the dead man was lying. Jesus lifted up his eyes, and said, "Father, I thank you that you listened to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because thy heart was tender, and thou didst humble thyself before God, when thou heardest his words against this place, and against the inhabitants thereof, and hast humbled thyself before me, and hast rent thy clothes, and wept before me; I also have heard thee, saith Jehovah.
+because your heart was tender, and you humbled yourself before God, when you heard his words against this place, and against its inhabitants, and have humbled yourself before me, and have torn your clothes, and wept before me; I also have heard you," says Yahweh.

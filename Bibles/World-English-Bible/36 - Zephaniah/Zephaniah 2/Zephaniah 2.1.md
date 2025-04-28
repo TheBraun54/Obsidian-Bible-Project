@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gather yourselves together, yea, gather together, O nation that hath no shame;
+Gather yourselves together, yes, gather together, you nation that has no shame,

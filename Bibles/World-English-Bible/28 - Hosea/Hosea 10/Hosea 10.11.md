@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ephraim is a heifer that is taught, that loveth to tread out [the grain] ; but I have passed over upon her fair neck: I will set a rider on Ephraim; Judah shall plow, Jacob shall break his clods.
+Ephraim is a trained heifer that loves to thresh; so I will put a yoke on her beautiful neck. I will set a rider on Ephraim. Judah will plow. Jacob will break his clods.

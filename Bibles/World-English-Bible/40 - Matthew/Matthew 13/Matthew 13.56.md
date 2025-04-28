@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his sisters, are they not all with us? Whence then hath this man all these things?
+Aren't all of his sisters with us? Where then did this man get all of these things?"

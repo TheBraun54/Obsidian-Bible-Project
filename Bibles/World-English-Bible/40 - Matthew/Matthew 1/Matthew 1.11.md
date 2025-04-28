@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Josiah begat Jechoniah and his brethren, at the time of the carrying away to Babylon.
+Josiah became the father of Jechoniah and his brothers, at the time of the exile to Babylon.

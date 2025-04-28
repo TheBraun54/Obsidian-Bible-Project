@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the spirit of the ruler rise up against thee, leave not thy place; for gentleness allayeth great offences.
+If the spirit of the ruler rises up against you, don't leave your place; for gentleness lays great offenses to rest.

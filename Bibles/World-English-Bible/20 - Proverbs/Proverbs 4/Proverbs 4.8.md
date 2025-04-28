@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Exalt her, and she will promote thee; She will bring thee to honor, when thou dost embrace her.
+Esteem her, and she will exalt you. She will bring you to honor, when you embrace her.

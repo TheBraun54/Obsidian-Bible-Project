@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his father Zacharias was filled with the Holy Spirit, and prophesied, saying,
+His father, Zacharias, was filled with the Holy Spirit, and prophesied, saying,

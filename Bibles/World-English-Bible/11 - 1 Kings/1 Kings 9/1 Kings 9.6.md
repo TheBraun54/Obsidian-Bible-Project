@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye shall turn away from following me, ye or your children, and not keep my commandments and my statutes which I have set before you, but shall go and serve other gods, and worship them;
+But if you turn away from following me, you or your children, and not keep my commandments and my statutes which I have set before you, but shall go and serve other gods, and worship them;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Nahshon begat Salma, and Salma begat Boaz,
+and Nahshon became the father of Salma, and Salma became the father of Boaz,

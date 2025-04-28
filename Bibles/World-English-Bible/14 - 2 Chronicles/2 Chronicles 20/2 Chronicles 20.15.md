@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, Hearken ye, all Judah, and ye inhabitants of Jerusalem, and thou king Jehoshaphat: Thus saith Jehovah unto you, Fear not ye, neither be dismayed by reason of this great multitude; for the battle is not yours, but God's.
+and he said, "Listen, all Judah, and you inhabitants of Jerusalem, and you king Jehoshaphat. Thus says Yahweh to you, 'Don't be afraid, neither be dismayed by reason of this great multitude; for the battle is not yours, but God's.

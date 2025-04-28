@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A worthless man deviseth mischief; And in his lips there is as a scorching fire.
+A worthless man devises mischief. His speech is like a scorching fire.

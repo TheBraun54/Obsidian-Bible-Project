@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people brake off the golden rings which were in their ears, and brought them unto Aaron.
+All the people took off the golden rings which were in their ears, and brought them to Aaron.

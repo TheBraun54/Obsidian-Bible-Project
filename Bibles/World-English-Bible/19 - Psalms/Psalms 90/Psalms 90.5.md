@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou carriest them away as with a flood; they are as a sleep: In the morning they are like grass which groweth up.
+You sweep them away as they sleep. In the morning they sprout like new grass.

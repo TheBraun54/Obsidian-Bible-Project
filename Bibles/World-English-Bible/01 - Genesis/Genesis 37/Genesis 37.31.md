@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took Joseph's coat, and killed a he-goat, and dipped the coat in the blood;
+They took Joseph's coat, and killed a male goat, and dipped the coat in the blood.

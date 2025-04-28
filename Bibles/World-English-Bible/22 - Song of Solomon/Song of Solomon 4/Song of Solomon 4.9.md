@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast ravished my heart, my sister, [my] bride; Thou hast ravished my heart with one of thine eyes, With one chain of thy neck.
+You have ravished my heart, my sister, my bride. You have ravished my heart with one of your eyes, with one chain of your neck.

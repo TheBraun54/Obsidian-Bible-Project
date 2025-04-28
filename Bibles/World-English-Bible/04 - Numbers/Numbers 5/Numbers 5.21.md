@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall cause the woman to swear with the oath of cursing, and the priest shall say unto the woman, Jehovah make thee a curse and an oath among thy people, when Jehovah doth make thy thigh to fall away, and thy body to swell;
+then the priest shall cause the woman to swear with the oath of cursing, and the priest shall tell the woman, "Yahweh make you a curse and an oath among your people, when Yahweh allows your thigh to fall away, and your body to swell;

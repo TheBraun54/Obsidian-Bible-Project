@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they that sleep sleep in the night: and they that are drunken are drunken in the night.
+For those who sleep, sleep in the night, and those who are drunk are drunk in the night.

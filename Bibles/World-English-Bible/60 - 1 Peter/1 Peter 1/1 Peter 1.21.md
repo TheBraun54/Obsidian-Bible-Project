@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who through him are believers in God, that raised him from the dead, and gave him glory; so that your faith and hope might be in God.
+who through him are believers in God, who raised him from the dead, and gave him glory; so that your faith and hope might be in God.

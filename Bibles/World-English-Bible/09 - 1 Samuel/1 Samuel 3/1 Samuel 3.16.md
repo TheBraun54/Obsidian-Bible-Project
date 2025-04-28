@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Eli called Samuel, and said, Samuel, my son. And he said, Here am I.
+Then Eli called Samuel, and said, "Samuel, my son!" He said, "Here I am."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people answered and said, His blood [be] on us, and on our children.
+All the people answered, "May his blood be on us, and on our children!"

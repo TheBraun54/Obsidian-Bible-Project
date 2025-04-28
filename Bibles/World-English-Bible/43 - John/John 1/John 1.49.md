@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nathanael answered him, Rabbi, thou art the Son of God; thou art King of Israel.
+Nathanael answered him, "Rabbi, you are the Son of God! You are King of Israel!"

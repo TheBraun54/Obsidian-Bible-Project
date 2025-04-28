@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he drew nigh, he saw the city and wept over it,
+When he drew near, he saw the city and wept over it,

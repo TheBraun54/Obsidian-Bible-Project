@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall no strange god be in thee; Neither shalt thou worship any foreign god.
+There shall be no strange god in you, neither shall you worship any foreign god.

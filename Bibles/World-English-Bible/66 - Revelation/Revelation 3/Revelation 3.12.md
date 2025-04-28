@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that overcometh, I will make him a pillar in the temple of my God, and he shall go out thence no more: and I will write upon him the name of my God, and the name of the city of my God, the new Jerusalem, which cometh down out of heaven from my God, and mine own new name.
+He who overcomes, I will make him a pillar in the temple of my God, and he will go out from there no more. I will write on him the name of my God, and the name of the city of my God, the new Jerusalem, which comes down out of heaven from my God, and my own new name.

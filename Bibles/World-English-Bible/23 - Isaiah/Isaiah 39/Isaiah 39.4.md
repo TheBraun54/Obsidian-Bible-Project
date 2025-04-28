@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he, What have they seen in thy house? And Hezekiah answered, All that is in my house have they seen: there is nothing among my treasures that I have not showed them.
+Then he asked, "What have they seen in your house?" Hezekiah answered, "They have seen all that is in my house. There is nothing among my treasures that I have not shown them."

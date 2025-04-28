@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jehovah said unto me in the days of Josiah the king, Hast thou seen that which backsliding Israel hath done? she is gone up upon every high mountain and under every green tree, and there hath played the harlot.
+Moreover, Yahweh said to me in the days of Josiah the king, "Have you seen that which backsliding Israel has done? She has gone up on every high mountain and under every green tree, and there has played the prostitute.

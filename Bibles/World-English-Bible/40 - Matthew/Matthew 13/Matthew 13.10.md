@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples came, and said unto him, Why speakest thou unto them in parables?
+The disciples came, and said to him, "Why do you speak to them in parables?"

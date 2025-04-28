@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came a poor widow, and she cast in two mites, which make a farthing.
+A poor widow came, and she cast in two small brass coins, which equal a quadrans coin.

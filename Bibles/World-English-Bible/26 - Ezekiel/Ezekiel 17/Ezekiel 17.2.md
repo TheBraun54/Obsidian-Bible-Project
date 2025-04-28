@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, put forth a riddle, and speak a parable unto the house of Israel;
+Son of man, put forth a riddle, and speak a parable to the house of Israel;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Desire not the night, When peoples are cut off in their place.
+Don't desire the night, when people are cut off in their place.

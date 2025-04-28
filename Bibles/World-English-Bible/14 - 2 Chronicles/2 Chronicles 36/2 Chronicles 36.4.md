@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Egypt made Eliakim his brother king over Judah and Jerusalem, and changed his name to Jehoiakim. And Neco took Joahaz his brother, and carried him to Egypt.
+The king of Egypt made Eliakim his brother king over Judah and Jerusalem, and changed his name to Jehoiakim. Neco took Joahaz his brother, and carried him to Egypt.

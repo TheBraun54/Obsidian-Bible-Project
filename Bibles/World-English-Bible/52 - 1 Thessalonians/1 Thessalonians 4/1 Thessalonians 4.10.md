@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for indeed ye do it toward all the brethren that are in all Macedonia. But we exhort you, brethren, that ye abound more and more;
+for indeed you do it toward all the brothers who are in all Macedonia. But we exhort you, brothers, that you abound more and more;

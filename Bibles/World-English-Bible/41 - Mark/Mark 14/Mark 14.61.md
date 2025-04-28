@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he held his peace, and answered nothing. Again the high priest asked him, and saith unto him, Art thou the Christ, the Son of the Blessed?
+But he stayed quiet, and answered nothing. Again the high priest asked him, "Are you the Christ, the Son of the Blessed?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your spoil shall be gathered as the caterpillar gathereth: as locusts leap shall men leap upon it.
+Your spoil will be gathered as the caterpillar gathers. Men will leap on it as locusts leap.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Eber were born two sons: the name of the one was Peleg; for in his days was the earth divided; and his brother's name was Joktan.
+To Eber were born two sons. The name of the one was Peleg, for in his days the earth was divided. His brother's name was Joktan.

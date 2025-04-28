@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt give the money, wherewith the odd number of them is redeemed, unto Aaron and to his sons.
+and you shall give the money, with which the remainder of them is redeemed, to Aaron and to his sons."

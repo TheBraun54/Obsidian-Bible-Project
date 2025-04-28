@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I fast twice in the week; I give tithes of all that I get.
+I fast twice a week. I give tithes of all that I get.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but hast done evil above all that were before thee, and hast gone and made thee other gods, and molten images, to provoke me to anger, and hast cast me behind thy back:
+but have done evil above all who were before you, and have gone and made you other gods, and molten images, to provoke me to anger, and have cast me behind your back:

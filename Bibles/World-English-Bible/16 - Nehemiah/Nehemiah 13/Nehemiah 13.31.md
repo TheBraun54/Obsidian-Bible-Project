@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for the wood-offering, at times appointed, and for the first-fruits. Remember me, O my God, for good.
+and for the wood offering, at times appointed, and for the first fruits. Remember me, my God, for good.

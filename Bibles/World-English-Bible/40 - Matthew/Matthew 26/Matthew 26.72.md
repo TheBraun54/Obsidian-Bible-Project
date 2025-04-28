@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he denied with an oath, I know not the man.
+Again he denied it with an oath, "I don't know the man."

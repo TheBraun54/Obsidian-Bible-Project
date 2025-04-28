@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if a priest's daughter be a widow, or divorced, and have no child, and be returned unto her father's house, as in her youth, she shall eat of her father's bread: but there shall no stranger eat thereof.
+But if a priest's daughter is a widow, or divorced, and has no child, and has returned to her father's house, as in her youth, she may eat of her father's bread: but no stranger shall eat any of it.

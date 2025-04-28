@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he also shall drink of the wine of the wrath of God, which is prepared unmixed in the cup of his anger; and he shall be tormented with fire and brimstone in the presence of the holy angels, and in the presence of the Lamb:
+he also will drink of the wine of the wrath of God, which is prepared unmixed in the cup of his anger. He will be tormented with fire and sulfur in the presence of the holy angels, and in the presence of the Lamb.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Him] that removeth the mountains, and they know it not, When he overturneth them in his anger;
+He removes the mountains, and they don't know it, when he overturns them in his anger.

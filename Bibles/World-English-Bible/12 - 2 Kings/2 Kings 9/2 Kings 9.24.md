@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehu drew his bow with his full strength, and smote Joram between his arms; and the arrow went out at his heart, and he sunk down in his chariot.
+Jehu drew his bow with his full strength, and struck Joram between his arms; and the arrow went out at his heart, and he sunk down in his chariot.

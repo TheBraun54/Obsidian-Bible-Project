@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if we have become united with [him] in the likeness of his death, we shall be also [in the likeness] of his resurrection;
+For if we have become united with him in the likeness of his death, we will also be part of his resurrection;

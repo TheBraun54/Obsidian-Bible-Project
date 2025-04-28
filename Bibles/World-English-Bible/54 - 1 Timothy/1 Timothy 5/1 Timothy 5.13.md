@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And withal they learn also [to be] idle, going about from house to house; and not only idle, but tattlers also and busybodies, speaking things which they ought not.
+Besides, they also learn to be idle, going about from house to house. Not only idle, but also gossips and busybodies, saying things which they ought not.

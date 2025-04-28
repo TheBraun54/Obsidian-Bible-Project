@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, one came to him and said, Teacher, what good thing shall I do, that I may have eternal life?
+Behold, one came to him and said, "Good teacher, what good thing shall I do, that I may have eternal life?"

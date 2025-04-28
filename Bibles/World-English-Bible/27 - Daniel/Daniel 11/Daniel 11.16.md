@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that cometh against him shall do according to his own will, and none shall stand before him; and he shall stand in the glorious land, and in his hand shall be destruction.
+But he who comes against him shall do according to his own will, and none shall stand before him; and he shall stand in the glorious land, and in his hand shall be destruction.

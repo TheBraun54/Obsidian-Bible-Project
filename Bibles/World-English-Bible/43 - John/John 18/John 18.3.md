@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judas then, having received the band [of soldiers], and officers from the chief priests and the Pharisees, cometh thither with lanterns and torches and weapons.
+Judas then, having taken a detachment of soldiers and officers from the chief priests and the Pharisees, came there with lanterns, torches, and weapons.

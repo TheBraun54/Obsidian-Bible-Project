@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take up from the meal-offering the memorial thereof, and shall burn it upon the altar, an offering made by fire, of a sweet savor unto Jehovah.
+The priest shall take from the meal offering its memorial, and shall burn it on the altar, an offering made by fire, of a pleasant aroma to Yahweh.

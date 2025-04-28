@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou visitest the earth, and waterest it, Thou greatly enrichest it; The river of God is full of water: Thou providest them grain, when thou hast so prepared the earth. [
+You visit the earth, and water it. You greatly enrich it. The river of God is full of water. You provide them grain, for so you have ordained it.

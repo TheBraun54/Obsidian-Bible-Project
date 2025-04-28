@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I was hungry, and ye did not give me to eat; I was thirsty, and ye gave me no drink;
+for I was hungry, and you didn't give me food to eat; I was thirsty, and you gave me no drink;

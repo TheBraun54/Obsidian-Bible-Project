@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of the Kenite, Moses' brother-in-law, went up out of the city of palm-trees with the children of Judah into the wilderness of Judah, which is in the south of Arad; and they went and dwelt with the people.
+The children of the Kenite, Moses' brother-in-law, went up out of the city of palm trees with the children of Judah into the wilderness of Judah, which is in the south of Arad; and they went and lived with the people.

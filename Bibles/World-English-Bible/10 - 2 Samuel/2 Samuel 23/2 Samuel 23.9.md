@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him was Eleazar the son of Dodai the son of an Ahohite, one of the three mighty men with David, when they defied the Philistines that were there gathered together to battle, and the men of Israel were gone away.
+After him was Eleazar the son of Dodai the son of an Ahohite, one of the three mighty men with David, when they defied the Philistines who were there gathered together to battle, and the men of Israel were gone away.

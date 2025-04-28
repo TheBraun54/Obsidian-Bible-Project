@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus God hath taken away the cattle of your father, and given them to me.
+Thus God has taken away your father's livestock, and given them to me.

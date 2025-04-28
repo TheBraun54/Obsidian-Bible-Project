@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall leave your name for a curse unto my chosen; and the Lord Jehovah will slay thee; and he will call his servants by another name:
+You shall leave your name for a curse to my chosen; and the Lord Yahweh will kill you; and he will call his servants by another name:

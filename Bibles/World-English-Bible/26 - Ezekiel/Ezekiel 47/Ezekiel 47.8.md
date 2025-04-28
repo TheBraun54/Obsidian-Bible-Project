@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, These waters issue forth toward the eastern region, and shall go down into the Arabah; and they shall go toward the sea; into the sea [shall the waters go] which were made to issue forth; and the waters shall be healed.
+Then he said to me, These waters issue forth toward the eastern region, and shall go down into the Arabah; and they shall go toward the sea; into the sea [shall the waters go] which were made to issue forth; and the waters shall be healed.

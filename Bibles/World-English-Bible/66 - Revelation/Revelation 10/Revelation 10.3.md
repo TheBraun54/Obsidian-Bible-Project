@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he cried with a great voice, as a lion roareth: and when he cried, the seven thunders uttered their voices.
+He cried with a loud voice, as a lion roars. When he cried, the seven thunders uttered their voices.

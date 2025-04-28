@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab said unto Obadiah, Go through the land, unto all the fountains of water, and unto all the brooks: peradventure we may find grass and save the horses and mules alive, that we lose not all the beasts.
+Ahab said to Obadiah, "Go through the land, to all the springs of water, and to all the brooks. Perhaps we may find grass and save the horses and mules alive, that we not lose all the animals."

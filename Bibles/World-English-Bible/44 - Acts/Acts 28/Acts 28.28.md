@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be it known therefore unto you, that this salvation of God is sent unto the Gentiles: they will also hear.
+"Be it known therefore to you, that the salvation of God is sent to the nations. They will also listen."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou lovest all devouring words, O thou deceitful tongue.
+You love all devouring words, you deceitful tongue.

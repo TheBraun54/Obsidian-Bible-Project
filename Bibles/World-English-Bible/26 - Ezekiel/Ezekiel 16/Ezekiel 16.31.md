@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in that thou buildest thy vaulted place at the head of every way, and makest thy lofty place in every street, and hast not been as a harlot, in that thou scornest hire.
+in that you build your vaulted place at the head of every way, and make your lofty place in every street, and have not been as a prostitute, in that you scorn pay.

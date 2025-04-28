@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I bought men-servants and maid-servants, and had servants born in my house; also I had great possessions of herds and flocks, above all that were before me in Jerusalem;
+I bought male servants and female servants, and had servants born in my house. I also had great possessions of herds and flocks, above all who were before me in Jerusalem;

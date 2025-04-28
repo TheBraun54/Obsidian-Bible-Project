@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Meats for the belly, and the belly for meats: but God shall bring to nought both it and them. But the body is not for fornication, but for the Lord; and the Lord for the body:
+"Foods for the belly, and the belly for foods," but God will bring to nothing both it and them. But the body is not for sexual immorality, but for the Lord; and the Lord for the body.

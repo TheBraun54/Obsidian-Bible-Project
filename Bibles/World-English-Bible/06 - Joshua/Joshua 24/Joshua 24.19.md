@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto the people, Ye cannot serve Jehovah; for he is a holy God; he is a jealous God; he will not forgive your transgression nor your sins.
+Joshua said to the people, "You can't serve Yahweh; for he is a holy God. He is a jealous God. He will not forgive your disobedience nor your sins.

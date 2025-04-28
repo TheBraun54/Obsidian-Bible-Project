@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked is thrust down in his evil-doing; But the righteous hath a refuge in his death.
+The wicked is brought down in his calamity, but in death, the righteous has a refuge.

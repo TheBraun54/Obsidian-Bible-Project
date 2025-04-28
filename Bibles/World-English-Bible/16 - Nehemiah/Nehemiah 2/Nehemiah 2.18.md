@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I told them of the hand of my God which was good upon me, as also of the king's words that he had spoken unto me. And they said, Let us rise up and build. So they strengthened their hands for the good [work] .
+I told them of the hand of my God which was good on me, as also of the king's words that he had spoken to me. They said, "Let's rise up and build." So they strengthened their hands for the good work.

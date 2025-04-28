@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The beams of our house are cedars, [And] our rafters are firs.
+The beams of our house are cedars. Our rafters are firs. Beloved

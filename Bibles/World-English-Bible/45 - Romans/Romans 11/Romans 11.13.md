@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I speak to you that are Gentiles. Inasmuch then as I am an apostle of Gentiles, I glorify my ministry;
+For I speak to you who are Gentiles. Since then as I am an apostle to Gentiles, I glorify my ministry;

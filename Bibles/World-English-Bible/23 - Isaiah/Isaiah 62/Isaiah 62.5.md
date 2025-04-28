@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as a young man marrieth a virgin, so shall thy sons marry thee; and as the bridegroom rejoiceth over the bride, so shall thy God rejoice over thee.
+For as a young man marries a virgin, so your sons shall marry you; and as the bridegroom rejoices over the bride, so your God will rejoice over you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that upon the Gentiles might come the blessing of Abraham in Christ Jesus; that we might receive the promise of the Spirit through faith.
+that the blessing of Abraham might come on the Gentiles through Christ Jesus; that we might receive the promise of the Spirit through faith.

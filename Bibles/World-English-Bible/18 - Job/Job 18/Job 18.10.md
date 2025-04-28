@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A noose is hid for him in the ground, And a trap for him in the way.
+A noose is hidden for him in the ground, a trap for him in the way.

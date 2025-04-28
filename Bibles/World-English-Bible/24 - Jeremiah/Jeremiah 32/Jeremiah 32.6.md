@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeremiah said, The word of Jehovah came unto me, saying,
+Jeremiah said, The word of Yahweh came to me, saying,

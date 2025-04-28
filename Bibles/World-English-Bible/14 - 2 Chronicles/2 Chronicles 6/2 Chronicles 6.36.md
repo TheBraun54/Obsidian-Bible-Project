@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If they sin against thee (for there is no man that sinneth not), and thou be angry with them, and deliver them to the enemy, so that they carry them away captive unto a land far off or near; [
+"If they sin against you (for there is no man who doesn't sin), and you are angry with them, and deliver them to the enemy, so that they carry them away captive to a land far off or near;

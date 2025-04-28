@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forgive, I pray thee, the trespass of thy handmaid: for Jehovah will certainly make my lord a sure house, because my lord fighteth the battles of Jehovah; and evil shall not be found in thee all thy days.
+Please forgive the trespass of your handmaid. For Yahweh will certainly make my lord a sure house, because my lord fights the battles of Yahweh; and evil shall not be found in you all your days.

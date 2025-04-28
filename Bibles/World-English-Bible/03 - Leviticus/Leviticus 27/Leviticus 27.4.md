@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be a female, then thy estimation shall be thirty shekels.
+If it is a female, then your valuation shall be thirty shekels.

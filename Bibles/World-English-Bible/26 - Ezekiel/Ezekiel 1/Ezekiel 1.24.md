@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they went, I heard the noise of their wings like the noise of great waters, like the voice of the Almighty, a noise of tumult like the noise of a host: when they stood, they let down their wings.
+When they went, I heard the noise of their wings like the noise of great waters, like the voice of the Almighty, a noise of tumult like the noise of an army: when they stood, they let down their wings.

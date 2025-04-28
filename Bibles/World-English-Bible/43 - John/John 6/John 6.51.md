@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the living bread which came down out of heaven: if any man eat of this bread, he shall live for ever: yea and the bread which I will give is my flesh, for the life of the world.
+I am the living bread which came down out of heaven. If anyone eats of this bread, he will live forever. Yes, the bread which I will give for the life of the world is my flesh."

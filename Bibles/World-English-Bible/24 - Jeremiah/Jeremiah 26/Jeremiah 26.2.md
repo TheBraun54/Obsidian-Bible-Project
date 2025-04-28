@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: Stand in the court of Jehovah's house, and speak unto all the cities of Judah, which come to worship in Jehovah's house, all the words that I command thee to speak unto them; diminish not a word.
+Thus says Yahweh: Stand in the court of Yahweh's house, and speak to all the cities of Judah, which come to worship in Yahweh's house, all the words that I command you to speak to them; don't diminish a word.

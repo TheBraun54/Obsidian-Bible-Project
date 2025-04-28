@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border of Og king of Bashan, of the remnant of the Rephaim, who dwelt at Ashtaroth and at Edrei,
+and the border of Og king of Bashan, of the remnant of the Rephaim, who lived at Ashtaroth and at Edrei,

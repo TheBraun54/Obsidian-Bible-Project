@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the waters returned from off the earth continually: and after the end of a hundred and fifty days the waters decreased.
+The waters receded from the earth continually. After the end of one hundred fifty days the waters decreased.

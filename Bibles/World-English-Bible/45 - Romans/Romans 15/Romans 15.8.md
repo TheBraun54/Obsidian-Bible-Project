@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I say that Christ hath been made a minister of the circumcision for the truth of God, that he might confirm the promises [given] unto the fathers,
+Now I say that Christ has been made a servant of the circumcision for the truth of God, that he might confirm the promises given to the fathers,

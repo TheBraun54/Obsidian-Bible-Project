@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be glad in Jehovah, and rejoice, ye righteous; And shout for joy, all ye that are upright in heart.
+Be glad in Yahweh, and rejoice, you righteous! Shout for joy, all you who are upright in heart!

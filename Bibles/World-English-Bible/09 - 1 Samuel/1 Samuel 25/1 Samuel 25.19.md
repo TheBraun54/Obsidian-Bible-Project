@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto her young men, Go on before me; behold, I come after you. But she told not her husband Nabal.
+She said to her young men, "Go on before me. Behold, I come after you." But she didn't tell her husband, Nabal.

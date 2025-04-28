@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I also have given you cleanness of teeth in all your cities, and want of bread in all your places; yet have ye not returned unto me, saith Jehovah.
+"I also have given you cleanness of teeth in all your cities, and lack of bread in every town; yet you haven't returned to me," says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were many lights in the upper chamber where we were gathered together.
+There were many lights in the upper room where we were gathered together.

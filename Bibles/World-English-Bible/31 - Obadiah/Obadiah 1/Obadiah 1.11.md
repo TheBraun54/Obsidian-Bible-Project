@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the day that thou stoodest on the other side, in the day that strangers carried away his substance, and foreigners entered into his gates, and cast lots upon Jerusalem, even thou wast as one of them.
+In the day that you stood on the other side, in the day that strangers carried away his substance, and foreigners entered into his gates, and cast lots for Jerusalem, even you were like one of them.

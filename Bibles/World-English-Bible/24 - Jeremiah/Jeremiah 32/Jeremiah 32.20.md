@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who didst set signs and wonders in the land of Egypt, even unto this day, both in Israel and among [other] men; and madest thee a name, as at this day;
+who performed signs and wonders in the land of Egypt, even to this day, both in Israel and among [other] men; and made yourself a name, as in this day;

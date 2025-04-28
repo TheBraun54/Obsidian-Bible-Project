@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, that ye shall weep and lament, but the world shall rejoice: ye shall be sorrowful, but your sorrow shall be turned into joy.
+Most certainly I tell you, that you will weep and lament, but the world will rejoice. You will be sorrowful, but your sorrow will be turned into joy.

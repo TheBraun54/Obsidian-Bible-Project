@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Azgad, a thousand two hundred twenty and two.
+The children of Azgad, one thousand two hundred twenty-two.

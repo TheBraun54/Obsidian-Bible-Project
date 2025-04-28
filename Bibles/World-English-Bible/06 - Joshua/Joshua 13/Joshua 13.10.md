@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the cities of Sihon king of the Amorites, who reigned in Heshbon, unto the border of the children of Ammon;
+and all the cities of Sihon king of the Amorites, who reigned in Heshbon, to the border of the children of Ammon;

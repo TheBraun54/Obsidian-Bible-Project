@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be it known unto you therefore, brethren, that through this man is proclaimed unto you remission of sins:
+Be it known to you therefore, brothers, that through this man is proclaimed to you remission of sins,

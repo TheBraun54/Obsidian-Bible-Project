@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let not your heart faint, neither fear ye for the tidings that shall be heard in the land; for tidings shall come one year, and after that in another year [shall come] tidings, and violence in the land, ruler against ruler.
+Don't let your heart faint, neither fear for the news that shall be heard in the land; for news shall come one year, and after that in another year [shall come] news, and violence in the land, ruler against ruler.

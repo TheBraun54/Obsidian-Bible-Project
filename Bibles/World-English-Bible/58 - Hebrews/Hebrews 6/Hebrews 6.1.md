@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore leaving the doctrine of the first principles of Christ, let us press on unto perfection; not laying again a foundation of repentance from dead works, and of faith toward God,
+Therefore leaving the teaching of the first principles of Christ, let us press on to perfection--not laying again a foundation of repentance from dead works, of faith toward God,

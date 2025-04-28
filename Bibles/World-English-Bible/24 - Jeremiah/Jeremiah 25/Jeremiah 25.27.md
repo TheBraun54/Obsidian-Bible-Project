@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say unto them, Thus saith Jehovah of hosts, the God of Israel: Drink ye, and be drunken, and spew, and fall, and rise no more, because of the sword which I will send among you.
+You shall tell them, Thus says Yahweh of Armies, the God of Israel: Drink, and be drunk, vomit, fall, and rise no more, because of the sword which I will send among you.

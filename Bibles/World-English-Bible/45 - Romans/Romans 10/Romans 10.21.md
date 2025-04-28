@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as to Israel he saith, All the day long did I spread out my hands unto a disobedient and gainsaying people.
+But as to Israel he says, "All day long I stretched out my hands to a disobedient and contrary people."

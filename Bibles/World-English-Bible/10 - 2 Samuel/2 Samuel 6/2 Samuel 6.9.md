@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David was afraid of Jehovah that day; and he said, How shall the ark of Jehovah come unto me?
+David was afraid of Yahweh that day; and he said, "How shall the ark of Yahweh come to me?"

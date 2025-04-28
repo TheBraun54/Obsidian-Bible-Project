@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our holy and our beautiful house, where our fathers praised thee, is burned with fire; and all our pleasant places are laid waste.
+Our holy and our beautiful house, where our fathers praised you, is burned with fire; and all our pleasant places are laid waste.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jeroboam the son of Nebat heard of it (for he was yet in Egypt, whither he had fled from the presence of king Solomon, and Jeroboam dwelt in Egypt,
+It happened, when Jeroboam the son of Nebat heard of it (for he was yet in Egypt, where he had fled from the presence of king Solomon, and Jeroboam lived in Egypt,

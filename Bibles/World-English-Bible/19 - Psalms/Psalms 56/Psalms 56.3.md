@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What time I am afraid, I will put my trust in thee.
+When I am afraid, I will put my trust in you.

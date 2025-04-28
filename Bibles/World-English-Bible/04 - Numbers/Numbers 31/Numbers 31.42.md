@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the children of Israel's half, which Moses divided off from the men that warred
+Of the children of Israel's half, which Moses divided off from the men who warred

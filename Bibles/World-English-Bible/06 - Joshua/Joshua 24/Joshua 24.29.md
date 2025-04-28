@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after these things, that Joshua the son of Nun, the servant of Jehovah, died, being a hundred and ten years old.
+It happened after these things, that Joshua the son of Nun, the servant of Yahweh, died, being one hundred and ten years old.

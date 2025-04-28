@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And other money have we brought down in our hand to buy food: we know not who put our money in our sacks.
+We have brought down other money in our hand to buy food. We don't know who put our money in our sacks."

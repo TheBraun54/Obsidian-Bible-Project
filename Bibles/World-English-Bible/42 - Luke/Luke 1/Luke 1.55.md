@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(As he spake unto our fathers) Toward Abraham and his seed for ever.
+As he spoke to our fathers, to Abraham and his seed forever."

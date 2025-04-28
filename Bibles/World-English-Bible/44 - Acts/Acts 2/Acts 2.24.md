@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom God raised up, having loosed the pangs of death: because it was not possible that he should be holden of it.
+whom God raised up, having freed him from the agony of death, because it was not possible that he should be held by it.

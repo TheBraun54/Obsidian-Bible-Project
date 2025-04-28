@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Herodias set herself against him, and desired to kill him; and she could not;
+Herodias set herself against him, and desired to kill him, but she couldn't,

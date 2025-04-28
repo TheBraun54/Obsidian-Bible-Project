@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou shalt go to thy fathers in peace; thou shalt be buried in a good old age.
+but you will go to your fathers in peace. You will be buried in a good old age.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham prayed unto God: and God healed Abimelech, and his wife, and his maid-servants; and they bare children.
+Abraham prayed to God. God healed Abimelech, and his wife, and his female servants, and they bore children.

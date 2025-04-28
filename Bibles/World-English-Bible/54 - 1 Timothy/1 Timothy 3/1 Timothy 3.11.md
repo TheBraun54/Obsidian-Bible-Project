@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Women in like manner [must be] grave, not slanderers, temperate, faithful in all things.
+Their wives in the same way must be reverent, not slanderers, temperate, faithful in all things.

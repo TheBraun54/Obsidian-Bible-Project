@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say unto God, How terrible are thy works! Through the greatness of thy power shall thine enemies submit themselves unto thee.
+Tell God, "How awesome are your deeds! Through the greatness of your power, your enemies submit themselves to you.

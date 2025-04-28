@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy tender mercies come unto me, that I may live; For thy law is my delight.
+Let your tender mercies come to me, that I may live; for your law is my delight.

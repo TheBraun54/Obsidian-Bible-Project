@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, What counsel give ye, that we may return answer to this people, who have spoken to me, saying, Make the yoke that thy father did put upon us lighter?
+He said to them, "What counsel do you give, that we may return answer to this people, who have spoken to me, saying, 'Make the yoke that your father did put on us lighter?'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with them, by their generations, after their fathers' houses, were bands of the host for war, six and thirty thousand; for they had many wives and sons.
+With them, by their generations, after their fathers' houses, were bands of the army for war, thirty-six thousand; for they had many wives and sons.

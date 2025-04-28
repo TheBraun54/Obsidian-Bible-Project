@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt give to the priests the Levites that are of the seed of Zadok, who are near unto me, to minister unto me, saith the Lord Jehovah, a young bullock for a sin-offering.
+You shall give to the priests the Levites who are of the seed of Zadok, who are near to me, to minister to me, says the Lord Yahweh, a young bull for a sin offering.

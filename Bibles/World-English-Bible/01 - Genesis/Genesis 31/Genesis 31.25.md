@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban came up with Jacob. Now Jacob had pitched his tent in the mountain: and Laban with his brethren encamped in the mountain of Gilead.
+Laban caught up with Jacob. Now Jacob had pitched his tent in the mountain, and Laban with his relatives encamped in the mountain of Gilead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto the sons of Kohath he gave none, because the service of the sanctuary belonged unto them; they bare it upon their shoulders.
+But to the sons of Kohath he gave none, because the service of the sanctuary belonged to them; they carried it on their shoulders.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they sent the coat of many colors, and they brought it to their father, and said, This have we found: know now whether it is thy son's coat or not.
+They took the coat of many colors, and they brought it to their father, and said, "We have found this. Examine it, now, whether it is your son's coat or not."

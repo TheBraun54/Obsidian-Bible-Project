@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The elders of the daughter of Zion sit upon the ground, they keep silence; They have cast up dust upon their heads; They have girded themselves with sackcloth: The virgins of Jerusalem hang down their heads to the ground.
+The elders of the daughter of Zion sit on the ground, they keep silence; They have cast up dust on their heads; they have clothed themselves with sackcloth: The virgins of Jerusalem hang down their heads to the ground.

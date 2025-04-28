@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beat your plowshares into swords, and your pruning-hooks into spears: let the weak say, I am strong.
+Beat your plowshares into swords, and your pruning hooks into spears. Let the weak say, 'I am strong.'

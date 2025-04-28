@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold what manner of love the Father hath bestowed upon us, that we should be called children of God; and [such] we are. For this cause the world knoweth us not, because it knew him not.
+Behold, how great a love the Father has bestowed on us, that we should be called children of God! For this cause the world doesn't know us, because it didn't know him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of Asaph]. O God, the nations are come into thine inheritance; Thy holy temple have they defiled; They have laid Jerusalem in heaps.
+God, the nations have come into your inheritance. They have defiled your holy temple. They have laid Jerusalem in heaps.

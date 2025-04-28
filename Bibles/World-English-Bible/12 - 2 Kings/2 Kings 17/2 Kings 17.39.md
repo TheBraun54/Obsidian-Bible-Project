@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Jehovah your God shall ye fear; and he will deliver you out of the hand of all your enemies.
+But you shall fear Yahweh your God; and he will deliver you out of the hand of all your enemies."

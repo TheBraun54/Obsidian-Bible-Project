@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will save you from all your uncleannesses: and I will call for the grain, and will multiply it, and lay no famine upon you.
+I will save you from all your uncleanness: and I will call for the grain, and will multiply it, and lay no famine on you.

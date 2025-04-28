@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the soul that toucheth any such shall be unclean until the even, and shall not eat of the holy things, unless he bathe his flesh in water.
+the person that touches any such shall be unclean until the evening, and shall not eat of the holy things, unless he bathe his body in water.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and led him to Annas first; for he was father in law to Caiaphas, who was high priest that year.
+and led him to Annas first, for he was father-in-law to Caiaphas, who was high priest that year.

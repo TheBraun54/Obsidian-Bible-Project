@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But should we say, From men--they feared the people: for all verily held John to be a prophet.
+If we should say, 'From men'"--they feared the people, for all held John to really be a prophet.

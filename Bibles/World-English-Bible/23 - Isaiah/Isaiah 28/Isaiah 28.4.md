@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the fading flower of his glorious beauty, which is on the head of the fat valley, shall be as the first-ripe fig before the summer; which when he that looketh upon it seeth, while it is yet in his hand he eateth it up.
+The fading flower of his glorious beauty, which is on the head of the fertile valley, shall be like the first-ripe fig before the summer; which someone picks and eats as soon as he sees it.

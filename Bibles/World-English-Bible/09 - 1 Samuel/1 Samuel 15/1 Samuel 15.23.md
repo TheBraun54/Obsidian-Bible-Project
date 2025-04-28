@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For rebellion is as the sin of witchcraft, and stubbornness is as idolatry and teraphim. Because thou hast rejected the word of Jehovah, he hath also rejected thee from being king.
+For rebellion is as the sin of witchcraft, and stubbornness is as idolatry and teraphim. Because you have rejected the word of Yahweh, he has also rejected you from being king."

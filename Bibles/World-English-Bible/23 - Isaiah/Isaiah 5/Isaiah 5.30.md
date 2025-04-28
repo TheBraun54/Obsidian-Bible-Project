@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall roar against them in that day like the roaring of the sea: and if one look unto the land, behold, darkness [and] distress; and the light is darkened in the clouds thereof.
+They will roar against them in that day like the roaring of the sea. If one looks to the land behold, darkness and distress. The light is darkened in its clouds.

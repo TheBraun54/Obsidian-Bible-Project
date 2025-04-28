@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eleazar the son of Aaron the priest shall be prince of the princes of the Levites, [and have] the oversight of them that keep the charge of the sanctuary.
+Eleazar the son of Aaron the priest shall be prince of the princes of the Levites, with the oversight of those who keep the requirements of the sanctuary.

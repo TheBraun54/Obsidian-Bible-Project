@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they went up, and spied out the land from the wilderness of Zin unto Rehob, to the entrance of Hamath.
+So they went up, and spied out the land from the wilderness of Zin to Rehob, to the entrance of Hamath.

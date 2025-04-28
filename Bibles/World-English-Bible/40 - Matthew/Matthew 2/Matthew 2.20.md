@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise and take the young child and his mother, and go into the land of Israel: for they are dead that sought the young child's life.
+"Arise and take the young child and his mother, and go into the land of Israel, for those who sought the young child's life are dead."

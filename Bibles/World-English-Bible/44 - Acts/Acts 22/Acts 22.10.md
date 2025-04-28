@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, What shall I do, Lord? And the Lord said unto me, Arise, and go into Damascus; and there it shall be told thee of all things which are appointed for thee to do.
+I said, 'What shall I do, Lord?' The Lord said to me, 'Arise, and go into Damascus. There you will be told about all things which are appointed for you to do.'

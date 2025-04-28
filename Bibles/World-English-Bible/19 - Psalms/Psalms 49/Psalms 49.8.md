@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(For the redemption of their life is costly, And it faileth for ever;)
+For the redemption of their life is costly, no payment is ever enough,

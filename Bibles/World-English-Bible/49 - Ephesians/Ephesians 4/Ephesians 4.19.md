@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who being past feeling gave themselves up to lasciviousness, to work all uncleanness with greediness.
+who having become callous gave themselves up to lust, to work all uncleanness with greediness.

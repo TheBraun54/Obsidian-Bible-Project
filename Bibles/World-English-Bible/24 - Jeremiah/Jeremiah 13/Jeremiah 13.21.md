@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What wilt thou say, when he shall set over thee as head those whom thou hast thyself taught to be friends to thee? shall not sorrows take hold of thee, as of a woman in travail?
+What will you say, when he shall set over you as head those whom you have yourself taught to be friends to you? shall not sorrows take hold of you, as of a woman in travail?

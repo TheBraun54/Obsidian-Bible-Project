@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, certain of the scribes said within themselves, This man blasphemeth.
+Behold, some of the scribes said to themselves, "This man blasphemes."

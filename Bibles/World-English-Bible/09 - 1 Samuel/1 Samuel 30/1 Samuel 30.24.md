@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And who will hearken unto you in this matter? for as his share is that goeth down to the battle, so shall his share be that tarrieth by the baggage: they shall share alike.
+Who will listen to you in this matter? For as his share is who goes down to the battle, so shall his share be who tarries by the baggage: they shall share alike."

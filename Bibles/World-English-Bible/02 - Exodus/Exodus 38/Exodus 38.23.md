@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with him was Oholiab, the son of Ahisamach, of the tribe of Dan, an engraver, and a skilful workman, and an embroiderer in blue, and in purple, and in scarlet, and in fine linen.
+With him was Oholiab, the son of Ahisamach, of the tribe of Dan, an engraver, and a skillful workman, and an embroiderer in blue, in purple, in scarlet, and in fine linen.

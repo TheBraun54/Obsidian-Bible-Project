@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and inquired not of Jehovah: therefore he slew him, and turned the kingdom unto David the son of Jesse.
+and didn't inquire of Yahweh: therefore he killed him, and turned the kingdom to David the son of Jesse.

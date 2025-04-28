@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Zebulun, such as were able to go out in the host, that could set the battle in array, with all manner of instruments of war, fifty thousand, and that could order [the battle array, and were] not of double heart.
+Of Zebulun, such as were able to go out in the army, who could set the battle in array, with all kinds of instruments of war, fifty thousand, and who could order [the battle array, and were] not of double heart.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saith unto him, Every man setteth on first the good wine; and when [men] have drunk freely, [then] that which is worse: thou hast kept the good wine until now.
+and said to him, "Everyone serves the good wine first, and when the guests have drunk freely, then that which is worse. You have kept the good wine until now!"

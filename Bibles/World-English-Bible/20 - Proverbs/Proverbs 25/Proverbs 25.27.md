@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is not good to eat much honey: So [for men] to search out their own glory is grievous.
+It is not good to eat much honey; nor is it honorable to seek one's own honor.

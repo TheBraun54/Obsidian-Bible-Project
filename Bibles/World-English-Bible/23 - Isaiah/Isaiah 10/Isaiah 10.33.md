@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the Lord, Jehovah of hosts, will lop the boughs with terror: and the high of stature shall be hewn down, and the lofty shall be brought low.
+Behold, the Lord, Yahweh of Armies, will lop the boughs with terror. The tall will be cut down, and the lofty will be brought low.

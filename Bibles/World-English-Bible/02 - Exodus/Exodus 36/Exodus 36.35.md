@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the veil of blue, and purple, and scarlet, and fine twined linen: with cherubim, the work of the skilful workman, made he it.
+He made the veil of blue, purple, scarlet, and fine twined linen: with cherubim. He made it the work of a skillful workman.

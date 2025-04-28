@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Mordecai the Jew was next unto king Ahasuerus, and great among the Jews, and accepted of the multitude of his brethren, seeking the good of his people, and speaking peace to all his seed.
+For Mordecai the Jew was next to King Ahasuerus, and great among the Jews, and accepted by the multitude of his brothers, seeking the good of his people, and speaking peace to all his descendants.

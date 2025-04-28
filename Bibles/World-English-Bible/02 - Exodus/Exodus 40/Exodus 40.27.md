@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he burnt thereon incense of sweet spices; as Jehovah commanded Moses.
+and he burnt incense of sweet spices on it, as Yahweh commanded Moses.

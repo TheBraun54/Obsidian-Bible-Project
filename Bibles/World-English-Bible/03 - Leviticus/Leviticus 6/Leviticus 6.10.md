@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall put on his linen garment, and his linen breeches shall he put upon his flesh; and he shall take up the ashes whereto the fire hath consumed the burnt-offering on the altar, and he shall put them beside the altar.
+The priest shall put on his linen garment, and he shall put on his linen breeches upon his body; and he shall remove the ashes from where the fire has consumed the burnt offering on the altar, and he shall put them beside the altar.

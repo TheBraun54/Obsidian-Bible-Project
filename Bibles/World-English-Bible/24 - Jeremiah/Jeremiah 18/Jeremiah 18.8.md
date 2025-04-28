@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if that nation, concerning which I have spoken, turn from their evil, I will repent of the evil that I thought to do unto them.
+if that nation, concerning which I have spoken, turn from their evil, I will repent of the evil that I thought to do to them.

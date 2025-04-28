@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, Though thou wast little in thine own sight, wast thou not made the head of the tribes of Israel? And Jehovah anointed thee king over Israel;
+Samuel said, "Though you were little in your own sight, weren't you made the head of the tribes of Israel? Yahweh anointed you king over Israel;

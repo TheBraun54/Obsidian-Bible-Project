@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the voice came, Jesus was found alone. And they held their peace, and told no man in those days any of the things which they had seen.
+When the voice came, Jesus was found alone. They were silent, and told no one in those days any of the things which they had seen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wise king winnoweth the wicked, And bringeth the [threshing] -wheel over them.
+A wise king winnows out the wicked, and drives the threshing wheel over them.

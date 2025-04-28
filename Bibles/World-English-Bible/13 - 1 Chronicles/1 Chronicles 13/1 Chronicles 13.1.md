@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David consulted with the captains of thousands and of hundreds, even with every leader.
+David consulted with the captains of thousands and of hundreds, even with every leader.

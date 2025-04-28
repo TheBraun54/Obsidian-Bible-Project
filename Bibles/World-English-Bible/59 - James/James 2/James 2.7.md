@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do not they blaspheme the honorable name by which ye are called?
+Don't they blaspheme the honorable name by which you are called?

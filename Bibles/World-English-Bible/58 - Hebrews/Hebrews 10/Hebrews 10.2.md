@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Else would they not have ceased to be offered? because the worshippers, having been once cleansed, would have had no more consciousness of sins.
+Or else wouldn't they have ceased to be offered, because the worshippers, having been once cleansed, would have had no more consciousness of sins?

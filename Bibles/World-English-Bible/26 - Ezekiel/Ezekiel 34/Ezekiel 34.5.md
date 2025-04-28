@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were scattered, because there was no shepherd; and they became food to all the beasts of the field, and were scattered.
+They were scattered, because there was no shepherd; and they became food to all the animals of the field, and were scattered.

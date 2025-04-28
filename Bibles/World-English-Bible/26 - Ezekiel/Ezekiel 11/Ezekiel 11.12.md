@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall know that I am Jehovah: for ye have not walked in my statutes, neither have ye executed mine ordinances, but have done after the ordinances of the nations that are round about you.
+and you shall know that I am Yahweh: for you have not walked in my statutes, neither have you executed my ordinances, but have done after the ordinances of the nations that are around you.

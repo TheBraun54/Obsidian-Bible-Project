@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He weakened my strength in the way; He shortened my days.
+He weakened my strength along the course. He shortened my days.

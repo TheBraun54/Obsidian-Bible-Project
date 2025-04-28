@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sprinkled thereof upon the altar seven times, and anointed the altar and all its vessels, and the laver and its base, to sanctify them.
+He sprinkled it on the altar seven times, and anointed the altar and all its vessels, and the basin and its base, to sanctify them.

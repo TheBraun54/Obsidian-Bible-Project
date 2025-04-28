@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he fortified the strongholds, and put captains in them, and stores of victuals, and oil and wine.
+He fortified the strongholds, and put captains in them, and stores of food, and oil and wine.

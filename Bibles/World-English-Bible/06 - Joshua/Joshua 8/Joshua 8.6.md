@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they will come out after us, till we have drawn them away from the city; for they will say, They flee before us, as at the first: so we will flee before them;
+They will come out after us, until we have drawn them away from the city; for they will say, 'They flee before us, like the first time.' So we will flee before them,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after the seven days, that the waters of the flood were upon the earth.
+It happened after the seven days, that the waters of the flood came on the earth.

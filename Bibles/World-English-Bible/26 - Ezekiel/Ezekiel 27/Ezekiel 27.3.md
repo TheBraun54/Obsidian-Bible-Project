@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say unto Tyre, O thou that dwellest at the entry of the sea, that art the merchant of the peoples unto many isles, thus saith the Lord Jehovah: Thou, O Tyre, hast said, I am perfect in beauty.
+and tell Tyre, you who dwell at the entry of the sea, who are the merchant of the peoples to many islands, thus says the Lord Yahweh: You, Tyre, have said, I am perfect in beauty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Obey them that have the rule over you, and submit [to them] : for they watch in behalf of your souls, as they that shall give account; that they may do this with joy, and not with grief: for this [were] unprofitable for you.
+Obey your leaders and submit to them, for they watch on behalf of your souls, as those who will give account, that they may do this with joy, and not with groaning, for that would be unprofitable for you.

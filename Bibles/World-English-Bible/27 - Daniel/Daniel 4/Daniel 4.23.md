@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whereas the king saw a watcher and a holy one coming down from heaven, and saying, Hew down the tree, and destroy it; nevertheless leave the stump of the roots thereof in the earth, even with a band of iron and brass, in the tender grass of the field, and let it be wet with the dew of heaven: and let his portion be with the beasts of the field, till seven times pass over him;
+Whereas the king saw a watcher and a holy one coming down from the sky, and saying, Cut down the tree, and destroy it; nevertheless leave the stump of its roots in the earth, even with a band of iron and brass, in the tender grass of the field, and let it be wet with the dew of the sky: and let his portion be with the animals of the field, until seven times pass over him;

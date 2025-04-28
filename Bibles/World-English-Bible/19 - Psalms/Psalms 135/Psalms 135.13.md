@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy name, O Jehovah, [endureth] for ever; Thy memorial [name], O Jehovah, throughout all generations.
+Your name, Yahweh, endures forever; your renown, Yahweh, throughout all generations.

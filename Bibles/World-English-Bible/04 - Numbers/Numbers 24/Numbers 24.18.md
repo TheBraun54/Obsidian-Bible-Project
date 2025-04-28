@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Edom shall be a possession, Seir also shall be a possession, [who were] his enemies; While Israel doeth valiantly.
+Edom shall be a possession. Seir, his enemies, also shall be a possession, while Israel does valiantly.

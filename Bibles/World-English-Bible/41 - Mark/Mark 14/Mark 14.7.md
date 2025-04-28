@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye have the poor always with you, and whensoever ye will ye can do them good: but me ye have not always.
+For you always have the poor with you, and whenever you want to, you can do them good; but you will not always have me.

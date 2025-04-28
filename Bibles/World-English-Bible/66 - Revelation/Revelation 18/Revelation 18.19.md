@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cast dust on their heads, and cried, weeping and mourning, saying, Woe, woe, the great city, wherein all that had their ships in the sea were made rich by reason of her costliness! for in one hour is she made desolate.
+They cast dust on their heads, and cried, weeping and mourning, saying, 'Woe, woe, the great city, in which all who had their ships in the sea were made rich by reason of her great wealth!' For in one hour is she made desolate.

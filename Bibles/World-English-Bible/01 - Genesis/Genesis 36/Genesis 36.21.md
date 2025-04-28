@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Dishon and Ezer and Dishan: these are the chiefs that came of the Horites, the children of Seir in the land of Edom.
+Dishon, Ezer, and Dishan. These are the chiefs who came of the Horites, the children of Seir in the land of Edom.

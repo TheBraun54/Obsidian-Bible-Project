@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But each in his own order: Christ the firstfruits; then they that are Christ's, at his coming.
+But each in his own order: Christ the first fruits, then those who are Christ's, at his coming.

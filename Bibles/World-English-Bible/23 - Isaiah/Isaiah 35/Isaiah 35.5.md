@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped.
+Then the eyes of the blind will be opened, and the ears of the deaf will be unstopped.

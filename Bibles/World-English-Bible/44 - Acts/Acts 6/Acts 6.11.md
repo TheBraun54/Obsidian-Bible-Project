@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they suborned men, who said, We have heard him speak blasphemous words against Moses, and [against] God.
+Then they secretly induced men to say, "We have heard him speak blasphemous words against Moses and God."

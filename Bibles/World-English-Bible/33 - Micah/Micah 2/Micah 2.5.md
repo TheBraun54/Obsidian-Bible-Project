@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thou shalt have none that shall cast the line by lot in the assembly of Jehovah.
+Therefore you will have no one who divides the land by lot in the assembly of Yahweh.

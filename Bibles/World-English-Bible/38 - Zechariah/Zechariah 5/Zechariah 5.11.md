@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, To build her a house in the land of Shinar: and when it is prepared, she shall be set there in her own place.
+He said to me, "To build her a house in the land of Shinar. When it is prepared, she will be set there in her own place."

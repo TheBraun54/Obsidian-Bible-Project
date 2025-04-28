@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou saidst, I will surely do thee good, and make thy seed as the sand of the sea, which cannot be numbered for multitude.
+You said, 'I will surely do you good, and make your seed as the sand of the sea, which can't be numbered because there are so many.'"

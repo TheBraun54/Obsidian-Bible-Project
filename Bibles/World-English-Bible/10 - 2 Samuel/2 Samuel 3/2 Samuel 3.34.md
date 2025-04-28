@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy hands were not bound, nor thy feet put into fetters: As a man falleth before the children of iniquity, so didst thou fall. And all the people wept again over him.
+Your hands were not bound, nor your feet put into fetters. As a man falls before the children of iniquity, so you fell." All the people wept again over him.

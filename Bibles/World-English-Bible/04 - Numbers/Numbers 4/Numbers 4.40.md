@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even those that were numbered of them, by their families, by their fathers' houses, were two thousand and six hundred and thirty.
+even those who were numbered of them, by their families, by their fathers' houses, were two thousand six hundred thirty.

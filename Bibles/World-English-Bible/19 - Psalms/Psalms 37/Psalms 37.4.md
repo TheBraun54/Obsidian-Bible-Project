@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Delight thyself also in Jehovah; And he will give thee the desires of thy heart.
+Also delight yourself in Yahweh, and he will give you the desires of your heart.

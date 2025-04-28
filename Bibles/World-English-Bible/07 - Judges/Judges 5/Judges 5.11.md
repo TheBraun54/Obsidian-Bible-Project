@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Far from the noise of archers, in the places of drawing water, There shall they rehearse the righteous acts of Jehovah, [Even] the righteous acts of his rule in Israel. Then the people of Jehovah went down to the gates.
+Far from the noise of archers, in the places of drawing water, there they will rehearse the righteous acts of Yahweh, [Even] the righteous acts of his rule in Israel. "Then the people of Yahweh went down to the gates.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for the rest of the beasts, their dominion was taken away: yet their lives were prolonged for a season and a time.
+As for the rest of the animals, their dominion was taken away: yet their lives were prolonged for a season and a time.

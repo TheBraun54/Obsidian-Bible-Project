@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Aaron shall be gathered unto his people; for he shall not enter into the land which I have given unto the children of Israel, because ye rebelled against my word at the waters of Meribah.
+"Aaron shall be gathered to his people; for he shall not enter into the land which I have given to the children of Israel, because you rebelled against my word at the waters of Meribah.

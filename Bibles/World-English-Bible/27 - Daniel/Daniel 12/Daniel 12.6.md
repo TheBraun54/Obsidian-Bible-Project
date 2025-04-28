@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one said to the man clothed in linen, who was above the waters of the river, How long shall it be to the end of these wonders?
+One said to the man clothed in linen, who was above the waters of the river, How long shall it be to the end of these wonders?

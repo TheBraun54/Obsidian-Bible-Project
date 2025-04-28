@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [they of] Ephraim shall be like a mighty man, and their heart shall rejoice as through wine; yea, their children shall see it, and rejoice; their heart shall be glad in Jehovah.
+Ephraim will be like a mighty man, and their heart will rejoice as through wine; yes, their children will see it, and rejoice. Their heart will be glad in Yahweh.

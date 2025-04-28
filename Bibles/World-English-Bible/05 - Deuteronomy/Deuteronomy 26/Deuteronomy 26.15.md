@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look down from thy holy habitation, from heaven, and bless thy people Israel, and the ground which thou hast given us, as thou swarest unto our fathers, a land flowing with milk and honey.
+Look down from your holy habitation, from heaven, and bless your people Israel, and the ground which you have given us, as you swore to our fathers, a land flowing with milk and honey."

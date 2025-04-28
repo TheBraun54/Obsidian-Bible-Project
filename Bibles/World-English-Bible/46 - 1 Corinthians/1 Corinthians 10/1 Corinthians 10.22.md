@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or do we provoke the Lord to jealousy? are we stronger than he?
+Or do we provoke the Lord to jealousy? Are we stronger than he?

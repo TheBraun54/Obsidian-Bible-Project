@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, Days should speak, And multitude of years should teach wisdom.
+I said, 'Days should speak, and multitude of years should teach wisdom.'

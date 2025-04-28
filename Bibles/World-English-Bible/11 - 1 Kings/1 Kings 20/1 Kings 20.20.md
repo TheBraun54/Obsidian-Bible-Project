@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they slew every one his man; and the Syrians fled, and Israel pursued them: and Ben-hadad the king of Syria escaped on a horse with horsemen.
+They each killed his man. The Syrians fled, and Israel pursued them. Ben Hadad the king of Syria escaped on a horse with horsemen.

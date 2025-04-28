@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is a fire that consumeth unto Destruction, And would root out all mine increase.
+For it is a fire that consumes to destruction, and would root out all my increase.

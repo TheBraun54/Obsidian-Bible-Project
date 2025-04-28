@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged us to preach unto the people, and to testify that this is he who is ordained of God [to be] the Judge of the living and the dead.
+He commanded us to preach to the people and to testify that this is he who is appointed by God as the Judge of the living and the dead.

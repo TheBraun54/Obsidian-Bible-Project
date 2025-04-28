@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and not for the nation only, but that he might also gather together into one the children of God that are scattered abroad.
+and not for the nation only, but that he might also gather together into one the children of God who are scattered abroad.

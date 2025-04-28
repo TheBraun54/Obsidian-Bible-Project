@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a sojourner shalt thou not oppress: for ye know the heart of a sojourner, seeing ye were sojourners in the land of Egypt.
+"You shall not oppress an alien, for you know the heart of an alien, since you were aliens in the land of Egypt.

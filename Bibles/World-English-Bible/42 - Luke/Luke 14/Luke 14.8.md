@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou art bidden of any man to a marriage feast, sit not down in the chief seat; lest haply a more honorable man than thou be bidden of him,
+"When you are invited by anyone to a marriage feast, don't sit in the best seat, since perhaps someone more honorable than you might be invited by him,

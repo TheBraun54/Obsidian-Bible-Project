@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zimri went in and smote him, and killed him, in the twenty and seventh year of Asa king of Judah, and reigned in his stead.
+and Zimri went in and struck him, and killed him, in the twenty-seventh year of Asa king of Judah, and reigned in his place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said, What have I now done? Is there not a cause?
+David said, "What have I now done? Is there not a cause?"

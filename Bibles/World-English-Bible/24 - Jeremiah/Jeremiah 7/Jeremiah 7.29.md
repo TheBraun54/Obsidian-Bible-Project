@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cut off thy hair, [O Jerusalem], and cast it away, and take up a lamentation on the bare heights; for Jehovah hath rejected and forsaken the generation of his wrath.
+Cut off your hair, [Jerusalem], and cast it away, and take up a lamentation on the bare heights; for Yahweh has rejected and forsaken the generation of his wrath.

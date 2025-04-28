@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that he saith, A new [covenant] he hath made the first old. But that which is becoming old and waxeth aged is nigh unto vanishing away.
+In that he says, "A new covenant," he has made the first old. But that which is becoming old and grows aged is near to vanishing away.

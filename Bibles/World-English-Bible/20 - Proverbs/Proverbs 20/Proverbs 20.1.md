@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wine is a mocker, strong drink a brawler; And whosoever erreth thereby is not wise.
+Wine is a mocker, and beer is a brawler. Whoever is led astray by them is not wise.

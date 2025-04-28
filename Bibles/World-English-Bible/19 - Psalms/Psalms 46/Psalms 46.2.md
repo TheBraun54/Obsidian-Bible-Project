@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will we not fear, though the earth do change, And though the mountains be shaken into the heart of the seas;
+Therefore we won't be afraid, though the earth changes, though the mountains are shaken into the heart of the seas;

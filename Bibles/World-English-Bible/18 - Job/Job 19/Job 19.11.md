@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath also kindled his wrath against me, And he counteth me unto him as [one of] his adversaries.
+He has also kindled his wrath against me. He counts me among his adversaries.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ninth [captain] for the ninth month was Abiezer the Anathothite, of the Benjamites: and in his course were twenty and four thousand.
+The ninth [captain] for the ninth month was Abiezer the Anathothite, of the Benjamites: and in his division were twenty-four thousand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if any man loveth God, the same is known by him.
+But if anyone loves God, the same is known by him.

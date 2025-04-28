@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ear that hearkeneth to the reproof of life Shall abide among the wise.
+The ear that listens to reproof lives, and will be at home among the wise.

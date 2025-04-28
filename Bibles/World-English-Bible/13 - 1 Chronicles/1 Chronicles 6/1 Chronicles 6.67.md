@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave unto them the cities of refuge, Shechem in the hill-country of Ephraim with its suburbs; Gezer also with its suburbs,
+They gave to them the cities of refuge, Shechem in the hill country of Ephraim with its suburbs; Gezer also with its suburbs,

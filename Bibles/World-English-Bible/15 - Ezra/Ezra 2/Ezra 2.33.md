@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Lod, Hadid, and Ono, seven hundred twenty and five.
+The children of Lod, Hadid, and Ono, seven hundred twenty-five.

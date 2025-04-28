@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall make atonement for him with the ram of the trespass-offering before Jehovah for his sin which he hath sinned: and the sin which he hath sinned shall be forgiven him.
+The priest shall make atonement for him with the ram of the trespass offering before Yahweh for his sin which he has committed: and the sin which he has committed shall be forgiven him.

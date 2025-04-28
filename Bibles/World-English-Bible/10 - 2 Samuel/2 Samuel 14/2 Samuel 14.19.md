@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Is the hand of Joab with thee in all this? And the woman answered and said, As thy soul liveth, my lord the king, none can turn to the right hand or to the left from aught that my lord the king hath spoken; for thy servant Joab, he bade me, and he put all these words in the mouth of thy handmaid;
+The king said, "Is the hand of Joab with you in all this?" The woman answered, "As your soul lives, my lord the king, no one can turn to the right hand or to the left from anything that my lord the king has spoken; for your servant Joab, he urged me, and he put all these words in the mouth of your handmaid;

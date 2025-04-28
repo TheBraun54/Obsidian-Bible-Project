@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph laid up grain as the sand of the sea, very much, until he left off numbering; for it was without number.
+Joseph laid up grain as the sand of the sea, very much, until he stopped counting, for it was without number.

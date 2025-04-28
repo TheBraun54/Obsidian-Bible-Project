@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of thy sons that shall issue from thee, whom thou shalt beget, shall they take away; and they shall be eunuchs in the palace of the king of Babylon.
+'They will take away your sons who will issue from you, whom you shall father, and they will be eunuchs in the king of Babylon's palace.'"

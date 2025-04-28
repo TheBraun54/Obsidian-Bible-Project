@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt also suck the milk of the nations, and shalt suck the breast of kings; and thou shalt know that I, Jehovah, am thy Saviour, and thy Redeemer, the Mighty One of Jacob.
+You shall also drink the milk of the nations, and shall nurse from royal breasts; and you shall know that I, Yahweh, am your Savior, and your Redeemer, the Mighty One of Jacob.

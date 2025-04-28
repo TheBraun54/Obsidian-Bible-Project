@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this [word], Yet once more, signifieth the removing of those things that are shaken, as of things that have been made, that those things which are not shaken may remain.
+This phrase, "Yet once more," signifies the removing of those things that are shaken, as of things that have been made, that those things which are not shaken may remain.

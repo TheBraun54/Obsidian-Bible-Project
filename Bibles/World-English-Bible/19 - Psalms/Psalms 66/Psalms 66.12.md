@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst cause men to ride over our heads; We went through fire and through water; But thou broughtest us out into a wealthy place.
+You allowed men to ride over our heads. We went through fire and through water, but you brought us to the place of abundance.

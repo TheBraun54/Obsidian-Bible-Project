@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be their anger, for it was fierce; And their wrath, for it was cruel: I will divide them in Jacob, And scatter them in Israel.
+Cursed be their anger, for it was fierce; and their wrath, for it was cruel. I will divide them in Jacob, and scatter them in Israel.

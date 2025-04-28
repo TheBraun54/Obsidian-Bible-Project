@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Simon and they that were with him followed after him;
+Simon and those who were with him followed after him;

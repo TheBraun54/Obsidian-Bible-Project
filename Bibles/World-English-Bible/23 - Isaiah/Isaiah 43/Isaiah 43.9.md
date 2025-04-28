@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all the nations be gathered together, and let the peoples be assembled: who among them can declare this, and show us former things? let them bring their witnesses, that they may be justified; or let them hear, and say, It is truth.
+Let all the nations be gathered together, and let the peoples be assembled. Who among them can declare this, and show us former things? Let them bring their witnesses, that they may be justified; or let them hear, and say, "That is true."

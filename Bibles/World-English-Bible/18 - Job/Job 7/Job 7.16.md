@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I loathe [my life] ; I would not live alway: Let me alone; for my days are vanity.
+I loathe my life. I don't want to live forever. Leave me alone, for my days are but a breath.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But lusted exceedingly in the wilderness, And tempted God in the desert.
+but gave in to craving in the desert, and tested God in the wasteland.

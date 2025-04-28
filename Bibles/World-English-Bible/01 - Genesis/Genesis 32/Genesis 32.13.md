@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lodged there that night, and took of that which he had with him a present for Esau his brother:
+He lodged there that night, and took from that which he had with him, a present for Esau, his brother:

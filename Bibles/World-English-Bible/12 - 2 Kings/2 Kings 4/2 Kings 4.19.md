@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his father, My head, my head. And he said to his servant, Carry him to his mother.
+He said to his father, "My head! My head!" He said to his servant, "Carry him to his mother."

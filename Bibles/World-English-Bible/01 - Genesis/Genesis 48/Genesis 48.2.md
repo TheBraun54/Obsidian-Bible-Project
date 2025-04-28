@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one told Jacob, and said, Behold, thy son Joseph cometh unto thee: and Israel strengthened himself, and sat upon the bed.
+Someone told Jacob, and said, "Behold, your son Joseph comes to you," and Israel strengthened himself, and sat on the bed.

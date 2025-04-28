@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He destroyed their vines with hail, And their sycomore-trees with frost.
+He destroyed their vines with hail, their sycamore fig trees with frost.

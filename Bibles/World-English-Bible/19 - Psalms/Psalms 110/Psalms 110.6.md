@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will judge among the nations, He will fill [the places] with dead bodies; He will strike through the head in many countries.
+He will judge among the nations. He will heap up dead bodies. He will crush the ruler of the whole earth.

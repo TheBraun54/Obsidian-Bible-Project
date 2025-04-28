@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, But now, he that hath a purse, let him take it, and likewise a wallet; and he that hath none, let him sell his cloak, and buy a sword.
+Then he said to them, "But now, whoever has a purse, let him take it, and likewise a wallet. Whoever has none, let him sell his cloak, and buy a sword.

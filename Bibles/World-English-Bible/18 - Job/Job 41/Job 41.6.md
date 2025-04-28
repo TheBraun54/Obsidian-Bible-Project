@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will the bands [of fishermen] make traffic of him? Will they part him among the merchants?
+Will traders barter for him? Will they part him among the merchants?

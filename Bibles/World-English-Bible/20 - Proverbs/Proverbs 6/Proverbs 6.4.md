@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give not sleep to thine eyes, Nor slumber to thine eyelids;
+Give no sleep to your eyes, nor slumber to your eyelids.

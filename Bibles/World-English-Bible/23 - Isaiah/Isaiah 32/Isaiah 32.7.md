@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the instruments of the churl are evil: he deviseth wicked devices to destroy the meek with lying words, even when the needy speaketh right.
+The ways of the scoundrel are evil. He devises wicked devices to destroy the humble with lying words, even when the needy speaks right.

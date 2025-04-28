@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the bullock of the sin-offering, and the goat of the sin-offering, whose blood was brought in to make atonement in the holy place, shall be carried forth without the camp; and they shall burn in the fire their skins, and their flesh, and their dung.
+The bull for the sin offering, and the goat for the sin offering, whose blood was brought in to make atonement in the Holy Place, shall be carried forth outside the camp; and they shall burn their skins, their flesh, and their dung with fire.

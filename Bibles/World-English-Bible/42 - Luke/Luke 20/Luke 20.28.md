@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they asked him, saying, Teacher, Moses wrote unto us, that if a man's brother die, having a wife, and he be childless, his brother should take the wife, and raise up seed unto his brother. [
+They asked him, "Teacher, Moses wrote to us that if a man's brother dies having a wife, and he is childless, his brother should take the wife, and raise up children for his brother.

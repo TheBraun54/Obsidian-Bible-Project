@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith the Lord Jehovah, Behold, I will stretch out my hand upon the Philistines, and I will cut off the Cherethites, and destroy the remnant of the sea coast.
+therefore thus says the Lord Yahweh, Behold, I will stretch out my hand on the Philistines, and I will cut off the Cherethites, and destroy the remnant of the sea coast.

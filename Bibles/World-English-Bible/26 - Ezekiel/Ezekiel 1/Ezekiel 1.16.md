@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The appearance of the wheels and their work was like unto a beryl: and they four had one likeness; and their appearance and their work was as it were a wheel within a wheel.
+The appearance of the wheels and their work was like a beryl: and the four of them had one likeness; and their appearance and their work was as it were a wheel within a wheel.

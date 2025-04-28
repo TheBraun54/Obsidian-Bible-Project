@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in these days Peter stood up in the midst of the brethren, and said (and there was a multitude of persons [gathered] together, about a hundred and twenty),
+In these days, Peter stood up in the midst of the disciples (and the number of names was about one hundred twenty), and said,

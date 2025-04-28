@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the ark of the covenant of Jehovah came into the camp, all Israel shouted with a great shout, so that the earth rang again.
+When the ark of the covenant of Yahweh came into the camp, all Israel shouted with a great shout, so that the earth rang again.

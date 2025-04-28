@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the church throughout all Judaea and Galilee and Samaria had peace, being edified; and, walking in the fear of the Lord and in the comfort of the Holy Spirit, was multiplied.
+So the assemblies throughout all Judea and Galilee and Samaria had peace, and were built up. They were multiplied, walking in the fear of the Lord and in the comfort of the Holy Spirit.

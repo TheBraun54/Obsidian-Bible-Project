@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts: As I thought to do evil unto you, when your fathers provoked me to wrath, saith Jehovah of hosts, and I repented not;
+For thus says Yahweh of Armies: "As I thought to do evil to you, when your fathers provoked me to wrath," says Yahweh of Armies, "and I didn't repent;

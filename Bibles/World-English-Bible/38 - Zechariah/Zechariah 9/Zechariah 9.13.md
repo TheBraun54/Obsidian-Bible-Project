@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have bent Judah for me, I have filled the bow with Ephraim; and I will stir up thy sons, O Zion, against thy sons, O Greece, and will make thee as the sword of a mighty man.
+For indeed I bend Judah as a bow for me. I have filled the bow with Ephraim; and I will stir up your sons, Zion, against your sons, Greece, and will make you like the sword of a mighty man.

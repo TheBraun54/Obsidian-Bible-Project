@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wilderness and the dry land shall be glad; and the desert shall rejoice, and blossom as the rose.
+The wilderness and the dry land will be glad. The desert will rejoice and blossom like a rose.

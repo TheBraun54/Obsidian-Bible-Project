@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, I know that ye all, among whom I went about preaching the kingdom, shall see my face no more.
+"Now, behold, I know that you all, among whom I went about preaching the Kingdom of God, will see my face no more.

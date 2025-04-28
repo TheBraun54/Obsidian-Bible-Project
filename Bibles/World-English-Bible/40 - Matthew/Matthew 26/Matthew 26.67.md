@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then did they spit in his face and buffet him: and some smote him with the palms of their hands,
+Then they spit in his face and beat him with their fists, and some slapped him,

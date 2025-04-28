@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and those that use the world, as not using it to the full: for the fashion of this world passeth away.
+and those who use the world, as not using it to the fullest. For the mode of this world passes away.

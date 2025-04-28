@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But call to remembrance the former days, in which, after ye were enlightened, ye endured a great conflict of sufferings;
+But remember the former days, in which, after you were enlightened, you endured a great struggle with sufferings;

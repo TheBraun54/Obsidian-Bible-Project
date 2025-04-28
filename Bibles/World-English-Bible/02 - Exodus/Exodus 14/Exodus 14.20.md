@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it came between the camp of Egypt and the camp of Israel; and there was the cloud and the darkness, yet gave it light by night: and the one came not near the other all the night.
+It came between the camp of Egypt and the camp of Israel; and there was the cloud and the darkness, yet gave it light by night: and the one didn't come near the other all the night.

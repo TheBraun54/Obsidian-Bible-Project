@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why dost thou strive against him, For that he giveth not account of any of his matters?
+Why do you strive against him, because he doesn't give account of any of his matters?

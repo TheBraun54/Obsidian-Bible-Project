@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the two men, the base fellows, came in and sat before him: and the base fellows bare witness against him, even against Naboth, in the presence of the people, saying, Naboth did curse God and the king. Then they carried him forth out of the city, and stoned him to death with stones.
+The two men, the base fellows, came in and sat before him. The base fellows testified against him, even against Naboth, in the presence of the people, saying, "Naboth cursed God and the king!" Then they carried him out of the city, and stoned him to death with stones.

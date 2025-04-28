@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye this word which I take up for a lamentation over you, O house of Israel.
+Listen to this word which I take up for a lamentation over you, O house of Israel.

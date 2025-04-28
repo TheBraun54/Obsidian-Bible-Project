@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt set the mitre upon his head, and put the holy crown upon the mitre.
+and you shall set the turban on his head, and put the holy crown on the turban.

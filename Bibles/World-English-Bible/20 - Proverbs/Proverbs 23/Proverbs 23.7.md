@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as he thinketh within himself, so is he: Eat and drink, saith he to thee; But his heart is not with thee.
+for as he thinks about the cost, so he is. "Eat and drink!" he says to you, but his heart is not with you.

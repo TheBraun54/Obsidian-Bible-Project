@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anger of Jehovah was kindled against Uzza, and he smote him, because he put forth his hand to the ark; and there he died before God.
+The anger of Yahweh was kindled against Uzza, and he struck him, because he put forth his hand to the ark; and there he died before God.

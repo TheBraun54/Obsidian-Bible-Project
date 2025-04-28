@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Carmi: Achar, the troubler of Israel, who committed a trespass in the devoted thing.
+The sons of Carmi: Achar, the troubler of Israel, who committed a trespass in the devoted thing.

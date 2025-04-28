@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is he that readeth, and they that hear the words of the prophecy, and keep the things that are written therein: for the time is at hand.
+Blessed is he who reads and those who hear the words of the prophecy, and keep the things that are written in it, for the time is at hand.

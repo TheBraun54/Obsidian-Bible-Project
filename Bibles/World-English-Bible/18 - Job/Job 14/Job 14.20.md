@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou prevailest for ever against him, and he passeth; Thou changest his countenance, and sendest him away.
+You forever prevail against him, and he departs. You change his face, and send him away.

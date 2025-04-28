@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So she kept fast by the maidens of Boaz, to glean unto the end of barley harvest and of wheat harvest; and she dwelt with her mother-in-law.
+So she stayed close to the maidens of Boaz, to glean to the end of barley harvest and of wheat harvest; and she lived with her mother-in-law.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the mystery of lawlessness doth already work: only [there is] one that restraineth now, until he be taken out of the way.
+For the mystery of lawlessness already works. Only there is one who restrains now, until he is taken out of the way.

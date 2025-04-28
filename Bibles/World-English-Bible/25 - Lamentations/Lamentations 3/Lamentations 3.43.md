@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast covered with anger and pursued us; thou hast slain, thou hast not pitied.
+You have covered with anger and pursued us; you have killed, you have not pitied.

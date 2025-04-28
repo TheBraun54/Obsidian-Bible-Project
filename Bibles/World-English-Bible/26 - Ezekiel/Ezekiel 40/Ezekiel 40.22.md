@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the windows thereof, and the arches thereof, and the palm-trees thereof, were after the measure of the gate whose prospect is toward the east; and they went up unto it by seven steps; and the arches thereof were before them.
+The windows of it, and its arches, and the palm trees of it, were after the measure of the gate whose prospect is toward the east; and they went up to it by seven steps; and its arches were before them.

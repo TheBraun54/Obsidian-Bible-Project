@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He was the lamp that burneth and shineth; and ye were willing to rejoice for a season in his light.
+He was the burning and shining lamp, and you were willing to rejoice for a while in his light.

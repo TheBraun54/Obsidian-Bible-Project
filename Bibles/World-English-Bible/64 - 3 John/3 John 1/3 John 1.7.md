@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because that for the sake of the Name they went forth, taking nothing of the Gentiles.
+because for the sake of the Name they went out, taking nothing from the Gentiles.

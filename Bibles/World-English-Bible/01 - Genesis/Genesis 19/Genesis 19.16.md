@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he lingered; and the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters, Jehovah being merciful unto him: and they brought him forth, and set him without the city.
+But he lingered; and the men grabbed his hand, his wife's hand, and his two daughters' hands, Yahweh being merciful to him; and they took him out, and set him outside of the city.

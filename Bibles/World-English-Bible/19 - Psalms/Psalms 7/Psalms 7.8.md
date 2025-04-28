@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah ministereth judgment to the peoples: Judge me, O Jehovah, according to my righteousness, and to mine integrity that is in me.
+Yahweh administers judgment to the peoples. Judge me, Yahweh, according to my righteousness, and to my integrity that is in me.

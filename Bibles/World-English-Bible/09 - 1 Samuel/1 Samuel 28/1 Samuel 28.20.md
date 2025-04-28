@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Saul fell straightway his full length upon the earth, and was sore afraid, because of the words of Samuel: and there was no strength in him; for he had eaten no bread all the day, nor all the night.
+Then Saul fell immediately his full length on the earth, and was terrified, because of the words of Samuel. There was no strength in him; for he had eaten no bread all the day, nor all the night.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for this cause God sendeth them a working of error, that they should believe a lie:
+Because of this, God sends them a working of error, that they should believe a lie;

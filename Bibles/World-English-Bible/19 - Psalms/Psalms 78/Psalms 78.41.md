@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they turned again and tempted God, And provoked the Holy One of Israel.
+They turned again and tempted God, and provoked the Holy One of Israel.

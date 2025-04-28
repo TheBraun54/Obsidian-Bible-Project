@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if we endure, we shall also reign with him: if we shall deny him, he also will deny us:
+If we endure, we will also reign with him. If we deny him, he also will deny us.

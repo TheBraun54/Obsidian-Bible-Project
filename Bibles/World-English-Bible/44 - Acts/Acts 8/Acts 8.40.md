@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Philip was found at Azotus: and passing through he preached the gospel to all the cities, till he came to Caesarea.
+But Philip was found at Azotus. Passing through, he preached the Good News to all the cities, until he came to Caesarea.

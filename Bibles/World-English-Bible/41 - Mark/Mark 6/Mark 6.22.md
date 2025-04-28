@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when the daughter of Herodias herself came in and danced, she pleased Herod and them that sat at meat with him; and the king said unto the damsel, Ask of me whatsoever thou wilt, and I will give it thee.
+When the daughter of Herodias herself came in and danced, she pleased Herod and those sitting with him. The king said to the young lady, "Ask me whatever you want, and I will give it to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [so did he] in the cities of Manasseh and Ephraim and Simeon, even unto Naphtali, in their ruins round about.
+[So did he] in the cities of Manasseh and Ephraim and Simeon, even to Naphtali, around in their ruins.

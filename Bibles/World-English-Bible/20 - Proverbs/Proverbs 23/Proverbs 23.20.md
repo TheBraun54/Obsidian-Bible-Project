@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not among winebibbers, Among gluttonous eaters of flesh:
+Don't be among ones drinking too much wine, or those who gorge themselves on meat:

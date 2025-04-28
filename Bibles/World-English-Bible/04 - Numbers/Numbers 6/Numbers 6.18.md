@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Nazirite shall shave the head of his separation at the door of the tent of meeting, and shall take the hair of the head of his separation, and put it on the fire which is under the sacrifice of peace-offerings.
+The Nazirite shall shave the head of his separation at the door of the Tent of Meeting, and shall take the hair of the head of his separation, and put it on the fire which is under the sacrifice of peace offerings.

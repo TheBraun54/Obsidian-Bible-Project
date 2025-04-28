@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moses indeed said, A prophet shall the Lord God raise up unto you from among your brethren, like unto me. To him shall ye hearken in all things whatsoever he shall speak unto you.
+For Moses indeed said to the fathers, 'The Lord God will raise up a prophet for you from among your brothers, like me. You shall listen to him in all things whatever he says to you.

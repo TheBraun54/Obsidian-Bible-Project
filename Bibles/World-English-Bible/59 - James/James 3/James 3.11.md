@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth the fountain send forth from the same opening sweet [water] and bitter?
+Does a spring send out from the same opening fresh and bitter water?

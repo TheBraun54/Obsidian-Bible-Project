@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The full soul loatheth a honeycomb; But to the hungry soul every bitter thing is sweet.
+A full soul loathes a honeycomb; but to a hungry soul, every bitter thing is sweet.

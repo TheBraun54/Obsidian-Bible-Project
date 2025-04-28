@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban went into Jacob's tent, and into Leah's tent, and into the tent of the two maid-servants; but he found them not. And he went out of Leah's tent, and entered into Rachel's tent.
+Laban went into Jacob's tent, into Leah's tent, and into the tent of the two female servants; but he didn't find them. He went out of Leah's tent, and entered into Rachel's tent.

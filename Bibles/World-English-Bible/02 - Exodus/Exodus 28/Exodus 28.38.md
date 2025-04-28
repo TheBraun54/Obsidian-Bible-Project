@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be upon Aaron's forehead, and Aaron shall bear the iniquity of the holy things, which the children of Israel shall hallow in all their holy gifts; and it shall be always upon his forehead, that they may be accepted before Jehovah.
+It shall be on Aaron's forehead, and Aaron shall bear the iniquity of the holy things, which the children of Israel shall make holy in all their holy gifts; and it shall be always on his forehead, that they may be accepted before Yahweh.

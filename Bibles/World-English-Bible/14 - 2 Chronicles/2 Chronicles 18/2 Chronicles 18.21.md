@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I will go forth, and will be a lying spirit in the mouth of all his prophets. And he said, Thou shalt entice him, and shalt prevail also: go forth, and do so.
+"He said, 'I will go forth, and will be a lying spirit in the mouth of all his prophets.' "He said, 'You will entice him, and will prevail also. Go forth, and do so.'

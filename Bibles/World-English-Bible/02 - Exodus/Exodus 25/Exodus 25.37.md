@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the lamps thereof, seven: and they shall light the lamps thereof, to give light over against it.
+You shall make its lamps seven, and they shall light its lamps to give light to the space in front of it.

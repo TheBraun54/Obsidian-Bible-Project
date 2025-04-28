@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In nothing be anxious; but in everything by prayer and supplication with thanksgiving let your requests be made known unto God.
+In nothing be anxious, but in everything, by prayer and petition with thanksgiving, let your requests be made known to God.

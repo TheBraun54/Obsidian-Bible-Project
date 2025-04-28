@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he released him that for insurrection and murder had been cast into prison, whom they asked for; but Jesus he delivered up to their will.
+He released him who had been thrown into prison for insurrection and murder, for whom they asked, but he delivered Jesus up to their will.

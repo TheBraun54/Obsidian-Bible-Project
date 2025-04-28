@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ho Assyrian, the rod of mine anger, the staff in whose hand is mine indignation!
+Alas Assyrian, the rod of my anger, the staff in whose hand is my indignation!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, I would scatter them afar, I would make the remembrance of them to cease from among men;
+I said, I would scatter them afar. I would make the memory of them to cease from among men;

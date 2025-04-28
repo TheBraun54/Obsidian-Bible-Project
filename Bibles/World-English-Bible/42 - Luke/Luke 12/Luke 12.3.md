@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore whatsoever ye have said in the darkness shall be heard in the light; and what ye have spoken in the ear in the inner chambers shall be proclaimed upon the housetops.
+Therefore whatever you have said in the darkness will be heard in the light. What you have spoken in the ear in the inner rooms will be proclaimed on the housetops.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the land enjoy its sabbaths, as long as it lieth desolate, and ye are in your enemies' land; even then shall the land rest, and enjoy its sabbaths.
+Then the land will enjoy its sabbaths as long as it lies desolate and you are in your enemies' land. Even then the land will rest and enjoy its sabbaths.

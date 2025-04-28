@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So two or three cities wandered unto one city to drink water, and were not satisfied: yet have ye not returned unto me, saith Jehovah.
+So two or three cities staggered to one city to drink water, and were not satisfied: yet you haven't returned to me," says Yahweh.

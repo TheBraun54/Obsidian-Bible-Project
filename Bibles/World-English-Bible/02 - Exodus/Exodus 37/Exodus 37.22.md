@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their knops and their branches were of one piece with it: the whole of it was one beaten work of pure gold.
+Their buds and their branches were of one piece with it. The whole thing was one beaten work of pure gold.

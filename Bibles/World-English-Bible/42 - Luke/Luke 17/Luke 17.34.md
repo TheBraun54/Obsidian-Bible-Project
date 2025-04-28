@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto you, In that night there shall be two men on one bed; the one shall be taken, and the other shall be left.
+I tell you, in that night there will be two people in one bed. The one will be taken, and the other will be left.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, when they heard it, went out one by one, beginning from the eldest, [even] unto the last: and Jesus was left alone, and the woman, where she was, in the midst.
+They, when they heard it, being convicted by their conscience, went out one by one, beginning from the oldest, even to the last. Jesus was left alone with the woman where she was, in the middle.

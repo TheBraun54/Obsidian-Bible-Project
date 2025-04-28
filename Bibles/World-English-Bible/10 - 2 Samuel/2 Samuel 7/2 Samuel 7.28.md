@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O Lord Jehovah, thou art God, and thy words are truth, and thou hast promised this good thing unto thy servant:
+"Now, O Lord Yahweh, you are God, and your words are truth, and you have promised this good thing to your servant.

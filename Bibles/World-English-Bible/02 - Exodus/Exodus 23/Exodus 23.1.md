@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not take up a false report: put not thy hand with the wicked to be an unrighteous witness.
+"You shall not spread a false report. Don't join your hand with the wicked to be a malicious witness.

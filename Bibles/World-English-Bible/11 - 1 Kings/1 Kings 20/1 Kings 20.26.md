@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the return of the year, that Ben-hadad mustered the Syrians, and went up to Aphek, to fight against Israel.
+It happened at the return of the year, that Ben Hadad mustered the Syrians, and went up to Aphek, to fight against Israel.

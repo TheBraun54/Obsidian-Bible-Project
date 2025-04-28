@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the morning, then ye shall see the glory of Jehovah; for that he heareth your murmurings against Jehovah: and what are we, that ye murmur against us?
+and in the morning, then you shall see the glory of Yahweh; because he hears your murmurings against Yahweh. Who are we, that you murmur against us?"

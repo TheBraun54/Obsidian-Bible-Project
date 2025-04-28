@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I think myself happy, king Agrippa, that I am to make my defense before thee this day touching all the things whereof I am accused by the Jews:
+"I think myself happy, King Agrippa, that I am to make my defense before you this day concerning all the things that I am accused by the Jews,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Babylon shall become heaps, a dwelling-place for jackals, an astonishment, and a hissing, without inhabitant.
+Babylon shall become heaps, a dwelling place for jackals, an astonishment, and a hissing, without inhabitant.

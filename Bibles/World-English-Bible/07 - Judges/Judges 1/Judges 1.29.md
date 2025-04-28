@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ephraim drove not out the Canaanites that dwelt in Gezer; but the Canaanites dwelt in Gezer among them.
+Ephraim didn't drive out the Canaanites who lived in Gezer; but the Canaanites lived in Gezer among them.

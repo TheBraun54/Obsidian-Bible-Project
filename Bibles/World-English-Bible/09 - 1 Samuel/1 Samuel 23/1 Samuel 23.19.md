@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came up the Ziphites to Saul to Gibeah, saying, Doth not David hide himself with us in the strongholds in the wood, in the hill of Hachilah, which is on the south of the desert?
+Then the Ziphites came up to Saul to Gibeah, saying, "Doesn't David hide himself with us in the strongholds in the wood, in the hill of Hachilah, which is on the south of the desert?

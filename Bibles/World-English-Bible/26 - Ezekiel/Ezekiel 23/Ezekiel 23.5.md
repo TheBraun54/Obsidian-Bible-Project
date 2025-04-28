@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Oholah played the harlot when she was mine; and she doted on her lovers, on the Assyrians [her] neighbors,
+Oholah played the prostitute when she was mine; and she doted on her lovers, on the Assyrians [her] neighbors,

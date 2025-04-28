@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaiah crieth concerning Israel, If the number of the children of Israel be as the sand of the sea, it is the remnant that shall be saved:
+Isaiah cries concerning Israel, "If the number of the children of Israel are as the sand of the sea, it is the remnant who will be saved;

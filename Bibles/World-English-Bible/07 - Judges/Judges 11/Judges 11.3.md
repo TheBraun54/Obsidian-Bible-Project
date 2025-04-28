@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jephthah fled from his brethren, and dwelt in the land of Tob: and there were gathered vain fellows to Jephthah, and they went out with him.
+Then Jephthah fled from his brothers, and lived in the land of Tob: and there were gathered vain fellows to Jephthah, and they went out with him.

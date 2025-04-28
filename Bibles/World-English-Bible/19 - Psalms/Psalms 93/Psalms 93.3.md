@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The floods have lifted up, O Jehovah, The floods have lifted up their voice; The floods lift up their waves.
+The floods have lifted up, Yahweh, the floods have lifted up their voice. The floods lift up their waves.

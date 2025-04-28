@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was again war with the Philistines; and Elhanan the son of Jair slew Lahmi the brother of Goliath the Gittite, the staff of whose spear was like a weaver's beam.
+There was again war with the Philistines; and Elhanan the son of Jair killed Lahmi the brother of Goliath the Gittite, the staff of whose spear was like a weaver's beam.

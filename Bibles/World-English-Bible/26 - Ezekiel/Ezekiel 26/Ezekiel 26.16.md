@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then all the princes of the sea shall come down from their thrones, and lay aside their robes, and strip off their broidered garments: they shall clothe themselves with trembling; they shall sit upon the ground, and shall tremble every moment, and be astonished at thee.
+Then all the princes of the sea shall come down from their thrones, and lay aside their robes, and strip off their embroidered garments: they shall clothe themselves with trembling; they shall sit on the ground, and shall tremble every moment, and be astonished at you.

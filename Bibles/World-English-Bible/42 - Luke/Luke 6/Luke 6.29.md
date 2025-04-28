@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that smiteth thee on the [one] cheek offer also the other; and from him that taketh away thy cloak withhold not thy coat also.
+To him who strikes you on the cheek, offer also the other; and from him who takes away your cloak, don't withhold your coat also.

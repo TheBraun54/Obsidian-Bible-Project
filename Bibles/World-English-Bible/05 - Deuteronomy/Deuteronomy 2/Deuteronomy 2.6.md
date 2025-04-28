@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall purchase food of them for money, that ye may eat; and ye shall also buy water of them for money, that ye may drink.
+You shall purchase food of them for money, that you may eat; and you shall also buy water of them for money, that you may drink.'"

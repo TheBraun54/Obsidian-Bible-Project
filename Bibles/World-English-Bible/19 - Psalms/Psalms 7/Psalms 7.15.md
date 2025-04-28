@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath made a pit, and digged it, And is fallen into the ditch which he made.
+He has dug a hole, and has fallen into the pit which he made.

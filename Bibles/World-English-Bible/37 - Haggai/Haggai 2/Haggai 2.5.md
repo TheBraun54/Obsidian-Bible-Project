@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[according to] the word that I covenanted with you when ye came out of Egypt, and my Spirit abode among you: fear ye not.
+This is the word that I covenanted with you when you came out of Egypt, and my Spirit lived among you. 'Don't be afraid.'

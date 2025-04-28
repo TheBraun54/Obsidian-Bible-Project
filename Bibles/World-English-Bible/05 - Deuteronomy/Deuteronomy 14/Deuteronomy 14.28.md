@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the end of every three years thou shalt bring forth all the tithe of thine increase in the same year, and shalt lay it up within thy gates:
+At the end of every three years you shall bring forth all the tithe of your increase in the same year, and shall lay it up within your gates:

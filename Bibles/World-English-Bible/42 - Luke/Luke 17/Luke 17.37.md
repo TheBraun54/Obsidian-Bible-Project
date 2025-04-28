@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answering say unto him, Where, Lord? And he said unto them, Where the body [is], thither will the eagles also be gathered together.
+They, answering, asked him, "Where, Lord?" He said to them, "Where the body is, there will the vultures also be gathered together."

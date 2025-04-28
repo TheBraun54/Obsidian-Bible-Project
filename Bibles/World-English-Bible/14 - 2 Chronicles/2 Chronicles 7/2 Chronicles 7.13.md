@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I shut up the heavens so that there is no rain, or if I command the locust to devour the land, or if I send pestilence among my people;
+"If I shut up the sky so that there is no rain, or if I command the locust to devour the land, or if I send pestilence among my people;

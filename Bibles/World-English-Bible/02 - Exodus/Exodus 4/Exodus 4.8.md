@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, if they will not believe thee, neither hearken to the voice of the first sign, that they will believe the voice of the latter sign.
+"It will happen, if they will neither believe you nor listen to the voice of the first sign, that they will believe the voice of the latter sign.

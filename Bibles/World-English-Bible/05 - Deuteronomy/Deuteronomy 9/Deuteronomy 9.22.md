@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at Taberah, and at Massah, and at Kibroth-hattaavah, ye provoked Jehovah to wrath.
+At Taberah, and at Massah, and at Kibroth Hattaavah, you provoked Yahweh to wrath.

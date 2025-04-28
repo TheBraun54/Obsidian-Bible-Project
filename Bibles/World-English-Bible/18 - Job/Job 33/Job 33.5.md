@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou canst, answer thou me; Set [thy words] in order before me, stand forth.
+If you can, answer me. Set your words in order before me, and stand forth.

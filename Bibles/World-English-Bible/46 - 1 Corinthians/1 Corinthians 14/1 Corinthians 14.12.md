@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So also ye, since ye are zealous of spiritual [gifts], seek that ye may abound unto the edifying of the church.
+So also you, since you are zealous for spiritual gifts, seek that you may abound to the building up of the assembly.

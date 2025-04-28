@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But take heed lest by any means this liberty of yours become a stumblingblock to the weak.
+But be careful that by no means does this liberty of yours become a stumbling block to the weak.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Dan, were threescore and two thousand and seven hundred.
+those who were numbered of them, of the tribe of Dan, were sixty-two thousand seven hundred.

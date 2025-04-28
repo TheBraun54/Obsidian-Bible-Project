@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I wept, [and chastened] my soul with fasting, That was to my reproach.
+When I wept and I fasted, that was to my reproach.

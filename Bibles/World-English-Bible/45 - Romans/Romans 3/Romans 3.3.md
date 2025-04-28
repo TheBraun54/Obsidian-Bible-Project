@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what if some were without faith? shall their want of faith make of none effect the faithfulness of God?
+For what if some were without faith? Will their lack of faith nullify the faithfulness of God?

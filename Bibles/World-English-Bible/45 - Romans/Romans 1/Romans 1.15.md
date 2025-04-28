@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So, as much as in me is, I am ready to preach the gospel to you also that are in Rome.
+So, as much as is in me, I am eager to preach the Good News to you also who are in Rome.

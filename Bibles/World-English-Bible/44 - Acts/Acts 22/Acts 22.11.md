@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I could not see for the glory of that light, being led by the hand of them that were with me I came into Damascus.
+When I couldn't see for the glory of that light, being led by the hand of those who were with me, I came into Damascus.

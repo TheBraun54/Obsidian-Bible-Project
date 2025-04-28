@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make for the screen five pillars of acacia, and overlay them with gold; their hooks shall be of gold: and thou shalt cast five sockets of brass for them.
+You shall make for the screen five pillars of acacia, and overlay them with gold: their hooks shall be of gold: and you shall cast five sockets of brass for them.

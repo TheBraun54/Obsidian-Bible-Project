@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will cause thine enemies that rise up against thee to be smitten before thee: they shall come out against thee one way, and shall flee before thee seven ways.
+Yahweh will cause your enemies who rise up against you to be struck before you. They will come out against you one way, and will flee before you seven ways.

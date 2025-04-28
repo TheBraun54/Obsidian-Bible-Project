@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the grace of our Lord abounded exceedingly with faith and love which is in Christ Jesus.
+The grace of our Lord abounded exceedingly with faith and love which is in Christ Jesus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And hereby we know that we know him, if we keep his commandments.
+This is how we know that we know him: if we keep his commandments.

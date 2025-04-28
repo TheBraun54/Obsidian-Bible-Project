@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-keeping lovingkindness for thousands, forgiving iniquity and transgression and sin; and that will by no means clear [the guilty], visiting the iniquity of the fathers upon the children, and upon the children's children, upon the third and upon the fourth generation.
+keeping loving kindness for thousands, forgiving iniquity and disobedience and sin; and that will by no means clear the guilty, visiting the iniquity of the fathers on the children, and on the children's children, on the third and on the fourth generation."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ziph, and Telem, and Bealoth,
+Ziph, Telem, Bealoth,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seek not ye what ye shall eat, and what ye shall drink, neither be ye of doubtful mind.
+Don't seek what you will eat or what you will drink; neither be anxious.

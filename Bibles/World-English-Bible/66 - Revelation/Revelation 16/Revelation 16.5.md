@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard the angel of the waters saying, Righteous art thou, who art and who wast, thou Holy One, because thou didst thus judge:
+I heard the angel of the waters saying, "You are righteous, who are and who were, you Holy One, because you have judged these things.

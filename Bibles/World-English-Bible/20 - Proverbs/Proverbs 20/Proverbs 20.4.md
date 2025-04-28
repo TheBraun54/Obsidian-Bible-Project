@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sluggard will not plow by reason of the winter; Therefore he shall beg in harvest, and have nothing.
+The sluggard will not plow by reason of the winter; therefore he shall beg in harvest, and have nothing.

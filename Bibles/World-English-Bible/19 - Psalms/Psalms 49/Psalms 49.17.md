@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when he dieth he shall carry nothing away; His glory shall not descend after him.
+For when he dies he shall carry nothing away. His glory shall not descend after him.

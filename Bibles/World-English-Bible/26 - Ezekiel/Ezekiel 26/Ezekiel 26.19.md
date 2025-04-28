@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: When I shall make thee a desolate city, like the cities that are not inhabited; when I shall bring up the deep upon thee, and the great waters shall cover thee;
+For thus says the Lord Yahweh: When I shall make you a desolate city, like the cities that are not inhabited; when I shall bring up the deep on you, and the great waters shall cover you;

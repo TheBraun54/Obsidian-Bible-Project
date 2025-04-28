@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he heard it, he said, They that are whole have no need of a physician, but they that are sick.
+When Jesus heard it, he said to them, "Those who are healthy have no need for a physician, but those who are sick do.

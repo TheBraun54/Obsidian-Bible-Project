@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I lifted up mine eyes, and looked, and, behold, a man clothed in linen, whose loins were girded with pure gold of Uphaz:
+I lifted up my eyes, and looked, and behold, a man clothed in linen, whose thighs were adorned with pure gold of Uphaz:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And having gifts differing according to the grace that was given to us, whether prophecy, [let us prophesy] according to the proportion of our faith;
+Having gifts differing according to the grace that was given to us, if prophecy, let us prophesy according to the proportion of our faith;

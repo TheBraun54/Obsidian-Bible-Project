@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall utter the memory of thy great goodness, And shall sing of thy righteousness.
+They will utter the memory of your great goodness, and will sing of your righteousness.

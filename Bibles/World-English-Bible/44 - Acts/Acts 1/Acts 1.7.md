@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, It is not for you to know times or seasons, which the Father hath set within His own authority.
+He said to them, "It isn't for you to know times or seasons which the Father has set within his own authority.

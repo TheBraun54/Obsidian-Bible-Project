@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that planted the ear, shall he not hear? He that formed the eye, shall he not see?
+He who implanted the ear, won't he hear? He who formed the eye, won't he see?

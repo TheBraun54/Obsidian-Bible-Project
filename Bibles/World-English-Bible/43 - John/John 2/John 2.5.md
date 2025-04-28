@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His mother saith unto the servants, Whatsoever he saith unto you, do it.
+His mother said to the servants, "Whatever he says to you, do it."

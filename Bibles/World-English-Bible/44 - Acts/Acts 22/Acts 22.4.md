@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I persecuted this Way unto the death, binding and delivering into prisons both men and women.
+I persecuted this Way to the death, binding and delivering into prisons both men and women.

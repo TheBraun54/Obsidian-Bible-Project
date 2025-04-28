@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All darkness is laid up for his treasures: A fire not blown [by man] shall devour him; It shall consume that which is left in his tent.
+All darkness is laid up for his treasures. An unfanned fire shall devour him. It shall consume that which is left in his tent.

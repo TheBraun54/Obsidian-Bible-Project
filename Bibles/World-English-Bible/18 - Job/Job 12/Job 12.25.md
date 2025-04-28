@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They grope in the dark without light; And he maketh them to stagger like a drunken man.
+They grope in the dark without light. He makes them stagger like a drunken man.

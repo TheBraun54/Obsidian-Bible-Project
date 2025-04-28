@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The first Woe is past: behold, there come yet two Woes hereafter.
+The first woe is past. Behold, there are still two woes coming after this.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there is hope for thy latter end, saith Jehovah; and [thy] children shall come again to their own border.
+There is hope for your latter end, says Yahweh; and [your] children shall come again to their own border.

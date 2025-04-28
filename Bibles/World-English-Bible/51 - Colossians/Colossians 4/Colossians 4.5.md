@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Walk in wisdom toward them that are without, redeeming the time.
+Walk in wisdom toward those who are outside, redeeming the time.

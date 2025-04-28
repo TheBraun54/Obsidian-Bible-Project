@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the oxen for the sacrifice of peace-offerings twenty and four bullocks, the rams sixty, the he-goats sixty, the he-lambs a year old sixty. This was the dedication of the altar, after that it was anointed.
+and all the cattle for the sacrifice of peace offerings twenty-four bulls, the rams sixty, the male goats sixty, the male lambs a year old sixty. This was the dedication of the altar, after it was anointed.

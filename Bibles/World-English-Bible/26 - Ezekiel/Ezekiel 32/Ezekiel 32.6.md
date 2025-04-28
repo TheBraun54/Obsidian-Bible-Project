@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also water with thy blood the land wherein thou swimmest, even to the mountains; and the watercourses shall be full of thee.
+I will also water with your blood the land in which you swim, even to the mountains; and the watercourses shall be full of you.

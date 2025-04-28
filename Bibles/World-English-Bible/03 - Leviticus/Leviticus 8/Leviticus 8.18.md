@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he presented the ram of the burnt-offering: and Aaron and his sons laid their hands upon the head of the ram.
+He presented the ram of the burnt offering: and Aaron and his sons laid their hands on the head of the ram.

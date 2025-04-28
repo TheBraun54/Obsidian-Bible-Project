@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. Jehovah answer thee in the day of trouble; The name of the God of Jacob set thee up on high;
+May Yahweh answer you in the day of trouble. May the name of the God of Jacob set you up on high,

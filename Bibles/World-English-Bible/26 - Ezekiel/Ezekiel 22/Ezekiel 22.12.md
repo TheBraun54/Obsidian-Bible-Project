@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In thee have they taken bribes to shed blood; thou hast taken interest and increase, and thou hast greedily gained of thy neighbors by oppression, and hast forgotten me, saith the Lord Jehovah.
+In you have they taken bribes to shed blood; you have taken interest and increase, and you have greedily gained of your neighbors by oppression, and have forgotten me, says the Lord Yahweh.

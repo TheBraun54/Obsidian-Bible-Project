@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye were now turned, and had done that which is right in mine eyes, in proclaiming liberty every man to his neighbor; and ye had made a covenant before me in the house which is called by my name:
+You had now turned, and had done that which is right in my eyes, in proclaiming liberty every man to his neighbor; and you had made a covenant before me in the house which is called by my name:

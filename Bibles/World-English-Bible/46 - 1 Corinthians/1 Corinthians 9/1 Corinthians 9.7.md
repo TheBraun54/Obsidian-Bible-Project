@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What soldier ever serveth at his own charges? who planteth a vineyard, and eateth not the fruit thereof? Or who feedeth a flock, and eateth not of the milk of the flock?
+What soldier ever serves at his own expense? Who plants a vineyard, and doesn't eat of its fruit? Or who feeds a flock, and doesn't drink from the flock's milk?

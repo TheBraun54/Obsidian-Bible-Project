@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the land which ye shall divide by lot unto the tribes of Israel for inheritance, and these are their several portions, saith the Lord Jehovah.
+This is the land which you shall divide by lot to the tribes of Israel for inheritance, and these are their several portions, says the Lord Yahweh.

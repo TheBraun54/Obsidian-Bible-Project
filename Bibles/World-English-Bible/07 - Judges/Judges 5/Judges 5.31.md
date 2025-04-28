@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So let all thine enemies perish, O Jehovah: But let them that love him be as the sun when he goeth forth in his might. And the land had rest forty years.
+"So let all your enemies perish, Yahweh, but let those who love him be as the sun when it rises forth in its strength." Then the land had rest forty years.

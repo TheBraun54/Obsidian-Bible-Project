@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it came to pass, when the flame went up toward heaven from off the altar, that the angel of Jehovah ascended in the flame of the altar: and Manoah and his wife looked on; and they fell on their faces to the ground.
+For it happened, when the flame went up toward the sky from off the altar, that the angel of Yahweh ascended in the flame of the altar: and Manoah and his wife looked on; and they fell on their faces to the ground.

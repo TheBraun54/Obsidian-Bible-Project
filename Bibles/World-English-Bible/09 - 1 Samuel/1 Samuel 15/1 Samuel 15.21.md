@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the people took of the spoil, sheep and oxen, the chief of the devoted things, to sacrifice unto Jehovah thy God in Gilgal.
+But the people took of the spoil, sheep and cattle, the chief of the devoted things, to sacrifice to Yahweh your God in Gilgal."

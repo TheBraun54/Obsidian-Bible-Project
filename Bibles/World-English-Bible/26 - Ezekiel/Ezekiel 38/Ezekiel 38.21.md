@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will call for a sword against him unto all my mountains, saith the Lord Jehovah: every man's sword shall be against his brother.
+I will call for a sword against him to all my mountains, says the Lord Yahweh: every man's sword shall be against his brother.

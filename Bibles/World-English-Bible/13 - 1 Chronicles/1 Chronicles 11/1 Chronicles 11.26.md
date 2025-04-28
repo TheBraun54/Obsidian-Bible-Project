@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also the mighty men of the armies: Asahel the brother of Joab, Elhanan the son of Dodo of Beth-lehem,
+Also the mighty men of the armies: Asahel the brother of Joab, Elhanan the son of Dodo of Bethlehem,

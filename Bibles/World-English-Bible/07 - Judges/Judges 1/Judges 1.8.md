@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Judah fought against Jerusalem, and took it, and smote it with the edge of the sword, and set the city on fire.
+The children of Judah fought against Jerusalem, and took it, and struck it with the edge of the sword, and set the city on fire.

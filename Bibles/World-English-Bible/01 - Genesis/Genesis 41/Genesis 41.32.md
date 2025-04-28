@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for that the dream was doubled unto Pharaoh, it is because the thing is established by God, and God will shortly bring it to pass.
+The dream was doubled to Pharaoh, because the thing is established by God, and God will shortly bring it to pass.

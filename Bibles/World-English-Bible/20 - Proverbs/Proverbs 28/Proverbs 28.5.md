@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Evil men understand not justice; But they that seek Jehovah understand all things.
+Evil men don't understand justice; but those who seek Yahweh understand it fully.

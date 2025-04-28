@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And enter not into judgment with thy servant; For in thy sight no man living is righteous.
+Don't enter into judgment with your servant, for in your sight no man living is righteous.

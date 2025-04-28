@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made also posts, threescore cubits; and the court [reached] unto the posts, round about the gate.
+He made also posts, sixty cubits; and the court [reached] to the posts, around the gate.

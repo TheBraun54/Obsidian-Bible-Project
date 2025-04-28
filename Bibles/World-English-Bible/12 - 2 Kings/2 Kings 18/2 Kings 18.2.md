@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Twenty and five years old was he when he began to reign; and he reigned twenty and nine years in Jerusalem: and his mother's name was Abi the daughter of Zechariah.
+He was twenty-five years old when he began to reign; and he reigned twenty-nine years in Jerusalem: and his mother's name was Abi the daughter of Zechariah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she had been a widow even unto fourscore and four years), who departed not from the temple, worshipping with fastings and supplications night and day.
+and she had been a widow for about eighty-four years), who didn't depart from the temple, worshipping with fastings and petitions night and day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Yea, I have not suffered my mouth to sin By asking his life with a curse);
+(yes, I have not allowed my mouth to sin by asking his life with a curse);

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Satan answered Jehovah, and said, Skin for skin, yea, all that a man hath will he give for his life.
+Satan answered Yahweh, and said, "Skin for skin. Yes, all that a man has he will give for his life.

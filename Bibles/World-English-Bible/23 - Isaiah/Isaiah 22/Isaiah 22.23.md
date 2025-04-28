@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will fasten him as a nail in a sure place; and he shall be for a throne of glory to his father's house.
+I will fasten him like a nail in a sure place. He will be for a throne of glory to his father's house.

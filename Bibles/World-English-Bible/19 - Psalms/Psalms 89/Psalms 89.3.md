@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have made a covenant with my chosen, I have sworn unto David my servant:
+"I have made a covenant with my chosen one, I have sworn to David, my servant,

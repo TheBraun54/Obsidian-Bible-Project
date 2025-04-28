@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered unto him, It is written, Man shall not live by bread alone.
+Jesus answered him, saying, "It is written, 'Man shall not live by bread alone, but by every word of God.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-nevertheless thou shalt not build the house; but thy son that shall come forth out of thy loins, he shall build the house for my name.
+Nevertheless, you shall not build the house; but your son who shall come forth out of your body, he shall build the house for my name.'

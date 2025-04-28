@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the king hearkened not unto the people; for it was a thing brought about of Jehovah, that he might establish his word, which Jehovah spake by Ahijah the Shilonite to Jeroboam the son of Nebat.
+So the king didn't listen to the people; for it was a thing brought about of Yahweh, that he might establish his word, which Yahweh spoke by Ahijah the Shilonite to Jeroboam the son of Nebat.

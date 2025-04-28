@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Put thy hand into thy bosom again. (And he put his hand into his bosom again; and when he took it out of his bosom, behold, it was turned again as his [other] flesh.)
+He said, "Put your hand inside your cloak again." He put his hand inside his cloak again, and when he took it out of his cloak, behold, it had turned again as his other flesh.

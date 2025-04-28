@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Israel, hope in Jehovah; For with Jehovah there is lovingkindness, And with him is plenteous redemption.
+Israel, hope in Yahweh, for with Yahweh there is loving kindness. With him is abundant redemption.

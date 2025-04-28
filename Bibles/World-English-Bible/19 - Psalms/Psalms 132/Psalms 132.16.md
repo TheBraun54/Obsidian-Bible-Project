@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her priests also will I clothe with salvation; And her saints shall shout aloud for joy.
+Her priests I will also clothe with salvation. Her saints will shout aloud for joy.

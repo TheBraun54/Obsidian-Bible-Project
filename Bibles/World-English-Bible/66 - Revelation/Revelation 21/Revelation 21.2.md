@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw the holy city, new Jerusalem, coming down out of heaven from God, made ready as a bride adorned for her husband.
+I saw the holy city, New Jerusalem, coming down out of heaven from God, prepared like a bride adorned for her husband.

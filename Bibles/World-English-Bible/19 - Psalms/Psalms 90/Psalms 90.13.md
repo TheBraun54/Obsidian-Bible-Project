@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return, O Jehovah; How long? And let it repent thee concerning thy servants.
+Relent, Yahweh! How long? Have compassion on your servants!

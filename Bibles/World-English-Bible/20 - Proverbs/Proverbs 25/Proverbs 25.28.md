@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He whose spirit is without restraint Is [like] a city that is broken down and without walls.
+Like a city that is broken down and without walls is a man whose spirit is without restraint.

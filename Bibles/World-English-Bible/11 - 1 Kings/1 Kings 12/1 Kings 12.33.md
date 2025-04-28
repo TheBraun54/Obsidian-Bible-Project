@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went up unto the altar which he had made in Beth-el on the fifteenth day in the eighth month, even in the month which he had devised of his own heart: and he ordained a feast for the children of Israel, and went up unto the altar, to burn incense.
+He went up to the altar which he had made in Bethel on the fifteenth day in the eighth month, even in the month which he had devised of his own heart: and he ordained a feast for the children of Israel, and went up to the altar, to burn incense.

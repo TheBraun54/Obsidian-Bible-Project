@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I speak as to wise men; judge ye what I say.
+I speak as to wise men. Judge what I say.

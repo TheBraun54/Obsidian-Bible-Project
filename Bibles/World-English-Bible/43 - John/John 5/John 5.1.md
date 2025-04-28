@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things there was a feast of the Jews; and Jesus went up to Jerusalem.
+After these things, there was a feast of the Jews, and Jesus went up to Jerusalem.

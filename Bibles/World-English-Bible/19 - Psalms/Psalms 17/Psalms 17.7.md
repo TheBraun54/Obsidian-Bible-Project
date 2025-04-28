@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Show thy marvellous lovingkindness, O thou that savest by thy right hand them that take refuge [in thee] From those that rise up [against them] .
+Show your marvelous loving kindness, you who save those who take refuge by your right hand from their enemies.

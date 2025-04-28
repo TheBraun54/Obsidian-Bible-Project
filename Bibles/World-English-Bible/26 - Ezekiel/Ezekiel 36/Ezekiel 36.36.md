@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the nations that are left round about you shall know that I, Jehovah, have builded the ruined places, and planted that which was desolate: I, Jehovah, have spoken it, and I will do it.
+Then the nations that are left around you shall know that I, Yahweh, have built the ruined places, and planted that which was desolate: I, Yahweh, have spoken it, and I will do it.

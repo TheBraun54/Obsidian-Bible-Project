@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lot said unto them, Oh, not so, my lord:
+Lot said to them, "Oh, not so, my lord.

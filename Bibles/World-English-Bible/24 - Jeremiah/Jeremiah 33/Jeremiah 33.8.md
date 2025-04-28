@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cleanse them from all their iniquity, whereby they have sinned against me; and I will pardon all their iniquities, whereby they have sinned against me, and whereby they have transgressed against me.
+I will cleanse them from all their iniquity, by which they have sinned against me; and I will pardon all their iniquities, by which they have sinned against me, and by which they have transgressed against me.

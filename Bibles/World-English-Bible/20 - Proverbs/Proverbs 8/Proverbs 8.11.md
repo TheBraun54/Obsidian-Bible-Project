@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For wisdom is better than rubies; And all the things that may be desired are not to be compared unto it.
+For wisdom is better than rubies. All the things that may be desired can't be compared to it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall abide before God for ever: Oh prepare lovingkindness and truth, that they may preserve him.
+He shall be enthroned in God's presence forever. Appoint your loving kindness and truth, that they may preserve him.

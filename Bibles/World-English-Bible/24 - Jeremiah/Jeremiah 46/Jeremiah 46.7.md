@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is this that riseth up like the Nile, whose waters toss themselves like the rivers?
+Who is this who rises up like the Nile, whose waters toss themselves like the rivers?

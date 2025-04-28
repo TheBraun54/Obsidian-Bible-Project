@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also to punish the righteous is not good, [Nor] to smite the noble for [their] uprightness.
+Also to punish the righteous is not good, nor to flog officials for their integrity.

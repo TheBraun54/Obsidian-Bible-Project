@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Reprove not a scoffer, lest he hate thee: Reprove a wise man, and he will love thee.
+Don't reprove a scoffer, lest he hate you. Reprove a wise man, and he will love you.

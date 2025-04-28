@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the tent of meeting, without the veil which is before the testimony, Aaron and his sons shall keep it in order from evening to morning before Jehovah: it shall be a statue for ever throughout their generations on the behalf of the children of Israel.
+In the Tent of Meeting, outside the veil which is before the testimony, Aaron and his sons shall keep it in order from evening to morning before Yahweh: it shall be a statute forever throughout their generations on the behalf of the children of Israel.

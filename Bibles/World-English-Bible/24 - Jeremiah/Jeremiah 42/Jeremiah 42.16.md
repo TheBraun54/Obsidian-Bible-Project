@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then it shall come to pass, that the sword, which ye fear, shall overtake you there in the land of Egypt; and the famine, whereof ye are afraid, shall follow hard after you there in Egypt; and there ye shall die.
+then it shall happen, that the sword, which you fear, shall overtake you there in the land of Egypt; and the famine, about which you are afraid, shall follow close behind you there in Egypt; and there you shall die.

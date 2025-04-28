@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the generations of Aaron and Moses in the day that Jehovah spake with Moses in mount Sinai.
+Now this is the history of the generations of Aaron and Moses in the day that Yahweh spoke with Moses in Mount Sinai.

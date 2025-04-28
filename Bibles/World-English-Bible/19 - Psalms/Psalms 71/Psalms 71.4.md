@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rescue me, O my God, out of the hand of the wicked, Out of the hand of the unrighteous and cruel man.
+Rescue me, my God, from the hand of the wicked, from the hand of the unrighteous and cruel man.

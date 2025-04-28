@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but prophesy not again any more at Beth-el; for it is the king's sanctuary, and it is a royal house.
+but don't prophesy again any more at Bethel; for it is the king's sanctuary, and it is a royal house!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah looked upon him, and said, Go in this thy might, and save Israel from the hand of Midian: have not I sent thee?
+Yahweh looked at him, and said, "Go in this your might, and save Israel from the hand of Midian. Haven't I sent you?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in cutting of stones for setting, and in carving of wood, to work in all manner of skilful workmanship.
+in cutting of stones for setting, and in carving of wood, to work in all kinds of skillful workmanship.

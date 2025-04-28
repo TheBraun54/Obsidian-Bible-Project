@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and we will cut wood out of Lebanon, as much as thou shalt need; and we will bring it to thee in floats by sea to Joppa; and thou shalt carry it up to Jerusalem.
+and we will cut wood out of Lebanon, as much as you shall need; and we will bring it to you in floats by sea to Joppa; and you shall carry it up to Jerusalem."

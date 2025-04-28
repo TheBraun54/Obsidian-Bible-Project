@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many shall stumble thereon, and fall, and be broken, and be snared, and be taken.
+Many will stumble over it, fall, be broken, be snared, and be captured."

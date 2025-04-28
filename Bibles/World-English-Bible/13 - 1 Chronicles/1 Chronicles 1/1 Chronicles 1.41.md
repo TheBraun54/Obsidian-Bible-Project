@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Anah: Dishon. And the sons of Dishon: Hamran, and Eshban, and Ithran, and Cheran.
+The sons of Anah: Dishon. The sons of Dishon: Hamran, and Eshban, and Ithran, and Cheran.

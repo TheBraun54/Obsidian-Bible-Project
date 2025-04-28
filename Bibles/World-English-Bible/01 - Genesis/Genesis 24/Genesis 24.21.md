@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man looked stedfastly on her, holding his peace, to know whether Jehovah had made his journey prosperous or not.
+The man looked steadfastly at her, remaining silent, to know whether Yahweh had made his journey prosperous or not.

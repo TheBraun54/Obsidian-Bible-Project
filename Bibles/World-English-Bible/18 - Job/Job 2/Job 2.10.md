@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? In all this did not Job sin with his lips.
+But he said to her, "You speak as one of the foolish women would speak. What? Shall we receive good at the hand of God, and shall we not receive evil?" In all this Job didn't sin with his lips.

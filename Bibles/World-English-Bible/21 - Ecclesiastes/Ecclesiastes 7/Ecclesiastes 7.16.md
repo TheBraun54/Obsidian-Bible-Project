@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not righteous overmuch; neither make thyself overwise: why shouldest thou destroy thyself?
+Don't be overly righteous, neither make yourself overly wise. Why should you destroy yourself?

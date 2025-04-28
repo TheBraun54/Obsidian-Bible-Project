@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there remained two men in the camp, the name of the one was Eldad, and the name of the other Medad: and the Spirit rested upon them; and they were of them that were written, but had not gone out unto the Tent; and they prophesied in the camp.
+But two men remained in the camp. The name of one was Eldad, and the name of the other Medad: and the Spirit rested on them; and they were of those who were written, but had not gone out to the Tent; and they prophesied in the camp.

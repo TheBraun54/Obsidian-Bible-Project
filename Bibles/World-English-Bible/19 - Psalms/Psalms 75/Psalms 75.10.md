@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the horns of the wicked also will I cut off; But the horns of the righteous shall be lifted up.
+I will cut off all the horns of the wicked, but the horns of the righteous shall be lifted up. For the Chief Musician. On stringed instruments. A Psalm by Asaph. A song.

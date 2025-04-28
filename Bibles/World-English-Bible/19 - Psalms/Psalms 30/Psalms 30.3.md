@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, thou hast brought up my soul from Sheol; Thou hast kept me alive, that I should not go down to the pit.
+Yahweh, you have brought up my soul from Sheol. You have kept me alive, that I should not go down to the pit.

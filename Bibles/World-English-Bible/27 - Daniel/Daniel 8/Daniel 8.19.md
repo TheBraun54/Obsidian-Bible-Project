@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Behold, I will make thee know what shall be in the latter time of the indignation; for it belongeth to the appointed time of the end.
+He said, Behold, I will make you know what shall be in the latter time of the indignation; for it belongs to the appointed time of the end.

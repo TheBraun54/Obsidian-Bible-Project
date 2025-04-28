@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And going on a little further, he saw James the [son] of Zebedee, and John his brother, who also were in the boat mending the nets.
+Going on a little further from there, he saw James the son of Zebedee, and John, his brother, who were also in the boat mending the nets.

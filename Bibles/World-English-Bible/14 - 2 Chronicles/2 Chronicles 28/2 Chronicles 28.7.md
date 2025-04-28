@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zichri, a mighty man of Ephraim, slew Maaseiah the king's son, and Azrikam the ruler of the house, and Elkanah that was next to the king.
+Zichri, a mighty man of Ephraim, killed Maaseiah the king's son, and Azrikam the ruler of the house, and Elkanah who was next to the king.

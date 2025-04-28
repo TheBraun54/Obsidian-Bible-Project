@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I rejoice greatly that I have found [certain] of thy children walking in truth, even as we received commandment from the Father.
+I rejoice greatly that I have found some of your children walking in truth, even as we have been commanded by the Father.

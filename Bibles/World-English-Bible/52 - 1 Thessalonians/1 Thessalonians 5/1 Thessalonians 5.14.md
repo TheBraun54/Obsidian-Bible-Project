@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we exhort you, brethren, admonish the disorderly, encourage the fainthearted, support the weak, be longsuffering toward all.
+We exhort you, brothers, admonish the disorderly, encourage the fainthearted, support the weak, be patient toward all.

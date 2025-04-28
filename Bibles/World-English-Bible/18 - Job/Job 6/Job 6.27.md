@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, ye would cast [lots] upon the fatherless, And make merchandise of your friend.
+Yes, you would even cast lots for the fatherless, and make merchandise of your friend.

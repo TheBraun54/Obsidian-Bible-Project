@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There were seven brethren: and the first took a wife, and dying left no seed;
+There were seven brothers. The first took a wife, and dying left no offspring.

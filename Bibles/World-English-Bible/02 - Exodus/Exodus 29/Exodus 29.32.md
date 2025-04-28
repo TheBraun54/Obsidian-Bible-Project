@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron and his sons shall eat the flesh of the ram, and the bread that is in the basket, at the door of the tent of meeting.
+Aaron and his sons shall eat the flesh of the ram, and the bread that is in the basket, at the door of the Tent of Meeting.

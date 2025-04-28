@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel did that which Jehovah spake, and came to Beth-lehem. And the elders of the city came to meet him trembling, and said, Comest thou peaceably?
+Samuel did that which Yahweh spoke, and came to Bethlehem. The elders of the city came to meet him trembling, and said, "Do you come peaceably?"

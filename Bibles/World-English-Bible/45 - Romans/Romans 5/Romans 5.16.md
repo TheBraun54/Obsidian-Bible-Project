@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not as through one that sinned, [so] is the gift: for the judgment [came] of one unto condemnation, but the free gift [came] of many trespasses unto justification.
+The gift is not as through one who sinned: for the judgment came by one to condemnation, but the free gift came of many trespasses to justification.

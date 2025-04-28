@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My manner of life then from my youth up, which was from the beginning among mine own nation and at Jerusalem, know all the Jews;
+"Indeed, all the Jews know my way of life from my youth up, which was from the beginning among my own nation and at Jerusalem;

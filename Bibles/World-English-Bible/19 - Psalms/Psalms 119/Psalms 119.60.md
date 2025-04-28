@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I made haste, and delayed not, To observe thy commandments.
+I will hurry, and not delay, to obey your commandments.

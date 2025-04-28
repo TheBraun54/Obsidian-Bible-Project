@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again on the morrow John was standing, and two of his disciples;
+Again, the next day, John was standing with two of his disciples,

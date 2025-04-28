@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they shall wash their hands and their feet, that they die not: and it shall be a statute for ever to them, even to him and to his seed throughout their generations.
+So they shall wash their hands and their feet, that they not die: and it shall be a statute forever to them, even to him and to his descendants throughout their generations."

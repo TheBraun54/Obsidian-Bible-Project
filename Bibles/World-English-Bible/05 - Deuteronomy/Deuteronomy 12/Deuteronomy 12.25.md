@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not eat it; that it may go well with thee, and with thy children after thee, when thou shalt do that which is right in the eyes of Jehovah.
+You shall not eat it; that it may go well with you, and with your children after you, when you shall do that which is right in the eyes of Yahweh.

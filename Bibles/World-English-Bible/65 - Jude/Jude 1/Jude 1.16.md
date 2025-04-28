@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are murmurers, complainers, walking after their lusts (and their mouth speaketh great swelling [words] ), showing respect of persons for the sake of advantage.
+These are murmurers and complainers, walking after their lusts (and their mouth speaks proud things), showing respect of persons to gain advantage.

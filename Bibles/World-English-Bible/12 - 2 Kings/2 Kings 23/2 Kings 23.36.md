@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehoiakim was twenty and five years old when he began to reign; and he reigned eleven years in Jerusalem: and his mother's name was Zebidah the daughter of Pedaiah of Rumah.
+Jehoiakim was twenty-five years old when he began to reign; and he reigned eleven years in Jerusalem: and his mother's name was Zebidah the daughter of Pedaiah of Rumah.

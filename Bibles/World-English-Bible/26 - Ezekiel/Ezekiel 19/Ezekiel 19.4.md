@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nations also heard of him; he was taken in their pit; and they brought him with hooks unto the land of Egypt.
+The nations also heard of him; he was taken in their pit; and they brought him with hooks to the land of Egypt.

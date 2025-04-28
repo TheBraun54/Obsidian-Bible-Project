@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I said, Hearken to me; I also will show mine opinion.
+Therefore I said, 'Listen to me; I also will show my opinion.'

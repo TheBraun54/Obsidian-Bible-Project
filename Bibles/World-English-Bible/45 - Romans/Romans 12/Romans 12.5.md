@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so we, who are many, are one body in Christ, and severally members one of another.
+so we, who are many, are one body in Christ, and individually members one of another.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy people Israel didst thou make thine own people for ever; and thou, Jehovah, becamest their God.
+For your people Israel you made your own people forever; and you, Yahweh, became their God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Give me thy son. And he took him out of her bosom, and carried him up into the chamber, where he abode, and laid him upon his own bed.
+He said to her, "Give me your son." He took him out of her bosom, and carried him up into the room where he stayed, and laid him on his own bed.

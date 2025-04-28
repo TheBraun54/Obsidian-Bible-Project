@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said, Let there be light: and there was light.
+God said, "Let there be light," and there was light.

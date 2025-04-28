@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he touched my mouth with it, and said, Lo, this hath touched thy lips; and thine iniquity is taken away, and thy sin forgiven.
+He touched my mouth with it, and said, "Behold, this has touched your lips; and your iniquity is taken away, and your sin forgiven."

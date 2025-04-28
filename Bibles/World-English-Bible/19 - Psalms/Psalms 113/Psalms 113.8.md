@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That he may set him with princes, Even with the princes of his people.
+that he may set him with princes, even with the princes of his people.

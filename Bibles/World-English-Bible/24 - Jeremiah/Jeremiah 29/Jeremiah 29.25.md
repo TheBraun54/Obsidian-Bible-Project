@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus speaketh Jehovah of hosts, the God of Israel, saying, Because thou hast sent letters in thine own name unto all the people that are at Jerusalem, and to Zephaniah the son of Maaseiah, the priest, and to all the priests, saying,
+Thus speaks Yahweh of Armies, the God of Israel, saying, Because you have sent letters in your own name to all the people who are at Jerusalem, and to Zephaniah the son of Maaseiah, the priest, and to all the priests, saying,

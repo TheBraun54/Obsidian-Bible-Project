@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and as they were eating, he said, Verily I say unto you, that one of you shall betray me.
+As they were eating, he said, "Most certainly I tell you that one of you will betray me."

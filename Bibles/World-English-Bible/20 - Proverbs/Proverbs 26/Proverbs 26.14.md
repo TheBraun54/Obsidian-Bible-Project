@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] the door turneth upon its hinges, So doth the sluggard upon his bed.
+As the door turns on its hinges, so does the sluggard on his bed.

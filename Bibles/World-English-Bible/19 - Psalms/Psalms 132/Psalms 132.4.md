@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will not give sleep to mine eyes, Or slumber to mine eyelids;
+I will not give sleep to my eyes, or slumber to my eyelids;

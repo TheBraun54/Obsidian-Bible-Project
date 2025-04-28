@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And yet they hearkened not unto their judges; for they played the harlot after other gods, and bowed themselves down unto them: they turned aside quickly out of the way wherein their fathers walked, obeying the commandments of Jehovah; [but] they did not so.
+Yet they didn't listen to their judges; for they played the prostitute after other gods, and bowed themselves down to them: they turned aside quickly out of the way in which their fathers walked, obeying the commandments of Yahweh; [but] they didn't do so.

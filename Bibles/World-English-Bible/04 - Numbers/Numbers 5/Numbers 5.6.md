@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, When a man or woman shall commit any sin that men commit, so as to trespass against Jehovah, and that soul shall be guilty;
+"Speak to the children of Israel: 'When a man or woman commits any sin that men commit, so as to trespass against Yahweh, and that soul is guilty;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ My] little children, guard yourselves from idols.
+Little children, keep yourselves from idols.

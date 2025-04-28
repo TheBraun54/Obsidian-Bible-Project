@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better it is to be of a lowly spirit with the poor, Than to divide the spoil with the proud.
+It is better to be of a lowly spirit with the poor, than to divide the plunder with the proud.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the spirit of Egypt shall fail in the midst of it; and I will destroy the counsel thereof: and they shall seek unto the idols, and to the charmers, and to them that have familiar spirits, and to the wizards.
+The spirit of Egypt will fail in its midst. I will destroy its counsel. They will seek the idols, the charmers, those who have familiar spirits, and the wizards.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In this year of jubilee ye shall return every man unto his possession.
+"'In this Year of Jubilee each of you shall return to his property.

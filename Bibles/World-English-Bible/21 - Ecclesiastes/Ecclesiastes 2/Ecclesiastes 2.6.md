@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I made me pools of water, to water therefrom the forest where trees were reared;
+I made myself pools of water, to water from it the forest where trees were reared.

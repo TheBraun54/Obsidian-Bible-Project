@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto him, Wherefore hast thou smitten thine ass these three times? behold, I am come forth for an adversary, because thy way is perverse before me:
+The angel of Yahweh said to him, "Why have you struck your donkey these three times? Behold, I have come forth as an adversary, because your way is perverse before me:

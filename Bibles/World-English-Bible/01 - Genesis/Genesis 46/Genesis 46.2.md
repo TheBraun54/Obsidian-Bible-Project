@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God spake unto Israel in the visions of the night, and said, Jacob, Jacob. And he said, Here am I.
+God spoke to Israel in the visions of the night, and said, "Jacob, Jacob!" He said, "Here I am."

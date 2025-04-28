@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Achish, Therefore thou shalt know what thy servant will do. And Achish said to David, Therefore will I make thee keeper of my head for ever.
+David said to Achish, "Therefore you shall know what your servant will do." Achish said to David, "Therefore will I make you my bodyguard for ever."

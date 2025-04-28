@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto them repaired Melatiah the Gibeonite, and Jadon the Meronothite, the men of Gibeon, and of Mizpah, [that appertained] to the throne of the governor beyond the River.
+Next to them repaired Melatiah the Gibeonite, and Jadon the Meronothite, the men of Gibeon, and of Mizpah, [that appertained] to the throne of the governor beyond the River.

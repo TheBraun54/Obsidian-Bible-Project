@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the stork, the heron after its kind, and the hoopoe, and the bat.
+the stork, any kind of heron, the hoopoe, and the bat.

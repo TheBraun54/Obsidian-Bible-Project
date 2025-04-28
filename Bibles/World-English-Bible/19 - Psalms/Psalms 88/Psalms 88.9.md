@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eye wasteth away by reason of affliction: I have called daily upon thee, O Jehovah; I have spread forth my hands unto thee.
+My eyes are dim from grief. I have called on you daily, Yahweh. I have spread out my hands to you.

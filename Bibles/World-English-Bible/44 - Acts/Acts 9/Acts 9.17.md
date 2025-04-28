@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ananias departed, and entered into the house; and laying his hands on him said, Brother Saul, the Lord, [even] Jesus, who appeared unto thee in the way which thou camest, hath sent me, that thou mayest receive thy sight, and be filled with the Holy Spirit.
+Ananias departed, and entered into the house. Laying his hands on him, he said, "Brother Saul, the Lord, who appeared to you on the road by which you came, has sent me, that you may receive your sight, and be filled with the Holy Spirit."

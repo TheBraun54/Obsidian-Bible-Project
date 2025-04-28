@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Establish my footsteps in thy word; And let not any iniquity have dominion over me.
+Establish my footsteps in your word. Don't let any iniquity have dominion over me.

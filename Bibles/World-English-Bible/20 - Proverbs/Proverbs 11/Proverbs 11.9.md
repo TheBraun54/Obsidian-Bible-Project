@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With his mouth the godless man destroyeth his neighbor; But through knowledge shall the righteous be delivered.
+With his mouth the godless man destroys his neighbor, but the righteous will be delivered through knowledge.

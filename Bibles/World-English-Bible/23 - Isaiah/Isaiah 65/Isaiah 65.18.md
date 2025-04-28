@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But be ye glad and rejoice for ever in that which I create; for, behold, I create Jerusalem a rejoicing, and her people a joy.
+But be you glad and rejoice forever in that which I create; for, behold, I create Jerusalem a rejoicing, and her people a joy.

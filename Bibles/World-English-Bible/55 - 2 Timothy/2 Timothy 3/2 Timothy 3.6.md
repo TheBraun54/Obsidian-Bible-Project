@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For of these are they that creep into houses, and take captive silly women laden with sins, led away by divers lusts,
+For some of these are people who creep into houses, and take captive gullible women loaded down with sins, led away by various lusts,

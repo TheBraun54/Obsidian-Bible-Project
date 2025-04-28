@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(That also is accounted a land of Rephaim: Rephaim dwelt therein aforetime; but the Ammonites call them Zamzummim,
+(That also is accounted a land of Rephaim: Rephaim lived therein before; but the Ammonites call them Zamzummim,

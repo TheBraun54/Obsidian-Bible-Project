@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore was the name of it called Babel; because Jehovah did there confound the language of all the earth: and from thence did Jehovah scatter them abroad upon the face of all the earth.
+Therefore its name was called Babel, because there Yahweh confused the language of all the earth. From there, Yahweh scattered them abroad on the surface of all the earth.

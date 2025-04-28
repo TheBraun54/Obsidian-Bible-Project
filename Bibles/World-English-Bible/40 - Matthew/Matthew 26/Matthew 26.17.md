@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now on the first [day] of unleavened bread the disciples came to Jesus, saying, Where wilt thou that we make ready for thee to eat the passover?
+Now on the first day of unleavened bread, the disciples came to Jesus, saying to him, "Where do you want us to prepare for you to eat the Passover?"

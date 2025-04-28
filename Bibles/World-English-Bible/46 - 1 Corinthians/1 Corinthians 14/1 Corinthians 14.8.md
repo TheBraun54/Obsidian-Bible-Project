@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the trumpet give an uncertain voice, who shall prepare himself for war?
+For if the trumpet gave an uncertain sound, who would prepare himself for war?

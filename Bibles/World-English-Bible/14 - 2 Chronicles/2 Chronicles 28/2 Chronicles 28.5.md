@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Jehovah his God delivered him into the hand of the king of Syria; and they smote him, and carried away of his a great multitude of captives, and brought them to Damascus. And he was also delivered into the hand of the king of Israel, who smote him with a great slaughter.
+Therefore Yahweh his God delivered him into the hand of the king of Syria; and they struck him, and carried away of his a great multitude of captives, and brought them to Damascus. He was also delivered into the hand of the king of Israel, who struck him with a great slaughter.

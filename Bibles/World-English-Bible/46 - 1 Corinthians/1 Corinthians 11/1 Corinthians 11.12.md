@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the woman is of the man, so is the man also by the woman; but all things are of God.
+For as woman came from man, so a man also comes through a woman; but all things are from God.

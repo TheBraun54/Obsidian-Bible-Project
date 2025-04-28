@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the field is the world; and the good seed, these are the sons of the kingdom; and the tares are the sons of the evil [one] ;
+the field is the world; and the good seed, these are the children of the Kingdom; and the darnel weeds are the children of the evil one.

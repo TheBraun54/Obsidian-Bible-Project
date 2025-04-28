@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass that, as soon as he was king, he smote all the house of Jeroboam: he left not to Jeroboam any that breathed, until he had destroyed him; according unto the saying of Jehovah, which he spake by his servant Ahijah the Shilonite;
+It happened that, as soon as he was king, he struck all the house of Jeroboam: he didn't leave to Jeroboam any who breathed, until he had destroyed him; according to the saying of Yahweh, which he spoke by his servant Ahijah the Shilonite;

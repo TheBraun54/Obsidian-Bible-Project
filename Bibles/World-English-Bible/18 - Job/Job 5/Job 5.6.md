@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For affliction cometh not forth from the dust, Neither doth trouble spring out of the ground;
+For affliction doesn't come forth from the dust, neither does trouble spring out of the ground;

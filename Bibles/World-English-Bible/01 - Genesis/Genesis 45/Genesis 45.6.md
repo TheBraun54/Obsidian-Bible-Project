@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For these two years hath the famine been in the land: and there are yet five years, in which there shall be neither plowing nor harvest.
+For these two years the famine has been in the land, and there are yet five years, in which there will be neither plowing nor harvest.

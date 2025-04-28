@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any one of the common people sin unwittingly, in doing any of the things which Jehovah hath commanded not to be done, and be guilty;
+"'If anyone of the common people sins unwittingly, in doing any of the things which Yahweh has commanded not to be done, and is guilty;

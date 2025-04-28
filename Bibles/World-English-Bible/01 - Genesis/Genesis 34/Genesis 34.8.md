@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hamor communed with them, saying, The soul of my son Shechem longeth for your daughter: I pray you, give her unto him to wife.
+Hamor talked with them, saying, "The soul of my son, Shechem, longs for your daughter. Please give her to him as a wife.

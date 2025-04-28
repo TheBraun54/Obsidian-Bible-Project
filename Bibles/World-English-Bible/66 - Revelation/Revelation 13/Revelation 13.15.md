@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was given [unto him] to give breath to it, [even] to the image to the beast, that the image of the beast should both speak, and cause that as many as should not worship the image of the beast should be killed.
+It was given to him to give breath to it, to the image of the beast, that the image of the beast should both speak, and cause as many as wouldn't worship the image of the beast to be killed.

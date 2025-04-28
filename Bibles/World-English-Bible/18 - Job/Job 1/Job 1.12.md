@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Satan, Behold, all that he hath is in thy power; only upon himself put not forth thy hand. So Satan went forth from the presence of Jehovah.
+Yahweh said to Satan, "Behold, all that he has is in your power. Only on himself don't put forth your hand." So Satan went forth from the presence of Yahweh.

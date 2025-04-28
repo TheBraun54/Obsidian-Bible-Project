@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by a prophet Jehovah brought Israel up out of Egypt, and by a prophet was he preserved.
+By a prophet Yahweh brought Israel up out of Egypt, and by a prophet he was preserved.

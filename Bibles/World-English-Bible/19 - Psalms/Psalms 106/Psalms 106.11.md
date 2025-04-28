@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the waters covered their adversaries; There was not one of them left.
+The waters covered their adversaries. There was not one of them left.

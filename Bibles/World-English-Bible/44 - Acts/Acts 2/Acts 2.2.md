@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And suddenly there came from heaven a sound as of the rushing of a mighty wind, and it filled all the house where they were sitting.
+Suddenly there came from the sky a sound like the rushing of a mighty wind, and it filled all the house where they were sitting.

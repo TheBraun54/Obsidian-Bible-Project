@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Behold, thou shalt sleep with thy fathers; and this people will rise up, and play the harlot after the strange gods of the land, whither they go to be among them, and will forsake me, and break my covenant which I have made with them.
+Yahweh said to Moses, "Behold, you shall sleep with your fathers; and this people will rise up, and play the prostitute after the strange gods of the land, where they go to be among them, and will forsake me, and break my covenant which I have made with them.

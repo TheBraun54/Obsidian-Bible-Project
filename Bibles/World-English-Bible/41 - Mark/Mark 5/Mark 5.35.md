@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he yet spake, they come from the ruler of the synagogue's [house] saying, Thy daughter is dead: why troublest thou the Teacher any further?
+While he was still speaking, people came from the synagogue ruler's house saying, "Your daughter is dead. Why bother the Teacher any more?"

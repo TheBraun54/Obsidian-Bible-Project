@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face toward Jerusalem, and drop [thy word] toward the sanctuaries, and prophesy against the land of Israel;
+Son of man, set your face toward Jerusalem, and drop [your word] toward the sanctuaries, and prophesy against the land of Israel;

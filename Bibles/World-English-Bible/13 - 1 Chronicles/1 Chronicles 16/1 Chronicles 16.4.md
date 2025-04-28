@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he appointed certain of the Levites to minister before the ark of Jehovah, and to celebrate and to thank and praise Jehovah, the God of Israel:
+He appointed certain of the Levites to minister before the ark of Yahweh, and to celebrate and to thank and praise Yahweh, the God of Israel:

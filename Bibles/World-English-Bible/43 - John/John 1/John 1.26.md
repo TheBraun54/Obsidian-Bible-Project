@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-John answered them, saying, I baptize in water: in the midst of you standeth one whom ye know not,
+John answered them, "I baptize in water, but among you stands one whom you don't know.

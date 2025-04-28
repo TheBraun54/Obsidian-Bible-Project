@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are witnesses, and God [also], how holily and righteously and unblameably we behaved ourselves toward you that believe:
+You are witnesses with God, how holy, righteously, and blamelessly we behaved ourselves toward you who believe.

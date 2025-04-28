@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have made Esau bare, I have uncovered his secret places, and he shall not be able to hide himself: his seed is destroyed, and his brethren, and his neighbors; and he is not.
+But I have made Esau bare, I have uncovered his secret places, and he shall not be able to hide himself: his seed is destroyed, and his brothers, and his neighbors; and he is no more.

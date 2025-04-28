@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to stand every morning to thank and praise Jehovah, and likewise at even;
+and to stand every morning to thank and praise Yahweh, and likewise in the evening;

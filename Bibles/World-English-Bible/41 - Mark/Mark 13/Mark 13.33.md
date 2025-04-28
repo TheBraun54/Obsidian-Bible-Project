@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye heed, watch and pray: for ye know not when the time is.
+Watch, keep alert, and pray; for you don't know when the time is.

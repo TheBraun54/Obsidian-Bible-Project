@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath strengthened the bars of thy gates; He hath blessed thy children within thee.
+For he has strengthened the bars of your gates. He has blessed your children within you.

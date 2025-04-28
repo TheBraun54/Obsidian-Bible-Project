@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Knowest thou the ordinances of the heavens? Canst thou establish the dominion thereof in the earth?
+Do you know the laws of the heavens? Can you establish its dominion over the earth?

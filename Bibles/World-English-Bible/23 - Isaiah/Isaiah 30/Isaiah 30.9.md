@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is a rebellious people, lying children, children that will not hear the law of Jehovah;
+For it is a rebellious people, lying children, children who will not hear the law of Yahweh;

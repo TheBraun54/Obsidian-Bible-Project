@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the day perish wherein I was born, And the night which said, There is a man-child conceived.
+"Let the day perish in which I was born, the night which said, 'There is a boy conceived.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, This is the land which I sware unto Abraham, unto Isaac, and unto Jacob, saying, I will give it unto thy seed: I have caused thee to see it with thine eyes, but thou shalt not go over thither.
+Yahweh said to him, "This is the land which I swore to Abraham, to Isaac, and to Jacob, saying, 'I will give it to your seed.' I have caused you to see it with your eyes, but you shall not go over there."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David knew that Saul was devising mischief against him; and he said to Abiathar the priest, Bring hither the ephod.
+David knew that Saul was devising mischief against him; and he said to Abiathar the priest, "Bring the ephod here."

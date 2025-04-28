@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men that have been mentioned by name rose up, and took the captives, and with the spoil clothed all that were naked among them, and arrayed them, and shod them, and gave them to eat and to drink, and anointed them, and carried all the feeble of them upon asses, and brought them to Jericho, the city of palm-trees, unto their brethren: then they returned to Samaria.
+The men who have been mentioned by name rose up, and took the captives, and with the spoil clothed all who were naked among them, dressed them, gave them sandals, and gave them something to eat and to drink, anointed them, carried all the feeble of them on donkeys, and brought them to Jericho, the city of palm trees, to their brothers. Then they returned to Samaria.

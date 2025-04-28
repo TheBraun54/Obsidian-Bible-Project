@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Here is the end of the matter. As for me, Daniel, my thoughts much troubled me, and my countenance was changed in me: but I kept the matter in my heart.
+Here is the end of the matter. As for me, Daniel, my thoughts much troubled me, and my face was changed in me: but I kept the matter in my heart.

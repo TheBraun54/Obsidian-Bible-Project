@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any man is ignorant, let him be ignorant.
+But if anyone is ignorant, let him be ignorant.

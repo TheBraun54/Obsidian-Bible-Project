@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt surely restore to him the pledge when the sun goeth down, that he may sleep in his garment, and bless thee: and it shall be righteousness unto thee before Jehovah thy God.
+you shall surely restore to him the pledge when the sun goes down, that he may sleep in his garment, and bless you: and it shall be righteousness to you before Yahweh your God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman said, Wherefore then hast thou devised such a thing against the people of God? for in speaking this word the king is as one that is guilty, in that the king doth not fetch home again his banished one.
+The woman said, "Why then have you devised such a thing against the people of God? For in speaking this word the king is as one who is guilty, in that the king does not bring home again his banished one.

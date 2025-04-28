@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for this cause ought the woman to have [a sign of] authority on her head, because of the angels.
+For this cause the woman ought to have authority on her head, because of the angels.

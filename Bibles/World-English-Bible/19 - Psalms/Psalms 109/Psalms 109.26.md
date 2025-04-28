@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Help me, O Jehovah my God; Oh save me according to thy lovingkindness:
+Help me, Yahweh, my God. Save me according to your loving kindness;

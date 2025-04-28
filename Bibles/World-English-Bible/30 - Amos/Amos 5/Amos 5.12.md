@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know how manifold are your transgressions, and how mighty are your sins--ye that afflict the just, that take a bribe, and that turn aside the needy in the gate [from their right] .
+For I know how many your offenses, and how great are your sins-- you who afflict the just, who take a bribe, and who turn aside the needy in the courts.

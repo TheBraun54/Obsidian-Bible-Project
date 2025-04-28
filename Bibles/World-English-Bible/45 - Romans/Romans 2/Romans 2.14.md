@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for when Gentiles that have not the law do by nature the things of the law, these, not having the law, are the law unto themselves;
+(for when Gentiles who don't have the law do by nature the things of the law, these, not having the law, are a law to themselves,

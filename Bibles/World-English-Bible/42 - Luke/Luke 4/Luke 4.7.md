@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou therefore wilt worship before me, it shall all be thine.
+If you therefore will worship before me, it will all be yours."

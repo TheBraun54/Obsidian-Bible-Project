@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sendeth forth springs into the valleys; They run among the mountains;
+He sends forth springs into the valleys. They run among the mountains.

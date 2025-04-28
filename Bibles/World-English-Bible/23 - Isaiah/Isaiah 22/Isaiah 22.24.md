@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall hang upon him all the glory of his father's house, the offspring and the issue, every small vessel, from the cups even to all the flagons.
+They will hang on him all the glory of his father's house, the offspring and the issue, every small vessel, from the cups even to all the pitchers.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David therefore calleth him Lord, and how is he his son?
+"David therefore calls him Lord, so how is he his son?"

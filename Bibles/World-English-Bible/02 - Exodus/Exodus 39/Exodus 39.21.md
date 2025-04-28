@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they did bind the breastplate by the rings thereof unto the rings of the ephod with a lace of blue, that it might be upon the skilfully woven band of the ephod, and that the breastplate might not be loosed from the ephod; as Jehovah commanded Moses.
+They bound the breastplate by its rings to the rings of the ephod with a lace of blue, that it might be on the skillfully woven band of the ephod, and that the breastplate might not come loose from the ephod, as Yahweh commanded Moses.

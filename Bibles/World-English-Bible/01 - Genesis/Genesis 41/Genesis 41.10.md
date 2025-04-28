@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pharaoh was wroth with his servants, and put me in ward in the house of the captain of the guard, me and the chief baker:
+Pharaoh was angry with his servants, and put me in custody in the house of the captain of the guard, me and the chief baker.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every wise woman buildeth her house; But the foolish plucketh it down with her own hands.
+Every wise woman builds her house, but the foolish one tears it down with her own hands.

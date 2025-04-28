@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-your own iniquities, and the iniquities of your fathers together, saith Jehovah, that have burned incense upon the mountains, and blasphemed me upon the hills; therefore will I first measure their work into their bosom.
+your own iniquities, and the iniquities of your fathers together," says Yahweh, "who have burned incense on the mountains, and blasphemed me on the hills; therefore will I first measure their work into their bosom."

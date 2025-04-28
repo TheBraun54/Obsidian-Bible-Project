@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, when Ahijah heard the sound of her feet, as she came in at the door, that he said, Come in, thou wife of Jeroboam; why feignest thou thyself to be another? for I am sent to thee with heavy tidings.
+It was so, when Ahijah heard the sound of her feet, as she came in at the door, that he said, "Come in, you wife of Jeroboam! Why do you pretend to be another? For I am sent to you with heavy news.

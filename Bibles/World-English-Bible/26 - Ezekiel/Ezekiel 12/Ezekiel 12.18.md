@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, eat thy bread with quaking, and drink thy water with trembling and with fearfulness;
+Son of man, eat your bread with quaking, and drink your water with trembling and with fearfulness;

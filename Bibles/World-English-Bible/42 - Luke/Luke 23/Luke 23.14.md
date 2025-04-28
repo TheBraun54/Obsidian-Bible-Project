@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Ye brought unto me this man, as one that perverteth the people: and behold, I having examined him before you, found no fault in this man touching those things whereof ye accuse him:
+and said to them, "You brought this man to me as one that perverts the people, and see, I have examined him before you, and found no basis for a charge against this man concerning those things of which you accuse him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did not Moses give you the law, and [yet] none of you doeth the law? Why seek ye to kill me?
+Didn't Moses give you the law, and yet none of you keeps the law? Why do you seek to kill me?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As birds hovering, so will Jehovah of hosts protect Jerusalem; he will protect and deliver [it], he will pass over and preserve [it] .
+As birds hovering, so Yahweh of Armies will protect Jerusalem. He will protect and deliver it. He will pass over and preserve it."

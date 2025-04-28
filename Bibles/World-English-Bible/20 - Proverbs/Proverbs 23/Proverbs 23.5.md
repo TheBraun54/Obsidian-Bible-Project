@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou set thine eyes upon that which is not? For [riches] certainly make themselves wings, Like an eagle that flieth toward heaven.
+Why do you set your eyes on that which is not? For it certainly sprouts wings like an eagle and flies in the sky.

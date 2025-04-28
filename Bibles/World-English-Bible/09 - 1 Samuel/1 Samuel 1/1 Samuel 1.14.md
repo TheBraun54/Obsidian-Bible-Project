@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eli said unto her, How long wilt thou be drunken? put away thy wine from thee.
+Eli said to her, "How long will you be drunken? Put away your wine from you."

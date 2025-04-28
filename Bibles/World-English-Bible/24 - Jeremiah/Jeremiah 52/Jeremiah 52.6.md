@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the fourth month, in the ninth day of the month, the famine was sore in the city, so that there was no bread for the people of the land.
+In the fourth month, in the ninth day of the month, the famine was severe in the city, so that there was no bread for the people of the land.

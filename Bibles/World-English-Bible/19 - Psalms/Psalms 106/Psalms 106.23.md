@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he said that he would destroy them, Had not Moses his chosen stood before him in the breach, To turn away his wrath, lest he should destroy [them] .
+Therefore he said that he would destroy them, had Moses, his chosen, not stood before him in the breach, to turn away his wrath, so that he wouldn't destroy them.

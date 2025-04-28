@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a wild ass used to the wilderness, that snuffeth up the wind in her desire; in her occasion who can turn her away? all they that seek her will not weary themselves; in her month they shall find her.
+a wild donkey used to the wilderness, that snuffs up the wind in her desire. When she is in heat, who can turn her away? All those who seek her will not weary themselves. In her month, they will find her.

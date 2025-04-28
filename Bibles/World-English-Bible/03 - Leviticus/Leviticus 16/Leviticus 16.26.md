@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that letteth go the goat for Azazel shall wash his clothes, and bathe his flesh in water, and afterward he shall come into the camp.
+"He who lets the goat go for the scapegoat shall wash his clothes, and bathe his flesh in water, and afterward he shall come into the camp.

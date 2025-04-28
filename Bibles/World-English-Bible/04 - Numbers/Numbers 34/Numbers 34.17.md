@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the names of the men that shall divide the land unto you for inheritance: Eleazar the priest, and Joshua the son of Nun.
+"These are the names of the men who shall divide the land to you for inheritance: Eleazar the priest, and Joshua the son of Nun.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He frustrateth the devices of the crafty, So that their hands cannot perform their enterprise.
+He frustrates the devices of the crafty, So that their hands can't perform their enterprise.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his servant said, What, should I set this before a hundred men? But he said, Give the people, that they may eat; for thus saith Jehovah, They shall eat, and shall leave thereof.
+His servant said, "What, should I set this before a hundred men?" But he said, "Give the people, that they may eat; for thus says Yahweh, 'They will eat, and will have some left over.'"

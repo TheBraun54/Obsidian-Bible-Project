@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put away the sodomites out of the land, and removed all the idols that his fathers had made.
+He put away the sodomites out of the land, and removed all the idols that his fathers had made.

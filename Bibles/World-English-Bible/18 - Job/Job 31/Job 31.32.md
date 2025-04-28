@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(The sojourner hath not lodged in the street; But I have opened my doors to the traveller);
+(the foreigner has not lodged in the street, but I have opened my doors to the traveler);

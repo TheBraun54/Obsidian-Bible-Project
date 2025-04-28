@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And know ye this day: for [I speak] not with your children that have not known, and that have not seen the chastisement of Jehovah your God, his greatness, his mighty hand, and his outstretched arm,
+Know this day: for I don't speak with your children who have not known, and who have not seen the chastisement of Yahweh your God, his greatness, his mighty hand, and his outstretched arm,

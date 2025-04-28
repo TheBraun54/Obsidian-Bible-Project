@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph dwelt in Egypt, he, and his father's house: and Joseph lived a hundred and ten years.
+Joseph lived in Egypt, he, and his father's house. Joseph lived one hundred ten years.

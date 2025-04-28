@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye do good to them that do good to you, what thank have ye? for even sinners do the same.
+If you do good to those who do good to you, what credit is that to you? For even sinners do the same.

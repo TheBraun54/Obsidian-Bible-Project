@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though he heap up silver as the dust, And prepare raiment as the clay;
+Though he heap up silver as the dust, and prepare clothing as the clay;

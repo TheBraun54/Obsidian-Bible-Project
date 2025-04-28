@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Abishai, Destroy him not; for who can put forth his hand against Jehovah's anointed, and be guiltless?
+David said to Abishai, "Don't destroy him; for who can put forth his hand against Yahweh's anointed, and be guiltless?"

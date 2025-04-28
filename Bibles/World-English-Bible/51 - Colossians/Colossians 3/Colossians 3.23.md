@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whatsoever ye do, work heartily, as unto the Lord, and not unto men;
+And whatever you do, work heartily, as for the Lord, and not for men,

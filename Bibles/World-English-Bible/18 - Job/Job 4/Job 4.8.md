@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According as I have seen, they that plow iniquity, And sow trouble, reap the same.
+According to what I have seen, those who plow iniquity, and sow trouble, reap the same.

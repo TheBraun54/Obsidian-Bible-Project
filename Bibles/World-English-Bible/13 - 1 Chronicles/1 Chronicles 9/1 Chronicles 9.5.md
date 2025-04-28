@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the Shilonites: Asaiah the first-born, and his sons.
+Of the Shilonites: Asaiah the firstborn, and his sons.

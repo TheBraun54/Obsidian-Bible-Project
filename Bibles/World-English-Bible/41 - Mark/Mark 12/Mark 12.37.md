@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David himself calleth him Lord; and whence is he his son? And the common people heard him gladly.
+Therefore David himself calls him Lord, so how can he be his son?" The common people heard him gladly.

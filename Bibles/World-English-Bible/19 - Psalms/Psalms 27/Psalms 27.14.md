@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wait for Jehovah: Be strong, And let thy heart take courage; Yea, wait thou for Jehovah.
+Wait for Yahweh. Be strong, and let your heart take courage. Yes, wait for Yahweh. By David.

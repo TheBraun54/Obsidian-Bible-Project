@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I set apart twelve of the chiefs of the priests, even Sherebiah, Hashabiah, and ten of their brethren with them,
+Then I set apart twelve of the chiefs of the priests, even Sherebiah, Hashabiah, and ten of their brothers with them,

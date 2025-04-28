@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ascribe unto Jehovah, ye kindreds of the peoples, Ascribe unto Jehovah glory and strength.
+Ascribe to Yahweh, you families of nations, ascribe to Yahweh glory and strength.

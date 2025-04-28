@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if to live in the flesh,--[ if] this shall bring fruit from my work, then what I shall choose I know not.
+But if I live on in the flesh, this will bring fruit from my work; yet I don't know what I will choose.

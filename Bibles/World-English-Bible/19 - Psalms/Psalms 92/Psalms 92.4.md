@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, Jehovah, hast made me glad through thy work: I will triumph in the works of thy hands.
+For you, Yahweh, have made me glad through your work. I will triumph in the works of your hands.

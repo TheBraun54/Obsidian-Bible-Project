@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Uphold me according unto thy word, that I may live; And let me not be ashamed of my hope.
+Uphold me according to your word, that I may live. Let me not be ashamed of my hope.

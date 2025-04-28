@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O Jehovah, Confront him, cast him down: Deliver my soul from the wicked by thy sword;
+Arise, Yahweh, confront him. Cast him down. Deliver my soul from the wicked by your sword;

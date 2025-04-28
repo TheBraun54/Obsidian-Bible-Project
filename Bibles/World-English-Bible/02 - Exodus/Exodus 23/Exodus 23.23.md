@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For mine angel shall go before thee, and bring thee in unto the Amorite, and the Hittite, and the Perizzite, and the Canaanite, the Hivite, and the Jebusite: and I will cut them off.
+For my angel shall go before you, and bring you in to the Amorite, the Hittite, the Perizzite, the Canaanite, the Hivite, and the Jebusite; and I will cut them off.

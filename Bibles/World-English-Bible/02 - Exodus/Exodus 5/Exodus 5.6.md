@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the same day Pharaoh commanded the taskmasters of the people, and their officers, saying,
+The same day Pharaoh commanded the taskmasters of the people, and their officers, saying,

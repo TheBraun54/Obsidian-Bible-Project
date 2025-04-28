@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall stand, and shall feed [his flock] in the strength of Jehovah, in the majesty of the name of Jehovah his God: and they shall abide; for now shall he be great unto the ends of the earth.
+He shall stand, and shall shepherd in the strength of Yahweh, in the majesty of the name of Yahweh his God: and they will live, for then he will be great to the ends of the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Jesus], knowing that the Father had given all the things into his hands, and that he came forth from God, and goeth unto God,
+Jesus, knowing that the Father had given all things into his hands, and that he came forth from God, and was going to God,

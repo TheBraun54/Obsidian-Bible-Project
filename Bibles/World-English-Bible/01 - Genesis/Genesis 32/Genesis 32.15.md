@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thirty milch camels and their colts, forty cows and ten bulls, twenty she-asses and ten foals.
+thirty milk camels and their colts, forty cows, ten bulls, twenty female donkeys and ten foals.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His left hand [should be] under my head, And his right hand should embrace me.
+His left hand would be under my head. His right hand would embrace me.

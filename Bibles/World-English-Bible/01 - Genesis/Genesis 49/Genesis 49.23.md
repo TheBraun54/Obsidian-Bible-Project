@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The archers have sorely grieved him, And shot at him, and persecuted him:
+The archers have severely grieved him, shot at him, and persecute him:

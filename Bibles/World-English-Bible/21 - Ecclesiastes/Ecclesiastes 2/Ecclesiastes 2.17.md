@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I hated life, because the work that is wrought under the sun was grievous unto me; for all is vanity and a striving after wind.
+So I hated life, because the work that is worked under the sun was grievous to me; for all is vanity and a chasing after wind.

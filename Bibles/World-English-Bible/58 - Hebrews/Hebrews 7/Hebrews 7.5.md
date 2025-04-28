@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they indeed of the sons of Levi that receive the priest's office have commandment to take tithes of the people according to the law, that is, of their brethren, though these have come out of the loins of Abraham:
+They indeed of the sons of Levi who receive the priest's office have a commandment to take tithes of the people according to the law, that is, of their brothers, though these have come out of the body of Abraham,

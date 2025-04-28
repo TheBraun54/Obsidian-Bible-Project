@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stayed yet other seven days, and sent forth the dove; and she returned not again unto him any more.
+He stayed yet another seven days, and sent forth the dove; and she didn't return to him any more.

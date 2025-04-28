@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hitherto have ye asked nothing in my name: ask, and ye shall receive, that your joy may be made full.
+Until now, you have asked nothing in my name. Ask, and you will receive, that your joy may be made full.

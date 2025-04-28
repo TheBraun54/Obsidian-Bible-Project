@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the eleventh year of Joram the son of Ahab began Ahaziah to reign over Judah.
+In the eleventh year of Joram the son of Ahab began Ahaziah to reign over Judah.

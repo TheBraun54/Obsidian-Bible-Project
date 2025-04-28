@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye know these things, blessed are ye if ye do them.
+If you know these things, blessed are you if you do them.

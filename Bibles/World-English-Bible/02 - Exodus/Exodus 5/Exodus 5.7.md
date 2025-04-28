@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall no more give the people straw to make brick, as heretofore: let them go and gather straw for themselves.
+"You shall no longer give the people straw to make brick, as before. Let them go and gather straw for themselves.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and take ye every man his censer, and put incense upon them, and bring ye before Jehovah every man his censer, two hundred and fifty censers; thou also, and Aaron, each his censer.
+and each man take his censer, and put incense on them, and each man bring before Yahweh his censer, two hundred fifty censers; you also, and Aaron, each his censer."

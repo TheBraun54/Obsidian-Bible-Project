@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The neighbors therefore, and they that saw him aforetime, that he was a beggar, said, Is not this he that sat and begged?
+The neighbors therefore, and those who saw that he was blind before, said, "Isn't this he who sat and begged?"

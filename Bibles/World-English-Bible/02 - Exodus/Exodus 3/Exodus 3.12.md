@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Certainly I will be with thee; and this shall be the token unto thee, that I have sent thee: when thou hast brought forth the people out of Egypt, ye shall serve God upon this mountain.
+He said, "Certainly I will be with you. This will be the token to you, that I have sent you: when you have brought forth the people out of Egypt, you shall serve God on this mountain."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the true vine, and my Father is the husbandman.
+"I am the true vine, and my Father is the farmer.

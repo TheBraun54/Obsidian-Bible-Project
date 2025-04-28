@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let their eyes be darkened, so that they cannot see; And make their loins continually to shake.
+Let their eyes be darkened, so that they can't see. Let their backs be continually bent.

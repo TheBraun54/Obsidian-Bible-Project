@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When ye transgress the covenant of Jehovah your God, which he commanded you, and go and serve other gods, and bow down yourselves to them; then will the anger of Jehovah be kindled against you, and ye shall perish quickly from off the good land which he hath given unto you.
+when you disobey the covenant of Yahweh your God, which he commanded you, and go and serve other gods, and bow down yourselves to them. Then the anger of Yahweh will be kindled against you, and you will perish quickly from off the good land which he has given to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye were going astray like sheep; but are now returned unto the Shepherd and Bishop of your souls.
+For you were going astray like sheep; but now have returned to the Shepherd and Overseer of your souls.

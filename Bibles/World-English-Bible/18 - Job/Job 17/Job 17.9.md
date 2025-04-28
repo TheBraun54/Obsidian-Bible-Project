@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet shall the righteous hold on his way, And he that hath clean hands shall wax stronger and stronger.
+Yet shall the righteous hold on his way. He who has clean hands shall grow stronger and stronger.

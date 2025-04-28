@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They break in pieces thy people, O Jehovah, And afflict thy heritage.
+They break your people in pieces, Yahweh, and afflict your heritage.

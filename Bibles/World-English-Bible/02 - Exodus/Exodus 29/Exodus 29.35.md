@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus shalt thou do unto Aaron, and to his sons, according to all that I have commanded thee: seven days shalt thou consecrate them.
+"You shall do so to Aaron, and to his sons, according to all that I have commanded you. You shall consecrate them seven days.

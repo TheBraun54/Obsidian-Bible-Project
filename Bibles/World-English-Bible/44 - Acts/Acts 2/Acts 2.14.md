@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter, standing up with the eleven, lifted up his voice, and spake forth unto them, [saying], Ye men of Judaea, and all ye that dwell at Jerusalem, be this known unto you, and give ear unto my words.
+But Peter, standing up with the eleven, lifted up his voice, and spoke out to them, "You men of Judea, and all you who dwell at Jerusalem, let this be known to you, and listen to my words.

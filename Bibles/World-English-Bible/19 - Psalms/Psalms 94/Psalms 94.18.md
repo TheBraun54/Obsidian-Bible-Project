@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I said, My foot slippeth; Thy lovingkindness, O Jehovah, held me up.
+When I said, "My foot is slipping!" Your loving kindness, Yahweh, held me up.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will make thy tongue cleave to the roof of thy mouth, that thou shalt be dumb, and shalt not be to them a reprover; for they are a rebellious house.
+and I will make your tongue stick to the roof of your mouth, that you shall be mute, and shall not be to them a reprover; for they are a rebellious house.

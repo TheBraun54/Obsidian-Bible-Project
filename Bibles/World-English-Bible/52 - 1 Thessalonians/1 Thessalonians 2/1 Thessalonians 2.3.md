@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For our exhortation [is] not of error, nor of uncleanness, nor in guile:
+For our exhortation is not of error, nor of uncleanness, nor in deception.

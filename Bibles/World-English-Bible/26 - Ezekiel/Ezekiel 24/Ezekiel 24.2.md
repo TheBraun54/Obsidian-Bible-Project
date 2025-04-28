@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, write thee the name of the day, [even] of this selfsame day: the king of Babylon drew close unto Jerusalem this selfsame day.
+Son of man, write the name of the day, [even] of this same day: the king of Babylon drew close to Jerusalem this same day.

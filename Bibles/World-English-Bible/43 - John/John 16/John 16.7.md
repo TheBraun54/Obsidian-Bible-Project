@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless I tell you the truth: It is expedient for you that I go away; for if I go not away, the Comforter will not come unto you; but if I go, I will send him unto you.
+Nevertheless I tell you the truth: It is to your advantage that I go away, for if I don't go away, the Counselor won't come to you. But if I go, I will send him to you.

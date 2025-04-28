@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be a highway for the remnant of his people, that shall remain, from Assyria; like as there was for Israel in the day that he came up out of the land of Egypt.
+There will be a highway for the remnant that is left of his people from Assyria, like there was for Israel in the day that he came up out of the land of Egypt.

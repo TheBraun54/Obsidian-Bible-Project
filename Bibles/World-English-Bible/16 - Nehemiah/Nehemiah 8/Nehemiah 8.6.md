@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ezra blessed Jehovah, the great God. And all the people answered, Amen, Amen, with the lifting up of their hands: and they bowed their heads, and worshipped Jehovah with their faces to the ground.
+and Ezra blessed Yahweh, the great God. All the people answered, "Amen, Amen," with the lifting up of their hands. They bowed their heads, and worshiped Yahweh with their faces to the ground.

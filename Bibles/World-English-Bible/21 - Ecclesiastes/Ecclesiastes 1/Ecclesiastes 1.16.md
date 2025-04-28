@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I communed with mine own heart, saying, Lo, I have gotten me great wisdom above all that were before me in Jerusalem; yea, my heart hath had great experience of wisdom and knowledge.
+I said to myself, "Behold, I have obtained for myself great wisdom above all who were before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge."

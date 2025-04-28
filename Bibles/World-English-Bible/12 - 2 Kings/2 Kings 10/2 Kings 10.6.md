@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he wrote a letter the second time to them, saying, If ye be on my side, and if ye will hearken unto my voice, take ye the heads of the men your master's sons, and come to me to Jezreel by to-morrow this time. Now the king's sons, being seventy persons, were with the great men of the city, who brought them up.
+Then he wrote a letter the second time to them, saying, "If you are on my side, and if you will listen to my voice, take the heads of the men your master's sons, and come to me to Jezreel by tomorrow this time." Now the king's sons, being seventy persons, were with the great men of the city, who brought them up.

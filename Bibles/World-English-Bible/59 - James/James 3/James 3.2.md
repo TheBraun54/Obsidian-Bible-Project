@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in many things we all stumble. If any stumbleth not in word, the same is a perfect man, able to bridle the whole body also.
+For in many things we all stumble. If anyone doesn't stumble in word, the same is a perfect man, able to bridle the whole body also.

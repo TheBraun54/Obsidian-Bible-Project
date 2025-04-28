@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In a dream, in a vision of the night, When deep sleep falleth upon men, In slumberings upon the bed;
+In a dream, in a vision of the night, when deep sleep falls on men, in slumbering on the bed;

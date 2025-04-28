@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they laughed him to scorn. But he, having put them all forth, taketh the father of the child and her mother and them that were with him, and goeth in where the child was.
+They ridiculed him. But he, having put them all out, took the father of the child, her mother, and those who were with him, and went in where the child was lying.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, I pray you, tarry ye also here this night, that I may know what Jehovah will speak unto me more.
+Now therefore, please wait also here this night, that I may know what Yahweh will speak to me more."

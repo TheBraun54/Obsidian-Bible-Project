@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us make, I pray thee, a little chamber on the wall; and let us set for him there a bed, and a table, and a seat, and a candlestick: and it shall be, when he cometh to us, that he shall turn in thither.
+Please let us make a little room on the wall. Let us set for him there a bed, a table, a chair, and a lamp stand. It shall be, when he comes to us, that he shall turn in there."

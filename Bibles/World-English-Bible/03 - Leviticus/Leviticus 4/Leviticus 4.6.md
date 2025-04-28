@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall dip his finger in the blood, and sprinkle of the blood seven times before Jehovah, before the veil of the sanctuary.
+The priest shall dip his finger in the blood, and sprinkle some of the blood seven times before Yahweh, before the veil of the sanctuary.

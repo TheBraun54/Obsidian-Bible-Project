@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will bring you in unto the land which I sware to give to Abraham, to Isaac, and to Jacob; and I will give it you for a heritage: I am Jehovah.
+I will bring you into the land which I swore to give to Abraham, to Isaac, and to Jacob; and I will give it to you for a heritage: I am Yahweh.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if [aught] of their carcass fall upon any sowing seed which is to be sown, it is clean.
+If part of their carcass falls on any sowing seed which is to be sown, it is clean.

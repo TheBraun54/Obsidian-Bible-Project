@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah upholdeth all that fall, And raiseth up all those that are bowed down.
+Yahweh upholds all who fall, and raises up all those who are bowed down.

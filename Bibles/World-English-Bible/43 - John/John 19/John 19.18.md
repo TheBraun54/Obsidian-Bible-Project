@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-where they crucified him, and with him two others, on either side one, and Jesus in the midst.
+where they crucified him, and with him two others, on either side one, and Jesus in the middle.

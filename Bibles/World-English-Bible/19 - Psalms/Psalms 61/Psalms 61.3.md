@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast been a refuge for me, A strong tower from the enemy.
+For you have been a refuge for me, a strong tower from the enemy.

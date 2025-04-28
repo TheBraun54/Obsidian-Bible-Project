@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there they burnt incense in all the high places, as did the nations whom Jehovah carried away before them; and they wrought wicked things to provoke Jehovah to anger;
+and there they burnt incense in all the high places, as did the nations whom Yahweh carried away before them; and they worked wicked things to provoke Yahweh to anger;

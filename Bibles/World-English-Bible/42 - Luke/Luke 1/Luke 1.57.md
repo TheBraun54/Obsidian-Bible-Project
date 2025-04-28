@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Elisabeth's time was fulfilled that she should be delivered; and she brought forth a son.
+Now the time that Elizabeth should give birth was fulfilled, and she brought forth a son.

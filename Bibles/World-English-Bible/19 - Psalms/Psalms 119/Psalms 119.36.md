@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Incline my heart unto thy testimonies, And not to covetousness.
+Turn my heart toward your statutes, not toward selfish gain.

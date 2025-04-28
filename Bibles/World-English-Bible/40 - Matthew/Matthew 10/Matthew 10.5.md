@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These twelve Jesus sent forth, and charged them, saying, Go not into [any] way of the Gentiles, and enter not into any city of the Samaritans:
+Jesus sent these twelve out, and commanded them, saying, "Don't go among the Gentiles, and don't enter into any city of the Samaritans.

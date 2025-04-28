@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the plates of the stays thereof, and on the panels thereof, he graved cherubim, lions, and palm-trees, according to the space of each, with wreaths round about.
+On the plates of its stays, and on its panels, he engraved cherubim, lions, and palm trees, according to the space of each, with wreaths all around.

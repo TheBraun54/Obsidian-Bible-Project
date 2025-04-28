@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There the upright might reason with him; So should I be delivered for ever from my judge.
+There the upright might reason with him, so I should be delivered forever from my judge.

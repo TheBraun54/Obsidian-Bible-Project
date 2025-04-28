@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he made a scourge of cords, and cast all out of the temple, both the sheep and the oxen; and he poured out the changers' money, and overthrew their tables;
+He made a whip of cords, and threw all out of the temple, both the sheep and the oxen; and he poured out the changers' money, and overthrew their tables.

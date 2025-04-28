@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Follow after peace with all men, and the sanctification without which no man shall see the Lord:
+Follow after peace with all men, and the sanctification without which no man will see the Lord,

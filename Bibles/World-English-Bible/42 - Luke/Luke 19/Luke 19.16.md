@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the first came before him, saying, Lord, thy pound hath made ten pounds more.
+The first came before him, saying, 'Lord, your mina has made ten more minas.'

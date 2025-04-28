@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the Levites, certain courses in Judah [were joined] to Benjamin.
+Of the Levites, certain divisions in Judah [were joined] to Benjamin.

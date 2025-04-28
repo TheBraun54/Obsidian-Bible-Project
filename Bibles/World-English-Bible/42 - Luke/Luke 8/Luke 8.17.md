@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For nothing is hid, that shall not be made manifest; nor [anything] secret, that shall not be known and come to light.
+For nothing is hidden, that will not be revealed; nor anything secret, that will not be known and come to light.

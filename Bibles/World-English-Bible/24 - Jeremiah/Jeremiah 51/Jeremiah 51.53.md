@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though Babylon should mount up to heaven, and though she should fortify the height of her strength, yet from me shall destroyers come unto her, saith Jehovah.
+Though Babylon should mount up to the sky, and though she should fortify the height of her strength, yet from me shall destroyers come to her, says Yahweh.

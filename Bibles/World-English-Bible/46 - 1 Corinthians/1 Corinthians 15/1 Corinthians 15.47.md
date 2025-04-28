@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The first man is of the earth, earthy: the second man is of heaven.
+The first man is of the earth, made of dust. The second man is the Lord from heaven.

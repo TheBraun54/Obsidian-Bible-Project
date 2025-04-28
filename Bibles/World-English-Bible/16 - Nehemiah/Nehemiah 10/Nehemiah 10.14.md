@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The chiefs of the people: Parosh, Pahath-moab, Elam, Zattu, Bani,
+The chiefs of the people: Parosh, Pahathmoab, Elam, Zattu, Bani,

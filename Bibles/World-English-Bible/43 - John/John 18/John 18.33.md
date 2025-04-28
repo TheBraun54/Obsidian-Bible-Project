@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate therefore entered again into the Praetorium, and called Jesus, and said unto him, Art thou the King of the Jews?
+Pilate therefore entered again into the Praetorium, called Jesus, and said to him, "Are you the King of the Jews?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham said, God will provide himself the lamb for a burnt-offering, my son: so they went both of them together.
+Abraham said, "God will provide himself the lamb for a burnt offering, my son." So they both went together.

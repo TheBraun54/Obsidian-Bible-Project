@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that smote Egypt in their first-born; For his lovingkindness [endureth] for ever;
+To him who struck down the Egyptian firstborn; for his loving kindness endures forever;

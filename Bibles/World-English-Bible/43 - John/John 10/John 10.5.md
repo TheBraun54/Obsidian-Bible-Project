@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a stranger will they not follow, but will flee from him: for they know not the voice of strangers.
+They will by no means follow a stranger, but will flee from him; for they don't know the voice of strangers."

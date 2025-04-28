@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jehovah had revealed unto Samuel a day before Saul came, saying,
+Now Yahweh had revealed to Samuel a day before Saul came, saying,

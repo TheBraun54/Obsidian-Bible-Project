@@ -62,4 +62,10 @@ notes: >
 
 ![[Romans 14.23]]
 
+![[Romans 14.24]]
+
+![[Romans 14.25]]
+
+![[Romans 14.26]]
+
 [[Romans 13|<-]] ✞ [[Romans 15|->]]

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the land of the Gebalites, and all Lebanon, toward the sunrising, from Baal-gad under mount Hermon unto the entrance of Hamath;
+and the land of the Gebalites, and all Lebanon, toward the sunrise, from Baal Gad under Mount Hermon to the entrance of Hamath;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose fan is in his hand, thoroughly to cleanse his threshing-floor, and to gather the wheat into his garner; but the chaff he will burn up with unquenchable fire.
+whose fan is in his hand, and he will thoroughly cleanse his threshing floor, and will gather the wheat into his barn; but he will burn up the chaff with unquenchable fire."

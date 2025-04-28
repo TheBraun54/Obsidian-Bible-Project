@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the city was wide and large; but the people were few therein, and the houses were not builded.
+Now the city was wide and large; but the people were few therein, and the houses were not built.

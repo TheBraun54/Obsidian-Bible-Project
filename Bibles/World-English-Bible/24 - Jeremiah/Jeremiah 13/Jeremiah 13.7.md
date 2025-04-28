@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I went to the Euphrates, and digged, and took the girdle from the place where I had hid it; and, behold, the girdle was marred, it was profitable for nothing.
+Then I went to the Euphrates, and dug, and took the belt from the place where I had hidden it; and behold, the belt was marred, it was profitable for nothing.

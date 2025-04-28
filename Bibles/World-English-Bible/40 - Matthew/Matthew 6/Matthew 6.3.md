@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when thou doest alms, let not thy left hand know what thy right hand doeth:
+But when you do merciful deeds, don't let your left hand know what your right hand does,

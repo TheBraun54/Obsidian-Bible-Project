@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses brought Aaron's sons, and clothed them with coats, and girded them with girdles, and bound head-tires upon them; as Jehovah commanded Moses.
+Moses brought Aaron's sons, and clothed them with coats, and tied sashes on them, and put headbands on them; as Yahweh commanded Moses.

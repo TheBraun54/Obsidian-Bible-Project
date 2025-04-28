@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Defile the house, and fill the courts with the slain: go ye forth. And they went forth, and smote in the city.
+He said to them, Defile the house, and fill the courts with the slain. Go forth! They went forth, and struck in the city.

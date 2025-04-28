@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the child Samuel grew on, and increased in favor both with Jehovah, and also with men.
+The child Samuel grew on, and increased in favor both with Yahweh, and also with men.

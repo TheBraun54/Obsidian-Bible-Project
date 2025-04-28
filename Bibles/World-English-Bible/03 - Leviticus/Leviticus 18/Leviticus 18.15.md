@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not uncover the nakedness of thy daughter-in-law: she is thy son's wife; thou shalt not uncover her nakedness.
+"'You shall not uncover the nakedness of your daughter-in-law: she is your son's wife. You shall not uncover her nakedness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and threescore and one thousand asses,
+and sixty-one thousand donkeys,

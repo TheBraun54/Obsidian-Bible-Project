@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And an evil spirit from Jehovah was upon Saul, as he sat in his house with his spear in his hand; and David was playing with his hand.
+An evil spirit from Yahweh was on Saul, as he sat in his house with his spear in his hand; and David was playing with his hand.

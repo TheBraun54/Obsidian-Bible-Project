@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-howbeit the gold, and the silver, the brass, the iron, the tin, and the lead,
+however the gold, and the silver, the brass, the iron, the tin, and the lead,

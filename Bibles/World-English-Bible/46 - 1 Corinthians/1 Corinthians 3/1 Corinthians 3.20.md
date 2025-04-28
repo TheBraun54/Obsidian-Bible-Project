@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and again, The Lord knoweth the reasonings of the wise that they are vain.
+And again, "The Lord knows the reasoning of the wise, that it is worthless."

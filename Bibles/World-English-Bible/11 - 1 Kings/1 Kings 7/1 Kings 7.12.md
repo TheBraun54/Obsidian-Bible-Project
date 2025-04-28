@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the great court round about had three courses of hewn stone, and a course of cedar beams; like as the inner court of the house of Jehovah, and the porch of the house.
+The great court around had three courses of cut stone, and a course of cedar beams; like as the inner court of the house of Yahweh, and the porch of the house.

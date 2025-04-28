@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore remove sorrow from thy heart, and put away evil from thy flesh; for youth and the dawn of life are vanity.
+Therefore remove sorrow from your heart, and put away evil from your flesh; for youth and the dawn of life are vanity.

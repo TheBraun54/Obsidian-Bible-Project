@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mouth of the righteous is a fountain of life; But violence covereth the mouth of the wicked.
+The mouth of the righteous is a spring of life, but violence covers the mouth of the wicked.

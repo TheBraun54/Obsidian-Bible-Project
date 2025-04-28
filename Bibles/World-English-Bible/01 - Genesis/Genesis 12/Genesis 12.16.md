@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he dealt well with Abram for her sake: and he had sheep, and oxen, and he-asses, and men-servants, and maid-servants, and she-asses, and camels.
+He dealt well with Abram for her sake. He had sheep, cattle, male donkeys, male servants, female servants, female donkeys, and camels.

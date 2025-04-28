@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the half-tribe of Manasseh, Taanach with its suburbs, and Gath-rimmon with its suburbs; two cities.
+Out of the half-tribe of Manasseh, Taanach with its suburbs, and Gath Rimmon with its suburbs; two cities.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Jehovah your God is he that goeth with you, to fight for you against your enemies, to save you.
+for Yahweh your God is he who goes with you, to fight for you against your enemies, to save you."

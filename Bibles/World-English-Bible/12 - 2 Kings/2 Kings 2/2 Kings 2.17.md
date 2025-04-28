@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they urged him till he was ashamed, he said, Send. They sent therefore fifty men; and they sought three days, but found him not.
+When they urged him until he was ashamed, he said, "Send them." They sent therefore fifty men; and they searched for three days, but didn't find him.

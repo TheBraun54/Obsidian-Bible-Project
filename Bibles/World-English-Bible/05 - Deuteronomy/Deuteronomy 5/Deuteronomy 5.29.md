@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that there were such a heart in them, that they would fear me, and keep all my commandments always, that it might be well with them, and with their children for ever!
+Oh that there were such a heart in them, that they would fear me, and keep all my commandments always, that it might be well with them, and with their children forever!

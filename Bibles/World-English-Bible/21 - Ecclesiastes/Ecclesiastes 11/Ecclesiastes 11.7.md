@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Truly the light is sweet, and a pleasant thing it is for the eyes to behold the sun.
+Truly the light is sweet, and a pleasant thing it is for the eyes to see the sun.

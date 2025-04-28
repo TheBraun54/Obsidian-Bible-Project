@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And hearken thou to the supplications of thy servant, and of thy people Israel, when they shall pray toward this place: yea, hear thou from thy dwelling-place, even from heaven; and when thou hearest forgive.
+Listen to the petitions of your servant, and of your people Israel, when they shall pray toward this place: yes, hear from your dwelling place, even from heaven; and when you hear, forgive.

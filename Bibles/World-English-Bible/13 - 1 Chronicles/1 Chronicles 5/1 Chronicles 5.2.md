@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Judah prevailed above his brethren, and of him came the prince; but the birthright was Joseph's),
+For Judah prevailed above his brothers, and of him came the prince; but the birthright was Joseph's:)

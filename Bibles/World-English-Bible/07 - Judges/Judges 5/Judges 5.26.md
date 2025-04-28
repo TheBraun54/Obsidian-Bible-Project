@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She put her hand to the tent-pin, And her right hand to the workmen's hammer; And with the hammer she smote Sisera, she smote through his head; Yea, she pierced and struck through his temples.
+She put her hand to the tent peg, and her right hand to the workmen's hammer. With the hammer she struck Sisera. She struck through his head. Yes, she pierced and struck through his temples.

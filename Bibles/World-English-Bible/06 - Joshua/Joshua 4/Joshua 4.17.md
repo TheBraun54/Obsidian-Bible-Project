@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Joshua therefore commanded the priests, saying, Come ye up out of the Jordan.
+Joshua therefore commanded the priests, saying, "Come up out of the Jordan!"

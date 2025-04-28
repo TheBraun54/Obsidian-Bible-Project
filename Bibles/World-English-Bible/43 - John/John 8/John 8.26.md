@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have many things to speak and to judge concerning you: howbeit he that sent me is true; and the things which I heard from him, these speak I unto the world.
+I have many things to speak and to judge concerning you. However he who sent me is true; and the things which I heard from him, these I say to the world."

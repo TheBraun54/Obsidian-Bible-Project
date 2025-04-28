@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto Joshua, We are thy servants. And Joshua said unto them, Who are ye? and from whence come ye?
+They said to Joshua, "We are your servants." Joshua said to them, "Who are you? Where do you come from?"

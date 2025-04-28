@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every heave-offering of all the holy things of the children of Israel, which they present unto the priest, shall be his.
+Every heave offering of all the holy things of the children of Israel, which they present to the priest, shall be his.

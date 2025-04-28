@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice not, O Israel, for joy, like the peoples; for thou hast played the harlot, [departing] from thy God; thou hast loved hire upon every grain-floor.
+Don't rejoice, Israel, to jubilation like the nations; for you were unfaithful to your God. You love the wages of a prostitute at every grain threshing floor.

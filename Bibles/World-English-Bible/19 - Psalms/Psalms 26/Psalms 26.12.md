@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My foot standeth in an even place: In the congregations will I bless Jehovah.
+My foot stands in an even place. In the congregations I will bless Yahweh. By David.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou harass a driven leaf? And wilt thou pursue the dry stubble?
+Will you harass a driven leaf? Will you pursue the dry stubble?

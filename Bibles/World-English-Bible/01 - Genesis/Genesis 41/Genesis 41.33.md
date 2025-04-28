@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore let Pharaoh look out a man discreet and wise, and set him over the land of Egypt.
+"Now therefore let Pharaoh look for a discreet and wise man, and set him over the land of Egypt.

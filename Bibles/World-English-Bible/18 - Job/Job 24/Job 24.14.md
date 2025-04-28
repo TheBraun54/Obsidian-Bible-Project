@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The murderer riseth with the light; He killeth the poor and needy; And in the night he is as a thief.
+The murderer rises with the light. He kills the poor and needy. In the night he is like a thief.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were glad, and covenanted to give him money.
+They were glad, and agreed to give him money.

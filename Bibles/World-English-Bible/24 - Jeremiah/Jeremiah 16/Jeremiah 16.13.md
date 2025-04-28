@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore will I cast you forth out of this land into the land that ye have not known, neither ye nor your fathers; and there shall ye serve other gods day and night; for I will show you no favor.
+therefore will I cast you forth out of this land into the land that you have not known, neither you nor your fathers; and there you shall serve other gods day and night; for I will show you no favor.

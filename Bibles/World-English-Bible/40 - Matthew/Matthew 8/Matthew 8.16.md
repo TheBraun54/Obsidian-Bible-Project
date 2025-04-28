@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when even was come, they brought unto him many possessed with demons: and he cast out the spirits with a word, and healed all that were sick:
+When evening came, they brought to him many possessed with demons. He cast out the spirits with a word, and healed all who were sick;

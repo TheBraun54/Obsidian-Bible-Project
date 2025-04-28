@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I exhort therefore, first of all, that supplications, prayers, intercessions, thanksgivings, be made for all men;
+I exhort therefore, first of all, that petitions, prayers, intercessions, and givings of thanks, be made for all men:

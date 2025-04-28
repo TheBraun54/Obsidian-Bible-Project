@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Amen: Blessing, and glory, and wisdom, and thanksgiving, and honor, and power, and might, [be] unto our God for ever and ever. Amen.
+saying, "Amen! Blessing, glory, wisdom, thanksgiving, honor, power, and might, be to our God forever and ever! Amen."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is wise and understanding among you? let him show by his good life his works in meekness of wisdom.
+Who is wise and understanding among you? Let him show by his good conduct that his deeds are done in gentleness of wisdom.

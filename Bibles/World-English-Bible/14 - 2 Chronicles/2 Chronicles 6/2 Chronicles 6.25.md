@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hear thou from heaven, and forgive the sin of thy people Israel, and bring them again unto the land which thou gavest to them and to their fathers.
+then hear from heaven, and forgive the sin of your people Israel, and bring them again to the land which you gave to them and to their fathers.

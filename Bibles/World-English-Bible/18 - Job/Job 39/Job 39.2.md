@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou number the months that they fulfil? Or knowest thou the time when they bring forth?
+Can you number the months that they fulfill? Or do you know the time when they give birth?

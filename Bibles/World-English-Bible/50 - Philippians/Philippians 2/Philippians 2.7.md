@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but emptied himself, taking the form of a servant, being made in the likeness of men;
+but emptied himself, taking the form of a servant, being made in the likeness of men.

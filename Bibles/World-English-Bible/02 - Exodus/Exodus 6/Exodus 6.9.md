@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake so unto the children of Israel: but they hearkened not unto Moses for anguish of spirit, and for cruel bondage.
+Moses spoke so to the children of Israel, but they didn't listen to Moses for anguish of spirit, and for cruel bondage.

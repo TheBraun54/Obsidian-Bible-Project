@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall thy light break forth as the morning, and thy healing shall spring forth speedily; and thy righteousness shall go before thee; the glory of Jehovah shall by thy rearward.
+Then your light shall break forth as the morning, and your healing shall spring forth speedily; and your righteousness shall go before you; the glory of Yahweh shall be your rear guard.

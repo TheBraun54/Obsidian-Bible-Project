@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His seed shall be mighty upon earth: The generation of the upright shall be blessed.
+His seed will be mighty in the land. The generation of the upright will be blessed.

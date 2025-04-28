@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cried unto the children of Dan. And they turned their faces, and said unto Micah, What aileth thee, that thou comest with such a company?
+They cried to the children of Dan. They turned their faces, and said to Micah, "What ails you, that you come with such a company?"

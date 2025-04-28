@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall his father and his mother lay hold on him, and bring him out unto the elders of his city, and unto the gate of his place;
+then shall his father and his mother lay hold on him, and bring him out to the elders of his city, and to the gate of his place;

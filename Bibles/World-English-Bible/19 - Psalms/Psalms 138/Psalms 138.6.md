@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though Jehovah is high, yet hath he respect unto the lowly; But the haughty he knoweth from afar.
+For though Yahweh is high, yet he looks after the lowly; but the proud, he knows from afar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the prey, over and above the booty which the men of war took, was six hundred thousand and seventy thousand and five thousand sheep,
+Now the prey, over and above the booty which the men of war took, was six hundred seventy-five thousand sheep,

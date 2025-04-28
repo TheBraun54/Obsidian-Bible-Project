@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will a man rob God? yet ye rob me. But ye say, Wherein have we robbed thee? In tithes and offerings.
+Will a man rob God? Yet you rob me! But you say, 'How have we robbed you?' In tithes and offerings.

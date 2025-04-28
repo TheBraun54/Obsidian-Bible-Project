@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless he regarded their distress, When he heard their cry:
+Nevertheless he regarded their distress, when he heard their cry.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and chief seats in the synagogues, and chief places at feasts:
+and the best seats in the synagogues, and the best places at feasts:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to each one is given the manifestation of the Spirit to profit withal.
+But to each one is given the manifestation of the Spirit for the profit of all.

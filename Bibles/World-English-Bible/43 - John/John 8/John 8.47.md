@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is of God heareth the words of God: for this cause ye hear [them] not, because ye are not of God.
+He who is of God hears the words of God. For this cause you don't hear, because you are not of God."

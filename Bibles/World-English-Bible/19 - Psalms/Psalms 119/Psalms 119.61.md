@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The cords of the wicked have wrapped me round; [But] I have not forgotten thy law.
+The ropes of the wicked bind me, but I won't forget your law.

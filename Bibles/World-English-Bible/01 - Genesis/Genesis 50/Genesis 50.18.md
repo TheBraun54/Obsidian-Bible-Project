@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his brethren also went and fell down before his face; and they said, Behold, we are thy servants.
+His brothers also went and fell down before his face; and they said, "Behold, we are your servants."

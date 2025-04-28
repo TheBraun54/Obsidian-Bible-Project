@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he caused me to pass by them round about: and, behold, there were very many in the open valley; and, lo, they were very dry.
+He caused me to pass by them all around: and behold, there were very many in the open valley; and behold, they were very dry.

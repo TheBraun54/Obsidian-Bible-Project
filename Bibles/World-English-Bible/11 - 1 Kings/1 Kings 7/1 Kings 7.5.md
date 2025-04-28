@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the doors and posts were made square with beams: and window was over against window in three ranks.
+All the doors and posts were made square with beams: and window was over against window in three ranks.

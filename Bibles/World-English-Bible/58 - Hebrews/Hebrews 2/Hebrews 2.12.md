@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, I will declare thy name unto my brethren, In the midst of the congregation will I sing thy praise.
+saying, "I will declare your name to my brothers. In the midst of the congregation I will sing your praise."

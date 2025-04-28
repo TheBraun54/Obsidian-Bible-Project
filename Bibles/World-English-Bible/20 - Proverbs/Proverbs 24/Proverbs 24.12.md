@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou sayest, Behold, we knew not this; Doth not he that weigheth the hearts consider it? And he that keepeth thy soul, doth not he know it? And shall not he render to every man according to his work?
+If you say, "Behold, we didn't know this;" doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it? Shall he not render to every man according to his work?

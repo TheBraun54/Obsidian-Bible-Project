@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Asahel the brother of Joab was one of the thirty; Elhanan the son of Dodo of Beth-lehem,
+Asahel the brother of Joab was one of the thirty; Elhanan the son of Dodo of Bethlehem,

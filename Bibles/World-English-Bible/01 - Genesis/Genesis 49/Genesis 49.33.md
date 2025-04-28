@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jacob made an end of charging his sons, he gathered up his feet into the bed, and yielded up the ghost, and was gathered unto his people.
+When Jacob made an end of charging his sons, he gathered up his feet into the bed, and yielded up the spirit, and was gathered to his people.

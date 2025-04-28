@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-beholding your chaste behavior [coupled] with fear.
+seeing your pure behavior in fear.

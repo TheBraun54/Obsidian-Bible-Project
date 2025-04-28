@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is an evil which I have seen under the sun, as it were an error which proceedeth from the ruler:
+There is an evil which I have seen under the sun, the sort of error which proceeds from the ruler.

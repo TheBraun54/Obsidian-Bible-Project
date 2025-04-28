@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did not I weep for him that was in trouble? Was not my soul grieved for the needy?
+Didn't I weep for him who was in trouble? Wasn't my soul grieved for the needy?

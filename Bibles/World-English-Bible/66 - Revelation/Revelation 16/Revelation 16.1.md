@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard a great voice out of the temple, saying to the seven angels, Go ye, and pour out the seven bowls of the wrath of God into the earth.
+I heard a loud voice out of the temple, saying to the seven angels, "Go and pour out the seven bowls of the wrath of God on the earth!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Joab, Behold, the king weepeth and mourneth for Absalom.
+It was told Joab, "Behold, the king weeps and mourns for Absalom."

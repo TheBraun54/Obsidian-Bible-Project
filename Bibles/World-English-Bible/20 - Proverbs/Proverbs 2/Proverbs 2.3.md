@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, if thou cry after discernment, And lift up thy voice for understanding;
+Yes, if you call out for discernment, and lift up your voice for understanding;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he yet spake, there cometh one from the ruler of the synagogue's [house], saying, Thy daughter is dead; trouble not the Teacher.
+While he still spoke, one from the ruler of the synagogue's house came, saying to him, "Your daughter is dead. Don't trouble the Teacher."

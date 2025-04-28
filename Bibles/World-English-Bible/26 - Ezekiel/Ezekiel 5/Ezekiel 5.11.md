@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, as I live, saith the Lord Jehovah, surely, because thou hast defiled my sanctuary with all thy detestable things, and with all thine abominations, therefore will I also diminish [thee] ; neither shall mine eye spare, and I also will have no pity.
+Therefore, as I live, says the Lord Yahweh, surely, because you have defiled my sanctuary with all your detestable things, and with all your abominations, therefore will I also diminish [you]; neither shall my eye spare, and I also will have no pity.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the day of Jehovah cometh, cruel, with wrath and fierce anger; to make the land a desolation, and to destroy the sinners thereof out of it.
+Behold, the day of Yahweh comes, cruel, with wrath and fierce anger; to make the land a desolation, and to destroy its sinners out of it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak took Balaam unto the top of Peor, that looketh down upon the desert.
+Balak took Balaam to the top of Peor, that looks down on the desert.

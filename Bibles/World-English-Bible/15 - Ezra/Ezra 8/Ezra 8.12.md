@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Azgad, Johanan the son of Hakkatan; and with him a hundred and ten males.
+Of the sons of Azgad, Johanan the son of Hakkatan; and with him one hundred ten males.

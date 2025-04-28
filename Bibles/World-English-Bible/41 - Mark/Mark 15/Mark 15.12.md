@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate again answered and said unto them, What then shall I do unto him whom ye call the King of the Jews?
+Pilate again asked them, "What then should I do to him whom you call the King of the Jews?"

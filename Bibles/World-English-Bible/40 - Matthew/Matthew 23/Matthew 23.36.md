@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, All these things shall come upon this generation.
+Most certainly I tell you, all these things will come upon this generation.

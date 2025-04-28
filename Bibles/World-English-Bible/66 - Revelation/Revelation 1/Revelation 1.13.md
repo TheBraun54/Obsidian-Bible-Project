@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the midst of the candlesticks one like unto a son of man, clothed with a garment down to the foot, and girt about at the breasts with a golden girdle.
+And among the lampstands was one like a son of man, clothed with a robe reaching down to his feet, and with a golden sash around his chest.

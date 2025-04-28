@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heart of the prudent getteth knowledge; And the ear of the wise seeketh knowledge.
+The heart of the discerning gets knowledge. The ear of the wise seeks knowledge.

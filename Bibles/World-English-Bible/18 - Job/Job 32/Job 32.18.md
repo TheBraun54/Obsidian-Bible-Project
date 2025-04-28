@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am full of words; The spirit within me constraineth me.
+For I am full of words. The spirit within me constrains me.

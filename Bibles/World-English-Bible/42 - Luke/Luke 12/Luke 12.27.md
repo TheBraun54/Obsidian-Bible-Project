@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider the lilies, how they grow: they toil not, neither do they spin; yet I say unto you, Even Solomon in all his glory was not arrayed like one of these.
+Consider the lilies, how they grow. They don't toil, neither do they spin; yet I tell you, even Solomon in all his glory was not arrayed like one of these.

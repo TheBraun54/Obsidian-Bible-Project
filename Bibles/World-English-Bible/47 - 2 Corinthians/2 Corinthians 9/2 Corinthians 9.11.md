@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye being enriched in everything unto all liberality, which worketh through us thanksgiving to God.
+you being enriched in everything to all liberality, which works through us thanksgiving to God.

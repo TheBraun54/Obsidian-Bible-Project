@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as he drew nigh unto Jericho, a certain blind man sat by the way side begging:
+It happened, as he came near Jericho, a certain blind man sat by the road, begging.

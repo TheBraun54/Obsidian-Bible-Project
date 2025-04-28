@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Among all this people there were seven hundred chosen men lefthanded; every one could sling stones at a hair-breadth, and not miss.
+Among all this people there were seven hundred chosen men left-handed; everyone could sling stones at a hair-breadth, and not miss.

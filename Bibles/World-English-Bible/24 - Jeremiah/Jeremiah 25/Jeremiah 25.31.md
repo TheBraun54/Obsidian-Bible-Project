@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A noise shall come even to the end of the earth; for Jehovah hath a controversy with the nations; he will enter into judgment with all flesh: as for the wicked, he will give them to the sword, saith Jehovah.
+A noise shall come even to the end of the earth; for Yahweh has a controversy with the nations; he will enter into judgment with all flesh: as for the wicked, he will give them to the sword, says Yahweh.

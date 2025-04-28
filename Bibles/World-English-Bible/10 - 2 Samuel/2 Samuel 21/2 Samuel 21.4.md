@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Gibeonites said unto him, It is no matter of silver or gold between us and Saul, or his house; neither is it for us to put any man to death in Israel. And he said, What ye shall say, that will I do for you.
+The Gibeonites said to him, "It is no matter of silver or gold between us and Saul, or his house; neither is it for us to put any man to death in Israel." He said, "Whatever you say, that will I do for you."

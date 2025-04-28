@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst cleave fountain and flood: Thou driedst up mighty rivers.
+You opened up spring and stream. You dried up mighty rivers.

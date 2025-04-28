@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Paul was about to be brought into the castle, he saith unto the chief captain, May I say something unto thee? And he said, Dost thou know Greek?
+As Paul was about to be brought into the barracks, he asked the commanding officer, "May I speak to you?" He said, "Do you know Greek?

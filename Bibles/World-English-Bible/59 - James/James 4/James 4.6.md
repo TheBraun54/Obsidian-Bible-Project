@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he giveth more grace. Wherefore [the scripture] saith, God resisteth the proud, but giveth grace to the humble.
+But he gives more grace. Therefore it says, "God resists the proud, but gives grace to the humble."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who was with the proconsul, Sergius Paulus, a man of understanding. The same called unto him Barnabas and Saul, and sought to hear the word of God.
+who was with the proconsul, Sergius Paulus, a man of understanding. This man summoned Barnabas and Saul, and sought to hear the word of God.

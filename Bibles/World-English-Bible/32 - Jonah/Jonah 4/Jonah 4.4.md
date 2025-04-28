@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Doest thou well to be angry?
+Yahweh said, "Is it right for you to be angry?"

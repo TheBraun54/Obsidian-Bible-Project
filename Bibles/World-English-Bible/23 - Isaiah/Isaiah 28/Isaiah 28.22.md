@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore be ye not scoffers, lest your bonds be made strong; for a decree of destruction have I heard from the Lord, Jehovah of hosts, upon the whole earth.
+Now therefore don't be scoffers, lest your bonds be made strong; for I have heard a decree of destruction from the Lord, Yahweh of Armies, on the whole earth.

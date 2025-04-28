@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take of the blood of the bullock, and put it upon the horns of the altar with thy finger; and thou shalt pour out all the blood at the base of the altar.
+You shall take of the blood of the bull, and put it on the horns of the altar with your finger; and you shall pour out all the blood at the base of the altar.

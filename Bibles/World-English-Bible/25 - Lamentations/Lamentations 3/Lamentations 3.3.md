@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely against me he turneth his hand again and again all the day.
+Surely against me he turns his hand again and again all the day.

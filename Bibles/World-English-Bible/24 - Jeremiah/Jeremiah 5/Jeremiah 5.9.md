@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall I not visit for these things? saith Jehovah; and shall not my soul be avenged on such a nation as this?
+Shouldn't I punish them for these things?" says Yahweh; "and shouldn't my soul be avenged on such a nation as this?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when God made promise to Abraham, since he could swear by none greater, he sware by himself,
+For when God made a promise to Abraham, since he could swear by none greater, he swore by himself,

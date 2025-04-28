@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of the city said unto Elisha, Behold, we pray thee, the situation of this city is pleasant, as my lord seeth: but the water is bad, and the land miscarrieth.
+The men of the city said to Elisha, "Behold, please, the situation of this city is pleasant, as my lord sees; but the water is bad, and the land miscarries."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel journeyed, and encamped in the plains of Moab beyond the Jordan at Jericho.
+The children of Israel traveled, and encamped in the plains of Moab beyond the Jordan at Jericho.

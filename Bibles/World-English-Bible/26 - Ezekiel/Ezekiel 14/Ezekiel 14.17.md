@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if I bring a sword upon that land, and say, Sword, go through the land; so that I cut off from it man and beast;
+Or if I bring a sword on that land, and say, Sword, go through the land; so that I cut off from it man and animal;

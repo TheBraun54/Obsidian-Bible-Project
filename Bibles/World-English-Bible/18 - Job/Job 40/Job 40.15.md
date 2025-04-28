@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold now, behemoth, which I made as well as thee; He eateth grass as an ox.
+"See now, behemoth, which I made as well as you. He eats grass as an ox.

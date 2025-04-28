@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people of the land shall worship at the door of that gate before Jehovah on the sabbaths and on the new moons.
+The people of the land shall worship at the door of that gate before Yahweh on the Sabbaths and on the new moons.

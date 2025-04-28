@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-this man went to Pilate, and asked for the body of Jesus. Then Pilate commanded it to be given up.
+This man went to Pilate, and asked for Jesus' body. Then Pilate commanded the body to be given up.

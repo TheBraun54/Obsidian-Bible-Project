@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit they did not hearken, but they did after their former manner.
+However they did not listen, but they did what they did before.

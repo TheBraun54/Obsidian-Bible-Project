@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Christ having come a high priest of the good things to come, through the greater and more perfect tabernacle, not made with hands, that is to say, not of this creation,
+But Christ having come as a high priest of the coming good things, through the greater and more perfect tabernacle, not made with hands, that is to say, not of this creation,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but by equality: your abundance [being a supply] at this present time for their want, that their abundance also may become [a supply] for your want; that there may be equality:
+but for equality. Your abundance at this present time supplies their lack, that their abundance also may become a supply for your lack; that there may be equality.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A false balance is an abomination to Jehovah; But a just weight is his delight.
+A false balance is an abomination to Yahweh, but accurate weights are his delight.

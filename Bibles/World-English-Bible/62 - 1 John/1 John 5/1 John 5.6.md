@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is he that came by water and blood, [even] Jesus Christ; not with the water only, but with the water and with the blood.
+This is he who came by water and blood, Jesus Christ; not with the water only, but with the water and the blood. It is the Spirit who testifies, because the Spirit is the truth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah appointed the courses of the priests and the Levites after their courses, every man according to his service, both the priests and the Levites, for burnt-offerings and for peace-offerings, to minister, and to give thanks, and to praise in the gates of the camp of Jehovah.
+Hezekiah appointed the divisions of the priests and the Levites after their divisions, every man according to his service, both the priests and the Levites, for burnt offerings and for peace offerings, to minister, and to give thanks, and to praise in the gates of the camp of Yahweh.

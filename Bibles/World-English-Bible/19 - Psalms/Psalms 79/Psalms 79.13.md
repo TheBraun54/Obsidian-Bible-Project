@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So we thy people and sheep of thy pasture Will give thee thanks for ever: We will show forth thy praise to all generations.
+So we, your people and sheep of your pasture, will give you thanks forever. We will praise you forever, to all generations. For the Chief Musician. To the tune of "The Lilies of the Covenant." A Psalm by Asaph.

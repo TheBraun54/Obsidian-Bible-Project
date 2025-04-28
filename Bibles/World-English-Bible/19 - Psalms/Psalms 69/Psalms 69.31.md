@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it will please Jehovah better than an ox, [Or] a bullock that hath horns and hoofs.
+It will please Yahweh better than an ox, or a bull that has horns and hoofs.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his concubine that was in Shechem, she also bare him a son, and he called his name Abimelech.
+His concubine who was in Shechem, she also bore him a son, and he named him Abimelech.

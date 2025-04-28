@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath put a new song in my mouth, even praise unto our God: Many shall see it, and fear, And shall trust in Jehovah.
+He has put a new song in my mouth, even praise to our God. Many shall see it, and fear, and shall trust in Yahweh.

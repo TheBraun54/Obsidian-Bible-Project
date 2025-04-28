@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are thy days as the days of man, Or thy years as man's days,
+Are your days as the days of mortals, or your years as man's years,

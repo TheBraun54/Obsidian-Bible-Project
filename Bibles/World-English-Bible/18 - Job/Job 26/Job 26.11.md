@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The pillars of heaven tremble And are astonished at his rebuke.
+The pillars of heaven tremble and are astonished at his rebuke.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover in a pillar of cloud thou leddest them by day; and in a pillar of fire by night, to give them light in the way wherein they should go.
+Moreover, in a pillar of cloud you led them by day; and in a pillar of fire by night, to give them light in the way in which they should go.

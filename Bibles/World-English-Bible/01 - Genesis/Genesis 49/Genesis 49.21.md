@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Naphtali is a hind let loose: He giveth goodly words.
+"Naphtali is a doe set free, who bears beautiful fawns.

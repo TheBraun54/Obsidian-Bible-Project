@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came unto John, and said to him, Rabbi, he that was with thee beyond the Jordan, to whom thou hast borne witness, behold, the same baptizeth, and all men come to him.
+They came to John, and said to him, "Rabbi, he who was with you beyond the Jordan, to whom you have testified, behold, the same baptizes, and everyone is coming to him."

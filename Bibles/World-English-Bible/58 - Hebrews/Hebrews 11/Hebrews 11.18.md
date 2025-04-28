@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ even he] to whom it was said, In Isaac shall thy seed be called:
+even he to whom it was said, "In Isaac will your seed be called;"

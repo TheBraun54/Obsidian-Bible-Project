@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt appoint a way for the sword to come to Rabbah of the children of Ammon, and to Judah in Jerusalem the fortified.
+You shall appoint a way for the sword to come to Rabbah of the children of Ammon, and to Judah in Jerusalem the fortified.

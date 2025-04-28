@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly with them; and he said unto them, Whence come ye? And they said, From the land of Canaan to buy food.
+Joseph saw his brothers, and he recognized them, but acted like a stranger to them, and spoke roughly with them. He said to them, "Where did you come from?" They said, "From the land of Canaan to buy food."

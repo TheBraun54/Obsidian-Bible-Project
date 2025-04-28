@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph dreamed a dream, and he told it to his brethren: and they hated him yet the more.
+Joseph dreamed a dream, and he told it to his brothers, and they hated him all the more.

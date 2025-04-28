@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall her young men fall in her streets, and all her men of war shall be brought to silence in that day, saith Jehovah.
+Therefore her young men will fall in her streets, and all her men of war will be brought to silence in that day, says Yahweh.

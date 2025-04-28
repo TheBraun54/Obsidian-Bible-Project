@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while Saul talked unto the priest, that the tumult that was in the camp of the Philistines went on and increased: and Saul said unto the priest, Withdraw thy hand.
+It happened, while Saul talked to the priest, that the tumult that was in the camp of the Philistines went on and increased: and Saul said to the priest, "Withdraw your hand!"

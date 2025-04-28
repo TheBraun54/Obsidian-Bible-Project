@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they washed the chariot by the pool of Samaria; and the dogs licked up his blood (now the harlots washed themselves [there] ); according unto the word of Jehovah which he spake.
+They washed the chariot by the pool of Samaria; and the dogs licked up his blood where the prostitutes washed themselves; according to the word of Yahweh which he spoke.

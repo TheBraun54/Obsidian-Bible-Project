@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will not cry, nor lift up his voice, nor cause it to be heard in the street.
+He will not shout, nor raise his voice, nor cause it to be heard in the street.

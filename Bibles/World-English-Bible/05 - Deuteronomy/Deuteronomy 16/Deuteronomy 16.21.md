@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not plant thee an Asherah of any kind of tree beside the altar of Jehovah thy God, which thou shalt make thee.
+You shall not plant for yourselves an Asherah of any kind of tree beside the altar of Yahweh your God, which you shall make for yourselves.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And put my cup, the silver cup, in the sack's mouth of the youngest, and his grain money. And he did according to the word that Joseph had spoken.
+Put my cup, the silver cup, in the sack's mouth of the youngest, with his grain money." He did according to the word that Joseph had spoken.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ even] us, whom he also called, not from the Jews only, but also from the Gentiles?
+us, whom he also called, not from the Jews only, but also from the Gentiles?

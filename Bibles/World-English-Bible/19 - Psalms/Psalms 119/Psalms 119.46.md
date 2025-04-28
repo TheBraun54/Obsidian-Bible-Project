@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also speak of thy testimonies before kings, And shall not be put to shame.
+I will also speak of your statutes before kings, and will not be disappointed.

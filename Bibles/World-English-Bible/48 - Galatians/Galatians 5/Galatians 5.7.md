@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye were running well; who hindered you that ye should not obey the truth?
+You were running well! Who interfered with you that you should not obey the truth?

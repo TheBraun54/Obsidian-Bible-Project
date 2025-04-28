@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will the Lord, Jehovah of hosts, send among his fat ones leanness; and under his glory there shall be kindled a burning like the burning of fire.
+Therefore the Lord, Yahweh of Armies, will send among his fat ones leanness; and under his glory a burning will be kindled like the burning of fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thomas therefore, who is called Didymus, said unto his fellow-disciples, Let us also go, that we may die with him.
+Thomas therefore, who is called Didymus, said to his fellow disciples, "Let's go also, that we may die with him."

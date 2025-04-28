@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye have forgotten the exhortation which reasoneth with you as with sons, My son, regard not lightly the chastening of the Lord, Nor faint when thou art reproved of him;
+and you have forgotten the exhortation which reasons with you as with children, "My son, don't take lightly the chastening of the Lord, nor faint when you are reproved by him;

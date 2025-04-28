@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If it please the king, let it be written that they be destroyed: and I will pay ten thousand talents of silver into the hands of those that have the charge of the [king's] business, to bring it into the king's treasuries.
+If it pleases the king, let it be written that they be destroyed; and I will pay ten thousand talents of silver into the hands of those who are in charge of the king's business, to bring it into the king's treasuries."

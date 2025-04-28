@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the law it is written, By men of strange tongues and by the lips of strangers will I speak unto this people; and not even thus will they hear me, saith the Lord.
+In the law it is written, "By men of strange languages and by the lips of strangers I will speak to this people. Not even thus will they hear me, says the Lord."

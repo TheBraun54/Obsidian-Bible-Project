@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt guide me with thy counsel, And afterward receive me to glory.
+You will guide me with your counsel, and afterward receive me to glory.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I anticipated the dawning of the morning, and cried: I hoped in thy words.
+I rise before dawn and cry for help. I put my hope in your words.

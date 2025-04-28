@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They saw it, then were they amazed; They were dismayed, they hasted away.
+They saw it, then they were amazed. They were dismayed. They hurried away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover I make a decree what ye shall do to these elders of the Jews for the building of this house of God: that of the king's goods, even of the tribute beyond the River, expenses be given with all diligence unto these men, that they be not hindered.
+Moreover I make a decree what you shall do to these elders of the Jews for the building of this house of God: that of the king's goods, even of the tribute beyond the River, expenses be given with all diligence to these men, that they be not hindered.

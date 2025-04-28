@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man of God said unto the king, If thou wilt give me half thy house, I will not go in with thee, neither will I eat bread nor drink water in this place;
+The man of God said to the king, "Even if you gave me half of your house, I would not go in with you, neither would I eat bread nor drink water in this place;

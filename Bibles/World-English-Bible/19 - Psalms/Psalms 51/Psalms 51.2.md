@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wash me thoroughly from mine iniquity, And cleanse me from my sin.
+Wash me thoroughly from my iniquity. Cleanse me from my sin.

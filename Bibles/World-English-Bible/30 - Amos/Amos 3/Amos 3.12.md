@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: As the shepherd rescueth out of the mouth of the lion two legs, or a piece of an ear, so shall the children of Israel be rescued that sit in Samaria in the corner of a couch, and on the silken cushions of a bed.
+Thus says Yahweh: "As the shepherd rescues out of the mouth of the lion two legs, or a piece of an ear, so shall the children of Israel be rescued who sit in Samaria on the corner of a couch, and on the silken cushions of a bed."

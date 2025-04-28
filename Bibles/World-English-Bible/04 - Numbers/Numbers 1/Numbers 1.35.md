@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Manasseh, were thirty and two thousand and two hundred.
+those who were numbered of them, of the tribe of Manasseh, were thirty-two thousand two hundred.

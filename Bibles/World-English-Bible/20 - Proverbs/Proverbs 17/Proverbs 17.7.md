@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Excellent speech becometh not a fool; Much less do lying lips a prince.
+Arrogant speech isn't fitting for a fool, much less do lying lips fit a prince.

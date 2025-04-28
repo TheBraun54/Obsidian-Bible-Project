@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are they that hunger and thirst after righteousness: for they shall be filled.
+Blessed are those who hunger and thirst after righteousness, for they shall be filled.

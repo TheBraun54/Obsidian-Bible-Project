@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he called hastily unto the young man his armorbearer, and said unto him, Draw thy sword, and kill me, that men say not of me, A woman slew him. And his young man thrust him through, and he died.
+Then he called hastily to the young man his armor bearer, and said to him, "Draw your sword, and kill me, that men not say of me, 'A woman killed him.' His young man thrust him through, and he died."

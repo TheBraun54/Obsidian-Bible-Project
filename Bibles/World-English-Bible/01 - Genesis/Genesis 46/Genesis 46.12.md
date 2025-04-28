@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Judah: Er, and Onan, and Shelah, and Perez, and Zerah; but Er and Onan died in the land of Canaan. And the sons of Perez were Hezron and Hamul.
+The sons of Judah: Er, Onan, Shelah, Perez, and Zerah; but Er and Onan died in the land of Canaan. The sons of Perez were Hezron and Hamul.

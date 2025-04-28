@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will the men of Keilah deliver me up into his hand? will Saul come down, as thy servant hath heard? O Jehovah, the God of Israel, I beseech thee, tell thy servant. And Jehovah said, He will come down.
+Will the men of Keilah deliver me up into his hand? Will Saul come down, as your servant has heard? Yahweh, the God of Israel, I beg you, tell your servant." Yahweh said, "He will come down."

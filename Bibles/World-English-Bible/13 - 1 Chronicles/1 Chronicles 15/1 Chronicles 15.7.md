@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the sons of Gershom, Joel the chief, and his brethren a hundred and thirty;
+of the sons of Gershom, Joel the chief, and his brothers one hundred thirty;

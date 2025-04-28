@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How beautiful are thy feet in sandals, O prince's daughter! Thy rounded thighs are like jewels, The work of the hands of a skilful workman.
+How beautiful are your feet in sandals, prince's daughter! Your rounded thighs are like jewels, the work of the hands of a skillful workman.

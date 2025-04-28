@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto the shepherds that destroy and scatter the sheep of my pasture! saith Jehovah.
+Woe to the shepherds who destroy and scatter the sheep of my pasture! says Yahweh.

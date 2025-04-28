@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines took the ark of God, and brought it into the house of Dagon, and set it by Dagon.
+The Philistines took the ark of God, and brought it into the house of Dagon, and set it by Dagon.

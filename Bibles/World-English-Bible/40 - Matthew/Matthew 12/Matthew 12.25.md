@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And knowing their thoughts he said unto them, Every kingdom divided against itself is brought to desolation; and every city or house divided against itself shall not stand:
+Knowing their thoughts, Jesus said to them, "Every kingdom divided against itself is brought to desolation, and every city or house divided against itself will not stand.

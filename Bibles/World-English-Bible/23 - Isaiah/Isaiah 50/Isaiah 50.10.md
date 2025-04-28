@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is among you that feareth Jehovah, that obeyeth the voice of his servant? he that walketh in darkness, and hath no light, let him trust in the name of Jehovah, and rely upon his God.
+Who is among you who fears Yahweh, who obeys the voice of his servant? He who walks in darkness, and has no light, let him trust in the name of Yahweh, and rely on his God.

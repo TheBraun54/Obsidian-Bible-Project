@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I knew him not; but that he should be made manifest to Israel, for this cause came I baptizing in water.
+I didn't know him, but for this reason I came baptizing in water: that he would be revealed to Israel."

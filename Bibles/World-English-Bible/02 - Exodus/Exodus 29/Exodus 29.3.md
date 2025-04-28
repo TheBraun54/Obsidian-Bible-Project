@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put them into one basket, and bring them in the basket, with the bullock and the two rams.
+You shall put them into one basket, and bring them in the basket, with the bull and the two rams.

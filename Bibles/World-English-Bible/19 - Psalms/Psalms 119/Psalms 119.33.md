@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-HE. Teach me, O Jehovah, the way of thy statutes; And I shall keep it unto the end.
+Teach me, Yahweh, the way of your statutes. I will keep them to the end.

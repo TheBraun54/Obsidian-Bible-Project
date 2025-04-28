@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and great multitudes followed him; and he healed them there.
+Great multitudes followed him, and he healed them there.

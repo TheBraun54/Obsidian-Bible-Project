@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, thou dwellest in the midst of the rebellious house, that have eyes to see, and see not, that have ears to hear, and hear not; for they are a rebellious house.
+Son of man, you dwell in the midst of the rebellious house, who have eyes to see, and don't see, who have ears to hear, and don't hear; for they are a rebellious house.

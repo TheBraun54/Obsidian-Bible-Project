@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sting of death is sin; and the power of sin is the law:
+The sting of death is sin, and the power of sin is the law.

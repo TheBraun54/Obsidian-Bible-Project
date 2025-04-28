@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then brought he me into the outer court; and, lo, there were chambers and a pavement, made for the court round about: thirty chambers were upon the pavement.
+Then brought he me into the outer court; and behold, there were rooms and a pavement, made for the court all around: thirty rooms were on the pavement.

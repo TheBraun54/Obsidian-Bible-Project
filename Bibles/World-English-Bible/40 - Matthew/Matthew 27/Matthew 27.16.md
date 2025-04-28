@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had then a notable prisoner, called Barabbas.
+They had then a notable prisoner, called Barabbas.

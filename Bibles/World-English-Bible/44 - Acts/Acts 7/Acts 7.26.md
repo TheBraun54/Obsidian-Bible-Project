@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the day following he appeared unto them as they strove, and would have set them at one again, saying, Sirs, ye are brethren; why do ye wrong one to another?
+"The day following, he appeared to them as they fought, and urged them to be at peace again, saying, 'Sirs, you are brothers. Why do you wrong one another?'

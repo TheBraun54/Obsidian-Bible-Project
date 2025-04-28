@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In a moment they die, even at midnight; The people are shaken and pass away, And the mighty are taken away without hand.
+In a moment they die, even at midnight. The people are shaken and pass away. The mighty are taken away without a hand.

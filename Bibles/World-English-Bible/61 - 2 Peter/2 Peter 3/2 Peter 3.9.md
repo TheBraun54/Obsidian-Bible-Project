@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord is not slack concerning his promise, as some count slackness; but is longsuffering to you-ward, not wishing that any should perish, but that all should come to repentance.
+The Lord is not slow concerning his promise, as some count slowness; but is patient with us, not wishing that any should perish, but that all should come to repentance.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sigh therefore, thou son of man; with the breaking of thy loins and with bitterness shalt thou sigh before their eyes.
+Sigh therefore, you son of man; with the breaking of your thighs and with bitterness you will sigh before their eyes.

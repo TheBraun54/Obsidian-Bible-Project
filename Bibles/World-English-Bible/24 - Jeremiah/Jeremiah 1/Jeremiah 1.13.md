@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah came unto me the second time, saying, What seest thou? And I said, I see a boiling caldron; and the face thereof is from the north.
+The word of Yahweh came to me the second time, saying, "What do you see?" I said, "I see a boiling caldron; and it is tipping away from the north."

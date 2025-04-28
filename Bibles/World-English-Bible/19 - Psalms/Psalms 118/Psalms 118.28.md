@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art my God, and I will give thanks unto thee: Thou art my God, I will exalt thee.
+You are my God, and I will give thanks to you. You are my God, I will exalt you.

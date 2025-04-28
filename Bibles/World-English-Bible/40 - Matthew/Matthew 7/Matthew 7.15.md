@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware of false prophets, who come to you in sheep's clothing, but inwardly are ravening wolves.
+"Beware of false prophets, who come to you in sheep's clothing, but inwardly are ravening wolves.

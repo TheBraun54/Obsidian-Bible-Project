@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am as one that is a laughing-stock to his neighbor, I who called upon God, and he answered: The just, the perfect man is a laughing-stock.
+I am like one who is a joke to his neighbor, I, who called on God, and he answered. The just, the blameless man is a joke.

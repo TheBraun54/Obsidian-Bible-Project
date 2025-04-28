@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the land is defiled: therefore I do visit the iniquity thereof upon it, and the land vomiteth out her inhabitants.
+The land was defiled: therefore I punished its iniquity, and the land vomited out her inhabitants.

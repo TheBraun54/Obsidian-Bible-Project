@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Take me up, and cast me forth into the sea; so shall the sea be calm unto you: for I know that for my sake this great tempest is upon you.
+He said to them, "Take me up, and throw me into the sea. Then the sea will be calm for you; for I know that because of me this great storm is on you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou watchful, and establish the things that remain, which were ready to die: for I have found no works of thine perfected before my God.
+Wake up, and keep the things that remain, which you were about to throw away, for I have found no works of yours perfected before my God.

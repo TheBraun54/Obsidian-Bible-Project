@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Notwithstanding my right I am [accounted] a liar; My wound is incurable, [though I am] without transgression.
+Notwithstanding my right I am considered a liar. My wound is incurable, though I am without disobedience.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, every pot in Jerusalem and in Judah shall be holy unto Jehovah of hosts; and all they that sacrifice shall come and take of them, and boil therein: and in that day there shall be no more a Canaanite in the house of Jehovah of hosts.
+Yes, every pot in Jerusalem and in Judah will be holy to Yahweh of Armies; and all those who sacrifice will come and take of them, and cook in them. In that day there will no longer be a Canaanite in the house of Yahweh of Armies.

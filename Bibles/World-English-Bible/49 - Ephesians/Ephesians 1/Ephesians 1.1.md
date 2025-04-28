@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, an apostle of Christ Jesus through the will of God, to the saints that are at Ephesus, and the faithful in Christ Jesus:
+Paul, an apostle of Christ Jesus through the will of God, to the saints who are at Ephesus, and the faithful in Christ Jesus:

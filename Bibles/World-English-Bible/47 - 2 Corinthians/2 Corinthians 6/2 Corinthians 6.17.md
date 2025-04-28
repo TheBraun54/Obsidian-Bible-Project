@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Come ye out from among them, and be ye separate, saith the Lord, And touch no unclean thing; And I will receive you,
+Therefore, "'Come out from among them, and be separate,' says the Lord. 'Touch no unclean thing. I will receive you.

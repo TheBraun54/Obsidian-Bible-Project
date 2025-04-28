@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Backsliding Israel hath showed herself more righteous than treacherous Judah.
+Yahweh said to me, "Backsliding Israel has shown herself more righteous than treacherous Judah.

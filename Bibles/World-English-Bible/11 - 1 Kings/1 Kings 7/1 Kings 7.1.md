@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon was building his own house thirteen years, and he finished all his house.
+Solomon was building his own house thirteen years, and he finished all his house.

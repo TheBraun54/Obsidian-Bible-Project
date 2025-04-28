@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as ye learned of Epaphras our beloved fellow-servant, who is a faithful minister of Christ on our behalf,
+even as you learned of Epaphras our beloved fellow servant, who is a faithful servant of Christ on our behalf,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Paul choose Silas, and went forth, being commended by the brethren to the grace of the Lord.
+but Paul chose Silas, and went out, being commended by the brothers to the grace of God.

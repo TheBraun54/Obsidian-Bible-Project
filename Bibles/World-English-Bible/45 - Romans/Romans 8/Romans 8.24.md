@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in hope were we saved: but hope that is seen is not hope: for who hopeth for that which he seeth?
+For we were saved in hope, but hope that is seen is not hope. For who hopes for that which he sees?

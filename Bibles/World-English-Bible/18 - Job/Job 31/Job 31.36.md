@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely I would carry it upon my shoulder; I would bind it unto me as a crown:
+Surely I would carry it on my shoulder; and I would bind it to me as a crown.

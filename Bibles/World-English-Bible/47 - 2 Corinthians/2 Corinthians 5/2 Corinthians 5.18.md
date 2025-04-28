@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all things are of God, who reconciled us to himself through Christ, and gave unto us the ministry of reconciliation;
+But all things are of God, who reconciled us to himself through Jesus Christ, and gave to us the ministry of reconciliation;

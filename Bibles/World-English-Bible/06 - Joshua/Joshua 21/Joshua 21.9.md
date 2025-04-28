@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave out of the tribe of the children of Judah, and out of the tribe of the children of Simeon, these cities which are [here] mentioned by name:
+They gave out of the tribe of the children of Judah, and out of the tribe of the children of Simeon, these cities which are mentioned by name:

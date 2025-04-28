@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fourth angel sounded, and the third part of the sun was smitten, and the third part of the moon, and the third part of the stars; that the third part of them should be darkened, and the day should not shine for the third part of it, and the night in like manner.
+The fourth angel sounded, and one third of the sun was struck, and one third of the moon, and one third of the stars; so that one third of them would be darkened, and the day wouldn't shine for one third of it, and the night in the same way.

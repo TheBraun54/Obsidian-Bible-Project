@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, What further need have we of witness? for we ourselves have heard from his own mouth.
+They said, "Why do we need any more witness? For we ourselves have heard from his own mouth!"

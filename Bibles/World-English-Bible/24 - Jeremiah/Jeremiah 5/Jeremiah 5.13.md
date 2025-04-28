@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the prophets shall become wind, and the word is not in them: thus shall it be done unto them.
+The prophets shall become wind, and the word is not in them. Thus shall it be done to them."

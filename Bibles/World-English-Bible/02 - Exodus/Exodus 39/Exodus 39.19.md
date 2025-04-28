@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made two rings of gold, and put them upon the two ends of the breastplate, upon the edge thereof, which was toward the side of the ephod inward.
+They made two rings of gold, and put them on the two ends of the breastplate, on its edge, which was toward the side of the ephod inward.

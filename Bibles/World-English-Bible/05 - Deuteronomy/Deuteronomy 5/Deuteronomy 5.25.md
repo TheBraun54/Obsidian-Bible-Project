@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore why should we die? for this great fire will consume us: if we hear the voice of Jehovah our God any more, then we shall die.
+Now therefore why should we die? For this great fire will consume us: if we hear the voice of Yahweh our God any more, then we shall die.

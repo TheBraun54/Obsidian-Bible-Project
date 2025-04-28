@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fat of that which dieth of itself, and the fat of that which is torn of beasts, may be used for any other service; but ye shall in no wise eat of it.
+The fat of that which dies of itself, and the fat of that which is torn of animals, may be used for any other service, but you shall in no way eat of it.

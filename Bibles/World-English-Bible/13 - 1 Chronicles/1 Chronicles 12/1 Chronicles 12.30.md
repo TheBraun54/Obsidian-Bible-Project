@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the children of Ephraim twenty thousand and eight hundred, mighty men of valor, famous men in their fathers' houses.
+Of the children of Ephraim twenty thousand eight hundred, mighty men of valor, famous men in their fathers' houses.

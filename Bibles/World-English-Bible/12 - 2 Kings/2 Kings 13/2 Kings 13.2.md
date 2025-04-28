@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil in the sight of Jehovah, and followed the sins of Jeroboam the son of Nebat, wherewith he made Israel to sin; he departed not therefrom.
+He did that which was evil in the sight of Yahweh, and followed the sins of Jeroboam the son of Nebat, with which he made Israel to sin; he didn't depart from it.

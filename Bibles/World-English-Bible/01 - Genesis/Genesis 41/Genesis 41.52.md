@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of the second called he Ephraim: For God hath made me fruitful in the land of my affliction.
+The name of the second, he called Ephraim: "For God has made me fruitful in the land of my affliction."

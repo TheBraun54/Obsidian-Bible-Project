@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he hath made me a byword of the people; And they spit in my face.
+"But he has made me a byword of the people. They spit in my face.

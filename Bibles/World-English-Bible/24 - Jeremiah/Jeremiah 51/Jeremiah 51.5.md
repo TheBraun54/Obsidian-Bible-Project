@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Israel is not forsaken, nor Judah, of his God, of Jehovah of hosts; though their land is full of guilt against the Holy One of Israel.
+For Israel is not forsaken, nor Judah, of his God, of Yahweh of Armies; though their land is full of guilt against the Holy One of Israel.

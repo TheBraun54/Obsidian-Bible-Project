@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that looketh into the perfect law, the [law] of liberty, and [so] continueth, being not a hearer that forgetteth but a doer that worketh, this man shall be blessed in his doing.
+But he who looks into the perfect law of freedom, and continues, not being a hearer who forgets, but a doer of the work, this man will be blessed in what he does.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-folly is set in great dignity, and the rich sit in a low place.
+Folly is set in great dignity, and the rich sit in a low place.

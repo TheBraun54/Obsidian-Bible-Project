@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the children of Israel cried unto Jehovah because of Midian,
+It happened, when the children of Israel cried to Yahweh because of Midian,

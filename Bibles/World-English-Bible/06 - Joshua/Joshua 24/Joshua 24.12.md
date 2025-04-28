@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I sent the hornet before you, which drove them out from before you, even the two kings of the Amorites; not with thy sword, nor with thy bow.
+I sent the hornet before you, which drove them out from before you, even the two kings of the Amorites; not with your sword, nor with your bow.

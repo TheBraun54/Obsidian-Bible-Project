@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the word that Jehovah hath spoken concerning him: The virgin daughter of Zion hath despised thee and laughed thee to scorn; the daughter of Jerusalem hath shaken her head at thee.
+This is the word that Yahweh has spoken concerning him: "The virgin daughter of Zion has despised you and ridiculed you. The daughter of Jerusalem has shaken her head at you.

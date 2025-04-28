@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if the household be too little for a lamb, then shall he and his neighbor next unto his house take one according to the number of the souls; according to every man's eating ye shall make your count for the lamb.
+and if the household is too little for a lamb, then he and his neighbor next to his house shall take one according to the number of the souls; according to what everyone can eat you shall make your count for the lamb.

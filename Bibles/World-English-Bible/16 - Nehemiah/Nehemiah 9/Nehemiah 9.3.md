@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stood up in their place, and read in the book of the law of Jehovah their God a fourth part of the day; and [another] fourth part they confessed, and worshipped Jehovah their God.
+They stood up in their place, and read in the book of the law of Yahweh their God a fourth part of the day; and [another] fourth part they confessed, and worshiped Yahweh their God.

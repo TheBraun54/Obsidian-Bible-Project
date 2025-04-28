@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this was the work of the candlestick, beaten work of gold; unto the base thereof, [and] unto the flowers thereof, it was beaten work: according unto the pattern which Jehovah had showed Moses, so he made the candlestick.
+This was the workmanship of the lampstand, beaten work of gold. From its base to its flowers, it was beaten work: according to the pattern which Yahweh had shown Moses, so he made the lampstand.

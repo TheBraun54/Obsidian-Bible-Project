@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thou shalt devour men no more, neither bereave thy nation any more, saith the Lord Jehovah;
+therefore you shall devour men no more, neither bereave your nation any more, says the Lord Yahweh;

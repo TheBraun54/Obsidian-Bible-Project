@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now they were Mary Magdalene, and Joanna, and Mary the [mother] of James: and the other women with them told these things unto the apostles.
+Now they were Mary Magdalene, Joanna, and Mary the mother of James. The other women with them told these things to the apostles.

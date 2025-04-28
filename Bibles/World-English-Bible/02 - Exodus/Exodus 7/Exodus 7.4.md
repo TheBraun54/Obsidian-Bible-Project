@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Pharaoh will not hearken unto you, and I will lay my hand upon Egypt, and bring forth my hosts, my people the children of Israel, out of the land of Egypt by great judgments.
+But Pharaoh will not listen to you, and I will lay my hand on Egypt, and bring forth my armies, my people the children of Israel, out of the land of Egypt by great judgments.

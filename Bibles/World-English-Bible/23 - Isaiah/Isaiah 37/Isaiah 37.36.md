@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah went forth, and smote in the camp of the Assyrians a hundred and fourscore and five thousand; and when men arose early in the morning, behold, these were all dead bodies.
+The angel of Yahweh went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies.

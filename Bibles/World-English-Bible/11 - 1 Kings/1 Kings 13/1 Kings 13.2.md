@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cried against the altar by the word of Jehovah, and said, O altar, altar, thus saith Jehovah: Behold, a son shall be born unto the house of David, Josiah by name; and upon thee shall he sacrifice the priests of the high places that burn incense upon thee, and men's bones shall they burn upon thee.
+He cried against the altar by the word of Yahweh, and said, "Altar, altar, thus says Yahweh: 'Behold, a son shall be born to the house of David, Josiah by name. On you he shall sacrifice the priests of the high places who burn incense on you, and they will burn men's bones on you.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for my sheep, they eat that which ye have trodden with your feet, and they drink that which ye have fouled with your feet.
+As for my sheep, they eat that which you have trodden with your feet, and they drink that which you have fouled with your feet.

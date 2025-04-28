@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many a time have they afflicted me from my youth up: Yet they have not prevailed against me.
+many times they have afflicted me from my youth up, yet they have not prevailed against me.

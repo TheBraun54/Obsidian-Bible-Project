@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents; of Solomon]. Except Jehovah build the house, They labor in vain that build it: Except Jehovah keep the city, The watchman waketh but in vain.
+Unless Yahweh builds the house, they labor in vain who build it. Unless Yahweh watches over the city, the watchman guards it in vain.

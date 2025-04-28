@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the first year of Belshazzar king of Babylon Daniel had a dream and visions of his head upon his bed: then he wrote the dream and told the sum of the matters.
+In the first year of Belshazzar king of Babylon Daniel had a dream and visions of his head on his bed: then he wrote the dream and told the sum of the matters.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your country is desolate; your cities are burned with fire; your land, strangers devour it in your presence, and it is desolate, as overthrown by strangers.
+Your country is desolate. Your cities are burned with fire. Strangers devour your land in your presence, and it is desolate, as overthrown by strangers.

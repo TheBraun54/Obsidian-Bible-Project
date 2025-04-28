@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the peoples of the earth shall see that thou art called by the name of Jehovah; and they shall be afraid of thee.
+All the peoples of the earth shall see that you are called by the name of Yahweh; and they shall be afraid of you.

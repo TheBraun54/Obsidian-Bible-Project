@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Herod heard [thereof] ; for his name had become known: and he said, John the Baptizer is risen from the dead, and therefore do these powers work in him.
+King Herod heard this, for his name had become known, and he said, "John the Baptizer has risen from the dead, and therefore these powers are at work in him."

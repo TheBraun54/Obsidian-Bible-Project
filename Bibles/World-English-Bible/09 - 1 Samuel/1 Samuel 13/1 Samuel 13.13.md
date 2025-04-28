@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said to Saul, Thou hast done foolishly; thou hast not kept the commandment of Jehovah thy God, which he commanded thee: for now would Jehovah have established thy kingdom upon Israel for ever.
+Samuel said to Saul, "You have done foolishly. You have not kept the commandment of Yahweh your God, which he commanded you; for now Yahweh would have established your kingdom on Israel forever.

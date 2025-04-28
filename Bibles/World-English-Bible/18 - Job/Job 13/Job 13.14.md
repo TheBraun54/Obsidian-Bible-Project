@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore should I take my flesh in my teeth, And put my life in my hand?
+Why should I take my flesh in my teeth, and put my life in my hand?

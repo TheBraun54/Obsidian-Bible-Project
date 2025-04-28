@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they continued three years without war between Syria and Israel.
+They continued three years without war between Syria and Israel.

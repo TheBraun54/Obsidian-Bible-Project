@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, the kingdom of heaven is like unto a man that is a merchant seeking goodly pearls:
+"Again, the Kingdom of Heaven is like a man who is a merchant seeking fine pearls,

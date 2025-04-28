@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto the church of God which is at Corinth, [even] them that are sanctified in Christ Jesus, called [to be] saints, with all that call upon the name of our Lord Jesus Christ in every place, their [Lord] and ours:
+to the assembly of God which is at Corinth; those who are sanctified in Christ Jesus, called to be saints, with all who call on the name of our Lord Jesus Christ in every place, both theirs and ours:

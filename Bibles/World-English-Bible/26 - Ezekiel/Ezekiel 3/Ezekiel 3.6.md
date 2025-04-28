@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not to many peoples of a strange speech and of a hard language, whose words thou canst not understand. Surely, if I sent thee to them, they would hearken unto thee.
+not to many peoples of a strange speech and of a hard language, whose words you can not understand. Surely, if I sent you to them, they would listen to you.

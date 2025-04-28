@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not only so; but Rebecca also having conceived by one, [even] by our father Isaac--
+Not only so, but Rebecca also conceived by one, by our father Isaac.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God helped him against the Philistines, and against the Arabians that dwelt in Gur-baal, and the Meunim.
+God helped him against the Philistines, and against the Arabians who lived in Gur Baal, and the Meunim.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saying, Lord, my servant lieth in the house sick of the palsy, grievously tormented.
+and saying, "Lord, my servant lies in the house paralyzed, grievously tormented."

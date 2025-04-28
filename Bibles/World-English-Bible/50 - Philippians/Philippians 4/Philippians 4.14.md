@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit ye did well that ye had fellowship with my affliction.
+However you did well that you shared in my affliction.

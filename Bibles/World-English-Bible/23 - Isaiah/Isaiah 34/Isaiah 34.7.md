@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the wild-oxen shall come down with them, and the bullocks with the bulls: and their land shall be drunken with blood, and their dust made fat with fatness.
+The wild oxen will come down with them, and the young bulls with the mighty bulls; and their land will be drunken with blood, and their dust made greasy with fat.

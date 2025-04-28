@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph, who by the apostles was surnamed Barnabas (which is, being interpreted, Son of exhortation), a Levite, a man of Cyprus by race,
+Joses, who by the apostles was surnamed Barnabas (which is, being interpreted, Son of Encouragement), a Levite, a man of Cyprus by race,

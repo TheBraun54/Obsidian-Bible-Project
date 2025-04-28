@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whenever the cloud was taken up from over the Tent, then after that the children of Israel journeyed: and in the place where the cloud abode, there the children of Israel encamped.
+Whenever the cloud was taken up from over the Tent, then after that the children of Israel traveled; and in the place where the cloud remained, there the children of Israel encamped.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the second veil, the tabernacle which is called the Holy of holies;
+After the second veil was the tabernacle which is called the Holy of Holies,

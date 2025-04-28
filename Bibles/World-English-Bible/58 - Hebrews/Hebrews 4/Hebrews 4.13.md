@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there is no creature that is not manifest in his sight: but all things are naked and laid open before the eyes of him with whom we have to do.
+There is no creature that is hidden from his sight, but all things are naked and laid open before the eyes of him with whom we have to do.

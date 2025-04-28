@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou drewest near in the day that I called upon thee; thou saidst, Fear not.
+You drew near in the day that I called on you; you said, Don't be afraid.

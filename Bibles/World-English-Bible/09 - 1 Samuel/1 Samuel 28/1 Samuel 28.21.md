@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman came unto Saul, and saw that he was sore troubled, and said unto him, Behold, thy handmaid hath hearkened unto thy voice, and I have put my life in my hand, and have hearkened unto thy words which thou spakest unto me.
+The woman came to Saul, and saw that he was very troubled, and said to him, "Behold, your handmaid has listened to your voice, and I have put my life in my hand, and have listened to your words which you spoke to me.

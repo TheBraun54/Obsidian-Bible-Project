@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Micaiah said, As Jehovah liveth, what my God saith, that will I speak.
+Micaiah said, "As Yahweh lives, what my God says, that will I speak."

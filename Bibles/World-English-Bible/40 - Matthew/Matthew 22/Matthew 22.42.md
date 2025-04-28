@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, What think ye of the Christ? whose son is he? They say unto him, [The son] of David.
+saying, "What do you think of the Christ? Whose son is he?" They said to him, "Of David."

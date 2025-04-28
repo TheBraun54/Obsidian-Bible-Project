@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing praise to God, sing praises: Sing praises unto our King, sing praises.
+Sing praise to God, sing praises. Sing praises to our King, sing praises.

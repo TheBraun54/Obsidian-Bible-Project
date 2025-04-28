@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall not teach every man his fellow-citizen, And every man his brother, saying, Know the Lord: For all shall know me, From the least to the greatest of them.
+They will not teach every man his fellow citizen, and every man his brother, saying, 'Know the Lord,' for all will know me, from the least of them to the greatest of them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David would not remove the ark of Jehovah unto him into the city of David; but David carried it aside into the house of Obed-edom the Gittite.
+So David would not move the ark of Yahweh to be with him in the city of David; but David carried it aside into the house of Obed-Edom the Gittite.

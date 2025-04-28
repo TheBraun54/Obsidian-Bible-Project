@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-give, and it shall be given unto you; good measure, pressed down, shaken together, running over, shall they give into your bosom. For with what measure ye mete it shall be measured to you again.
+"Give, and it will be given to you: good measure, pressed down, shaken together, and running over, will be given to you. For with the same measure you measure it will be measured back to you."

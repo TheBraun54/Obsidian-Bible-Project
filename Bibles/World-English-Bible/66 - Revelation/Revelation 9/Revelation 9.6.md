@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in those days men shall seek death, and shall in no wise find it; and they shall desire to die, and death fleeth from them.
+In those days people will seek death, and will in no way find it. They will desire to die, and death will flee from them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou even annul my judgment? Wilt thou condemn me, that thou mayest be justified?
+Will you even annul my judgment? Will you condemn me, that you may be justified?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt teach them the statutes and the laws, and shalt show them the way wherein they must walk, and the work that they must do.
+You shall teach them the statutes and the laws, and shall show them the way in which they must walk, and the work that they must do.

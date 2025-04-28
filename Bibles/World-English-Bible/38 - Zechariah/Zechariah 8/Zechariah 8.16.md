@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the things that ye shall do: speak ye every man the truth with his neighbor; execute the judgment of truth and peace in your gates;
+These are the things that you shall do: speak every man the truth with his neighbor. Execute the judgment of truth and peace in your gates,

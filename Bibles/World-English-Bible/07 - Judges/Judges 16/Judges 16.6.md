@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Delilah said to Samson, Tell me, I pray thee, wherein thy great strength lieth, and wherewith thou mightest be bound to afflict thee.
+Delilah said to Samson, "Please tell me where your great strength lies, and what you might be bound to afflict you."

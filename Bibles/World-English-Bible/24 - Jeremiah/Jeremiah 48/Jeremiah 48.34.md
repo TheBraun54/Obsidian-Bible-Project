@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the cry of Heshbon even unto Elealeh, even unto Jahaz have they uttered their voice, from Zoar even unto Horonaim, to Eglath-shelishiyah: for the waters of Nimrim also shall become desolate.
+From the cry of Heshbon even to Elealeh, even to Jahaz have they uttered their voice, from Zoar even to Horonaim, to Eglath Shelishiyah: for the waters of Nimrim also shall become desolate.

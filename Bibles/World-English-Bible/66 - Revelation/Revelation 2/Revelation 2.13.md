@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know where thou dwellest, [even] where Satan's throne is; and thou holdest fast my name, and didst not deny my faith, even in the days of Antipas my witness, my faithful one, who was killed among you, where Satan dwelleth.
+"I know your works and where you dwell, where Satan's throne is. You hold firmly to my name, and didn't deny my faith in the days of Antipas my witness, my faithful one, who was killed among you, where Satan dwells.

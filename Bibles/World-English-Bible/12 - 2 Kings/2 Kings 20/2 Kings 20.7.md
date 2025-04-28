@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaiah said, Take a cake of figs. And they took and laid it on the boil, and he recovered.
+Isaiah said, "Take a cake of figs." They took and laid it on the boil, and he recovered.

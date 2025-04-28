@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answereth, Wilt thou lay down thy life for me? Verily, verily, I say unto thee, The cock shall not crow, till thou hast denied me thrice.
+Jesus answered him, "Will you lay down your life for me? Most certainly I tell you, the rooster won't crow until you have denied me three times.

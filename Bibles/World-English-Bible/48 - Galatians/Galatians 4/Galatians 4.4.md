@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when the fulness of the time came, God sent forth his Son, born of a woman, born under the law,
+But when the fullness of the time came, God sent out his Son, born to a woman, born under the law,

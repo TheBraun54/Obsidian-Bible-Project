@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the charge of the sons of Gershon in the tent of meeting shall be the tabernacle, and the Tent, the covering thereof, and the screen for the door of the tent of meeting,
+The duty of the sons of Gershon in the Tent of Meeting shall be the tabernacle, and the tent, its covering, and the screen for the door of the Tent of Meeting,

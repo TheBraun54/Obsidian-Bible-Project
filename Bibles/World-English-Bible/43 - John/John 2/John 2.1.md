@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the third day there was a marriage in Cana of Galilee; and the mother of Jesus was there:
+The third day, there was a marriage in Cana of Galilee. Jesus' mother was there.

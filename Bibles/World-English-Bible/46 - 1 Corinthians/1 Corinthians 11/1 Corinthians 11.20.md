@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore ye assemble yourselves together, it is not possible to eat the Lord's supper:
+When therefore you assemble yourselves together, it is not the Lord's supper that you eat.

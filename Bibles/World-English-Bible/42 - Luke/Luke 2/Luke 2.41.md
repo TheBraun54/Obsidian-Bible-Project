@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his parents went every year to Jerusalem at the feast of the passover.
+His parents went every year to Jerusalem at the feast of the Passover.

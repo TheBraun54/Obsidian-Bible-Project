@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Benjamin, were thirty and five thousand and four hundred.
+those who were numbered of them, of the tribe of Benjamin, were thirty-five thousand four hundred.

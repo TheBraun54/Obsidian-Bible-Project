@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall make atonement for the holy place, because of the uncleannesses of the children of Israel, and because of their transgressions, even all their sins: and so shall he do for the tent of meeting, that dwelleth with them in the midst of their uncleannesses.
+and he shall make atonement for the Holy Place, because of the uncleanness of the children of Israel, and because of their transgressions, even all their sins; and so he shall do for the Tent of Meeting, that dwells with them in the midst of their uncleanness.

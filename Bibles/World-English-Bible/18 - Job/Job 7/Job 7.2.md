@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a servant that earnestly desireth the shadow, And as a hireling that looketh for his wages:
+As a servant who earnestly desires the shadow, as a hireling who looks for his wages,

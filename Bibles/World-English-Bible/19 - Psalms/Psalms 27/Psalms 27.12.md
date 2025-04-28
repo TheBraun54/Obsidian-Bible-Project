@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me not over unto the will of mine adversaries: For false witnesses are risen up against me, And such as breathe out cruelty.
+Don't deliver me over to the desire of my adversaries, for false witnesses have risen up against me, such as breathe out cruelty.

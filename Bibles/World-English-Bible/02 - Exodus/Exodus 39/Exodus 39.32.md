@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus was finished all the work of the tabernacle of the tent of meeting: and the children of Israel did according to all that Jehovah commanded Moses; so did they.
+Thus all the work of the tabernacle of the Tent of Meeting was finished. The children of Israel did according to all that Yahweh commanded Moses; so they did.

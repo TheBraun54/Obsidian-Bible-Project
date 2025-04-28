@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took a cup, and when he had given thanks, he gave to them: and they all drank of it.
+He took the cup, and when he had given thanks, he gave to them. They all drank of it.

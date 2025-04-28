@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He answered and said, And who is he, Lord, that I may believe on him?
+He answered, "Who is he, Lord, that I may believe in him?"

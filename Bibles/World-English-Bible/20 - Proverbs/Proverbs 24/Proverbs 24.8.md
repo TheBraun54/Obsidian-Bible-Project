@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that deviseth to do evil, Men shall call him a mischief-maker.
+One who plots to do evil will be called a schemer.

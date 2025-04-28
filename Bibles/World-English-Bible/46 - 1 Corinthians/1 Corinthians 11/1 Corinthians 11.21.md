@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for in your eating each one taketh before [other] his own supper; and one is hungry, and another is drunken.
+For in your eating each one takes his own supper first. One is hungry, and another is drunken.

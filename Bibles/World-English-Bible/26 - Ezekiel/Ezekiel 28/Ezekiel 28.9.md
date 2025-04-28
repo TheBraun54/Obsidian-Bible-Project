@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou yet say before him that slayeth thee, I am God? but thou art man, and not God, in the hand of him that woundeth thee.
+Will you yet say before him who kills you, I am God? but you are man, and not God, in the hand of him who wounds you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and not holding fast the Head, from whom all the body, being supplied and knit together through the joints and bands, increasing with the increase of God.
+and not holding firmly to the Head, from whom all the body, being supplied and knit together through the joints and ligaments, grows with God's growth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye behold me having.
+See my hands and my feet, that it is truly me. Touch me and see, for a spirit doesn't have flesh and bones, as you see that I have."

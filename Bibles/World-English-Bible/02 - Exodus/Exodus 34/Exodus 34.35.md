@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel saw the face of Moses, that the skin of Moses' face shone; and Moses put the veil upon his face again, until he went in to speak with him.
+The children of Israel saw Moses' face, that the skin of Moses' face shone: and Moses put the veil on his face again, until he went in to speak with him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will not keep silence concerning his limbs, Nor his mighty strength, nor his goodly frame.
+"I will not keep silence concerning his limbs, nor his mighty strength, nor his goodly frame.

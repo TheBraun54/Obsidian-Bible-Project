@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things write I unto thee, hoping to come unto thee shortly;
+These things I write to you, hoping to come to you shortly;

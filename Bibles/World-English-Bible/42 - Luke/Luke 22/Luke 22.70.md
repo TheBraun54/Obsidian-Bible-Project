@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they all said, Art thou then the Son of God? And he said unto them, Ye say that I am.
+They all said, "Are you then the Son of God?" He said to them, "You say it, because I am."

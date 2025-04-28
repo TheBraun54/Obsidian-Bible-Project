@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she laid up his garment by her, until his master came home.
+She laid up his garment by her, until his master came home.

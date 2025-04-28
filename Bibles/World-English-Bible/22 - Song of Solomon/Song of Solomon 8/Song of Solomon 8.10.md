@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am a wall, and my breasts like the towers [thereof] Then was I in his eyes as one that found peace.
+I am a wall, and my breasts like towers, then I was in his eyes like one who found peace.

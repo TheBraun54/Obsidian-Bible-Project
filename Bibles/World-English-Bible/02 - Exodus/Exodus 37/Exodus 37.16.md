@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the vessels which were upon the table, the dishes thereof, and the spoons thereof, and the bowls thereof, and the flagons thereof, wherewith to pour out, of pure gold.
+He made the vessels which were on the table, its dishes, its spoons, its bowls, and its pitchers with which to pour out, of pure gold.

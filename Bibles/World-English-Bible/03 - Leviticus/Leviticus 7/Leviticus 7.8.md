@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest that offereth any man's burnt-offering, even the priest shall have to himself the skin of the burnt-offering which he hath offered.
+The priest who offers any man's burnt offering, even the priest shall have for himself the skin of the burnt offering which he has offered.

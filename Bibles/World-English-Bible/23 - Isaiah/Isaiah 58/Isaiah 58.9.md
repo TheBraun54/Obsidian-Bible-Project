@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou call, and Jehovah will answer; thou shalt cry, and he will say, Here I am. If thou take away from the midst of thee the yoke, the putting forth of the finger, and speaking wickedly;
+Then you shall call, and Yahweh will answer; you shall cry, and he will say, 'Here I am.' "If you take away from the midst of you the yoke, the putting forth of the finger, and speaking wickedly;

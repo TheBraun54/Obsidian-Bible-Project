@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or how can one enter into the house of the strong [man], and spoil his goods, except he first bind the strong [man] ? and then he will spoil his house.
+Or how can one enter into the house of the strong man, and plunder his goods, unless he first bind the strong man? Then he will plunder his house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember also thy Creator in the days of thy youth, before the evil days come, and the years draw nigh, when thou shalt say, I have no pleasure in them;
+Remember also your Creator in the days of your youth, before the evil days come, and the years draw near, when you will say, "I have no pleasure in them;"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man smite the eye of his servant, or the eye of his maid, and destroy it; he shall let him go free for his eye's sake.
+"If a man strikes his servant's eye, or his maid's eye, and destroys it, he shall let him go free for his eye's sake.

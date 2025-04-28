@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said, Nay, but Sarah thy wife shall bear thee a son; and thou shalt call his name Isaac: and I will establish my covenant with him for an everlasting covenant for his seed after him. [
+God said, "No, but Sarah, your wife, will bear you a son. You shall call his name Isaac. I will establish my covenant with him for an everlasting covenant for his seed after him.

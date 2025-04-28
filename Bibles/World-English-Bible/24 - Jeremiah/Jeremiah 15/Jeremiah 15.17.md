@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I sat not in the assembly of them that make merry, nor rejoiced; I sat alone because of thy hand; for thou hast filled me with indignation.
+I didn't sit in the assembly of those who make merry, nor rejoiced; I sat alone because of your hand; for you have filled me with indignation.

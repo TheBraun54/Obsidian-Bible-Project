@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For verily, when we were with you, we told you beforehand that we are to suffer affliction; even as it came to pass, and ye know.
+For most certainly, when we were with you, we told you beforehand that we are to suffer affliction, even as it happened, and you know.

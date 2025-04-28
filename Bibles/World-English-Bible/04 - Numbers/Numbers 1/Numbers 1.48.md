@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah spake unto Moses, saying,
+For Yahweh spoke to Moses, saying,

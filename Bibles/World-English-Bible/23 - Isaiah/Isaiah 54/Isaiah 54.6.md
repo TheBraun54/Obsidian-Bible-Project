@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath called thee as a wife forsaken and grieved in spirit, even a wife of youth, when she is cast off, saith thy God.
+For Yahweh has called you as a wife forsaken and grieved in spirit, even a wife of youth, when she is cast off," says your God.

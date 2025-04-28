@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all that is in the world, the lust of the flesh and the lust of the eyes and the vain glory of life, is not of the Father, but is of the world.
+For all that is in the world, the lust of the flesh, the lust of the eyes, and the pride of life, isn't the Father's, but is the world's.

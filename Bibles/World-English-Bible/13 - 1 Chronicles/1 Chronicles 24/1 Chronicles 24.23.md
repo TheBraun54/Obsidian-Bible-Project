@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons [of Hebron] : Jeriah [the chief], Amariah the second, Jahaziel the third, Jekameam the fourth.
+The sons [of Hebron]: Jeriah [the chief], Amariah the second, Jahaziel the third, Jekameam the fourth.

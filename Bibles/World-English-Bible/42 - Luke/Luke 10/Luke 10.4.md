@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Carry no purse, no wallet, no shoes; and salute no man on the way.
+Carry no purse, nor wallet, nor sandals. Greet no one on the way.

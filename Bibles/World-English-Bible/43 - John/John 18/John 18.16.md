@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Peter was standing at the door without. So the other disciple, who was known unto the high priest, went out and spake unto her that kept the door, and brought in Peter.
+but Peter was standing at the door outside. So the other disciple, who was known to the high priest, went out and spoke to her who kept the door, and brought in Peter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He striketh them as wicked men In the open sight of others;
+He strikes them as wicked men in the open sight of others;

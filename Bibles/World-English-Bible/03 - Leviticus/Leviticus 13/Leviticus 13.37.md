@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if in his eyes the scall be at a stay, and black hair be grown up therein; the scall is healed, he is clean: and the priest shall pronounce him clean.
+But if in his eyes the itch is arrested, and black hair has grown in it; the itch is healed, he is clean. The priest shall pronounce him clean.

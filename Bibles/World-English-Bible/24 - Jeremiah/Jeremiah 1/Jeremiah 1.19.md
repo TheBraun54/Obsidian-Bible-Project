@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall fight against thee; but they shall not prevail against thee: for I am with thee, saith Jehovah, to deliver thee.
+They will fight against you; but they will not prevail against you; for I am with you," says Yahweh, "to deliver you."

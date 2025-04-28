@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when all Israel is come to appear before Jehovah thy God in the place which he shall choose, thou shalt read this law before all Israel in their hearing.
+when all Israel is come to appear before Yahweh your God in the place which he shall choose, you shall read this law before all Israel in their hearing.

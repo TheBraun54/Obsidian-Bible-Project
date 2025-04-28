@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Now all the Athenians and the strangers sojourning there spent their time in nothing else, but either to tell or to hear some new thing.)
+Now all the Athenians and the strangers living there spent their time in nothing else, but either to tell or to hear some new thing.

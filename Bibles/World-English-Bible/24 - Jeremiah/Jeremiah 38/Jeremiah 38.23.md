@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall bring out all thy wives and thy children to the Chaldeans; and thou shalt not escape out of their hand, but shalt be taken by the hand of the king of Babylon: and thou shalt cause this city to be burned with fire.
+They shall bring out all your wives and your children to the Chaldeans; and you shall not escape out of their hand, but shall be taken by the hand of the king of Babylon: and you shall cause this city to be burned with fire.

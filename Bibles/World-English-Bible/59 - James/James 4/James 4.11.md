@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak not one against another, brethren. He that speaketh against a brother, or judgeth his brother, speaketh against the law, and judgeth the law: but if thou judgest the law, thou art not a doer of the law, but a judge.
+Don't speak against one another, brothers. He who speaks against a brother and judges his brother, speaks against the law and judges the law. But if you judge the law, you are not a doer of the law, but a judge.

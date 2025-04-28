@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All mine enemies shall be put to shame and sore troubled: They shall turn back, they shall be put to shame suddenly.
+May all my enemies be ashamed and dismayed. They shall turn back, they shall be disgraced suddenly. A meditation by David, which he sang to Yahweh, concerning the words of Cush, the Benjamite.

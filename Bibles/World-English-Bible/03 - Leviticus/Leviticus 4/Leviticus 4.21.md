@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall carry forth the bullock without the camp, and burn it as he burned the first bullock: it is the sin-offering for the assembly.
+He shall carry forth the bull outside the camp, and burn it as he burned the first bull. It is the sin offering for the assembly.

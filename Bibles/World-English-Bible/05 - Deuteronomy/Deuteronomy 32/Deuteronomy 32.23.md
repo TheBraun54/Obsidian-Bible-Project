@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will heap evils upon them; I will spend mine arrows upon them:
+"I will heap evils on them. I will spend my arrows on them.

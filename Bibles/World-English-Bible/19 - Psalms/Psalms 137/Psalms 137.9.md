@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy shall he be, that taketh and dasheth thy little ones Against the rock.
+Happy shall he be, who takes and dashes your little ones against the rock. By David.

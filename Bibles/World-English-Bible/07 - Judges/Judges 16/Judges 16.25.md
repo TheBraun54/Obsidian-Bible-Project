@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when their hearts were merry, that they said, Call for Samson, that he may make us sport. And they called for Samson out of the prison-house; and he made sport before them. And they set him between the pillars:
+It happened, when their hearts were merry, that they said, "Call for Samson, that he may entertain us." They called for Samson out of the prison; and he performed before them. They set him between the pillars;

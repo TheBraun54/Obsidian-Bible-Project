@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, What meaneth then this bleating of the sheep in mine ears, and the lowing of the oxen which I hear?
+Samuel said, "Then what does this bleating of the sheep in my ears, and the lowing of the cattle which I hear mean?"

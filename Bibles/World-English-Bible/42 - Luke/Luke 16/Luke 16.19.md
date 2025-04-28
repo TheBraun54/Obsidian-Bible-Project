@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there was a certain rich man, and he was clothed in purple and fine linen, faring sumptuously every day:
+"Now there was a certain rich man, and he was clothed in purple and fine linen, living in luxury every day.

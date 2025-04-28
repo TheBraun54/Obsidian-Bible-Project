@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only know ye for certain that, if ye put me to death, ye will bring innocent blood upon yourselves, and upon this city, and upon the inhabitants thereof; for of a truth Jehovah hath sent me unto you to speak all these words in your ears.
+Only know for certain that, if you put me to death, you will bring innocent blood on yourselves, and on this city, and on its inhabitants; for of a truth Yahweh has sent me to you to speak all these words in your ears.

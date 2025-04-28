@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He measured it on the four sides: it had a wall round about, the length five hundred, and the breadth five hundred, to make a separation between that which was holy and that which was common. [
+He measured it on the four sides: it had a wall around it, the length five hundred, and the breadth five hundred, to make a separation between that which was holy and that which was common.

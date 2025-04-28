@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God made for Adam and for his wife coats of skins, and clothed them.
+Yahweh God made coats of skins for Adam and for his wife, and clothed them.

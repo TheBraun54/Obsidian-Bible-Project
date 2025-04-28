@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause I Paul, the prisoner of Christ Jesus in behalf of you Gentiles,--
+For this cause I, Paul, am the prisoner of Christ Jesus on behalf of you Gentiles,

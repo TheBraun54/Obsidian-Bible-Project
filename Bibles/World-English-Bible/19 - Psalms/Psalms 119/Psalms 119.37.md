@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn away mine eyes from beholding vanity, And quicken me in thy ways.
+Turn my eyes away from looking at worthless things. Revive me in your ways.

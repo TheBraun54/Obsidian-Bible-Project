@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For of him, and through him, and unto him, are all things. To him [be] the glory for ever. Amen.
+For of him, and through him, and to him, are all things. To him be the glory for ever! Amen.

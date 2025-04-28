@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for my people, children are their oppressors, and women rule over them. O my people, they that lead thee cause thee to err, and destroy the way of thy paths.
+As for my people, children are their oppressors, and women rule over them. My people, those who lead you cause you to err, and destroy the way of your paths.

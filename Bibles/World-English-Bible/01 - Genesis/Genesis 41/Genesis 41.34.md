@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let Pharaoh do [this], and let him appoint overseers over the land, and take up the fifth part of the land of Egypt in the seven plenteous years.
+Let Pharaoh do this, and let him appoint overseers over the land, and take up the fifth part of the land of Egypt's produce in the seven plenteous years.

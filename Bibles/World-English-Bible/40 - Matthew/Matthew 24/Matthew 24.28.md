@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wheresoever the carcase is, there will the eagles be gathered together.
+For wherever the carcass is, there is where the vultures gather together.

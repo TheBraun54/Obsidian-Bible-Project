@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the leper in whom the plague is, his clothes shall be rent, and the hair of his head shall go loose, and he shall cover his upper lip, and shall cry, Unclean, unclean.
+"The leper in whom the plague is shall wear torn clothes, and the hair of his head shall hang loose. He shall cover his upper lip, and shall cry, 'Unclean! Unclean!'

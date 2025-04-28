@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Receive, I pray thee, the law from his mouth, And lay up his words in thy heart.
+Please receive instruction from his mouth, and lay up his words in your heart.

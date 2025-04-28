@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were they all of good cheer, and themselves also took food.
+Then they all cheered up, and they also took food.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sixteen years old was Uzziah when he began to reign; and he reigned fifty and two years in Jerusalem: and his mother's name was Jechiliah, of Jerusalem.
+Sixteen years old was Uzziah when he began to reign; and he reigned fifty-two years in Jerusalem: and his mother's name was Jechiliah, of Jerusalem.

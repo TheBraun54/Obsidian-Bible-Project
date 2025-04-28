@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took the rod from before Jehovah, as he commanded him.
+Moses took the rod from before Yahweh, as he commanded him.

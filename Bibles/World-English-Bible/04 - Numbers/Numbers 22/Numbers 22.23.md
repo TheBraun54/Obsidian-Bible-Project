@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ass saw the angel of Jehovah standing in the way, with his sword drawn in his hand; and the ass turned aside out of the way, and went into the field: and Balaam smote the ass, to turn her into the way.
+The donkey saw the angel of Yahweh standing in the way, with his sword drawn in his hand; and the donkey turned aside out of the way, and went into the field: and Balaam struck the donkey, to turn her into the way.

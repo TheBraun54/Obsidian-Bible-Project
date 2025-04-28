@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wolf and the lamb shall feed together, and the lion shall eat straw like the ox; and dust shall be the serpent's food. They shall not hurt nor destroy in all my holy mountain, saith Jehovah.
+The wolf and the lamb shall feed together, and the lion shall eat straw like the ox; and dust shall be the serpent's food. They shall not hurt nor destroy in all my holy mountain," says Yahweh.

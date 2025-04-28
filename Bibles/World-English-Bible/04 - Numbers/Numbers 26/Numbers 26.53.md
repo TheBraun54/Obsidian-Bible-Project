@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto these the land shall be divided for an inheritance according to the number of names.
+"To these the land shall be divided for an inheritance according to the number of names.

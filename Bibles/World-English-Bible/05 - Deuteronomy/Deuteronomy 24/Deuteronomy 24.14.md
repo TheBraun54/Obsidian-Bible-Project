@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not oppress a hired servant that is poor and needy, whether he be of thy brethren, or of thy sojourners that are in thy land within thy gates:
+You shall not oppress a hired servant who is poor and needy, whether he be of your brothers, or of your foreigners who are in your land within your gates:

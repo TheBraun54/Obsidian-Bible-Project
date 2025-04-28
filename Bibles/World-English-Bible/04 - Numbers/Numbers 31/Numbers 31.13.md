@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses, and Eleazar the priest, and all the princes of the congregation, went forth to meet them without the camp.
+Moses, and Eleazar the priest, and all the princes of the congregation, went forth to meet them outside of the camp.

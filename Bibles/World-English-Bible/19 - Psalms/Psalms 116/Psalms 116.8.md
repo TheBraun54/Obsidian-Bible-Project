@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast delivered my soul from death, Mine eyes from tears, [And] my feet from falling.
+For you have delivered my soul from death, my eyes from tears, and my feet from falling.

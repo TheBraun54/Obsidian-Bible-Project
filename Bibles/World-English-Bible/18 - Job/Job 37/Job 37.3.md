@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sendeth it forth under the whole heaven, And his lightning unto the ends of the earth.
+He sends it forth under the whole sky, and his lightning to the ends of the earth.

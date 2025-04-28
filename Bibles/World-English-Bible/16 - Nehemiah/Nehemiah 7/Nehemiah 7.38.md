@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Senaah, three thousand nine hundred and thirty.
+The children of Senaah, three thousand nine hundred thirty.

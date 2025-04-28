@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this man had four virgin daughters, who prophesied.
+Now this man had four virgin daughters who prophesied.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I came to cast fire upon the earth; and what do I desire, if it is already kindled?
+"I came to throw fire on the earth. I wish it were already kindled.

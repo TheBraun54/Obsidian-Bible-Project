@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For she said, If I touch but his garments, I shall be made whole.
+For she said, "If I just touch his clothes, I will be made well."

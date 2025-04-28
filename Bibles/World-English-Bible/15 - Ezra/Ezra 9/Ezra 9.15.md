@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, the God of Israel, thou art righteous; for we are left a remnant that is escaped, as it is this day: behold, we are before thee in our guiltiness; for none can stand before thee because of this.
+Yahweh, the God of Israel, you are righteous; for we are left a remnant that has escaped, as it is this day. Behold, we are before you in our guiltiness; for none can stand before you because of this."

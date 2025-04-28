@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Saul laid waste the church, entering into every house, and dragging men and women committed them to prison.
+But Saul ravaged the assembly, entering into every house, and dragged both men and women off to prison.

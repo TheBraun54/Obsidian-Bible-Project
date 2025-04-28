@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mark the perfect man, and behold the upright; For there is a [happy] end to the man of peace.
+Mark the perfect man, and see the upright, for there is a future for the man of peace.

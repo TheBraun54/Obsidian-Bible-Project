@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the days will come; and when the bridegroom shall be taken away from them, then will they fast in those days.
+But the days will come when the bridegroom will be taken away from them. Then they will fast in those days."

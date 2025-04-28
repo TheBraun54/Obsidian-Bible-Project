@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac his father said unto him, Who art thou? And he said, I am thy son, thy first-born, Esau.
+Isaac his father said to him, "Who are you?" He said, "I am your son, your firstborn, Esau."

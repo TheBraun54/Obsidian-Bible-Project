@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-these take, and purify thyself with them, and be at charges for them, that they may shave their heads: and all shall know that there is no truth in the things whereof they have been informed concerning thee; but that thou thyself also walkest orderly, keeping the law.
+Take them, and purify yourself with them, and pay their expenses for them, that they may shave their heads. Then all will know that there is no truth in the things that they have been informed about you, but that you yourself also walk keeping the law.

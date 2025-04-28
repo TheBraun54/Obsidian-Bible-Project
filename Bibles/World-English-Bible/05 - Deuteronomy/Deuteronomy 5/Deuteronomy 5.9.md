@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt not bow down thyself unto them, nor serve them; for I, Jehovah, thy God, am a jealous God, visiting the iniquity of the fathers upon the children, and upon the third and upon the fourth generation of them that hate me;
+you shall not bow down yourself to them, nor serve them; for I, Yahweh, your God, am a jealous God, visiting the iniquity of the fathers on the children, and on the third and on the fourth generation of those who hate me;

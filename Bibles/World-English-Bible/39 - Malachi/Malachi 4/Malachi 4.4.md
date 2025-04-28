@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember ye the law of Moses my servant, which I commanded unto him in Horeb for all Israel, even statutes and ordinances.
+"Remember the law of Moses my servant, which I commanded to him in Horeb for all Israel, even statutes and ordinances.

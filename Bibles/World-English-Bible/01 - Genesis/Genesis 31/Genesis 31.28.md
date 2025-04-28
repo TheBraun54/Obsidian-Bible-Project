@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and didst not suffer me to kiss my sons and my daughters? now hast thou done foolishly.
+and didn't allow me to kiss my sons and my daughters? Now have you done foolishly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I will certainly return unto thee when the season cometh round; and, lo, Sarah thy wife shall have a son. And Sarah heard in the tent door, which was behind him.
+He said, "I will certainly return to you when the season comes round. Behold, Sarah your wife will have a son." Sarah heard in the tent door, which was behind him.

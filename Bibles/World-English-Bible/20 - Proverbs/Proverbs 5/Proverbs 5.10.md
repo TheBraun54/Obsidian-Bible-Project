@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest strangers be filled with thy strength, And thy labors [be] in the house of an alien,
+lest strangers feast on your wealth, and your labors enrich another man's house.

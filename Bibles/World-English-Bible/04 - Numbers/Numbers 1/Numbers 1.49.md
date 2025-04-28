@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only the tribe of Levi thou shalt not number, neither shalt thou take the sum of them among the children of Israel;
+"Only the tribe of Levi you shall not number, neither shall you take a census of them among the children of Israel;

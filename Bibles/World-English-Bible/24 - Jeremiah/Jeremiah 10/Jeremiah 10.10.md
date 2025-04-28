@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah is the true God; he is the living God, and an everlasting King: at his wrath the earth trembleth, and the nations are not able to abide his indignation.
+But Yahweh is the true God; he is the living God, and an everlasting King: at his wrath the earth trembles, and the nations are not able to withstand his indignation.

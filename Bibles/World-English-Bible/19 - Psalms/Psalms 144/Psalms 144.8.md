@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whose mouth speaketh deceit, And whose right hand is a right hand of falsehood.
+whose mouths speak deceit, Whose right hand is a right hand of falsehood.

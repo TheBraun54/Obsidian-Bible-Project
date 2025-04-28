@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he be pleased to contend with him, He cannot answer him one of a thousand.
+If he is pleased to contend with him, he can't answer him one time in a thousand.

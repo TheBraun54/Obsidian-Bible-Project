@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of the wilderness of the sea. As whirlwinds in the South sweep through, it cometh from the wilderness, from a terrible land.
+The burden of the wilderness of the sea. As whirlwinds in the South sweep through, it comes from the wilderness, from an awesome land.

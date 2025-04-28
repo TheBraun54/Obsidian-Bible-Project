@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He leadeth counsellors away stripped, And judges maketh he fools.
+He leads counselors away stripped. He makes judges fools.

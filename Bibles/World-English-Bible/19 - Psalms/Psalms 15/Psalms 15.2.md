@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that walketh uprightly, and worketh righteousness, And speaketh truth in his heart;
+He who walks blamelessly does what is right, and speaks truth in his heart;

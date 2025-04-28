@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they, being sent forth by the Holy Spirit, went down to Seleucia; and from thence they sailed to Cyprus.
+So, being sent out by the Holy Spirit, they went down to Seleucia. From there they sailed to Cyprus.

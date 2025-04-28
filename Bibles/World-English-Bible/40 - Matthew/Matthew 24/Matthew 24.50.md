@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the lord of that servant shall come in a day when he expecteth not, and in an hour when he knoweth not,
+the lord of that servant will come in a day when he doesn't expect it, and in an hour when he doesn't know it,

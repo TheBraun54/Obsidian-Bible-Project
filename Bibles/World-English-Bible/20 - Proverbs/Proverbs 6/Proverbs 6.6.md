@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go to the ant, thou sluggard; Consider her ways, and be wise:
+Go to the ant, you sluggard. Consider her ways, and be wise;

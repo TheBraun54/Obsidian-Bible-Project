@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mouth of the righteous talketh of wisdom, And his tongue speaketh justice.
+The mouth of the righteous talks of wisdom. His tongue speaks justice.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My sheep wandered through all the mountains, and upon every high hill: yea, my sheep were scattered upon all the face of the earth; and there was none that did search or seek [after them] .
+My sheep wandered through all the mountains, and on every high hill: yes, my sheep were scattered on all the surface of the earth; and there was none who searched or sought.

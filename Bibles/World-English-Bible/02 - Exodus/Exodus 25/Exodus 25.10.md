@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall make an ark of acacia wood: two cubits and a half shall be the length thereof, and a cubit and a half the breadth thereof, and a cubit and a half the height thereof.
+"They shall make an ark of acacia wood. Its length shall be two and a half cubits, its breadth a cubit and a half, and a cubit and a half its height.

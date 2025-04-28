@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will smite them with the pestilence, and disinherit them, and will make of thee a nation greater and mightier than they.
+I will strike them with the pestilence, and disinherit them, and will make of you a nation greater and mightier than they."

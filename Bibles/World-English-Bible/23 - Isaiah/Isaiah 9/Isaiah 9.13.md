@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet the people have not turned unto him that smote them, neither have they sought Jehovah of hosts.
+Yet the people have not turned to him who struck them, neither have they sought Yahweh of Armies.

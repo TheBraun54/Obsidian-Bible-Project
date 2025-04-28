@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath chosen Zion; He hath desired it for his habitation.
+For Yahweh has chosen Zion. He has desired it for his habitation.

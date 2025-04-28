@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the transgression of the lips is a snare to the evil man; But the righteous shall come out of trouble.
+An evil man is trapped by sinfulness of lips, but the righteous shall come out of trouble.

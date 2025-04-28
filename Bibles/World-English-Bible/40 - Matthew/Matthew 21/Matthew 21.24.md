@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said unto them, I also will ask you one question, which if ye tell me, I likewise will tell you by what authority I do these things.
+Jesus answered them, "I also will ask you one question, which if you tell me, I likewise will tell you by what authority I do these things.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jehovah said unto Abram, Get thee out of thy country, and from thy kindred, and from thy father's house, unto the land that I will show thee:
+Now Yahweh said to Abram, "Get out of your country, and from your relatives, and from your father's house, to the land that I will show you.

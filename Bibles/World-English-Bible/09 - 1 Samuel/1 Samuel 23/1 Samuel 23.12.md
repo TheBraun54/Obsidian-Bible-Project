@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said David, Will the men of Keilah deliver up to me and my men into the hand of Saul? And Jehovah said, They will deliver thee up.
+Then David said, "Will the men of Keilah deliver me and my men into the hand of Saul?" Yahweh said, "They will deliver you up."

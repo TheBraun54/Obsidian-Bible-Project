@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And bring us not into temptation, but deliver us from the evil [one] .
+Bring us not into temptation, but deliver us from the evil one. For yours is the Kingdom, the power, and the glory forever. Amen.'

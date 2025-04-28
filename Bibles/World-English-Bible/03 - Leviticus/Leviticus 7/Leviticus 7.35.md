@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the anointing-portion of Aaron, and the anointing-portion of his sons, out of the offerings of Jehovah made by fire, in the day when he presented them to minister unto Jehovah in the priest's office;
+This is the anointing portion of Aaron, and the anointing portion of his sons, out of the offerings of Yahweh made by fire, in the day when he presented them to minister to Yahweh in the priest's office;

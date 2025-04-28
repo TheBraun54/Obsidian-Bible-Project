@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, on the next day, when they were come down from the mountain, a great multitude met him.
+It happened on the next day, when they had come down from the mountain, that a great multitude met him.

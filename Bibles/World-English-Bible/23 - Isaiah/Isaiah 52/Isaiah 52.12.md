@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye shall not go out in haste, neither shall ye go by flight: for Jehovah will go before you; and the God of Israel will be your rearward.
+For you shall not go out in haste, neither shall you go by flight: for Yahweh will go before you; and the God of Israel will be your rear guard.

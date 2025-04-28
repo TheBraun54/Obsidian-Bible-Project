@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zacchaeus stood, and said unto the Lord, Behold, Lord, the half of my goods I give to the poor; and if I have wrongfully exacted aught of any man, I restore fourfold.
+Zacchaeus stood and said to the Lord, "Behold, Lord, half of my goods I give to the poor. If I have wrongfully exacted anything of anyone, I restore four times as much."

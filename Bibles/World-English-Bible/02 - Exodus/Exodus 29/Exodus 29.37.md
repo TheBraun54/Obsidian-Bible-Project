@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seven days thou shalt make atonement for the altar, and sanctify it: and the altar shall be most holy; whatsoever toucheth the altar shall be holy.
+Seven days you shall make atonement for the altar, and sanctify it: and the altar shall be most holy; whatever touches the altar shall be holy.

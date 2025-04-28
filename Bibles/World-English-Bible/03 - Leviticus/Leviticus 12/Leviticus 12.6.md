@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the days of her purifying are fulfilled, for a son, or for a daughter, she shall bring a lamb a year old for a burnt-offering, and a young pigeon, or a turtle-dove, for a sin-offering, unto the door of the tent of meeting, unto the priest:
+"'When the days of her purification are completed, for a son, or for a daughter, she shall bring to the priest at the door of the Tent of Meeting, a year old lamb for a burnt offering, and a young pigeon, or a turtledove, for a sin offering:

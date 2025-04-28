@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of the wife of Abishur was Abihail; and she bare him Ahban, and Molid.
+The name of the wife of Abishur was Abihail; and she bore him Ahban, and Molid.

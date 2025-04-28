@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall rise up from the ambush, and take possession of the city: for Jehovah your God will deliver it into your hand.
+and you shall rise up from the ambush, and take possession of the city; for Yahweh your God will deliver it into your hand.

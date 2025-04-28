@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, saith Jehovah of hosts, that I will cut off the names of the idols out of the land, and they shall no more be remembered; and also I will cause the prophets and the unclean spirit to pass out of the land.
+It will come to pass in that day, says Yahweh of Armies, that I will cut off the names of the idols out of the land, and they will be remembered no more. I will also cause the prophets and the spirit of impurity to pass out of the land.

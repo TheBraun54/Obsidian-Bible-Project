@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or with princes that had gold, Who filled their houses with silver:
+or with princes who had gold, who filled their houses with silver:

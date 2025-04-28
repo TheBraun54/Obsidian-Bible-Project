@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Say unto them, Go not up, neither fight; for I am not among you; lest ye be smitten before your enemies.
+Yahweh said to me, "Tell them, 'Don't go up, neither fight; for I am not among you; lest you be struck before your enemies.'"

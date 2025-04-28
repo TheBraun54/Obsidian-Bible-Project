@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even those men that did bring up an evil report of the land, died by the plague before Jehovah.
+even those men who did bring up an evil report of the land, died by the plague before Yahweh.

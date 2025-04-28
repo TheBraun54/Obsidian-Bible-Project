@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for all these did of their superfluity cast in unto the gifts; but she of her want did cast in all the living that she had.
+for all these put in gifts for God from their abundance, but she, out of her poverty, put in all that she had to live on."

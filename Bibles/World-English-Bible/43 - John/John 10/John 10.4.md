@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he hath put forth all his own, he goeth before them, and the sheep follow him: for they know his voice.
+Whenever he brings out his own sheep, he goes before them, and the sheep follow him, for they know his voice.

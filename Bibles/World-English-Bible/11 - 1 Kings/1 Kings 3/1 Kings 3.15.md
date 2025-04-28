@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon awoke; and, behold, it was a dream: and he came to Jerusalem, and stood before the ark of the covenant of Jehovah, and offered up burnt-offerings, and offered peace-offerings, and made a feast to all his servants.
+Solomon awoke; and behold, it was a dream. Then he came to Jerusalem, and stood before the ark of the covenant of Yahweh, and offered up burnt offerings, offered peace offerings, and made a feast to all his servants.

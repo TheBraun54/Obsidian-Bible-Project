@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because if our heart condemn us, God is greater than our heart, and knoweth all things.
+because if our heart condemns us, God is greater than our heart, and knows all things.

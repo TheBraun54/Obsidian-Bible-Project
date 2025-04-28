@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it was thou, a man mine equal, My companion, and my familiar friend.
+But it was you, a man like me, my companion, and my familiar friend.

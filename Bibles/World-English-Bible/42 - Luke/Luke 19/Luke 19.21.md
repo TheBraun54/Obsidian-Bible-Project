@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I feared thee, because thou art an austere man: thou takest up that which thou layedst not down, and reapest that which thou didst not sow.
+for I feared you, because you are an exacting man. You take up that which you didn't lay down, and reap that which you didn't sow.'

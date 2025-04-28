@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of the valley of vision. What aileth thee now, that thou art wholly gone up to the housetops?
+The burden of the valley of vision. What ails you now, that you have all gone up to the housetops?

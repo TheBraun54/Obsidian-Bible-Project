@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he was their shepherd according to the integrity of his heart, And guided them by the skilfulness of his hands.
+So he was their shepherd according to the integrity of his heart, and guided them by the skillfulness of his hands. A Psalm by Asaph.

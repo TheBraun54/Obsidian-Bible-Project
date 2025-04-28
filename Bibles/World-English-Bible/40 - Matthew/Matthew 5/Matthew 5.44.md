@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I say unto you, love your enemies, and pray for them that persecute you;
+But I tell you, love your enemies, bless those who curse you, do good to those who hate you, and pray for those who mistreat you and persecute you,

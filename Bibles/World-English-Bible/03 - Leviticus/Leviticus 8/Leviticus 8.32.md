@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that which remaineth of the flesh and of the bread shall ye burn with fire.
+What remains of the flesh and of the bread you shall burn with fire.

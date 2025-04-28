@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and having shod your feet with the preparation of the gospel of peace;
+and having fitted your feet with the preparation of the Good News of peace;

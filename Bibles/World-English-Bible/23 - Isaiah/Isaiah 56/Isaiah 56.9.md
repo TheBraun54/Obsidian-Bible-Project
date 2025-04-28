@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All ye beasts of the field, come to devour, [yea], all ye beasts in the forest.
+All you animals of the field, come to devour, [yes], all you animals in the forest.

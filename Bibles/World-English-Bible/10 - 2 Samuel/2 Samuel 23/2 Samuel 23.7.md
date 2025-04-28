@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the man that toucheth them Must be armed with iron and the staff of a spear: And they shall be utterly burned with fire in [their] place.
+But the man who touches them must be armed with iron and the staff of a spear. They shall be utterly burned with fire in their place."

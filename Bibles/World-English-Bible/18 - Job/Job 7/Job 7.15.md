@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that my soul chooseth strangling, And death rather than [these] my bones.
+so that my soul chooses strangling, death rather than my bones.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he entered into the synagogue, and spake boldly for the space of three months, reasoning and persuading [as to] the things concerning the kingdom of God.
+He entered into the synagogue, and spoke boldly for a period of three months, reasoning and persuading about the things concerning the Kingdom of God.

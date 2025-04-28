@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto him, Because thou hast seen me, thou hast believed: blessed [are] they that have not seen, and [yet] have believed.
+Jesus said to him, "Because you have seen me, you have believed. Blessed are those who have not seen, and have believed."

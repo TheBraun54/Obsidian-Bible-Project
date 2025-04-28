@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shalt thou turn it into money, and bind up the money in thy hand, and shalt go unto the place which Jehovah thy God shall choose:
+then you shall turn it into money, and bind up the money in your hand, and shall go to the place which Yahweh your God shall choose:

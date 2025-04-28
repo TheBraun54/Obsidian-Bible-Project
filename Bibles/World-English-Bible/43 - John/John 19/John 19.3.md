@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they came unto him, and said, Hail, King of the Jews! and they struck him with their hands.
+They kept saying, "Hail, King of the Jews!" and they kept slapping him.

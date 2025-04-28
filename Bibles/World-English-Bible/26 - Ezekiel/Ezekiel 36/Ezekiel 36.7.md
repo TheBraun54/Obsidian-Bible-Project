@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith the Lord Jehovah: I have sworn, [saying], Surely the nations that are round about you, they shall bear their shame.
+therefore thus says the Lord Yahweh: I have sworn, [saying], Surely the nations that are around you, they shall bear their shame.

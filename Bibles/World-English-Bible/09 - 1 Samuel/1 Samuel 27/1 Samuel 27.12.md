@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Achish believed David, saying, He hath made his people Israel utterly to abhor him; therefore he shall be my servant for ever.
+Achish believed David, saying, "He has made his people Israel utterly to abhor him. Therefore he shall be my servant forever."

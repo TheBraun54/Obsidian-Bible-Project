@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man departed out of the city, out of Beth-lehem-judah, to sojourn where he could find [a place], and he came to the hill-country of Ephraim to the house of Micah, as he journeyed.
+The man departed out of the city, out of Bethlehem Judah, to live where he could find [a place], and he came to the hill country of Ephraim to the house of Micah, as he traveled.

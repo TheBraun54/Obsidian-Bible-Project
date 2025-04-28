@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the three and twentieth day of the seventh month he sent the people away unto their tents, joyful and glad of heart for the goodness that Jehovah had showed unto David, and to Solomon, and to Israel his people.
+On the three and twentieth day of the seventh month he sent the people away to their tents, joyful and glad of heart for the goodness that Yahweh had shown to David, and to Solomon, and to Israel his people.

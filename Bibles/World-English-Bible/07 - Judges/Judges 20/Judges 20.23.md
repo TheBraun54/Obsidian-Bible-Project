@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel went up and wept before Jehovah until even; and they asked of Jehovah, saying, Shall I again draw nigh to battle against the children of Benjamin my brother? And Jehovah said, Go up against him.
+The children of Israel went up and wept before Yahweh until evening; and they asked of Yahweh, saying, "Shall I again draw near to battle against the children of Benjamin my brother?" Yahweh said, "Go up against him."

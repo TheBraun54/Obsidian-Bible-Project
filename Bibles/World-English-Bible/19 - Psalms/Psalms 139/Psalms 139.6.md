@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Such] knowledge is too wonderful for me; It is high, I cannot attain unto it.
+This knowledge is beyond me. It's lofty. I can't attain it.

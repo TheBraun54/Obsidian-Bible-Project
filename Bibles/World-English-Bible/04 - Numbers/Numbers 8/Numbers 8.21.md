@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levites purified themselves from sin, and they washed their clothes: and Aaron offered them for a wave-offering before Jehovah; and Aaron made atonement for them to cleanse them.
+The Levites purified themselves from sin, and they washed their clothes; and Aaron offered them for a wave offering before Yahweh; and Aaron made atonement for them to cleanse them.

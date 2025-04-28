@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if ye have tasted that the Lord is gracious:
+if indeed you have tasted that the Lord is gracious:

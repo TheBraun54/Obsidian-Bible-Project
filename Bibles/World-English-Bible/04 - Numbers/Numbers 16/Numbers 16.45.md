@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Get you up from among this congregation, that I may consume them in a moment. And they fell upon their faces.
+"Get away from among this congregation, that I may consume them in a moment!" They fell on their faces.

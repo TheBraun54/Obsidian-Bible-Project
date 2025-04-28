@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he thus made his defense, Festus saith with a loud voice, Paul, thou art mad; thy much learning is turning thee mad.
+As he thus made his defense, Festus said with a loud voice, "Paul, you are crazy! Your great learning is driving you insane!"

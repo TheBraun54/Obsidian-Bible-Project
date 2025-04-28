@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. [A Psalm] of the sons of Korah; set to Alamoth. A Song]. God is our refuge and strength, A very present help in trouble.
+God is our refuge and strength, a very present help in trouble.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he appointed, according to the ordinance of David his father, the courses of the priests to their service, and the Levites to their offices, to praise, and to minister before the priests, as the duty of every day required; the doorkeepers also by their courses at every gate: for so had David the man of God commanded.
+He appointed, according to the ordinance of David his father, the divisions of the priests to their service, and the Levites to their offices, to praise, and to minister before the priests, as the duty of every day required; the doorkeepers also by their divisions at every gate: for so had David the man of God commanded.

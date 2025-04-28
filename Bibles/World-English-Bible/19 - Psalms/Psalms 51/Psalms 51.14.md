@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me from bloodguiltiness, O God, thou God of my salvation; [And] my tongue shall sing aloud of thy righteousness.
+Deliver me from bloodguiltiness, O God, the God of my salvation. My tongue shall sing aloud of your righteousness.

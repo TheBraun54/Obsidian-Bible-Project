@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and being made free from sin, ye became servants of righteousness.
+Being made free from sin, you became bondservants of righteousness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Which of you shall have a friend, and shall go unto him at midnight, and say to him, Friend, lend me three loaves;
+He said to them, "Which of you, if you go to a friend at midnight, and tell him, 'Friend, lend me three loaves of bread,

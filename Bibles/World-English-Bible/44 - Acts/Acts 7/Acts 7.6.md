@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God spake on this wise, that his seed should sojourn in a strange land, and that they should bring them into bondage, and treat them ill, four hundred years.
+God spoke in this way: that his seed would live as aliens in a strange land, and that they would be enslaved and mistreated for four hundred years.

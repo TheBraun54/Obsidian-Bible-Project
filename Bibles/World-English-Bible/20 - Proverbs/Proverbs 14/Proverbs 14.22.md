@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do they not err that devise evil? But mercy and truth [shall be to] them that devise good.
+Don't they go astray who plot evil? But love and faithfulness belong to those who plan good.

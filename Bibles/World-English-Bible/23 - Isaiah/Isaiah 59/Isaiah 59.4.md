@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None sueth in righteousness, and none pleadeth in truth: they trust in vanity, and speak lies; they conceive mischief, and bring forth iniquity.
+None sues in righteousness, and none pleads in truth: they trust in vanity, and speak lies; they conceive mischief, and bring forth iniquity.

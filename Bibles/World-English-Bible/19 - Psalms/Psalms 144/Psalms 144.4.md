@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Man is like to vanity: His days are as a shadow that passeth away.
+Man is like a breath. His days are like a shadow that passes away.

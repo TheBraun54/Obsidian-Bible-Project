@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the days come, saith Jehovah, that I will make a new covenant with the house of Israel, and with the house of Judah:
+Behold, the days come, says Yahweh, that I will make a new covenant with the house of Israel, and with the house of Judah:

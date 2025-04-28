@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when he shall come to be glorified in his saints, and to be marvelled at in all them that believed (because our testimony unto you was believed) in that day.
+when he comes to be glorified in his saints, and to be admired among all those who have believed (because our testimony to you was believed) in that day.

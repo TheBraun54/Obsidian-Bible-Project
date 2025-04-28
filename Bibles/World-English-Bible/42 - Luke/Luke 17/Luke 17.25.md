@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But first must he suffer many things and be rejected of this generation.
+But first, he must suffer many things and be rejected by this generation.

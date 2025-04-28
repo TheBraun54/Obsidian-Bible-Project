@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gaal the son of Ebed went out, and stood in the entrance of the gate of the city: and Abimelech rose up, and the people that were with him, from the ambushment.
+Gaal the son of Ebed went out, and stood in the entrance of the gate of the city: and Abimelech rose up, and the people who were with him, from the ambush.

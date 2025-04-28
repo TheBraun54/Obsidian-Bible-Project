@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I looked, behold, a hand was put forth unto me; and, lo, a roll of a book was therein;
+When I looked, behold, a hand was put forth to me; and, behold, a scroll of a book was therein;

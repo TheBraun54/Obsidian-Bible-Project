@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they had not executed mine ordinances, but had rejected my statutes, and had profaned my sabbaths, and their eyes were after their fathers' idols.
+because they had not executed my ordinances, but had rejected my statutes, and had profaned my Sabbaths, and their eyes were after their fathers' idols.

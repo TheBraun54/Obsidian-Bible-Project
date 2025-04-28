@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Spirit of Jehovah will come mightily upon thee, and thou shalt prophesy with them, and shalt be turned into another man.
+and the Spirit of Yahweh will come mightily on you, and you shall prophesy with them, and shall be turned into another man.

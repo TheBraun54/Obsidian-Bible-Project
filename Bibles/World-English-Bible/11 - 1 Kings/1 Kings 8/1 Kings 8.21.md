@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there have I set a place for the ark, wherein is the covenant of Jehovah, which he made with our fathers, when he brought them out of the land of Egypt.
+There I have set a place for the ark, in which is the covenant of Yahweh, which he made with our fathers, when he brought them out of the land of Egypt."

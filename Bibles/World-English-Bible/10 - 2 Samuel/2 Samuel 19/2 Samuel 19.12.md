@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are my brethren, ye are my bone and my flesh: wherefore then are ye the last to bring back the king?
+You are my brothers, you are my bone and my flesh. Why then are you the last to bring back the king?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, My Spirit shall not strive with man for ever, for that he also is flesh: yet shall his days be a hundred and twenty years. [
+Yahweh said, "My Spirit will not strive with man forever, because he also is flesh; yet will his days be one hundred twenty years."

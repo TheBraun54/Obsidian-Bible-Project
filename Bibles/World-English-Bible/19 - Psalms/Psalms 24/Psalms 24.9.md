@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up your heads, O ye gates; Yea, lift them up, ye everlasting doors: And the King of glory will come in.
+Lift up your heads, you gates; yes, lift them up, you everlasting doors, and the King of glory will come in.

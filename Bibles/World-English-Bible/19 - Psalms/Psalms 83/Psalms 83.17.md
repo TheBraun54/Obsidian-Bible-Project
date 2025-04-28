@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be put to shame and dismayed for ever; Yea, let them be confounded and perish;
+Let them be disappointed and dismayed forever. Yes, let them be confounded and perish;

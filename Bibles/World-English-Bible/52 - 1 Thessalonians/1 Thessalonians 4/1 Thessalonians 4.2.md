@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye know what charge we gave you through the Lord Jesus.
+For you know what instructions we gave you through the Lord Jesus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In days to come shall Jacob take root; Israel shall blossom and bud; and they shall fill the face of the world with fruit.
+In days to come, Jacob will take root. Israel will blossom and bud. They will fill the surface of the world with fruit.

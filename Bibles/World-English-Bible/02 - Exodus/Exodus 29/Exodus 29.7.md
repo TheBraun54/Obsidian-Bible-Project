@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou take the anointing oil, and pour it upon his head, and anoint him.
+Then you shall take the anointing oil, and pour it on his head, and anoint him.

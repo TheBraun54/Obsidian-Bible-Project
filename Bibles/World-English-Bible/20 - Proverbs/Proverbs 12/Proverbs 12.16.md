@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fool's vexation is presently known; But a prudent man concealeth shame.
+A fool shows his annoyance the same day, but one who overlooks an insult is prudent.

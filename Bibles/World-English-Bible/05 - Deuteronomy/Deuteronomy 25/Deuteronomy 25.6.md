@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, that the first-born that she beareth shall succeed in the name of his brother that is dead, that his name be not blotted out of Israel.
+It shall be, that the firstborn whom she bears shall succeed in the name of his brother who is dead, that his name not be blotted out of Israel.

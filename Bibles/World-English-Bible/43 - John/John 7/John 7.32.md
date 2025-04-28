@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Pharisees heard the multitude murmuring these things concerning him; and the chief priests and the Pharisees sent officers to take him.
+The Pharisees heard the multitude murmuring these things concerning him, and the chief priests and the Pharisees sent officers to arrest him.

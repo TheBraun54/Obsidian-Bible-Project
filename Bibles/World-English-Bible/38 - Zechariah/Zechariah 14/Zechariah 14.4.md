@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his feet shall stand in that day upon the mount of Olives, which is before Jerusalem on the east; and the mount of Olives shall be cleft in the midst thereof toward the east and toward the west, [and there shall be] a very great valley; and half of the mountain shall remove toward the north, and half of it toward the south.
+His feet will stand in that day on the Mount of Olives, which is before Jerusalem on the east; and the Mount of Olives will be split in two, from east to west, making a very great valley. Half of the mountain will move toward the north, and half of it toward the south.

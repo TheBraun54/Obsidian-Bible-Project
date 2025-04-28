@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ark of God was taken; and the two sons of Eli, Hophni and Phinehas, were slain.
+The ark of God was taken; and the two sons of Eli, Hophni and Phinehas, were slain.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gold and glass cannot equal it, Neither shall it be exchanged for jewels of fine gold.
+Gold and glass can't equal it, neither shall it be exchanged for jewels of fine gold.

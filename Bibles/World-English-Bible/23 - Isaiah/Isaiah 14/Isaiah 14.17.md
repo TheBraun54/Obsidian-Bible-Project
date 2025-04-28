@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that made the world as a wilderness, and overthrew the cities thereof; that let not loose his prisoners to their home?
+who made the world like a wilderness, and overthrew its cities; who didn't release his prisoners to their home?"

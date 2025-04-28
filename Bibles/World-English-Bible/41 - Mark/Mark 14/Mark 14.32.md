@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come unto a place which was named Gethsemane: and he saith unto his disciples, Sit ye here, while I pray.
+They came to a place which was named Gethsemane. He said to his disciples, "Sit here, while I pray."

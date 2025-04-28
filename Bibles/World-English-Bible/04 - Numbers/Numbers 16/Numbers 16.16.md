@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Korah, Be thou and all thy company before Jehovah, thou, and they, and Aaron, to-morrow:
+Moses said to Korah, "You and all your company go before Yahweh, you, and they, and Aaron, tomorrow:

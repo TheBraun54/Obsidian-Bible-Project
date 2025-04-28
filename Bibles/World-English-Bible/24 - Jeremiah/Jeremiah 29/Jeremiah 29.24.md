@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And concerning Shemaiah the Nehelamite thou shalt speak, saying,
+Concerning Shemaiah the Nehelamite you shall speak, saying,

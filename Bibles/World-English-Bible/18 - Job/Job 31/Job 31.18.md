@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Nay, from my youth he grew up with me as with a father, And her have I guided from my mother's womb);
+(no, from my youth he grew up with me as with a father, her have I guided from my mother's womb);

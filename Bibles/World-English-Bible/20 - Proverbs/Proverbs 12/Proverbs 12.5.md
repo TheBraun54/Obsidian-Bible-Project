@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The thoughts of the righteous are just; [But] the counsels of the wicked are deceit.
+The thoughts of the righteous are just, but the advice of the wicked is deceitful.

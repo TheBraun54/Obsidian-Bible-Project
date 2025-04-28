@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass as they came, when David returned from the slaughter of the Philistine, that the women came out of all the cities of Israel, singing and dancing, to meet king Saul, with timbrels, with joy, and with instruments of music.
+It happened as they came, when David returned from the slaughter of the Philistine, that the women came out of all the cities of Israel, singing and dancing, to meet king Saul, with tambourines, with joy, and with instruments of music.

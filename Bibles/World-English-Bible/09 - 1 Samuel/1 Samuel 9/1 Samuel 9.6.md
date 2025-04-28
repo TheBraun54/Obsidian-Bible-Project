@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Behold now, there is in this city a man of God, and he is a man that is held in honor; all that he saith cometh surely to pass: now let us go thither; peradventure he can tell us concerning our journey whereon we go.
+He said to him, "See now, there is in this city a man of God, and he is a man who is held in honor. All that he says comes surely to pass. Now let us go there. Perhaps he can tell us concerning our journey whereon we go."

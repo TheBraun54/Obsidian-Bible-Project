@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel served Jehovah all the days of Joshua, and all the days of the elders that outlived Joshua, and had known all the work of Jehovah, that he had wrought for Israel.
+Israel served Yahweh all the days of Joshua, and all the days of the elders who outlived Joshua, and had known all the work of Yahweh, that he had worked for Israel.

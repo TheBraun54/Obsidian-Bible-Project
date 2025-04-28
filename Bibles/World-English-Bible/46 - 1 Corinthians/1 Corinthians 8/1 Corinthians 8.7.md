@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit there is not in all men that knowledge: but some, being used until now to the idol, eat as [of] a thing sacrificed to an idol; and their conscience being weak is defiled.
+However, that knowledge isn't in all men. But some, with consciousness of the idol until now, eat as of a thing sacrificed to an idol, and their conscience, being weak, is defiled.

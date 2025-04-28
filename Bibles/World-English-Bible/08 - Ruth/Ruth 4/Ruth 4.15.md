@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall be unto thee a restorer of life, and a nourisher of thine old age, for thy daughter-in-law, who loveth thee, who is better to thee than seven sons, hath borne him.
+He shall be to you a restorer of life, and sustain you in your old age, for your daughter-in-law, who loves you, who is better to you than seven sons, has borne him."

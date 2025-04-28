@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why was not this ointment sold for three hundred shillings, and given to the poor?
+"Why wasn't this ointment sold for three hundred denarii, and given to the poor?"

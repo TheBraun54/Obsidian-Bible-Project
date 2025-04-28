@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth father or mother more than me is not worthy of me; and he that loveth son or daughter more than me is not worthy of me.
+He who loves father or mother more than me is not worthy of me; and he who loves son or daughter more than me isn't worthy of me.

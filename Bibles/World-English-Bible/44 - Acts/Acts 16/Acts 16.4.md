@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they went on their way through the cities, they delivered them the decrees to keep which had been ordained of the apostles and elders that were at Jerusalem.
+As they went on their way through the cities, they delivered the decrees to them to keep which had been ordained by the apostles and elders who were at Jerusalem.

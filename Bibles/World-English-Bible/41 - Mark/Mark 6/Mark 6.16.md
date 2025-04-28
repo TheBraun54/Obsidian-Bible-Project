@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Herod, when he heard [thereof], said, John, whom I beheaded, he is risen.
+But Herod, when he heard this, said, "This is John, whom I beheaded. He has risen from the dead."

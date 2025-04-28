@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As also the high priest doth bear me witness, and all the estate of the elders: from whom also I received letters unto the brethren, and journeyed to Damascus to bring them also that were there unto Jerusalem in bonds to be punished.
+As also the high priest and all the council of the elders testify, from whom also I received letters to the brothers, and traveled to Damascus to bring them also who were there to Jerusalem in bonds to be punished.

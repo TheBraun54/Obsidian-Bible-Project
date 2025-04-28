@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is any among you suffering? Let him pray. Is any cheerful? Let him sing praise.
+Is any among you suffering? Let him pray. Is any cheerful? Let him sing praises.

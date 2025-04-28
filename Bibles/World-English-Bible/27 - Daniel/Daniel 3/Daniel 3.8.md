@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore at that time certain Chaldeans came near, and brought accusation against the Jews.
+Therefore at that time certain Chaldeans came near, and brought accusation against the Jews.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not rash with thy mouth, and let not thy heart be hasty to utter anything before God; for God is in heaven, and thou upon earth: therefore let thy words be few.
+Don't be rash with your mouth, and don't let your heart be hasty to utter anything before God; for God is in heaven, and you on earth. Therefore let your words be few.

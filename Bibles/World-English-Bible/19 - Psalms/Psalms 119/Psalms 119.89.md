@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-LAMEDH. For ever, O Jehovah, Thy word is settled in heaven.
+Yahweh, your word is settled in heaven forever.

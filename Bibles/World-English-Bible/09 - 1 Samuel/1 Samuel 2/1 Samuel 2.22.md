@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Eli was very old; and he heard all that his sons did unto all Israel, and how that they lay with the women that did service at the door of the tent of meeting.
+Now Eli was very old; and he heard all that his sons did to all Israel, and how that they lay with the women who served at the door of the Tent of Meeting.

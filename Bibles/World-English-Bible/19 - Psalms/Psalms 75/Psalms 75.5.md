@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift not up your horn on high; Speak not with a stiff neck.
+Don't lift up your horn on high. Don't speak with a stiff neck."

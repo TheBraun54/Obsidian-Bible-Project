@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Gibeon sent unto Joshua to the camp to Gilgal, saying, Slack not thy hand from thy servants; come up to us quickly, and save us, and help us: for all the kings of the Amorites that dwell in the hill-country are gathered together against us.
+The men of Gibeon sent to Joshua to the camp to Gilgal, saying, "Don't abandon your servants! Come up to us quickly, and save us, and help us; for all the kings of the Amorites that dwell in the hill country have gathered together against us."

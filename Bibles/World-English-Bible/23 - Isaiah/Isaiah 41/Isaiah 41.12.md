@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt seek them, and shalt not find them, even them that contend with thee: they that war against thee shall be as nothing, and as a thing of nought.
+You will seek them, and won't find them, even those who contend with you. Those who war against you will be as nothing, as a non-existent thing.

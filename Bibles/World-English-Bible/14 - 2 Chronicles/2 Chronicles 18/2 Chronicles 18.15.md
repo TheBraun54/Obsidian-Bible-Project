@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said to him, How many times shall I adjure thee that thou speak unto me nothing but the truth in the name of Jehovah?
+The king said to him, "How many times shall I adjure you that you speak to me nothing but the truth in the name of Yahweh?"

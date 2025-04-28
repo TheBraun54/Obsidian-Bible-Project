@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he forsook Jehovah, the God of his fathers, and walked not in the way of Jehovah.
+and he forsook Yahweh, the God of his fathers, and didn't walk in the way of Yahweh.

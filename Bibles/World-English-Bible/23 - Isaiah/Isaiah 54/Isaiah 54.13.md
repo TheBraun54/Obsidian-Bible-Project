@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all thy children shall be taught of Jehovah; and great shall be the peace of thy children.
+All your children shall be taught of Yahweh; and great shall be the peace of your children.

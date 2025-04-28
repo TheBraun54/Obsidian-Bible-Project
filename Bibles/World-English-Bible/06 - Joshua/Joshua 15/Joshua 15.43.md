@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Iphtah, and Ashnah, and Nezib,
+Iphtah, Ashnah, Nezib,

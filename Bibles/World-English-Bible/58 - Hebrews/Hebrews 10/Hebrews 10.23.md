@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let us hold fast the confession of our hope that it waver not; for he is faithful that promised:
+let us hold fast the confession of our hope without wavering; for he who promised is faithful.

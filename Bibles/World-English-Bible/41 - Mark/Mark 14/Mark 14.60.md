@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the high priest stood up in the midst, and asked Jesus, saying, Answerest thou nothing? what is it which these witness against thee?
+The high priest stood up in the midst, and asked Jesus, "Have you no answer? What is it which these testify against you?"

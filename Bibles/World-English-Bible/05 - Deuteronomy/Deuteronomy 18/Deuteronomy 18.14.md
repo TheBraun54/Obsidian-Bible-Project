@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For these nations, that thou shalt dispossess, hearken unto them that practise augury, and unto diviners; but as for thee, Jehovah thy God hath not suffered thee so to do.
+For these nations, that you shall dispossess, listen to those who practice sorcery, and to diviners; but as for you, Yahweh your God has not allowed you so to do.

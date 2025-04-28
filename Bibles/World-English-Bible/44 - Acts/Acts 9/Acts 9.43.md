@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that he abode many days in Joppa with one Simon a tanner.
+It happened, that he stayed many days in Joppa with one Simon, a tanner.

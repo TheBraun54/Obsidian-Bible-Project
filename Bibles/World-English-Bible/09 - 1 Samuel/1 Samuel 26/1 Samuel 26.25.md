@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Saul said to David, Blessed be thou, my son David: thou shalt both do mightily, and shalt surely prevail. So David went his way, and Saul returned to his place.
+Then Saul said to David, "You are blessed, my son David. You shall both do mightily, and shall surely prevail." So David went his way, and Saul returned to his place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cities shall they have to dwell in; and their suburbs shall be for their cattle, and for their substance, and for all their beasts.
+The cities shall they have to dwell in; and their suburbs shall be for their livestock, and for their substance, and for all their animals.

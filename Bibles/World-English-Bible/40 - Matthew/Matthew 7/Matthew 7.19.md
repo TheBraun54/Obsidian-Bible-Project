@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every tree that bringeth not forth good fruit is hewn down, and cast into the fire.
+Every tree that doesn't grow good fruit is cut down, and thrown into the fire.

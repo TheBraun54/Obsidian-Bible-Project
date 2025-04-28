@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-circumcised the eighth day, of the stock of Israel, of the tribe of Benjamin, a Hebrew of Hebrews; as touching the law, a Pharisee;
+circumcised the eighth day, of the stock of Israel, of the tribe of Benjamin, a Hebrew of Hebrews; concerning the law, a Pharisee;

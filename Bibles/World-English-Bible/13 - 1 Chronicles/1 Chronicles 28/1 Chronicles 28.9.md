@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, Solomon my son, know thou the God of thy father, and serve him with a perfect heart and with a willing mind; for Jehovah searcheth all hearts, and understandeth all the imaginations of the thoughts: if thou seek him, he will be found of thee; but if thou forsake him, he will cast thee off for ever.
+You, Solomon my son, know the God of your father, and serve him with a perfect heart and with a willing mind; for Yahweh searches all hearts, and understands all the imaginations of the thoughts. If you seek him, he will be found by you; but if you forsake him, he will cast you off forever.

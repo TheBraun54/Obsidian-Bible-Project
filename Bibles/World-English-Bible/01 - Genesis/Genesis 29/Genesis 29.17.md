@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah's eyes were tender; but Rachel was beautiful and well-favored.
+Leah's eyes were weak, but Rachel was beautiful in form and attractive.

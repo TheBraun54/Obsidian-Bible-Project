@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the first day shall be a holy convocation: ye shall do no servile work;
+In the first day shall be a holy convocation: you shall do no servile work;

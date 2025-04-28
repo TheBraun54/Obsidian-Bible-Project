@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the pelican and the porcupine shall possess it; and the owl and the raven shall dwell therein: and he will stretch over it the line of confusion, and the plummet of emptiness.
+But the pelican and the porcupine will possess it. The owl and the raven will dwell in it. He will stretch the line of confusion over it, and the plumb line of emptiness.

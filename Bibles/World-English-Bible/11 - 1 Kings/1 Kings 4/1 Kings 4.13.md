@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ben-geber, in Ramoth-gilead (to him [pertained] the towns of Jair the son of Manasseh, which are in Gilead; [even] to him [pertained] the region of Argob, which is in Bashan, threescore great cities with walls and brazen bars);
+Ben Geber, in Ramoth Gilead (to him [pertained] the towns of Jair the son of Manasseh, which are in Gilead; [even] to him [pertained] the region of Argob, which is in Bashan, sixty great cities with walls and bronze bars);

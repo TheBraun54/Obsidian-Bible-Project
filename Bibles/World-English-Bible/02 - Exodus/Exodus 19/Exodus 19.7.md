@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses came and called for the elders of the people, and set before them all these words which Jehovah commanded him.
+Moses came and called for the elders of the people, and set before them all these words which Yahweh commanded him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Haradah, and encamped in Makheloth.
+They traveled from Haradah, and encamped in Makheloth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not muzzle the ox when he treadeth out [the grain] .
+You shall not muzzle the ox when he treads out [the grain].

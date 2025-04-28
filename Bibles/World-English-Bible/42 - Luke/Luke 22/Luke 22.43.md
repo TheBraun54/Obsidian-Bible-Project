@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there appeared unto him an angel from heaven, strengthening him.
+An angel from heaven appeared to him, strengthening him.

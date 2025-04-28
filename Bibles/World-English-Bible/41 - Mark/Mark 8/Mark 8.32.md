@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake the saying openly. And Peter took him, and began to rebuke him.
+He spoke to them openly. Peter took him, and began to rebuke him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for thee and thy servants, I know that ye will not yet fear Jehovah God.
+But as for you and your servants, I know that you don't yet fear Yahweh God."

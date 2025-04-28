@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Two tenons shall there be in each board, joined one to another: thus shalt thou make for all the boards of the tabernacle.
+There shall be two tenons in each board, joined to one another: thus you shall make for all the boards of the tabernacle.

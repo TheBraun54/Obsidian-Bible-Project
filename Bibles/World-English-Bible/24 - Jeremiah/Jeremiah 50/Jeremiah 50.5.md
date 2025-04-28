@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall inquire concerning Zion with their faces thitherward, [saying], Come ye, and join yourselves to Jehovah in an everlasting covenant that shall not be forgotten.
+They shall inquire concerning Zion with their faces turned toward it, [saying], Come, and join yourselves to Yahweh in an everlasting covenant that shall not be forgotten.

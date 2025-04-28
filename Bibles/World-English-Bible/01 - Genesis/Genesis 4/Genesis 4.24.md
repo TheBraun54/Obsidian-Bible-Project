@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If Cain shall be avenged sevenfold, Truly Lamech seventy and sevenfold.
+If Cain will be avenged seven times, truly Lamech seventy-seven times."

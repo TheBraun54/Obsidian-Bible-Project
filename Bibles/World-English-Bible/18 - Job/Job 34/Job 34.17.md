@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall even one that hateth justice govern? And wilt thou condemn him that is righteous [and] mighty?--
+Shall even one who hates justice govern? Will you condemn him who is righteous and mighty?--

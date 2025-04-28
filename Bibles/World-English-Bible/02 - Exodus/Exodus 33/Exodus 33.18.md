@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Show me, I pray thee, thy glory.
+He said, "Please show me your glory."

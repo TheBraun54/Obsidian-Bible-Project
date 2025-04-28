@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they had swallowed us up alive, When their wrath was kindled against us;
+then they would have swallowed us up alive, when their wrath was kindled against us;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came to the second, and said likewise. And he answered and said, I [go], sir: and went not.
+He came to the second, and said the same thing. He answered, 'I go, sir,' but he didn't go.

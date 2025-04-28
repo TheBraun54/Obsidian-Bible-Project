@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But one hath somewhere testified, saying, What is man, that thou art mindful of him? Or the son of man, that thou visitest him?
+But one has somewhere testified, saying, "What is man, that you think of him? Or the son of man, that you care for him?

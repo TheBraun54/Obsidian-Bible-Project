@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why do ye not understand my speech? [Even] because ye cannot hear my word.
+Why don't you understand my speech? Because you can't hear my word.

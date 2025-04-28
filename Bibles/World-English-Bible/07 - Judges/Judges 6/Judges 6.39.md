@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon said unto God, Let not thine anger be kindled against me, and I will speak but this once: let me make trial, I pray thee, but this once with the fleece; let it now be dry only upon the fleece, and upon all the ground let there be dew.
+Gideon said to God, "Don't let your anger be kindled against me, and I will speak but this once. Please let me make a trial just this once with the fleece. Let it now be dry only on the fleece, and on all the ground let there be dew."

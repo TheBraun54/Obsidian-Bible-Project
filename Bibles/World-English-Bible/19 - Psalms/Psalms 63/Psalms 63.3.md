@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thy lovingkindness is better than life, My lips shall praise thee.
+Because your loving kindness is better than life, my lips shall praise you.

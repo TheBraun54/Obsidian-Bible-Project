@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the power of the horses is in their mouth, and in their tails: for their tails are like unto serpents, and have heads; and with them they hurt.
+For the power of the horses is in their mouths, and in their tails. For their tails are like serpents, and have heads, and with them they harm.

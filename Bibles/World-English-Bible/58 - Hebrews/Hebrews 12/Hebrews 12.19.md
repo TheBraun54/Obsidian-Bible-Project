@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the sound of a trumpet, and the voice of words; which [voice] they that heard entreated that no word more should be spoken unto them;
+the sound of a trumpet, and the voice of words; which those who heard it begged that not one more word should be spoken to them,

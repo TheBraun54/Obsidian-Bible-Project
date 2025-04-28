@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Egypt is a very fair heifer; [but] destruction out of the north is come, it is come.
+Egypt is a very beautiful heifer; [but] destruction out of the north is come, it is come.

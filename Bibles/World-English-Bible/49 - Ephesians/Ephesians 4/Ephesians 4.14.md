@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that we may be no longer children, tossed to and fro and carried about with every wind of doctrine, by the sleight of men, in craftiness, after the wiles of error;
+that we may no longer be children, tossed back and forth and carried about with every wind of doctrine, by the trickery of men, in craftiness, after the wiles of error;

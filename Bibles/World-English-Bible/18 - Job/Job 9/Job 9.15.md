@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whom, though I were righteous, yet would I not answer; I would make supplication to my judge.
+Though I were righteous, yet I wouldn't answer him. I would make supplication to my judge.

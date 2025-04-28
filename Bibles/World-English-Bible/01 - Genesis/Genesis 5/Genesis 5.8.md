@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the days of Seth were nine hundred and twelve years: and he died.
+All the days of Seth were nine hundred twelve years, then he died.

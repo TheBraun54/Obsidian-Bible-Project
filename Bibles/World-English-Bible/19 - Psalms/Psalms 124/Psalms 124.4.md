@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the waters had overwhelmed us, The stream had gone over our soul;
+then the waters would have overwhelmed us, the stream would have gone over our soul;

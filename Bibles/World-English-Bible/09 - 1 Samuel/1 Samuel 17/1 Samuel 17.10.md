@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistine said, I defy the armies of Israel this day; give me a man, that we may fight together.
+The Philistine said, "I defy the armies of Israel this day! Give me a man, that we may fight together!"

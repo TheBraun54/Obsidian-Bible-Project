@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all the men of the tower of Shechem heard thereof, they entered into the stronghold of the house of El-berith.
+When all the men of the tower of Shechem heard of it, they entered into the stronghold of the house of Elberith.

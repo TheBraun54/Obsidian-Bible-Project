@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Hariph, a hundred and twelve.
+The children of Hariph, one hundred twelve.

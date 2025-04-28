@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou show wonders to the dead? Shall they that are deceased arise and praise thee? {{Selah
+Do you show wonders to the dead? Do the dead rise up and praise you? Selah.

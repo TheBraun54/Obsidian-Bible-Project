@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not uncover the nakedness of thy father's brother, thou shalt not approach to his wife: she is thine aunt.
+"'You shall not uncover the nakedness of your father's brother, you shall not approach his wife: she is your aunt.

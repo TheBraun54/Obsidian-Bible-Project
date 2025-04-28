@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Edom revolted from under the hand of Judah unto this day. Then did Libnah revolt at the same time.
+So Edom revolted from under the hand of Judah to this day. Then did Libnah revolt at the same time.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I therefore have not sinned against thee, but thou doest me wrong to war against me: Jehovah, the Judge, be judge this day between the children of Israel and the children of Ammon.
+I therefore have not sinned against you, but you do me wrong to war against me. Yahweh, the Judge, be judge this day between the children of Israel and the children of Ammon."

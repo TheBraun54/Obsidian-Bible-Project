@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will go down with thee into Egypt; and I will also surely bring thee up again: and Joseph shall put his hand upon thine eyes.
+I will go down with you into Egypt. I will also surely bring you up again. Joseph will close your eyes."

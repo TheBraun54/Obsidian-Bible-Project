@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall set the sheep on his right hand, but the goats on the left.
+He will set the sheep on his right hand, but the goats on the left.

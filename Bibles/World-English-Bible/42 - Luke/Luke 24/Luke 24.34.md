@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, The Lord is risen indeed, and hath appeared to Simon.
+saying, "The Lord is risen indeed, and has appeared to Simon!"

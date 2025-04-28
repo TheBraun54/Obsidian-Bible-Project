@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ishmael also slew all the Jews that were with him, [to wit], with Gedaliah, at Mizpah, and the Chaldeans that were found there, the men of war.
+Ishmael also killed all the Jews who were with him, [to wit], with Gedaliah, at Mizpah, and the Chaldeans who were found there, the men of war.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did not Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell upon all the congregation of Israel? and that man perished not alone in his iniquity.
+Didn't Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn't perish alone in his iniquity.'"

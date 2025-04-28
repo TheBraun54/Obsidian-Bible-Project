@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I went out after him, and smote him, and delivered it out of his mouth; and when he arose against me, I caught him by his beard, and smote him, and slew him.
+I went out after him, and struck him, and rescued it out of his mouth. When he arose against me, I caught him by his beard, and struck him, and killed him.

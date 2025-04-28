@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed [be] the God and Father of our Lord Jesus Christ, who according to his great mercy begat us again unto a living hope by the resurrection of Jesus Christ from the dead,
+Blessed be the God and Father of our Lord Jesus Christ, who according to his great mercy became our father again to a living hope through the resurrection of Jesus Christ from the dead,

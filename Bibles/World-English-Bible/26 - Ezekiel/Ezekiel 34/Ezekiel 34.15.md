@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I myself will be the shepherd of my sheep, and I will cause them to lie down, saith the Lord Jehovah.
+I myself will be the shepherd of my sheep, and I will cause them to lie down, says the Lord Yahweh.

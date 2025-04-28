@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I must needs glory, I will glory of the things that concern my weakness.
+If I must boast, I will boast of the things that concern my weakness.

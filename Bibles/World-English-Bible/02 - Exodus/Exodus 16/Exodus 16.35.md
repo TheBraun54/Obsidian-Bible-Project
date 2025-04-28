@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did eat the manna forty years, until they came to a land inhabited; they did eat the manna, until they came unto the borders of the land of Canaan.
+The children of Israel ate the manna forty years, until they came to an inhabited land. They ate the manna until they came to the borders of the land of Canaan.

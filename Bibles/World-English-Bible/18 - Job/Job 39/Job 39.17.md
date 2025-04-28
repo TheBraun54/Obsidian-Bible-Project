@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because God hath deprived her of wisdom, Neither hath he imparted to her understanding.
+because God has deprived her of wisdom, neither has he imparted to her understanding.

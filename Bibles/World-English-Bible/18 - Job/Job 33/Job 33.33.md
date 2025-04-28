@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If not, hearken thou unto me: Hold thy peace, and I will teach thee wisdom.
+If not, listen to me. Hold your peace, and I will teach you wisdom."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will smite thee in the knees, and in the legs, with a sore boil, whereof thou canst not be healed, from the sole of thy foot unto the crown of thy head.
+Yahweh will strike you in the knees, and in the legs, with a sore boil, of which you can not be healed, from the sole of your foot to the crown of your head.

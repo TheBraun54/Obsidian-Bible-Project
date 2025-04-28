@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah appeared unto the woman, and said unto her, Behold now, thou art barren, and bearest not; but thou shalt conceive, and bear a son.
+The angel of Yahweh appeared to the woman, and said to her, "See now, you are barren, and don't bear; but you shall conceive, and bear a son.

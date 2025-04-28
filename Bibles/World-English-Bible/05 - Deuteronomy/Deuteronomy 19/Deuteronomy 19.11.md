@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any man hate his neighbor, and lie in wait for him, and rise up against him, and smite him mortally so that he dieth, and he flee into one of these cities;
+But if any man hates his neighbor, and lies in wait for him, and rises up against him, and strikes him mortally so that he dies, and he flees into one of these cities;

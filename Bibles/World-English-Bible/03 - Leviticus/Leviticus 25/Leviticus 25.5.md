@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which groweth of itself of thy harvest thou shalt not reap, and the grapes of thy undressed vine thou shalt not gather: it shall be a year of solemn rest for the land.
+What grows of itself in your harvest you shall not reap, and the grapes of your undressed vine you shall not gather. It shall be a year of solemn rest for the land.

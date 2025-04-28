@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His legs are [as] pillars of marble, set upon sockets of fine gold: His aspect is like Lebanon, excellent as the cedars.
+His legs are like pillars of marble set on sockets of fine gold. His appearance is like Lebanon, excellent as the cedars.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will restore to you the years that the locust hath eaten, the canker-worm, and the caterpillar, and the palmer-worm, my great army which I sent among you.
+I will restore to you the years that the swarming locust has eaten, the great locust, the grasshopper, and the caterpillar, my great army, which I sent among you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not looking each of you to his own things, but each of you also to the things of others.
+each of you not just looking to his own things, but each of you also to the things of others.

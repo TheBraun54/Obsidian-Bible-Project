@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when inquisition was made of the matter, and it was found to be so, they were both hanged on a tree: and it was written in the book of the chronicles before the king.
+When this matter was investigated, and it was found to be so, they were both hanged on a tree; and it was written in the book of the chronicles in the king's presence.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Daughter, thy faith hath made thee whole; go in peace.
+He said to her, "Daughter, cheer up. Your faith has made you well. Go in peace."

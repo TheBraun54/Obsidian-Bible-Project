@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and three tenth parts [of an ephah] of fine flour for a meal-offering, mingled with oil, for each bullock; and two tenth parts of fine flour for a meal-offering, mingled with oil, for the one ram;
+and three tenth parts [of an ephah] of fine flour for a meal offering, mixed with oil, for each bull; and two tenth parts of fine flour for a meal offering, mixed with oil, for the one ram;

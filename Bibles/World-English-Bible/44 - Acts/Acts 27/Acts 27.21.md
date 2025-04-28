@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had been long without food, then Paul stood forth in the midst of them, and said, Sirs, ye should have hearkened unto me, and not have set sail from Crete, and have gotten this injury and loss.
+When they had been long without food, Paul stood up in the middle of them, and said, "Sirs, you should have listened to me, and not have set sail from Crete, and have gotten this injury and loss.

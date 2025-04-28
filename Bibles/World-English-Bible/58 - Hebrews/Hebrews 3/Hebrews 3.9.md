@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where your fathers tried [me] by proving [me], And saw my works forty years.
+where your fathers tested me by proving me, and saw my works for forty years.

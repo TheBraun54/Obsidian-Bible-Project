@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But shouldest thou marry, thou hast not sinned; and if a virgin marry, she hath not sinned. Yet such shall have tribulation in the flesh: and I would spare you.
+But if you marry, you have not sinned. If a virgin marries, she has not sinned. Yet such will have oppression in the flesh, and I want to spare you.

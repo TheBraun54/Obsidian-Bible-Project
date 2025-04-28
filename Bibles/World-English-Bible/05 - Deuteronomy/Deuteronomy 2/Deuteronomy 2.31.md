@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Behold, I have begun to deliver up Sihon and his land before thee: begin to possess, that thou mayest inherit his land.
+Yahweh said to me, "Behold, I have begun to deliver up Sihon and his land before you: begin to possess, that you may inherit his land."

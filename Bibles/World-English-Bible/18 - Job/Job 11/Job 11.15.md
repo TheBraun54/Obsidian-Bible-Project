@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely then shalt thou lift up thy face without spot; Yea, thou shalt be stedfast, and shalt not fear:
+Surely then you shall lift up your face without spot; Yes, you shall be steadfast, and shall not fear:

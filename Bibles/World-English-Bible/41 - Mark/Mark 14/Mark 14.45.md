@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come, straightway he came to him, and saith, Rabbi; and kissed him.
+When he had come, immediately he came to him, and said, "Rabbi! Rabbi!" and kissed him.

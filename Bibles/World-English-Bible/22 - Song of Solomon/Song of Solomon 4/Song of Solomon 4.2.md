@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy teeth are like a flock [of ewes] that are [newly] shorn, Which are come up from the washing, Whereof every one hath twins, And none is bereaved among them.
+Your teeth are like a newly shorn flock, which have come up from the washing, where every one of them has twins. None is bereaved among them.

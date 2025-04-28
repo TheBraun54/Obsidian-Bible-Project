@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and having rehearsed all things unto them, he sent them to Joppa.
+Having explained everything to them, he sent them to Joppa.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they cried out with a loud voice, and stopped their ears, and rushed upon him with one accord;
+But they cried out with a loud voice, and stopped their ears, and rushed at him with one accord.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by these he judgeth the peoples; He giveth food in abundance.
+For by these he judges the people. He gives food in abundance.

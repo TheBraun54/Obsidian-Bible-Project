@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why should the name of our father be taken away from among his family, because he had no son? Give unto us a possession among the brethren of our father.
+Why should the name of our father be taken away from among his family, because he had no son? Give to us a possession among the brothers of our father."

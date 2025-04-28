@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servant ran to meet her, and said, Give me to drink, I pray thee, a little water from thy pitcher.
+The servant ran to meet her, and said, "Please give me a drink, a little water from your pitcher."

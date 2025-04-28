@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereupon the king took counsel, and made two calves of gold; and he said unto them, It is too much for you to go up to Jerusalem: behold thy gods, O Israel, which brought thee up out of the land of Egypt.
+Whereupon the king took counsel, and made two calves of gold; and he said to them, "It is too much for you to go up to Jerusalem. Look and see your gods, Israel, which brought you up out of the land of Egypt!"

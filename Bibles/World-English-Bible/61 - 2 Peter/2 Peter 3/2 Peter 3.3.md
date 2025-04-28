@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing this first, that in the last days mockers shall come with mockery, walking after their own lusts,
+knowing this first, that in the last days mockers will come, walking after their own lusts,

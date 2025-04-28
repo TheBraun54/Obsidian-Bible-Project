@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I went by the field of the sluggard, And by the vineyard of the man void of understanding;
+I went by the field of the sluggard, by the vineyard of the man void of understanding;

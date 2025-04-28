@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He stretcheth out the north over empty space, And hangeth the earth upon nothing.
+He stretches out the north over empty space, and hangs the earth on nothing.

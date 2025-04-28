@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Heth answered Abraham, saying unto him,
+The children of Heth answered Abraham, saying to him,

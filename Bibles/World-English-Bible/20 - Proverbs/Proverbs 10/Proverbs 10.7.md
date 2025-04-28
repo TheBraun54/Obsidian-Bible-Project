@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The memory of the righteous is blessed; But the name of the wicked shall rot.
+The memory of the righteous is blessed, but the name of the wicked will rot.

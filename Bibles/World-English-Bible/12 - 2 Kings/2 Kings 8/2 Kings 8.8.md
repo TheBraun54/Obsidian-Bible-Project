@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Hazael, Take a present in thy hand, and go, meet the man of God, and inquire of Jehovah by him, saying, Shall I recover of this sickness?
+The king said to Hazael, "Take a present in your hand, and go, meet the man of God, and inquire of Yahweh by him, saying, 'Will I recover from this sickness?'"

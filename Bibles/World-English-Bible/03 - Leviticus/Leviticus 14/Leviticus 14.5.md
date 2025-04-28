@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall command to kill one of the birds in an earthen vessel over running water.
+The priest shall command them to kill one of the birds in an earthen vessel over running water.

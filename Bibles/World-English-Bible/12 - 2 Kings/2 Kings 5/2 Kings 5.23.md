@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naaman said, Be pleased to take two talents. And he urged him, and bound two talents of silver in two bags, with two changes of raiment, and laid them upon two of his servants; and they bare them before him.
+Naaman said, "Be pleased to take two talents." He urged him, and bound two talents of silver in two bags, with two changes of clothing, and laid them on two of his servants; and they carried them before him.

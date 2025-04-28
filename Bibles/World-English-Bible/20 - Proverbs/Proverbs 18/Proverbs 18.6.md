@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fool's lips enter into contention, And his mouth calleth for stripes.
+A fool's lips come into strife, and his mouth invites beatings.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then king Darius wrote unto all the peoples, nations, and languages, that dwell in all the earth: Peace be multiplied unto you.
+Then king Darius wrote to all the peoples, nations, and languages, who dwell in all the earth: Peace be multiplied to you.

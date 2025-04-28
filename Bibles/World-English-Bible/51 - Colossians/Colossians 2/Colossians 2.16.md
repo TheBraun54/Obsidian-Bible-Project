@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let no man therefore judge you in meat, or in drink, or in respect of a feast day or a new moon or a sabbath day:
+Let no one therefore judge you in eating, or in drinking, or with respect to a feast day or a new moon or a Sabbath day,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Since the day that your fathers came forth out of the land of Egypt unto this day, I have sent unto you all my servants the prophets, daily rising up early and sending them:
+Since the day that your fathers came forth out of the land of Egypt to this day, I have sent to you all my servants the prophets, daily rising up early and sending them:

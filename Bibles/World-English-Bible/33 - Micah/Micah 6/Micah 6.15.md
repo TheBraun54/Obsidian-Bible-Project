@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt sow, but shalt not reap; thou shalt tread the olives, but shalt not anoint thee with oil; and the vintage, but shalt not drink the wine.
+You will sow, but won't reap. You will tread the olives, but won't anoint yourself with oil; and crush grapes, but won't drink the wine.

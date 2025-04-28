@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we have sent together with him the brother whose praise in the gospel [is spread] through all the churches;
+We have sent together with him the brother whose praise in the Good News is known through all the assemblies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Pathrusim, and Casluhim (whence went forth the Philistines), and Caphtorim.
+Pathrusim, Casluhim (which the Philistines descended from), and Caphtorim.

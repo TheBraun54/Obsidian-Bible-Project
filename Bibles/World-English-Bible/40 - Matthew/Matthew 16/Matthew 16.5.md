@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples came to the other side and forgot to take bread.
+The disciples came to the other side and had forgotten to take bread.

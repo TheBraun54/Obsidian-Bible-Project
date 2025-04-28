@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(She is clamorous and wilful; Her feet abide not in her house:
+She is loud and defiant. Her feet don't stay in her house.

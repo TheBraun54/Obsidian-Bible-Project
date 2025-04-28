@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of a whisperer are as dainty morsels, And they go down into the innermost parts.
+The words of a gossip are like dainty morsels: they go down into a person's innermost parts.

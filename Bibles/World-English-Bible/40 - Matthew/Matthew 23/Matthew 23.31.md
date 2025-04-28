@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore ye witness to yourselves, that ye are sons of them that slew the prophets.
+Therefore you testify to yourselves that you are children of those who killed the prophets.

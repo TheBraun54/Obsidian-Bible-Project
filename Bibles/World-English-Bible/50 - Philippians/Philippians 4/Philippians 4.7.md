@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the peace of God, which passeth all understanding, shall guard your hearts and your thoughts in Christ Jesus.
+And the peace of God, which surpasses all understanding, will guard your hearts and your thoughts in Christ Jesus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And take with thee ten loaves, and cakes, and a cruse of honey, and go to him: he will tell thee what shall become of the child.
+Take with you ten loaves, and cakes, and a jar of honey, and go to him. He will tell you what will become of the child."

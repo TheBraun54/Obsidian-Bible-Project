@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore he heard that he was sick, he abode at that time two days in the place where he was.
+When therefore he heard that he was sick, he stayed two days in the place where he was.

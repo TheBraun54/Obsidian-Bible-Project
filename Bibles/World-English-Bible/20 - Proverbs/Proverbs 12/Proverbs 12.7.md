@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked are overthrown, and are not; But the house of the righteous shall stand.
+The wicked are overthrown, and are no more, but the house of the righteous shall stand.

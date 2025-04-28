@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that all they that look upon thee shall flee from thee, and say, Nineveh is laid waste: who will bemoan her? whence shall I seek comforters for thee?
+It will happen that all those who look at you will flee from you, and say, 'Nineveh is laid waste! Who will mourn for her?' Where will I seek comforters for you?"

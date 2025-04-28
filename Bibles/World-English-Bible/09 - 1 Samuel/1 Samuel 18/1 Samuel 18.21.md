@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, I will give him her, that she may be a snare to him, and that the hand of the Philistines may be against him. Wherefore Saul said to David, Thou shalt this day be my son-in-law a second time.
+Saul said, I will give her to him, that she may be a snare to him, and that the hand of the Philistines may be against him. Therefore Saul said to David, "You shall this day be my son-in-law a second time."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the king will hear, to deliver his servant out of the hand of the man that would destroy me and my son together out of the inheritance of God.
+For the king will hear, to deliver his servant out of the hand of the man who would destroy me and my son together out of the inheritance of God.

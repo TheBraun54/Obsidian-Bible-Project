@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they were in three stories, and they had not pillars as the pillars of the courts: therefore [the uppermost] was straitened more than the lowest and the middlemost from the ground.
+For they were in three stories, and they didn't have pillars as the pillars of the courts: therefore [the uppermost] was straitened more than the lowest and the middle from the ground.

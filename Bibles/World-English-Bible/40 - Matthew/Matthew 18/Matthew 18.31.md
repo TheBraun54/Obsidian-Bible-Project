@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So when his fellow-servants saw what was done, they were exceeding sorry, and came and told unto their lord all that was done.
+So when his fellow servants saw what was done, they were exceedingly sorry, and came and told to their lord all that was done.

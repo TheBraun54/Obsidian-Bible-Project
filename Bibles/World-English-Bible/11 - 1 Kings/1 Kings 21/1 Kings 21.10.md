@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and set two men, base fellows, before him, and let them bear witness against him, saying, Thou didst curse God and the king. And then carry him out, and stone him to death.
+Set two men, base fellows, before him, and let them testify against him, saying, 'You cursed God and the king!' Then carry him out, and stone him to death."

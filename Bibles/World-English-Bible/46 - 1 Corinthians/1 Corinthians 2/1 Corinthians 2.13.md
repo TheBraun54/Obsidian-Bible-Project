@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which things also we speak, not in words which man's wisdom teacheth, but which the Spirit teacheth; combining spiritual things with spiritual [words] .
+Which things also we speak, not in words which man's wisdom teaches, but which the Holy Spirit teaches, comparing spiritual things with spiritual things.

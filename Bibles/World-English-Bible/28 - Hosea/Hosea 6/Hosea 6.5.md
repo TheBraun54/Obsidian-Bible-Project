@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore have I hewed them by the prophets; I have slain them by the words of my mouth: and thy judgments are [as] the light that goeth forth.
+Therefore I have cut them to pieces with the prophets; I killed them with the words of my mouth. Your judgments are like a flash of lightning.

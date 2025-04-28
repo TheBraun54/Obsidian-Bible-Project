@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Pharisees and Sadducees came, and trying him asked him to show them a sign from heaven.
+The Pharisees and Sadducees came, and testing him, asked him to show them a sign from heaven.

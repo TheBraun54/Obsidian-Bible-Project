@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let me alone, that I may destroy them, and blot out their name from under heaven; and I will make of thee a nation mightier and greater than they.
+let me alone, that I may destroy them, and blot out their name from under the sky; and I will make of you a nation mightier and greater than they."

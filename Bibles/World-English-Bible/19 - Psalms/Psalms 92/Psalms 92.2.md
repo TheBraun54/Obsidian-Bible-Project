@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To show forth thy lovingkindness in the morning, And thy faithfulness every night,
+to proclaim your loving kindness in the morning, and your faithfulness every night,

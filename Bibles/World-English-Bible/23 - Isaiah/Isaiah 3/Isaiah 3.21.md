@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the rings, and the nose-jewels;
+the signet rings, the nose rings,

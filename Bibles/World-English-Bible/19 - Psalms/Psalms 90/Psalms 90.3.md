@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou turnest man to destruction, And sayest, Return, ye children of men.
+You turn man to destruction, saying, "Return, you children of men."

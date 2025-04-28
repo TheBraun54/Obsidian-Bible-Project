@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if it is by grace, it is no more of works: otherwise grace is no more grace.
+And if by grace, then it is no longer of works; otherwise grace is no longer grace. But if it is of works, it is no longer grace; otherwise work is no longer work.

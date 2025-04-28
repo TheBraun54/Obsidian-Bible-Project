@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-though these three men were in it, as I live, saith the Lord Jehovah, they should deliver neither sons nor daughters; they only should be delivered, but the land should be desolate.
+though these three men were in it, as I live, says the Lord Yahweh, they should deliver neither sons nor daughters; they only should be delivered, but the land should be desolate.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So his servants took him out of the chariot, and put him in the second chariot that he had, and brought him to Jerusalem; and he died, and was buried in the sepulchres of his fathers. And all Judah and Jerusalem mourned for Josiah.
+So his servants took him out of the chariot, and put him in the second chariot that he had, and brought him to Jerusalem; and he died, and was buried in the tombs of his fathers. All Judah and Jerusalem mourned for Josiah.

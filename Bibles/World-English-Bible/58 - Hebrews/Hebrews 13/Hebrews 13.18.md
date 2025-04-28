@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pray for us: for we are persuaded that we have a good conscience, desiring to live honorably in all things.
+Pray for us, for we are persuaded that we have a good conscience, desiring to live honorably in all things.

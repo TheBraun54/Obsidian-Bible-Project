@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know now that there shall fall unto the earth nothing of the word of Jehovah, which Jehovah spake concerning the house of Ahab: for Jehovah hath done that which he spake by his servant Elijah.
+Know now that nothing shall fall to the earth of the word of Yahweh, which Yahweh spoke concerning the house of Ahab. For Yahweh has done that which he spoke by his servant Elijah."

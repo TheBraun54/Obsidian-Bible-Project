@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then went Solomon to Ezion-geber, and to Eloth, on the seashore in the land of Edom.
+Then went Solomon to Ezion Geber, and to Eloth, on the seashore in the land of Edom.

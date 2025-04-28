@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he ran on before, and climbed up into a sycomore tree to see him: for he was to pass that way.
+He ran on ahead, and climbed up into a sycamore tree to see him, for he was to pass that way.

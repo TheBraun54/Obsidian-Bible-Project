@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I turned myself to behold wisdom, and madness, and folly: for what [can] the man [do] that cometh after the king? [even] that which hath been done long ago.
+I turned myself to consider wisdom, madness, and folly: for what can the king's successor do? Just that which has been done long ago.

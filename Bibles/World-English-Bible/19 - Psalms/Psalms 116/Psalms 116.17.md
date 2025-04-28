@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will offer to thee the sacrifice of thanksgiving, And will call upon the name of Jehovah.
+I will offer to you the sacrifice of thanksgiving, and will call on the name of Yahweh.

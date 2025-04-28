@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they bend their tongue, [as it were] their bow, for falsehood; and they are grown strong in the land, but not for truth: for they proceed from evil to evil, and they know not me, saith Jehovah.
+They bend their tongue, [as it were] their bow, for falsehood; and they are grown strong in the land, but not for truth: for they proceed from evil to evil, and they don't know me, says Yahweh.

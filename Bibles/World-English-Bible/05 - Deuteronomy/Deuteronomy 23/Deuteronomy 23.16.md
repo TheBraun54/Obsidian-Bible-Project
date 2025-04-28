@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he shall dwell with thee, in the midst of thee, in the place which he shall choose within one of thy gates, where it pleaseth him best: thou shalt not oppress him.
+he shall dwell with you, in the midst of you, in the place which he shall choose within one of your gates, where it pleases him best: you shall not oppress him.

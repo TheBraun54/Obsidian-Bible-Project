@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they forgot to take bread; and they had not in the boat with them more than one loaf.
+They forgot to take bread; and they didn't have more than one loaf in the boat with them.

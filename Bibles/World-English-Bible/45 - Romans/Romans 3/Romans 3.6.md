@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God forbid: for then how shall God judge the world?
+May it never be! For then how will God judge the world?

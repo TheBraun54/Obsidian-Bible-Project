@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Reu lived two and thirty years, and begat Serug:
+Reu lived thirty-two years, and became the father of Serug.

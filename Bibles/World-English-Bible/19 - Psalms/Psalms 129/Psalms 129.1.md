@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. Many a time have they afflicted me from my youth up, Let Israel now say,
+Many times they have afflicted me from my youth up. Let Israel now say,

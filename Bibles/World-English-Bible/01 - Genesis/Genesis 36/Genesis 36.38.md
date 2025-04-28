@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shaul died, and Baal-hanan the son of Achbor reigned in his stead.
+Shaul died, and Baal Hanan, the son of Achbor reigned in his place.

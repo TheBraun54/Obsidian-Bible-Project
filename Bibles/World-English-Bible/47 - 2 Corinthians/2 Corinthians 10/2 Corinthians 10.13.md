@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we will not glory beyond [our] measure, but according to the measure of the province which God apportioned to us as a measure, to reach even unto you.
+But we will not boast beyond proper limits, but within the boundaries with which God appointed to us, which reach even to you.

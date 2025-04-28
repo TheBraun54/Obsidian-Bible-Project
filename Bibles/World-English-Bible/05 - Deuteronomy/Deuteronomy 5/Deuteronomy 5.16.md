@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor thy father and thy mother, as Jehovah thy God commanded thee; that thy days may be long, and that it may go well with thee, in the land which Jehovah thy God giveth thee.
+"Honor your father and your mother, as Yahweh your God commanded you; that your days may be long, and that it may go well with you, in the land which Yahweh your God gives you.

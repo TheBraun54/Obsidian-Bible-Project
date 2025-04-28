@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, What is that in thy hand? And he said, A rod.
+Yahweh said to him, "What is that in your hand?" He said, "A rod."

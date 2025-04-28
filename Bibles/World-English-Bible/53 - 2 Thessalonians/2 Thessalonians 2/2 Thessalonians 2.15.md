@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then, brethren, stand fast, and hold the traditions which ye were taught, whether by word, or by epistle of ours.
+So then, brothers, stand firm, and hold the traditions which you were taught by us, whether by word, or by letter.

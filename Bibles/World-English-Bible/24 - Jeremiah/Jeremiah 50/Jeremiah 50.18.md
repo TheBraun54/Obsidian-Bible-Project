@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah of hosts, the God of Israel: Behold, I will punish the king of Babylon and his land, as I have punished the king of Assyria.
+Therefore thus says Yahweh of Armies, the God of Israel: Behold, I will punish the king of Babylon and his land, as I have punished the king of Assyria.

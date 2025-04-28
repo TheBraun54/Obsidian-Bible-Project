@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit if ye fulfil the royal law, according to the scripture, Thou shalt love thy neighbor as thyself, ye do well:
+However, if you fulfill the royal law, according to the Scripture, "You shall love your neighbor as yourself," you do well.

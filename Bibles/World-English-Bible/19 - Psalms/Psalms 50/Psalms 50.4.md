@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He calleth to the heavens above, And to the earth, that he may judge his people:
+He calls to the heavens above, to the earth, that he may judge his people:

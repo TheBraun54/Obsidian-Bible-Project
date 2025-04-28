@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there cometh to him a leper, beseeching him, and kneeling down to him, and saying unto him, If thou wilt, thou canst make me clean.
+A leper came to him, begging him, kneeling down to him, and saying to him, "If you want to, you can make me clean."

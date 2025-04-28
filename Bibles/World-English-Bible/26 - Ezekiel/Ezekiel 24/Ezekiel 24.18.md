@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I spake unto the people in the morning; and at even my wife died; and I did in the morning as I was commanded.
+So I spoke to the people in the morning; and at even my wife died; and I did in the morning as I was commanded.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: For three transgressions of Edom, yea, for four, I will not turn away the punishment thereof; because he did pursue his brother with the sword, and did cast off all pity, and his anger did tear perpetually, and he kept his wrath for ever:
+Thus says Yahweh: "For three transgressions of Edom, yes, for four, I will not turn away its punishment; because he pursued his brother with the sword, and cast off all pity, and his anger raged continually, and he kept his wrath forever;

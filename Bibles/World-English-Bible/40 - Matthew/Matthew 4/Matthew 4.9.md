@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto him, All these things will I give thee, if thou wilt fall down and worship me.
+He said to him, "I will give you all of these things, if you will fall down and worship me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and cover not their iniquity, and let not their sin be blotted out from before thee; for they have provoked [thee] to anger before the builders.
+don't cover their iniquity, and don't let their sin be blotted out from before you; for they have insulted the builders."

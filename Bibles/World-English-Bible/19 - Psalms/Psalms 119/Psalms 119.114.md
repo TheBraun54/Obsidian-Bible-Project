@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art my hiding-place and my shield: I hope in thy word.
+You are my hiding place and my shield. I hope in your word.

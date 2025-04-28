@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if her means suffice not for a lamb, then she shall take two turtle-doves, or two young pigeons; the one for a burnt-offering, and the other for a sin-offering: and the priest shall make atonement for her, and she shall be clean.
+If she cannot afford a lamb, then she shall take two turtledoves, or two young pigeons; the one for a burnt offering, and the other for a sin offering: and the priest shall make atonement for her, and she shall be clean.'"

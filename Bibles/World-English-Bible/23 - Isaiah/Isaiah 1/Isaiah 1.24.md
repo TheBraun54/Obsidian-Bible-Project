@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore saith the Lord, Jehovah of hosts, the Mighty One of Israel, Ah, I will ease me of mine adversaries, and avenge me of mine enemies;
+Therefore the Lord, Yahweh of Armies, the Mighty One of Israel, says: "Ah, I will get relief from my adversaries, and avenge myself of my enemies;

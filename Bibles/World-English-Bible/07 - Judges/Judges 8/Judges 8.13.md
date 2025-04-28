@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon the son of Joash returned from the battle from the ascent of Heres.
+Gideon the son of Joash returned from the battle from the ascent of Heres.

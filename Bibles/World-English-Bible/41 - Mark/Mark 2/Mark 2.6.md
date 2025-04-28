@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there were certain of the scribes sitting there, and reasoning in their hearts,
+But there were some of the scribes sitting there, and reasoning in their hearts,

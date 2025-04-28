@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he knew that for envy they had delivered him up.
+For he knew that because of envy they had delivered him up.

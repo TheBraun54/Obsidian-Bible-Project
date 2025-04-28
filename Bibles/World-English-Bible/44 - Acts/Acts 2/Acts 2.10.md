@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in Phrygia and Pamphylia, in Egypt and the parts of Libya about Cyrene, and sojourners from Rome, both Jews and proselytes,
+Phrygia, Pamphylia, Egypt, the parts of Libya around Cyrene, visitors from Rome, both Jews and proselytes,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah: I am returned to Jerusalem with mercies; my house shall be built in it, saith Jehovah of hosts, and a line shall be stretched forth over Jerusalem.
+Therefore thus says Yahweh: "I have returned to Jerusalem with mercy. My house shall be built in it," says Yahweh of Armies, "and a line shall be stretched forth over Jerusalem."'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear therefore, O Israel, and observe to do it; that it may be well with thee, and that ye may increase mightily, as Jehovah, the God of thy fathers, hath promised unto thee, in a land flowing with milk and honey.
+Hear therefore, Israel, and observe to do it; that it may be well with you, and that you may increase mightily, as Yahweh, the God of your fathers, has promised to you, in a land flowing with milk and honey.

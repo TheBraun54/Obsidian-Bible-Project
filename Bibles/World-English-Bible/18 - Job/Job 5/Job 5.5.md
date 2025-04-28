@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whose harvest the hungry eateth up, And taketh it even out of the thorns; And the snare gapeth for their substance.
+whose harvest the hungry eats up, and take it even out of the thorns. The snare gapes for their substance.

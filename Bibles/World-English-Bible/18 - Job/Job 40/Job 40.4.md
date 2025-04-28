@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am of small account; What shall I answer thee? I lay my hand upon my mouth.
+"Behold, I am of small account. What shall I answer you? I lay my hand on my mouth.

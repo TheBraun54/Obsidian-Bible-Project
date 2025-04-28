@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which are black by reason of the ice, [And] wherein the snow hideth itself:
+Which are black by reason of the ice, in which the snow hides itself.

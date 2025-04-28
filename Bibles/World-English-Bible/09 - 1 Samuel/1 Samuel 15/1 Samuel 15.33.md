@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, As thy sword hath made women childless, so shall thy mother be childless among women. And Samuel hewed Agag in pieces before Jehovah in Gilgal.
+Samuel said, "As your sword has made women childless, so your mother will be childless among women!" Samuel cut Agag in pieces before Yahweh in Gilgal.

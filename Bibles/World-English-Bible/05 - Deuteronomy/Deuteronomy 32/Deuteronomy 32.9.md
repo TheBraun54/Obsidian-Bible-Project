@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah's portion is his people; Jacob is the lot of his inheritance.
+For Yahweh's portion is his people. Jacob is the lot of his inheritance.

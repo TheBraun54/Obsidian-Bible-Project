@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the days of Artaxerxes wrote Bishlam, Mithredath, Tabeel, and the rest of his companions, unto Artaxerxes king of Persia; and the writing of the letter was written in the Syrian [character], and set forth in the Syrian [tongue] .
+In the days of Artaxerxes wrote Bishlam, Mithredath, Tabeel, and the rest of his companions, to Artaxerxes king of Persia; and the writing of the letter was written in the Syrian [character], and set forth in the Syrian [language].

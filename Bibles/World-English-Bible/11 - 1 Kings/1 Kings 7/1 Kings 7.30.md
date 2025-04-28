@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every base had four brazen wheels, and axles of brass; and the four feet thereof had undersetters: beneath the laver were the undersetters molten, with wreaths at the side of each.
+Every base had four bronze wheels, and axles of brass; and the four feet of it had supports: beneath the basin were the supports molten, with wreaths at the side of each.

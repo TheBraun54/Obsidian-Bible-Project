@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, son of man, hear what I say unto thee; be not thou rebellious like that rebellious house: open thy mouth, and eat that which I give thee.
+But you, son of man, hear what I tell you; don't be rebellious like that rebellious house: open your mouth, and eat that which I give you.

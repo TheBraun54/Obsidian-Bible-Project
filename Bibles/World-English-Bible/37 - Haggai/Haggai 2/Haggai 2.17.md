@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I smote you with blasting and with mildew and with hail in all the work of your hands; yet ye [turned] not to me, saith Jehovah.
+I struck you with blight, mildew, and hail in all the work of your hands; yet you didn't turn to me,' says Yahweh.

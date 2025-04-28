@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and give thee the blessing of Abraham, to thee, and to thy seed with thee; that thou mayest inherit the land of thy sojournings, which God gave unto Abraham.
+and give you the blessing of Abraham, to you, and to your seed with you, that you may inherit the land where you travel, which God gave to Abraham."

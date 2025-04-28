@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto them, Did ye receive the Holy Spirit when ye believed? And they [said] unto him, Nay, we did not so much as hear whether the Holy Spirit was [given] .
+He said to them, "Did you receive the Holy Spirit when you believed?" They said to him, "No, we haven't even heard that there is a Holy Spirit."

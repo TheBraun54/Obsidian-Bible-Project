@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Why, O son of the king, art thou thus lean from day to day? wilt thou not tell me? And Amnon said unto him, I love Tamar, my brother Absalom's sister.
+He said to him, "Why, son of the king, are you so sad from day to day? Won't you tell me?" Amnon said to him, "I love Tamar, my brother Absalom's sister."

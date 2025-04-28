@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken, O daughter, and consider, and incline thine ear; Forget also thine own people, and thy father's house:
+Listen, daughter, consider, and turn your ear. Forget your own people, and also your father's house.

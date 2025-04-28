@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mephibosheth the son of Saul came down to meet the king; and he had neither dressed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came home in peace.
+Mephibosheth the son of Saul came down to meet the king; and he had neither groomed his feet, nor trimmed his beard, nor washed his clothes, from the day the king departed until the day he came home in peace.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The godly man is perished out of the earth, and there is none upright among men: they all lie in wait for blood; they hunt every man his brother with a net.
+The godly man has perished out of the earth, and there is no one upright among men. They all lie in wait for blood; every man hunts his brother with a net.

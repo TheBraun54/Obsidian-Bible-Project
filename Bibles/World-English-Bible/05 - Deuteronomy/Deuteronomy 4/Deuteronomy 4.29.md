@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But from thence ye shall seek Jehovah thy God, and thou shalt find him, when thou searchest after him with all thy heart and with all thy soul.
+But from there you shall seek Yahweh your God, and you shall find him, when you search after him with all your heart and with all your soul.

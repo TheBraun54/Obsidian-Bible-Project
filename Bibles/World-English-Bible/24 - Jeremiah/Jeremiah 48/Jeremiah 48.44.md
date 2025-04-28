@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that fleeth from the fear shall fall into the pit; and he that getteth up out of the pit shall be taken in the snare: for I will bring upon him, even upon Moab, the year of their visitation, saith Jehovah.
+He who flees from the fear shall fall into the pit; and he who gets up out of the pit shall be taken in the snare: for I will bring on him, even on Moab, the year of their visitation, says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he went out from the borders of Tyre, and came through Sidon unto the sea of Galilee, through the midst of the borders of Decapolis.
+Again he departed from the borders of Tyre and Sidon, and came to the sea of Galilee, through the midst of the region of Decapolis.

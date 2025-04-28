@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that eateth my flesh and drinketh my blood abideth in me, and I in him.
+He who eats my flesh and drinks my blood lives in me, and I in him.

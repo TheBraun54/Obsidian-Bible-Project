@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah opened the mouth of the ass, and she said unto Balaam, What have I done unto thee, that thou hast smitten me these three times?
+Yahweh opened the mouth of the donkey, and she said to Balaam, "What have I done to you, that you have struck me these three times?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They pluck salt-wort by the bushes; And the roots of the broom are their food.
+They pluck salt herbs by the bushes. The roots of the broom are their food.

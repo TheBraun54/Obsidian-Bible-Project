@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not lend upon interest to thy brother; interest of money, interest of victuals, interest of anything that is lent upon interest:
+You shall not lend on interest to your brother; interest of money, interest of food, interest of anything that is lent on interest:

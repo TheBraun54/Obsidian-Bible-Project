@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For our heart shall rejoice in him, Because we have trusted in his holy name.
+For our heart rejoices in him, because we have trusted in his holy name.

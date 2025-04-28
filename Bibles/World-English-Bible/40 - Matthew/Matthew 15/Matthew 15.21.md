@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus went out thence, and withdrew into the parts of Tyre and Sidon.
+Jesus went out from there, and withdrew into the region of Tyre and Sidon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be no more a pricking brier unto the house of Israel, nor a hurting thorn of any that are round about them, that did despite unto them; and they shall know that I am the Lord Jehovah.
+There shall be no more a pricking brier to the house of Israel, nor a hurting thorn of any that are around them, that did despite to them; and they shall know that I am the Lord Yahweh.

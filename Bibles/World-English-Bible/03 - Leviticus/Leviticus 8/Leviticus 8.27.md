@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he put the whole upon the hands of Aaron, and upon the hands of his sons, and waved them for a wave-offering before Jehovah.
+He put all these in Aaron's hands and in his sons' hands, and waved them for a wave offering before Yahweh.

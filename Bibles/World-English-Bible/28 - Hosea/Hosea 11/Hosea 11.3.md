@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet I taught Ephraim to walk; I took them on my arms; but they knew not that I healed them.
+Yet I taught Ephraim to walk. I took them by his arms; but they didn't know that I healed them.

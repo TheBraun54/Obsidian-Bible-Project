@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he digged it, and gathered out the stones thereof, and planted it with the choicest vine, and built a tower in the midst of it, and also hewed out a winepress therein: and he looked that it should bring forth grapes, and it brought forth wild grapes.
+He dug it up, gathered out its stones, planted it with the choicest vine, built a tower in its midst, and also cut out a winepress therein. He looked for it to yield grapes, but it yielded wild grapes.

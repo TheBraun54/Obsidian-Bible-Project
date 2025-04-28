@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou sittest and speakest against thy brother; Thou slanderest thine own mother's son.
+You sit and speak against your brother. You slander your own mother's son.

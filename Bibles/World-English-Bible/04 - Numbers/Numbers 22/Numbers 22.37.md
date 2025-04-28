@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak said unto Balaam, Did I not earnestly send unto thee to call thee? wherefore camest thou not unto me? am I not able indeed to promote thee to honor?
+Balak said to Balaam, "Didn't I earnestly send to you to call you? Why didn't you come to me? Am I not able indeed to promote you to honor?"

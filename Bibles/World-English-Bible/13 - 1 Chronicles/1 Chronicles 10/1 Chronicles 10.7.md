@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all the men of Israel that were in the valley saw that they fled, and that Saul and his sons were dead, they forsook their cities, and fled; and the Philistines came and dwelt in them.
+When all the men of Israel who were in the valley saw that they fled, and that Saul and his sons were dead, they forsook their cities, and fled; and the Philistines came and lived in them.

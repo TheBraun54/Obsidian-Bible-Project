@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehu went, and Jehonadab the son of Rechab, into the house of Baal; and he said unto the worshippers of Baal, Search, and look that there be here with you none of the servants of Jehovah, but the worshippers of Baal only.
+Jehu went with Jehonadab the son of Rechab into the house of Baal. Then he said to the worshippers of Baal, "Search, and look that there are here with you none of the servants of Yahweh, but the worshippers of Baal only."

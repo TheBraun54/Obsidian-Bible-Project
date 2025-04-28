@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Until the time that his word came to pass, The word of Jehovah tried him.
+until the time that his word happened, and Yahweh's word proved him true.

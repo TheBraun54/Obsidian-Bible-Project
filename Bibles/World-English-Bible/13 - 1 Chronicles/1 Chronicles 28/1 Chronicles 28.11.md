@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David gave to Solomon his son the pattern of the porch [of the temple], and of the houses thereof, and of the treasuries thereof, and of the upper rooms thereof, and of the inner chambers thereof, and of the [ place of the mercy-seat;
+Then David gave to Solomon his son the pattern of the porch [of the temple], and of its houses, and of its treasuries, and of the upper rooms of it, and of the inner rooms of it, and of the place of the mercy seat;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days Jehovah began to send against Judah Rezin the king of Syria, and Pekah the son of Remaliah.
+In those days Yahweh began to send against Judah Rezin the king of Syria, and Pekah the son of Remaliah.

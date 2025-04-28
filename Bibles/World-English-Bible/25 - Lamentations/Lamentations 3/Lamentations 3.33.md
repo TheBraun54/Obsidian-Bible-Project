@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he doth not afflict willingly, nor grieve the children of men.
+For he does not afflict willingly, nor grieve the children of men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel said unto Joseph, Are not thy brethren feeding the flock in Shechem? come, and I will send thee unto them. And he said to him, Here am I.
+Israel said to Joseph, "Aren't your brothers feeding the flock in Shechem? Come, and I will send you to them." He said to him, "Here I am."

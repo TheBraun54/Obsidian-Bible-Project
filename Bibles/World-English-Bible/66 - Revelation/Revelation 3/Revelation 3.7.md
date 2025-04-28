@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the angel of the church in Philadelphia write: These things saith he that is holy, he that is true, he that hath the key of David, he that openeth and none shall shut, and that shutteth and none openeth:
+"To the angel of the assembly in Philadelphia write: "He who is holy, he who is true, he who has the key of David, he who opens and no one can shut, and who shuts and no one opens, says these things:

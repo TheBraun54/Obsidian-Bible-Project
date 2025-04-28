@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw the tents of Cushan in affliction; The curtains of the land of Midian did tremble.
+I saw the tents of Cushan in affliction. The dwellings of the land of Midian trembled.

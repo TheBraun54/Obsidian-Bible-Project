@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They help every one his neighbor; and [every one] saith to his brother, Be of good courage.
+Everyone helps his neighbor. They say to their brothers, "Be strong!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and put on the new man, that after God hath been created in righteousness and holiness of truth.
+and put on the new man, who in the likeness of God has been created in righteousness and holiness of truth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take of the blood of the sin-offering with his finger, and put it upon the horns of the altar of burnt-offering; and all the blood thereof shall he pour out at the base of the altar.
+The priest shall take some of the blood of the sin offering with his finger, and put it on the horns of the altar of burnt offering; and all the rest of its blood he shall pour out at the base of the altar.

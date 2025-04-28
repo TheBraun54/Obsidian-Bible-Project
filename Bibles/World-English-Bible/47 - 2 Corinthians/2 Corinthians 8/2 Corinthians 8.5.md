@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [this], not as we had hoped, but first they gave their own selves to the Lord, and to us through the will of God.
+This was not as we had hoped, but first they gave their own selves to the Lord, and to us through the will of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou also, bear thou thine own shame, in that thou hast given judgment for thy sisters; through thy sins that thou hast committed more abominable than they, they are more righteous that thou: yea, be thou also confounded, and bear thy shame, in that thou hast justified thy sisters.
+You also, bear you your own shame, in that you have given judgment for your sisters; through your sins that you have committed more abominable than they, they are more righteous that you: yes, be also confounded, and bear your shame, in that you have justified your sisters.

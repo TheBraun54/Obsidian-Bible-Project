@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the throne proceed lightnings and voices and thunders. And [there were] seven lamps of fire burning before the throne, which are the seven Spirits of God;
+Out of the throne proceed lightnings, sounds, and thunders. There were seven lamps of fire burning before his throne, which are the seven Spirits of God.

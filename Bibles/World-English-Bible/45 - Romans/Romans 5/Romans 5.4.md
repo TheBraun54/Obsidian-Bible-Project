@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and stedfastness, approvedness; and approvedness, hope:
+and perseverance, proven character; and proven character, hope:

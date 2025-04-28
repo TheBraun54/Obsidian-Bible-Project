@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet ye say, Wherefore? Because Jehovah hath been witness between thee and the wife of thy youth, against whom thou hast dealt treacherously, though she is thy companion, and the wife of thy covenant.
+Yet you say, 'Why?' Because Yahweh has been witness between you and the wife of your youth, against whom you have dealt treacherously, though she is your companion, and the wife of your covenant.

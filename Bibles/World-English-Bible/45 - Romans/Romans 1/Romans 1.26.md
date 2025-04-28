@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause God gave them up unto vile passions: for their women changed the natural use into that which is against nature:
+For this reason, God gave them up to vile passions. For their women changed the natural function into that which is against nature.

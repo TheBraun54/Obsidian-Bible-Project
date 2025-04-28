@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their houses are safe from fear, Neither is the rod of God upon them.
+Their houses are safe from fear, neither is the rod of God upon them.

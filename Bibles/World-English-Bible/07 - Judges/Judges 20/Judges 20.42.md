@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore they turned their backs before the men of Israel unto the way of the wilderness; but the battle followed hard after them; and they that came out of the cities destroyed them in the midst thereof.
+Therefore they turned their backs before the men of Israel to the way of the wilderness; but the battle followed hard after them; and those who came out of the cities destroyed them in its midst.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in every city [he put] shields and spears, and made them exceeding strong. And Judah and Benjamin belonged to him.
+In every city [he put] shields and spears, and made them exceeding strong. Judah and Benjamin belonged to him.

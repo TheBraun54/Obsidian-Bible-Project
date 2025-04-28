@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king Ahasuerus laid a tribute upon the land, and upon the isles of the sea.
+King Ahasuerus laid a tribute on the land, and on the islands of the sea.

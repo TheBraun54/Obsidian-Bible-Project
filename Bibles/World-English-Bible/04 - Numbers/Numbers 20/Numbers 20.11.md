@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses lifted up his hand, and smote the rock with his rod twice: and water came forth abundantly, and the congregation drank, and their cattle.
+Moses lifted up his hand, and struck the rock with his rod twice: and water came forth abundantly, and the congregation drank, and their livestock.

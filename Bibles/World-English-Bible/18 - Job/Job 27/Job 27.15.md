@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Those that remain of him shall be buried in death, And his widows shall make no lamentation.
+Those who remain of him shall be buried in death. His widows shall make no lamentation.

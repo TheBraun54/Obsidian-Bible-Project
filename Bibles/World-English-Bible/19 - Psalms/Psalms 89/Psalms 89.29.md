@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His seed also will I make to endure for ever, And his throne as the days of heaven.
+I will also make his seed endure forever, and his throne as the days of heaven.

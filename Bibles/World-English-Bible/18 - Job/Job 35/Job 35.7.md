@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou be righteous, what givest thou him? Or what receiveth he of thy hand?
+If you are righteous, what do you give him? Or what does he receive from your hand?

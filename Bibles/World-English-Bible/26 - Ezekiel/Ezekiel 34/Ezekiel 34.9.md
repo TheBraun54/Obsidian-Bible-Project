@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, ye shepherds, hear the word of Jehovah:
+therefore, you shepherds, hear the word of Yahweh:

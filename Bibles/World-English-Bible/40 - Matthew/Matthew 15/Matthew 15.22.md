@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a Canaanitish woman came out from those borders, and cried, saying, Have mercy on me, O Lord, thou son of David; my daughter is grievously vexed with a demon.
+Behold, a Canaanite woman came out from those borders, and cried, saying, "Have mercy on me, Lord, you son of David! My daughter is severely demonized!"

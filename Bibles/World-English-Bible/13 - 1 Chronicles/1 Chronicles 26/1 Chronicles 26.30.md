@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the Hebronites, Hashabiah and his brethren, men of valor, a thousand and seven hundred, had the oversight of Israel beyond the Jordan westward, for all the business of Jehovah, and for the service of the king.
+Of the Hebronites, Hashabiah and his brothers, men of valor, one thousand seven hundred, had the oversight of Israel beyond the Jordan westward, for all the business of Yahweh, and for the service of the king.

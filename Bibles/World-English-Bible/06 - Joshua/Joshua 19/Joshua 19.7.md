@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ain, Rimmon, and Ether, and Ashan; four cities with their villages:
+Ain, Rimmon, Ether, and Ashan; four cities with their villages;

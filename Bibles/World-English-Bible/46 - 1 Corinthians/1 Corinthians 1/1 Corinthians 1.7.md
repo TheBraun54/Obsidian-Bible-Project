@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that ye come behind in no gift; waiting for the revelation of our Lord Jesus Christ;
+so that you come behind in no gift; waiting for the revelation of our Lord Jesus Christ;

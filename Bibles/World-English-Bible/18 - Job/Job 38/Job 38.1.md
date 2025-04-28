@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehovah answered Job out of the whirlwind, and said,
+Then Yahweh answered Job out of the whirlwind,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they told Saul, saying, Behold, the people sin against Jehovah, in that they eat with the blood. And he said, ye have dealt treacherously: roll a great stone unto me this day.
+Then they told Saul, saying, "Behold, the people are sinning against Yahweh, in that they eat meat with the blood." He said, "You have dealt treacherously. Roll a large stone to me this day!"

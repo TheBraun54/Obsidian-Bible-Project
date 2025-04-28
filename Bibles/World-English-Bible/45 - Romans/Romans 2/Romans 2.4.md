@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or despisest thou the riches of his goodness and forbearance and longsuffering, not knowing that the goodness of God leadeth thee to repentance?
+Or do you despise the riches of his goodness, forbearance, and patience, not knowing that the goodness of God leads you to repentance?

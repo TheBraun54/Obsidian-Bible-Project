@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as troops of robbers wait for a man, so the company of priests murder in the way toward Shechem; yea, they have committed lewdness.
+As gangs of robbers wait to ambush a man, so the company of priests murder in the way toward Shechem, committing shameful crimes.

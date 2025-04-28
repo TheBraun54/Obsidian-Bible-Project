@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover, brethren, we make known to you the grace of God which hath been given in the churches of Macedonia;
+Moreover, brothers, we make known to you the grace of God which has been given in the assemblies of Macedonia;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made war with the Hagrites, with Jetur, and Naphish, and Nodab.
+They made war with the Hagrites, with Jetur, and Naphish, and Nodab.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson called unto Jehovah, and said, O Lord Jehovah, remember me, I pray thee, and strengthen me, I pray thee, only this once, O God, that I may be at once avenged of the Philistines for my two eyes.
+Samson called to Yahweh, and said, "Lord Yahweh, remember me, please, and strengthen me, please, only this once, God, that I may be at once avenged of the Philistines for my two eyes."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zadok the priest took the horn of oil out of the Tent, and anointed Solomon. And they blew the trumpet; and all the people said, [Long] live king Solomon.
+Zadok the priest took the horn of oil out of the Tent, and anointed Solomon. They blew the trumpet; and all the people said, "Long live king Solomon!"

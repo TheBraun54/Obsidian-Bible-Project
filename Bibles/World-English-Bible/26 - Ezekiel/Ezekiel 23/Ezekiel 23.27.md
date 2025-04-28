@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus will I make thy lewdness to cease from thee, and thy whoredom [brought] from the land of Egypt; so that thou shalt not lift up thine eyes unto them, nor remember Egypt any more.
+Thus will I make your lewdness to cease from you, and your prostitution [brought] from the land of Egypt; so that you shall not lift up your eyes to them, nor remember Egypt any more.

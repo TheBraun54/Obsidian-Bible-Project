@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put away from thee a wayward mouth, And perverse lips put far from thee.
+Put away from yourself a perverse mouth. Put corrupt lips far from you.

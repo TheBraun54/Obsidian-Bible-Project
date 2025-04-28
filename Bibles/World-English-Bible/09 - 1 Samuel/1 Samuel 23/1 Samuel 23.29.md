@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went up from thence, and dwelt in the strongholds of En-gedi.
+David went up from there, and lived in the strongholds of En Gedi.

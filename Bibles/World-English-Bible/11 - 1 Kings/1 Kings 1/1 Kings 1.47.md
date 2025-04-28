@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And moreover the king's servants came to bless our lord king David, saying, Thy God make the name of Solomon better than thy name, and make his throne greater than thy throne: and the king bowed himself upon the bed.
+Moreover the king's servants came to bless our lord king David, saying, 'May your God make the name of Solomon better than your name, and make his throne greater than your throne;' and the king bowed himself on the bed.

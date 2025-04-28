@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I rejoice in the Lord greatly, that now at length ye have revived your thought for me; wherein ye did indeed take thought, but ye lacked opportunity.
+But I rejoice in the Lord greatly, that now at length you have revived your thought for me; in which you did indeed take thought, but you lacked opportunity.

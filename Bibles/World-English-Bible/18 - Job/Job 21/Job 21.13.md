@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They spend their days in prosperity, And in a moment they go down to Sheol.
+They spend their days in prosperity. In an instant they go down to Sheol.

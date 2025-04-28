@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he turning about, and seeing his disciples, rebuked Peter, and saith, Get thee behind me, Satan; for thou mindest not the things of God, but the things of men.
+But he, turning around, and seeing his disciples, rebuked Peter, and said, "Get behind me, Satan! For you have in mind not the things of God, but the things of men."

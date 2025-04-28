@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh hardened his heart this time also, and he did not let the people go.
+Pharaoh hardened his heart this time also, and he didn't let the people go.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O Lord, art a God merciful and gracious, Slow to anger, and abundant in lovingkindness and truth.
+But you, Lord, are a merciful and gracious God, slow to anger, and abundant in loving kindness and truth.

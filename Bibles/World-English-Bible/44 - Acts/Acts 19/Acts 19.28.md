@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they heard this they were filled with wrath, and cried out, saying, Great is Diana of the Ephesus.
+When they heard this they were filled with anger, and cried out, saying, "Great is Artemis of the Ephesians!"

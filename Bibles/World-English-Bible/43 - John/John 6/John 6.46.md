@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not that any man hath seen the Father, save he that is from God, he hath seen the Father.
+Not that anyone has seen the Father, except he who is from God. He has seen the Father.

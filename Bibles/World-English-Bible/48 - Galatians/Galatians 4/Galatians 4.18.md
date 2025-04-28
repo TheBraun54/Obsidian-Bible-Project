@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it is good to be zealously sought in a good matter at all times, and not only when I am present with you.
+But it is always good to be zealous in a good cause, and not only when I am present with you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They were armed with bows, and could use both the right hand and the left in slinging stones and in shooting arrows from the bow: they were of Saul's brethren of Benjamin.
+They were armed with bows, and could use both the right hand and the left in slinging stones and in shooting arrows from the bow: they were of Saul's brothers of Benjamin.

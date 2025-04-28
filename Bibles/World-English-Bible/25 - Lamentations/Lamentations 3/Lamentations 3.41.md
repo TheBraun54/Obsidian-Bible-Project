@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us lift up our heart with our hands unto God in the heavens.
+Let us lift up our heart with our hands to God in the heavens.

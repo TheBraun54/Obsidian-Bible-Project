@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all his days are [but] sorrows, and his travail is grief; yea, even in the night his heart taketh no rest. This also is vanity.
+For all his days are sorrows, and his travail is grief; yes, even in the night his heart takes no rest. This also is vanity.

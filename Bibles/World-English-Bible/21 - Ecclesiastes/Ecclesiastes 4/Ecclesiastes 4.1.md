@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I returned and saw all the oppressions that are done under the sun: and, behold, the tears of such as were oppressed, and they had no comforter; and on the side of their oppressors there was power; but they had no comforter.
+Then I returned and saw all the oppressions that are done under the sun: and behold, the tears of those who were oppressed, and they had no comforter; and on the side of their oppressors there was power; but they had no comforter.

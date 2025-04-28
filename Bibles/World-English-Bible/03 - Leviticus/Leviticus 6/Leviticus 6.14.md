@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the law of the meal-offering: the sons of Aaron shall offer it before Jehovah, before the altar.
+"'This is the law of the meal offering: the sons of Aaron shall offer it before Yahweh, before the altar.

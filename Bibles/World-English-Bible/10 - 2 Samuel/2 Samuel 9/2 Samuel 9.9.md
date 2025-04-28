@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king called to Ziba, Saul's servant, and said unto him, All that pertained to Saul and to all his house have I given unto thy master's son.
+Then the king called to Ziba, Saul's servant, and said to him, "All that pertained to Saul and to all his house have I given to your master's son.

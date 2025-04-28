@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah bless thee out of Zion: And see thou the good of Jerusalem all the days of thy life.
+May Yahweh bless you out of Zion, and may you see the good of Jerusalem all the days of your life.

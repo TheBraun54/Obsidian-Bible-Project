@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah bless thee out of Zion; Even he that made heaven and earth.
+May Yahweh bless you from Zion; even he who made heaven and earth.

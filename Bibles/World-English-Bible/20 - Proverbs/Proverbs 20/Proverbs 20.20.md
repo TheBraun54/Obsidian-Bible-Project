@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso curseth his father or his mother, His lamp shall be put out in blackness of darkness.
+Whoever curses his father or his mother, his lamp shall be put out in blackness of darkness.

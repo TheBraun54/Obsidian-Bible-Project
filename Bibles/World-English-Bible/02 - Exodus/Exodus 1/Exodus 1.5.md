@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the souls that came out of the loins of Jacob were seventy souls: and Joseph was in Egypt already.
+All the souls who came out of Jacob's body were seventy souls, and Joseph was in Egypt already.

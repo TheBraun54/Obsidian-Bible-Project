@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah, My people went down at the first into Egypt to sojourn there: and the Assyrian hath oppressed them without cause.
+For thus says the Lord Yahweh, "My people went down at the first into Egypt to live there: and the Assyrian has oppressed them without cause.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David put his hand in his bag, and took thence a stone, and slang it, and smote the Philistine in his forehead; and the stone sank into his forehead, and he fell upon his face to the earth.
+David put his hand in his bag, took a stone, and slung it, and struck the Philistine in his forehead; and the stone sank into his forehead, and he fell on his face to the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Knowest thou [not] this of old time, Since man was placed upon earth,
+Don't you know this from old time, since man was placed on earth,

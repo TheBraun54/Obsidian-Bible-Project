@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless the king's word prevailed against Joab. Wherefore Joab departed, and went throughout all Israel, and came to Jerusalem.
+Nevertheless the king's word prevailed against Joab. Therefore Joab departed, and went throughout all Israel, and came to Jerusalem.

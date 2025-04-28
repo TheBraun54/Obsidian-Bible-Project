@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let none of you devise evil in your hearts against his neighbor; and love no false oath: for all these are things that I hate, saith Jehovah.
+and let none of you devise evil in your hearts against his neighbor, and love no false oath: for all these are things that I hate," says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. Jehovah saith unto my Lord, Sit thou at my right hand, Until I make thine enemies thy footstool.
+Yahweh says to my Lord, "Sit at my right hand, until I make your enemies your footstool for your feet."

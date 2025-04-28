@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the food of his table, and the sitting of his servants, and the attendance of his ministers, and their apparel, and his cupbearers, and his ascent by which he went up unto the house of Jehovah; there was no more spirit in her.
+and the food of his table, and the sitting of his servants, and the attendance of his ministers, and their clothing, and his cup bearers, and his ascent by which he went up to the house of Yahweh; there was no more spirit in her.

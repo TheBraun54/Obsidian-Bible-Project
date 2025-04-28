@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mizraim begat Ludim, and Anamim, and Lehabim, and Naphtuhim,
+Mizraim became the father of Ludim, and Anamim, and Lehabim, and Naphtuhim,

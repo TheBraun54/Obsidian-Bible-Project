@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who shall separate us from the love of Christ? shall tribulation, or anguish, or persecution, or famine, or nakedness, or peril, or sword?
+Who shall separate us from the love of Christ? Could oppression, or anguish, or persecution, or famine, or nakedness, or peril, or sword?

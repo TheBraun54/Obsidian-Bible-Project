@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall fly away as a dream, and shall not be found: Yea, he shall be chased away as a vision of the night.
+He shall fly away as a dream, and shall not be found. Yes, he shall be chased away like a vision of the night.

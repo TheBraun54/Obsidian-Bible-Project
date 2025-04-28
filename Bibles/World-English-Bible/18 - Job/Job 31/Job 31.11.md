@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For that were a heinous crime; Yea, it were an iniquity to be punished by the judges:
+For that would be a heinous crime. Yes, it would be an iniquity to be punished by the judges:

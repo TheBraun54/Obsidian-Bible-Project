@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I rejoiced greatly, when brethren came and bare witness unto thy truth, even as thou walkest in truth.
+For I rejoiced greatly, when brothers came and testified about your truth, even as you walk in truth.

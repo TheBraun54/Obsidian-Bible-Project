@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if we died with Christ, we believe that we shall also live with him;
+But if we died with Christ, we believe that we will also live with him;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, this is the joy of his way; And out of the earth shall others spring.
+Behold, this is the joy of his way: out of the earth, others shall spring.

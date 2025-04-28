@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bring in the table, and set in order the things that are upon it; and thou shalt bring in the candlestick, and light the lamps thereof.
+You shall bring in the table, and set in order the things that are on it. You shall bring in the lampstand, and light its lamps.

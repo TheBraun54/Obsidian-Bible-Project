@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thou shalt go unto my country, and to my kindred, and take a wife for my son Isaac.
+But you shall go to my country, and to my relatives, and take a wife for my son Isaac."

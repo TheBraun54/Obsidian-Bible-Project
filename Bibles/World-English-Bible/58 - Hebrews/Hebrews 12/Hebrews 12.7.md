@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is for chastening that ye endure; God dealeth with you as with sons; for what son is there whom [his] father chasteneth not?
+It is for discipline that you endure. God deals with you as with children, for what son is there whom his father doesn't discipline?

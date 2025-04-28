@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam rose up in the morning, and said unto the princes of Balak, Get you into your land; for Jehovah refuseth to give me leave to go with you.
+Balaam rose up in the morning, and said to the princes of Balak, "Go to your land; for Yahweh refuses to permit me to go with you."

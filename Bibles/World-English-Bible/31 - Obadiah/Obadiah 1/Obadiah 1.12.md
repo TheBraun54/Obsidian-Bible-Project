@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But look not thou on the day of thy brother in the day of his disaster, and rejoice not over the children of Judah in the day of their destruction; neither speak proudly in the day of distress. [
+But don't look down on your brother in the day of his disaster, and don't rejoice over the children of Judah in the day of their destruction. Don't speak proudly in the day of distress.

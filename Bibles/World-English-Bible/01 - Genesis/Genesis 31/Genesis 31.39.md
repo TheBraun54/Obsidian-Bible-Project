@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which was torn of beasts I brought not unto thee; I bare the loss of it; of my hand didst thou require it, whether stolen by day or stolen by night.
+That which was torn of animals, I didn't bring to you. I bore its loss. Of my hand you required it, whether stolen by day or stolen by night.

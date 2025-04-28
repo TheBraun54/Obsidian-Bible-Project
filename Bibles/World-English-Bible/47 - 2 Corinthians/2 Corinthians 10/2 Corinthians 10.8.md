@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though I should glory somewhat abundantly concerning our authority (which the Lord gave for building you up, and not for casting you down), I shall not be put to shame:
+For though I should boast somewhat abundantly concerning our authority, (which the Lord gave for building you up, and not for casting you down) I will not be disappointed,

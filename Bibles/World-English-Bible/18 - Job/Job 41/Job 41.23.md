@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The flakes of his flesh are joined together: They are firm upon him; They cannot be moved.
+The flakes of his flesh are joined together. They are firm on him. They can't be moved.

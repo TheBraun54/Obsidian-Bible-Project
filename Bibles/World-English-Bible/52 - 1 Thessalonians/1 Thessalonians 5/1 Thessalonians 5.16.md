@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice always;
+Rejoice always.

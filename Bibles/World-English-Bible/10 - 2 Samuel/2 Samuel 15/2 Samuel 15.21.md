@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ittai answered the king, and said, As Jehovah liveth, and as my lord the king liveth, surely in what place my lord the king shall be, whether for death or for life, even there also will thy servant be.
+Ittai answered the king, and said, "As Yahweh lives, and as my lord the king lives, surely in what place my lord the king shall is, whether for death or for life, even there also will your servant be."

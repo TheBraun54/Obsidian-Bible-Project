@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to speak evil of no man, not to be contentious, to be gentle, showing all meekness toward all men.
+to speak evil of no one, not to be contentious, to be gentle, showing all humility toward all men.

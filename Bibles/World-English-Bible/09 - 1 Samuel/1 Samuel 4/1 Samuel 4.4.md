@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the people sent to Shiloh; and they brought from thence the ark of the covenant of Jehovah of hosts, who sitteth [above] the cherubim: and the two sons of Eli, Hophni and Phinehas, were there with the ark of the covenant of God.
+So the people sent to Shiloh; and they brought from there the ark of the covenant of Yahweh of Armies, who sits [above] the cherubim: and the two sons of Eli, Hophni and Phinehas, were there with the ark of the covenant of God.

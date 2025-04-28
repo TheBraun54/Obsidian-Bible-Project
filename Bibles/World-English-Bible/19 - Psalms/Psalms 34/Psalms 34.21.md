@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Evil shall slay the wicked; And they that hate the righteous shall be condemned.
+Evil shall kill the wicked. Those who hate the righteous shall be condemned.

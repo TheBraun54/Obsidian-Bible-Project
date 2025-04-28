@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and had suffered many things of many physicians, and had spent all that she had, and was nothing bettered, but rather grew worse,
+and had suffered many things by many physicians, and had spent all that she had, and was no better, but rather grew worse,

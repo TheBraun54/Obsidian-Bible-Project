@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover all the vessels, which king Ahaz in his reign did cast away when he trespassed, have we prepared and sanctified; and, behold, they are before the altar of Jehovah.
+Moreover all the vessels, which king Ahaz in his reign did cast away when he trespassed, have we prepared and sanctified; and behold, they are before the altar of Yahweh."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where then is my hope? And as for my hope, who shall see it?
+where then is my hope? as for my hope, who shall see it?

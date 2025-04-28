@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the villages that were round about these cities to Baalath-beer, Ramah of the South. This is the inheritance of the tribe of the children of Simeon according to their families.
+and all the villages that were around these cities to Baalath Beer, Ramah of the South. This is the inheritance of the tribe of the children of Simeon according to their families.

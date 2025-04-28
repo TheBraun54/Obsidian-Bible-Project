@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave her his hand, and raised her up; and calling the saints and widows, he presented her alive.
+He gave her his hand, and raised her up. Calling the saints and widows, he presented her alive.

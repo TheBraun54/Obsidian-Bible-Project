@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Moses set apart three cities beyond the Jordan toward the sunrising;
+Then Moses set apart three cities beyond the Jordan toward the sunrise;

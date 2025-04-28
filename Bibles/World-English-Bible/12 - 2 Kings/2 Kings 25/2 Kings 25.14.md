@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the pots, and the shovels, and the snuffers, and the spoons, and all the vessels of brass wherewith they ministered, took they away.
+The pots, and the shovels, and the snuffers, and the spoons, and all the vessels of brass with which they ministered, took they away.

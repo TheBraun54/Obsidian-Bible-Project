@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham said, I will swear.
+Abraham said, "I will swear."

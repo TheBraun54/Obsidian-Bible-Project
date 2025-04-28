@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all in whose nostrils was the breath of the spirit of life, of all that was on the dry land, died.
+All in whose nostrils was the breath of the spirit of life, of all that was on the dry land, died.

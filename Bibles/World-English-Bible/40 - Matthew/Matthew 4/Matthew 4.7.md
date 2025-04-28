@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto him, Again it is written, Thou shalt not make trial of the Lord thy God.
+Jesus said to him, "Again, it is written, 'You shall not test the Lord, your God.'"

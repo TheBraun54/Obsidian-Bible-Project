@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he turned unto her by the way, and said, Come, I pray thee, let me come in unto thee: for he knew not that she was his daughter-in-law. And she said, What wilt thou give me, that thou mayest come in unto me?
+He turned to her by the way, and said, "Please come, let me come in to you," for he didn't know that she was his daughter-in-law. She said, "What will you give me, that you may come in to me?"

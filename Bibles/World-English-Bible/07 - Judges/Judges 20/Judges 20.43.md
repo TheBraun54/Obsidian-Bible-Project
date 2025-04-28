@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They inclosed the Benjamites round about, [and] chased them, [and] trod them down at [their] resting-place, as far as over against Gibeah toward the sunrising.
+They surrounded the Benjamites, chased them, [and] trod them down at [their] resting place, as far as over against Gibeah toward the sunrise.

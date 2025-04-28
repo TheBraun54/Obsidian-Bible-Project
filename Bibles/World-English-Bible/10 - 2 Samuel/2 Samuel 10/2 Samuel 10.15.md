@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Syrians saw that they were put to the worse before Israel, they gathered themselves together.
+When the Syrians saw that they were defeated by Israel, they gathered themselves together.

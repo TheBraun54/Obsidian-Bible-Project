@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall I bring to the birth, and not cause to bring forth? saith Jehovah: shall I that cause to bring forth shut [the womb] ? saith thy God.
+Shall I bring to the birth, and not cause to bring forth?" says Yahweh: "shall I who cause to bring forth shut [the womb]?" says your God.

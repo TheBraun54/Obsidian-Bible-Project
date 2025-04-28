@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [what we say] is yet more abundantly evident, if after the likeness of Melchizedek there ariseth another priest,
+This is yet more abundantly evident, if after the likeness of Melchizedek there arises another priest,

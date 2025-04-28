@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken, my beloved brethren; did not God choose them that are poor as to the world [to be] rich in faith, and heirs of the kingdom which he promised to them that love him?
+Listen, my beloved brothers. Didn't God choose those who are poor in this world to be rich in faith, and heirs of the Kingdom which he promised to those who love him?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the good shepherd; and I know mine own, and mine own know me,
+I am the good shepherd. I know my own, and I'm known by my own;

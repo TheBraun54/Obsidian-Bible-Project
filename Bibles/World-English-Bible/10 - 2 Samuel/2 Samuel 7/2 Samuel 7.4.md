@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass the same night, that the word of Jehovah came unto Nathan, saying,
+It happened the same night, that the word of Yahweh came to Nathan, saying,

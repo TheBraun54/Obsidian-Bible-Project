@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any man buildeth on the foundation gold, silver, costly stones, wood, hay, stubble;
+But if anyone builds on the foundation with gold, silver, costly stones, wood, hay, or stubble;

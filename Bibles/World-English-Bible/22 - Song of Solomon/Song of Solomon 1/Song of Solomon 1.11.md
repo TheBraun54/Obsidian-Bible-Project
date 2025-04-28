@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We will make thee plaits of gold With studs of silver.
+We will make you earrings of gold, with studs of silver. Beloved

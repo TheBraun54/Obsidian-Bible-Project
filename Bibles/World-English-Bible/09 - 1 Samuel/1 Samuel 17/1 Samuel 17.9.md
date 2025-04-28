@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he be able to fight with me, and kill me, then will we be your servants; but if I prevail against him, and kill him, then shall ye be our servants, and serve us.
+If he be able to fight with me, and kill me, then will we be your servants; but if I prevail against him, and kill him, then you will be our servants, and serve us."

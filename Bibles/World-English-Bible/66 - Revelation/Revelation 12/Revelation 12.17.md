@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the dragon waxed wroth with the woman, and went away to make war with the rest of her seed, that keep the commandments of God, and hold the testimony of Jesus:
+The dragon grew angry with the woman, and went away to make war with the rest of her seed, who keep God's commandments and hold Jesus' testimony.

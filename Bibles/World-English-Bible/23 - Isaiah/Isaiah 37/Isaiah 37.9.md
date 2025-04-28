@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he heard say concerning Tirhakah king of Ethiopia, He is come out to fight against thee. And when he heard it, he sent messengers to Hezekiah, saying,
+He heard news concerning Tirhakah king of Ethiopia, "He has come out to fight against you." When he heard it, he sent messengers to Hezekiah, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seven months shall the house of Israel be burying them, that they may cleanse the land.
+Seven months shall the house of Israel be burying them, that they may cleanse the land.

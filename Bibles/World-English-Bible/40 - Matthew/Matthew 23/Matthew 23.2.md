@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, The scribes and the Pharisees sit on Moses seat:
+saying, "The scribes and the Pharisees sat on Moses' seat.

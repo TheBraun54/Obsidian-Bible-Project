@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Contend with your mother, contend; for she is not my wife, neither am I her husband; and let her put away her whoredoms from her face, and her adulteries from between her breasts;
+Contend with your mother! Contend, for she is not my wife, neither am I her husband; and let her put away her prostitution from her face, and her adulteries from between her breasts;

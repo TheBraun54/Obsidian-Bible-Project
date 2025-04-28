@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-while they see for thee false visions, while they divine lies unto thee, to lay thee upon the necks of the wicked that are deadly wounded, whose day is come in the time of the iniquity of the end.
+while they see for you false visions, while they divine lies to you, to lay you on the necks of the wicked who are deadly wounded, whose day is come in the time of the iniquity of the end.

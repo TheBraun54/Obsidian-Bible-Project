@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the offering of Judah and Jerusalem be pleasant unto Jehovah, as in the days of old, and as in ancient years.
+Then the offering of Judah and Jerusalem will be pleasant to Yahweh, as in the days of old, and as in ancient years.

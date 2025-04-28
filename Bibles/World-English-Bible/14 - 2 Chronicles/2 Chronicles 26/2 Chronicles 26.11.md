@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Uzziah had an army of fighting men, that went out to war by bands, according to the number of their reckoning made by Jeiel the scribe and Maaseiah the officer, under the hand of Hananiah, one of the king's captains.
+Moreover Uzziah had an army of fighting men, who went out to war by bands, according to the number of their reckoning made by Jeiel the scribe and Maaseiah the officer, under the hand of Hananiah, one of the king's captains.

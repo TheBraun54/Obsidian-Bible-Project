@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I shall walk at liberty; For I have sought thy precepts.
+I will walk in liberty, for I have sought your precepts.

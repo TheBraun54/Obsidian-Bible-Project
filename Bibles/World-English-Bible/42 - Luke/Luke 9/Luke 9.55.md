@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he turned, and rebuked them.
+But he turned and rebuked them, "You don't know of what kind of spirit you are.

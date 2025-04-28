@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and what he did unto the army of Egypt, unto their horses, and to their chariots; how he made the water of the Red Sea to overflow them as they pursued after you, and how Jehovah hath destroyed them unto this day;
+and what he did to the army of Egypt, to their horses, and to their chariots; how he made the water of the Red Sea to overflow them as they pursued after you, and how Yahweh has destroyed them to this day;

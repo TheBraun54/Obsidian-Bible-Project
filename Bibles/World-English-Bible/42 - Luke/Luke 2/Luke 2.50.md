@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they understood not the saying which he spake unto them.
+They didn't understand the saying which he spoke to them.

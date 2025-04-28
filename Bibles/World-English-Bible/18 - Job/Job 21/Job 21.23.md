@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One dieth in his full strength, Being wholly at ease and quiet:
+One dies in his full strength, being wholly at ease and quiet.

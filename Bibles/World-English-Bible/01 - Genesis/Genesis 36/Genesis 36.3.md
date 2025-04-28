@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Basemath Ishmael's daughter, sister of Nebaioth.
+and Basemath, Ishmael's daughter, sister of Nebaioth.

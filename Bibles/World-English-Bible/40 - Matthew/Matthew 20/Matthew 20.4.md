@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to them he said, Go ye also into the vineyard, and whatsoever is right I will give you. And they went their way.
+To them he said, 'You also go into the vineyard, and whatever is right I will give you.' So they went their way.

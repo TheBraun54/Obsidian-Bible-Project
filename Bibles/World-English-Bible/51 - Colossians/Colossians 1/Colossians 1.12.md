@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-giving thanks unto the Father, who made us meet to be partakers of the inheritance of the saints in light;
+giving thanks to the Father, who made us fit to be partakers of the inheritance of the saints in light;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the name of our Lord Jesus may be glorified in you, and ye in him, according to the grace of our God and the Lord Jesus Christ.
+that the name of our Lord Jesus may be glorified in you, and you in him, according to the grace of our God and the Lord Jesus Christ.

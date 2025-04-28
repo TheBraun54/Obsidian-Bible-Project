@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because ye are glad, because ye rejoice, O ye that plunder my heritage, because ye are wanton as a heifer that treadeth out [the grain], and neigh as strong horses;
+Because you are glad, because you rejoice, O you who plunder my heritage, because you are wanton as a heifer that treads out [the grain], and neigh as strong horses;

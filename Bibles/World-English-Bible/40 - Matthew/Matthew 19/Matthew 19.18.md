@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith unto him, Which? And Jesus said, Thou shalt not kill, Thou shalt not commit adultery, Thou shalt not steal, Thou shalt not bear false witness,
+He said to him, "Which ones?" Jesus said, "'You shall not murder.' 'You shall not commit adultery.' 'You shall not steal.' 'You shall not offer false testimony.'

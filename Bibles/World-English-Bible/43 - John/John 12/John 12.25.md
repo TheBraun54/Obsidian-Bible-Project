@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth his life loseth it; and he that hateth his life in this world shall keep it unto life eternal.
+He who loves his life will lose it. He who hates his life in this world will keep it to eternal life.

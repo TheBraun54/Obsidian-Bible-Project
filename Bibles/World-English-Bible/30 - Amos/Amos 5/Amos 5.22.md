@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, though ye offer me your burnt-offerings and meal-offerings, I will not accept them; neither will I regard the peace-offerings of your fat beasts.
+Yes, though you offer me your burnt offerings and meal offerings, I will not accept them; neither will I regard the peace offerings of your fat animals.

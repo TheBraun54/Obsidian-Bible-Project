@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel arose, and went up to Beth-el, and asked counsel of God; and they said, Who shall go up for us first to battle against the children of Benjamin? And Jehovah said, Judah [shall go up] first.
+The children of Israel arose, and went up to Bethel, and asked counsel of God; and they said, "Who shall go up for us first to battle against the children of Benjamin?" Yahweh said, "Judah [shall go up] first."

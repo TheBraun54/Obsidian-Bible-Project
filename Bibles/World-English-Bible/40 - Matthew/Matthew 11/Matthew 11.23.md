@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, Capernaum, shalt thou be exalted unto heaven? thou shalt go down unto Hades: for if the mighty works had been done in Sodom which were done in thee, it would have remained until this day.
+You, Capernaum, who are exalted to heaven, you will go down to Hades. For if the mighty works had been done in Sodom which were done in you, it would have remained until this day.

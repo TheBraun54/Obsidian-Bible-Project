@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His roots are wrapped about the [stone] -heap, He beholdeth the place of stones.
+His roots are wrapped around the rock pile. He sees the place of stones.

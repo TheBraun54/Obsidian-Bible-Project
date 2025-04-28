@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will bring them from the north country, and gather them from the uttermost parts of the earth, [and] with them the blind and the lame, the woman with child and her that travaileth with child together: a great company shall they return hither.
+Behold, I will bring them from the north country, and gather them from the uttermost parts of the earth, [and] with them the blind and the lame, the woman with child and her who travails with child together: a great company shall they return here.

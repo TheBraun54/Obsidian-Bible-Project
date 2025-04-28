@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ephraim said, Surely I am become rich, I have found me wealth: in all my labors they shall find in me no iniquity that were sin.
+Ephraim said, "Surely I have become rich, I have found myself wealth. In all my wealth they won't find in me any iniquity that is sin."

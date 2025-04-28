@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter therefore went forth, and the other disciple, and they went toward the tomb.
+Therefore Peter and the other disciple went out, and they went toward the tomb.

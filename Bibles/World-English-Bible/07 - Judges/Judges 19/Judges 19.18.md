@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, We are passing from Beth-lehem-judah unto the farther side of the hill-country of Ephraim; from thence am I, and I went to Beth-lehem-judah: and I am [now] going to the house of Jehovah; and there is no man that taketh me into his house.
+He said to him, "We are passing from Bethlehem Judah to the farther side of the hill country of Ephraim. I am from there, and I went to Bethlehem Judah. I am going to the house of Yahweh; and there is no man who takes me into his house.

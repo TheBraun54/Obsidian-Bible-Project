@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I make known unto you, that no man speaking in the Spirit of God saith, Jesus is anathema; and no man can say, Jesus is Lord, but in the Holy Spirit.
+Therefore I make known to you that no man speaking by God's Spirit says, "Jesus is accursed." No one can say, "Jesus is Lord," but by the Holy Spirit.

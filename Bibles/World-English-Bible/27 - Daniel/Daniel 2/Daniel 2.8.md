@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king answered and said, I know of a certainty that ye would gain time, because ye see the thing is gone from me.
+The king answered, I know of a certainty that you would gain time, because you see the thing is gone from me.

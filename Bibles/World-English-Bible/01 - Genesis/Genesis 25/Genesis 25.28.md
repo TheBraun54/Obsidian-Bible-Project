@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Isaac loved Esau, because he did eat of his venison: and Rebekah loved Jacob.
+Now Isaac loved Esau, because he ate his venison. Rebekah loved Jacob.

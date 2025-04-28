@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore come, let me, I pray thee, give thee counsel, that thou mayest save thine own life, and the life of thy son Solomon.
+Now therefore come, please let me give you counsel, that you may save your own life, and the life of your son Solomon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he left off talking with him, and God went up from Abraham.
+When he finished talking with him, God went up from Abraham.

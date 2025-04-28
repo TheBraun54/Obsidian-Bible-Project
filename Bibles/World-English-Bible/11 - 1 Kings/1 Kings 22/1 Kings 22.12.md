@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the prophets prophesied so, saying, Go up to Ramoth-gilead, and prosper; for Jehovah will deliver it into the hand of the king.
+All the prophets prophesied so, saying, "Go up to Ramoth Gilead, and prosper; for Yahweh will deliver it into the hand of the king."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Micaiah declared unto them all the words that he had heard, when Baruch read the book in the ears of the people.
+Then Micaiah declared to them all the words that he had heard, when Baruch read the book in the ears of the people.

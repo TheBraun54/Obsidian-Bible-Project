@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that I had one to hear me! (Lo, here is my signature, let the Almighty answer me); And [that I had] the indictment which mine adversary hath written!
+oh that I had one to hear me! (behold, here is my signature, let the Almighty answer me); let the accuser write my indictment!

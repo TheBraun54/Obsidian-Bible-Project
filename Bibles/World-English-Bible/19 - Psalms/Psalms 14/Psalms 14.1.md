@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. [A Psalm] of David]. The fool hath said in his heart, There is no God. They are corrupt, they have done abominable works; There is none that doeth good.
+The fool has said in his heart, "There is no God." They are corrupt. They have done abominable works. There is none who does good.

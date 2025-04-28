@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Amaziah king of Judah took advice, and sent to Joash, the son of Jehoahaz the son of Jehu, king of Israel, saying, Come, let us look one another in the face.
+Then Amaziah king of Judah consulted his advisers, and sent to Joash, the son of Jehoahaz the son of Jehu, king of Israel, saying, "Come, let us look one another in the face."

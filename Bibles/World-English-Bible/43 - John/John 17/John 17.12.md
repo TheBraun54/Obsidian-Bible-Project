@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While I was with them, I kept them in thy name which thou hast given me: and I guarded them, and not one of them perished, but the son of perdition; that the scripture might be fulfilled.
+While I was with them in the world, I kept them in your name. Those whom you have given me I have kept. None of them is lost, except the son of destruction, that the Scripture might be fulfilled.

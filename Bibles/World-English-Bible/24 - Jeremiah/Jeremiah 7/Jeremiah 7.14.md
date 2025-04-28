@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore will I do unto the house which is called by my name, wherein ye trust, and unto the place which I gave to you and to your fathers, as I did to Shiloh.
+therefore will I do to the house which is called by my name, in which you trust, and to the place which I gave to you and to your fathers, as I did to Shiloh.

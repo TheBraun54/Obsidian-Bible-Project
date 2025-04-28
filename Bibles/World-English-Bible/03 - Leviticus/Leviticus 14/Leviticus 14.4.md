@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall the priest command to take for him that is to be cleansed two living clean birds, and cedar wood, and scarlet, and hyssop:
+then the priest shall command them to take for him who is to be cleansed two living clean birds, and cedar wood, and scarlet, and hyssop.

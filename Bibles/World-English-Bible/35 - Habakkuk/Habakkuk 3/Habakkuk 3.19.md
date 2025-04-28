@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, the Lord, is my strength; And he maketh my feet like hinds' [feet], And will make me to walk upon my high places.
+Yahweh, the Lord, is my strength. He makes my feet like deer's feet, and enables me to go in high places. For the music director, on my stringed instruments.

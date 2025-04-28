@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Jehovah hath not given you a heart to know, and eyes to see, and ears to hear, unto this day.
+but Yahweh has not given you a heart to know, and eyes to see, and ears to hear, to this day.

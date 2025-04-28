@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye offer polluted bread upon mine altar. And ye say, Wherein have we polluted thee? In that ye say, The table of Jehovah is contemptible.
+You offer polluted bread on my altar. You say, 'How have we polluted you?' In that you say, 'Yahweh's table contemptible.'

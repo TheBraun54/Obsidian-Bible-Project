@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lot of the tribe of the children of Benjamin came up according to their families: and the border of their lot went out between the children of Judah and the children of Joseph.
+The lot of the tribe of the children of Benjamin came up according to their families. The border of their lot went out between the children of Judah and the children of Joseph.

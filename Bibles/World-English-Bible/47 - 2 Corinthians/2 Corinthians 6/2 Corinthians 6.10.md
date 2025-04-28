@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as sorrowful, yet always rejoicing; as poor, yet making many rich; as having nothing, and [yet] possessing all things.
+as sorrowful, yet always rejoicing; as poor, yet making many rich; as having nothing, and yet possessing all things.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave them their request, But sent leanness into their soul.
+He gave them their request, but sent leanness into their soul.

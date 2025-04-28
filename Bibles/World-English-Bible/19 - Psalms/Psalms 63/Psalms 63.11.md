@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the king shall rejoice in God: Every one that sweareth by him shall glory; For the mouth of them that speak lies shall be stopped.
+But the king shall rejoice in God. Everyone who swears by him will praise him, for the mouth of those who speak lies shall be silenced. For the Chief Musician. A Psalm by David.

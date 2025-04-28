@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came to Marah, they could not drink of the waters of Marah, for they were bitter: therefore the name of it was called Marah.
+When they came to Marah, they couldn't drink from the waters of Marah, for they were bitter. Therefore its name was called Marah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or know ye not that the saints shall judge the world? and if the world is judged by you, are ye unworthy to judge the smallest matters?
+Don't you know that the saints will judge the world? And if the world is judged by you, are you unworthy to judge the smallest matters?

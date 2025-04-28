@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Others said, This is the Christ. But some said, What, doth the Christ come out of Galilee?
+Others said, "This is the Christ." But some said, "What, does the Christ come out of Galilee?

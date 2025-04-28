@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the meek shall inherit the land, And shall delight themselves in the abundance of peace.
+But the humble shall inherit the land, and shall delight themselves in the abundance of peace.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And demons also came out from many, crying out, and saying, Thou art the Son of God. And rebuking them, he suffered them not to speak, because they knew that he was the Christ.
+Demons also came out from many, crying out, and saying, "You are the Christ, the Son of God!" Rebuking them, he didn't allow them to speak, because they knew that he was the Christ.

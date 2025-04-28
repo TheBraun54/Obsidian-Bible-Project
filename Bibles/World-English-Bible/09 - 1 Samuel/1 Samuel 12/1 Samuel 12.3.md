@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Here I am: witness against me before Jehovah, and before his anointed: whose ox have I taken? or whose ass have I taken? or whom have I defrauded? whom have I oppressed? or of whose hand have I taken a ransom to blind mine eyes therewith? and I will restore it you.
+Here I am. Witness against me before Yahweh, and before his anointed. Whose ox have I taken? Whose donkey have I taken? Whom have I defrauded? Whom have I oppressed? Of whose hand have I taken a ransom to blind my eyes therewith? I will restore it to you."

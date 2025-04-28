@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She maketh for herself carpets of tapestry; Her clothing is fine linen and purple.
+She makes for herself carpets of tapestry. Her clothing is fine linen and purple.

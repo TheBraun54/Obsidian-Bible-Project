@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall none cast her young, nor be barren, in thy land: the number of thy days I will fulfil.
+No one will miscarry or be barren in your land. I will fulfill the number of your days.

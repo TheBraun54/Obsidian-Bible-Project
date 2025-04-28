@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Shishak king of Egypt came up against Jerusalem, and took away the treasures of the house of Jehovah, and the treasures of the king's house: he took all away: he took away also the shields of gold which Solomon had made.
+So Shishak king of Egypt came up against Jerusalem, and took away the treasures of the house of Yahweh, and the treasures of the king's house. He took it all away. He also took away the shields of gold which Solomon had made.

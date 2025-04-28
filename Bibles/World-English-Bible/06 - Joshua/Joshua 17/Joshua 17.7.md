@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border of Manasseh was from Asher to Michmethath, which is before Shechem; and the border went along to the right hand, unto the inhabitants of En-tappuah.
+The border of Manasseh was from Asher to Michmethath, which is before Shechem. The border went along to the right hand, to the inhabitants of En Tappuah.

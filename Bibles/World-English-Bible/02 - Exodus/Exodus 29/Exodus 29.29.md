@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the holy garments of Aaron shall be for his sons after him, to be anointed in them, and to be consecrated in them.
+"The holy garments of Aaron shall be for his sons after him, to be anointed in them, and to be consecrated in them.

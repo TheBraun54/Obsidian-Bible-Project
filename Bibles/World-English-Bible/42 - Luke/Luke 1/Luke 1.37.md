@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For no word from God shall be void of power.
+For everything spoken by God is possible."

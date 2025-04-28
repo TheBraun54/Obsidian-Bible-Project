@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come down from the high place into the city, he communed with Saul upon the housetop.
+When they had come down from the high place into the city, he talked with Saul on the housetop.

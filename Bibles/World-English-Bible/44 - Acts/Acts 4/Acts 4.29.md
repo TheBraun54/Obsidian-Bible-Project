@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, Lord, look upon their threatenings: and grant unto thy servants to speak thy word with all boldness,
+Now, Lord, look at their threats, and grant to your servants to speak your word with all boldness,

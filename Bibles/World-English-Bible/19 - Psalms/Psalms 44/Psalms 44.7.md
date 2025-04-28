@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou hast saved us from our adversaries, And hast put them to shame that hate us.
+But you have saved us from our adversaries, and have shamed those who hate us.

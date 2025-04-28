@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, if two lie together, then they have warmth; but how can one be warm [alone] ?
+Again, if two lie together, then they have warmth; but how can one keep warm alone?

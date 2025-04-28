@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a sweet savor will I accept you, when I bring you out from the peoples, and gather you out of the countries wherein ye have been scattered; and I will be sanctified in you in the sight of the nations.
+As a pleasant aroma will I accept you, when I bring you out from the peoples, and gather you out of the countries in which you have been scattered; and I will be sanctified in you in the sight of the nations.

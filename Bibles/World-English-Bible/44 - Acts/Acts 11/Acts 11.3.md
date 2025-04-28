@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Thou wentest in to men uncircumcised, and didst eat with them.
+saying, "You went in to uncircumcised men, and ate with them!"

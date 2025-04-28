@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But these, as creatures without reason, born mere animals to be taken and destroyed, railing in matters whereof they are ignorant, shall in their destroying surely be destroyed,
+But these, as unreasoning creatures, born natural animals to be taken and destroyed, speaking evil in matters about which they are ignorant, will in their destroying surely be destroyed,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his master said unto him, We will not turn aside into the city of a foreigner, that is not of the children of Israel; but we will pass over to Gibeah.
+His master said to him, "We won't turn aside into the city of a foreigner, that is not of the children of Israel; but we will pass over to Gibeah."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will ye show partiality to him? Will ye contend for God?
+Will you show partiality to him? Will you contend for God?

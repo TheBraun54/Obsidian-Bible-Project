@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan answered Saul, David earnestly asked leave of me to go to Beth-lehem:
+Jonathan answered Saul, "David earnestly asked leave of me to go to Bethlehem.

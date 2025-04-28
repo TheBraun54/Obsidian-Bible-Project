@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have also given thee that which thou hast not asked, both riches and honor, so that there shall not be any among the kings like unto thee, all thy days.
+I have also given you that which you have not asked, both riches and honor, so that there shall not be any among the kings like you, all your days.

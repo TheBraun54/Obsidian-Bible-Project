@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we hear of some that walk among you disorderly, that work not at all, but are busybodies.
+For we hear of some who walk among you in rebellion, who don't work at all, but are busybodies.

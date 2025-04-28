@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do ye thus requite Jehovah, O foolish people and unwise? Is not he thy father that hath bought thee? He hath made thee, and established thee.
+Do you thus requite Yahweh, foolish people and unwise? Isn't he your father who has bought you? He has made you, and established you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We acknowledge, O Jehovah, our wickedness, and the iniquity of our fathers; for we have sinned against thee.
+We acknowledge, Yahweh, our wickedness, and the iniquity of our fathers; for we have sinned against you.

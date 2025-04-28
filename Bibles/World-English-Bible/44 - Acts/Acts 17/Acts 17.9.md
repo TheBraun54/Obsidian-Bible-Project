@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had taken security from Jason and the rest, they let them go.
+When they had taken security from Jason and the rest, they let them go.

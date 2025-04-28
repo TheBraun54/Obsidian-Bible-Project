@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he caught a young man of the men of Succoth, and inquired of him: and he described for him the princes of Succoth, and the elders thereof, seventy and seven men.
+He caught a young man of the men of Succoth, and inquired of him: and he described for him the princes of Succoth, and its elders, seventy-seven men.

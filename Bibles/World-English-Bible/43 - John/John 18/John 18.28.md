@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They lead Jesus therefore from Caiaphas into the Praetorium: and it was early; and they themselves entered not into the Praetorium, that they might not be defiled, but might eat the passover.
+They led Jesus therefore from Caiaphas into the Praetorium. It was early, and they themselves didn't enter into the Praetorium, that they might not be defiled, but might eat the Passover.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Reuben, from the east side unto the west side, Judah, one [portion] .
+By the border of Reuben, from the east side to the west side, Judah, one [portion].

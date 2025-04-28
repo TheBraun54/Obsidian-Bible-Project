@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put them in fear, O Jehovah: Let the nations know themselves to be but men. {{Selah
+Put them in fear, Yahweh. Let the nations know that they are only men. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall look on the raw flesh, and pronounce him unclean: the raw flesh is unclean: it is leprosy.
+The priest shall examine the raw flesh, and pronounce him unclean: the raw flesh is unclean. It is leprosy.

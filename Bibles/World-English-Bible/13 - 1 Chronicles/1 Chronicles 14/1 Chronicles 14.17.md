@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fame of David went out into all lands; and Jehovah brought the fear of him upon all nations.
+The fame of David went out into all lands; and Yahweh brought the fear of him on all nations.

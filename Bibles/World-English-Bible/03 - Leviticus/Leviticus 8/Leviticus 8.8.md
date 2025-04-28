@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he placed the breastplate upon him: and in the breastplate he put the Urim and the Thummim.
+He placed the breastplate on him; and in the breastplate he put the Urim and the Thummim.

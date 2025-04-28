@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My covenant was with him of life and peace; and I gave them to him that he might fear; and he feared me, and stood in awe of my name.
+"My covenant was with him of life and peace; and I gave them to him that he might be reverent toward me; and he was reverent toward me, and stood in awe of my name.

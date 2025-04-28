@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou break the bottle in the sight of the men that go with thee,
+Then you shall break the bottle in the sight of the men who go with you,

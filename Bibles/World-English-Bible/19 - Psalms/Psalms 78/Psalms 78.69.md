@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built his sanctuary like the heights, Like the earth which he hath established for ever.
+He built his sanctuary like the heights, like the earth which he has established forever.

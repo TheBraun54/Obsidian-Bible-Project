@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Went not my heart [with thee], when the man turned from his chariot to meet thee? Is it a time to receive money, and to receive garments, and oliveyards and vineyards, and sheep and oxen, and men-servants and maid-servants?
+He said to him, "Didn't my heart go with you, when the man turned from his chariot to meet you? Is it a time to receive money, and to receive garments, and olive groves and vineyards, and sheep and cattle, and male servants and female servants?

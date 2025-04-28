@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if I preach the gospel, I have nothing to glory of; for necessity is laid upon me; for woe is unto me, if I preach not the gospel.
+For if I preach the Good News, I have nothing to boast about; for necessity is laid on me; but woe is to me, if I don't preach the Good News.

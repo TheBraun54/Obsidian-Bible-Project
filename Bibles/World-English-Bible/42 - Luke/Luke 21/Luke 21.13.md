@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall turn out unto you for a testimony.
+It will turn out as a testimony for you.

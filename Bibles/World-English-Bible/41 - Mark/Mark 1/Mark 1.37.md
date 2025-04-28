@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they found him, and say unto him, All are seeking thee.
+and they found him, and told him, "Everyone is looking for you."

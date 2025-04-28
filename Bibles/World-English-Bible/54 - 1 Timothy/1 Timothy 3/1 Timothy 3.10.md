@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let these also first be proved; then let them serve as deacons, if they be blameless.
+Let them also first be tested; then let them serve if they are blameless.

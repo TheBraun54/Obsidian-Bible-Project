@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Jerahmeel the first-born of Hezron were Ram the first-born, and Bunah, and Oren, and Ozem, Ahijah.
+The sons of Jerahmeel the firstborn of Hezron were Ram the firstborn, and Bunah, and Oren, and Ozem, Ahijah.

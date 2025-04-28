@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, I will put a fleece of wool on the threshing-floor; if there be dew on the fleece only, and it be dry upon all the ground, then shall I know that thou wilt save Israel by my hand, as thou hast spoken.
+behold, I will put a fleece of wool on the threshing floor; if there be dew on the fleece only, and it be dry on all the ground, then shall I know that you will save Israel by my hand, as you have spoken."

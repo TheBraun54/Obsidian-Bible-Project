@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass on the sixth day, that they shall prepare that which they bring in, and it shall be twice as much as they gather daily.
+It shall come to pass on the sixth day, that they shall prepare that which they bring in, and it shall be twice as much as they gather daily."

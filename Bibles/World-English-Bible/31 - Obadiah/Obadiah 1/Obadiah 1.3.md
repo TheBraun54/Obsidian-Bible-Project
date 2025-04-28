@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The pride of thy heart hath deceived thee, O thou that dwellest in the clefts of the rock, whose habitation is high; that saith in his heart, Who shall bring me down to the ground?
+The pride of your heart has deceived you, you who dwell in the clefts of the rock, whose habitation is high, who says in his heart, 'Who will bring me down to the ground?'

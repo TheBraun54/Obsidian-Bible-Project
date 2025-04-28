@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, Verily I say unto you, Except ye turn, and become as little children, ye shall in no wise enter into the kingdom of heaven.
+and said, "Most certainly I tell you, unless you turn, and become as little children, you will in no way enter into the Kingdom of Heaven.

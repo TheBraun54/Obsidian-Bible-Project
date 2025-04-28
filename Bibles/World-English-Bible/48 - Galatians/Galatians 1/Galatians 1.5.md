@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to whom [be] the glory for ever and ever. Amen.
+to whom be the glory forever and ever. Amen.

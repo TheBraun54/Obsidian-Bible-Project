@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eli blessed Elkanah and his wife, and said, Jehovah give thee seed of this woman for the petition which was asked of Jehovah. And they went unto their own home.
+Eli blessed Elkanah and his wife, and said, "Yahweh give you seed of this woman for the petition which was asked of Yahweh." They went to their own home.

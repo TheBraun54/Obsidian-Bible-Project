@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I put a ring upon thy nose, and ear-rings in thine ears, and a beautiful crown upon thy head.
+I put a ring on your nose, and earrings in your ears, and a beautiful crown on your head.

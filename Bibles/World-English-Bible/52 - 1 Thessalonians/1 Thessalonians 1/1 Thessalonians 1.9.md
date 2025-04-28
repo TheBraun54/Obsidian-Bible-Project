@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they themselves report concerning us what manner of entering in we had unto you; and how ye turned unto God from idols, to serve a living and true God,
+For they themselves report concerning us what kind of a reception we had from you; and how you turned to God from idols, to serve a living and true God,

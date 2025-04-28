@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shelah lived thirty years, and begat Eber:
+Shelah lived thirty years, and became the father of Eber:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the remnant that is escaped of the house of Judah shall again take root downward, and bear fruit upward.
+The remnant that is escaped of the house of Judah will again take root downward, and bear fruit upward.

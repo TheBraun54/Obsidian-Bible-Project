@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon said unto God, Thou hast showed great lovingkindness unto David my father, and hast made me king in his stead.
+Solomon said to God, "You have shown great loving kindness to David my father, and have made me king in his place.

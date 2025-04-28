@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have heard the report thereof; our hands wax feeble: anguish hath taken hold of us, [and] pangs as of a woman in travail.
+We have heard its report; our hands wax feeble: anguish has taken hold of us, [and] pangs as of a woman in travail.

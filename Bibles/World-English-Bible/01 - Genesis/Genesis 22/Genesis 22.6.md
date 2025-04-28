@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham took the wood of the burnt-offering, and laid it upon Isaac his son; and he took in his hand the fire and the knife; and they went both of them together.
+Abraham took the wood of the burnt offering and laid it on Isaac his son. He took in his hand the fire and the knife. They both went together.

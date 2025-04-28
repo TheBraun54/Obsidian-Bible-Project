@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they commanded the people, saying, When ye see the ark of the covenant of Jehovah your God, and the priests the Levites bearing it, then ye shall remove from your place, and go after it.
+and they commanded the people, saying, "When you see the ark of the covenant of Yahweh your God, and the priests the Levites bearing it, then you shall move from your place, and follow it.

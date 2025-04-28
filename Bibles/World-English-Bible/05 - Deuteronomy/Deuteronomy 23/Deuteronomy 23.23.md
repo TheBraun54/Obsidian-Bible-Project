@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which is gone out of thy lips thou shalt observe and do; according as thou hast vowed unto Jehovah thy God, a freewill-offering, which thou hast promised with thy mouth.
+That which is gone out of your lips you shall observe and do; according as you have vowed to Yahweh your God, a freewill offering, which you have promised with your mouth.

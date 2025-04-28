@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto thee, O Jehovah, have I cried; And in the morning shall my prayer come before thee.
+But to you, Yahweh, I have cried. In the morning, my prayer comes before you.

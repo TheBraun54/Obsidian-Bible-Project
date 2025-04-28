@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he sent ambassadors to him, saying, What have I to do with thee, thou king of Judah? [I come] not against thee this day, but against the house wherewith I have war; and God hath commanded me to make haste: forbear thee from [meddling with] God, who is with me, that he destroy thee not.
+But he sent ambassadors to him, saying, "What have I to do with you, you king of Judah? I come not against you this day, but against the house with which I have war. God has commanded me to make haste. Beware that it is God who is with me, that he not destroy you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sendeth out his commandment upon earth; His word runneth very swiftly.
+He sends out his commandment to the earth. His word runs very swiftly.

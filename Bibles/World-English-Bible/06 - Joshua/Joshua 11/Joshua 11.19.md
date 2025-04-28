@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was not a city that made peace with the children of Israel, save the Hivites the inhabitants of Gibeon: they took all in battle.
+There was not a city that made peace with the children of Israel, except the Hivites, the inhabitants of Gibeon. They took all in battle.

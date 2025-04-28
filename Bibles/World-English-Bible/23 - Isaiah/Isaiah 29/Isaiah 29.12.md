@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the book is delivered to him that is not learned, saying, Read this, I pray thee; and he saith, I am not learned.
+and the book is delivered to one who is not educated, saying, "Read this, please;" and he says, "I can't read."

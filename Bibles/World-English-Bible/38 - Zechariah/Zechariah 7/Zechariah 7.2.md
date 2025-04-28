@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now [they of] Beth-el had sent Sharezer and Regem-melech, and their men, to entreat the favor of Jehovah,
+The people of Bethel sent Sharezer and Regem Melech, and their men, to entreat Yahweh's favor,

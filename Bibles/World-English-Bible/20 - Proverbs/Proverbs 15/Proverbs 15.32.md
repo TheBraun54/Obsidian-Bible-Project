@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that refuseth correction despiseth his own soul; But he that hearkeneth to reproof getteth understanding.
+He who refuses correction despises his own soul, but he who listens to reproof gets understanding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the wheat and the spelt were not smitten: for they were not grown up.
+But the wheat and the spelt were not struck, for they had not grown up.

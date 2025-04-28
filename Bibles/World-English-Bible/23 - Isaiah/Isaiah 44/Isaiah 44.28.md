@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That saith of Cyrus, [He is] my shepherd, and shall perform all my pleasure, even saying of Jerusalem, She shall be built; and of the temple, Thy foundation shall be laid.
+Who says of Cyrus, 'He is my shepherd, and shall perform all my pleasure,' even saying of Jerusalem, 'She will be built;' and of the temple, 'Your foundation will be laid.'"

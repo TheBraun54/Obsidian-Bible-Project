@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that fled stand without strength under the shadow of Heshbon; for a fire is gone forth out of Heshbon, and a flame from the midst of Sihon, and hath devoured the corner of Moab, and the crown of the head of the tumultuous ones.
+Those who fled stand without strength under the shadow of Heshbon; for a fire is gone forth out of Heshbon, and a flame from the midst of Sihon, and has devoured the corner of Moab, and the crown of the head of the tumultuous ones.

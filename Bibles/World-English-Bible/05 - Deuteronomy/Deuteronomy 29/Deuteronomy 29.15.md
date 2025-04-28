@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but with him that standeth here with us this day before Jehovah our God, and also with him that is not here with us this day
+but with him who stands here with us this day before Yahweh our God, and also with him who is not here with us this day

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I should have been as though I had not been; I should have been carried from the womb to the grave.
+I should have been as though I had not been. I should have been carried from the womb to the grave.

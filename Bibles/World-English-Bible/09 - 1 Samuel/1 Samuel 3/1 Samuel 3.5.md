@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he ran unto Eli, and said, Here am I; for thou calledst me. And he said, I called not; lie down again. And he went and lay down.
+He ran to Eli, and said, "Here I am; for you called me." He said, "I didn't call; lie down again." He went and lay down.

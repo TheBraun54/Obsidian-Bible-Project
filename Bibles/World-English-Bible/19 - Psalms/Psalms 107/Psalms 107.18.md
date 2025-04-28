@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their soul abhorreth all manner of food; And they draw near unto the gates of death.
+Their soul abhors all kinds of food. They draw near to the gates of death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit from the sins of Jeroboam the son of Nebat, wherewith he made Israel to sin, Jehu departed not from after them, [to wit], the golden calves that were in Beth-el, and that were in Dan.
+However from the sins of Jeroboam the son of Nebat, with which he made Israel to sin, Jehu didn't depart from after them, [to wit], the golden calves that were in Bethel, and that were in Dan.

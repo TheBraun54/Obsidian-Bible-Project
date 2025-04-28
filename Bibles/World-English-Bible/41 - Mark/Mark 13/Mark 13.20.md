@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And except the Lord had shortened the days, no flesh would have been saved; but for the elect's sake, whom he chose, he shortened the days.
+Unless the Lord had shortened the days, no flesh would have been saved; but for the sake of the chosen ones, whom he picked out, he shortened the days.

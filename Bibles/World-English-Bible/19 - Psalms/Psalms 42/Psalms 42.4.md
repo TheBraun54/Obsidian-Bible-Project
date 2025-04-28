@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things I remember, and pour out my soul within me, How I went with the throng, and led them to the house of God, With the voice of joy and praise, a multitude keeping holyday.
+These things I remember, and pour out my soul within me, how I used to go with the crowd, and led them to the house of God, with the voice of joy and praise, a multitude keeping a holy day.

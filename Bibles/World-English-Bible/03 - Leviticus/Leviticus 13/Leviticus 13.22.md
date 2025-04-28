@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it spread abroad in the skin, then the priest shall pronounce him unclean: it is a plague.
+If it spreads in the skin, then the priest shall pronounce him unclean. It is a plague.

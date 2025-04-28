@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not this David, of whom they sang one to another in dances, saying, Saul hath slain his thousands, And David his ten thousands?
+Is not this David, of whom they sang one to another in dances, saying, 'Saul has slain his thousands, David his ten thousands?'"

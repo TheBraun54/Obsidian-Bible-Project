@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of the ground which is cracked, for that no rain hath been in the land, the plowmen are put to shame, they cover their heads.
+Because of the ground which is cracked, because no rain has been in the land, the plowmen are disappointed, they cover their heads.

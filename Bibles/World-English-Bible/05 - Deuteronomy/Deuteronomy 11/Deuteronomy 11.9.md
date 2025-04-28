@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that ye may prolong your days in the land, which Jehovah sware unto your fathers to give unto them and to their seed, a land flowing with milk and honey.
+and that you may prolong your days in the land, which Yahweh swore to your fathers to give to them and to their seed, a land flowing with milk and honey.

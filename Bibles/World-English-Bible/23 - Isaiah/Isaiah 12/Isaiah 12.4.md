@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day shall ye say, Give thanks unto Jehovah, call upon his name, declare his doings among the peoples, make mention that his name is exalted.
+In that day you will say, "Give thanks to Yahweh! Call on his name. Declare his doings among the peoples. Proclaim that his name is exalted!

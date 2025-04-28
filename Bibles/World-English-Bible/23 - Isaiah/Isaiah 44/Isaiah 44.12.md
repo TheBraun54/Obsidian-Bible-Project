@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The smith [maketh] an axe, and worketh in the coals, and fashioneth it with hammers, and worketh it with his strong arm: yea, he is hungry, and his strength faileth; he drinketh no water, and is faint.
+The blacksmith takes an axe, works in the coals, fashions it with hammers, and works it with his strong arm. He is hungry, and his strength fails; he drinks no water, and is faint.

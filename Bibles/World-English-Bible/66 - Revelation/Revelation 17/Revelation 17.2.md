@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with whom the kings of the earth committed fornication, and they that dwell in the earth were made drunken with the wine of her fornication.
+with whom the kings of the earth committed sexual immorality, and those who dwell in the earth were made drunken with the wine of her sexual immorality."

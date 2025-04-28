@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wast perfect in thy ways from the day that thou wast created, till unrighteousness was found in thee.
+You were perfect in your ways from the day that you were created, until unrighteousness was found in you.

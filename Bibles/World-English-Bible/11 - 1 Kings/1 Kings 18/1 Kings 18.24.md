@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And call ye on the name of your god, and I will call on the name of Jehovah; and the God that answereth by fire, let him be God. And all the people answered and said, It is well spoken.
+You call on the name of your god, and I will call on the name of Yahweh. The God who answers by fire, let him be God." All the people answered, "It is well said."

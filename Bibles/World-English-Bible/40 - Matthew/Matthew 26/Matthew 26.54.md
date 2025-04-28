@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How then should the scriptures be fulfilled that thus it must be?
+How then would the Scriptures be fulfilled that it must be so?"

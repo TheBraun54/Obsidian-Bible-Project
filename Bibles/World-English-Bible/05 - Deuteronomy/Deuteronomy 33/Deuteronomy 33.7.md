@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is [the blessing] of Judah: and he said, Hear, Jehovah, the voice of Judah, And bring him in unto his people. With his hands he contended for himself; And thou shalt be a help against his adversaries.
+This is [the blessing] of Judah: and he said, "Hear, Yahweh, the voice of Judah. Bring him in to his people. With his hands he contended for himself. You shall be a help against his adversaries."

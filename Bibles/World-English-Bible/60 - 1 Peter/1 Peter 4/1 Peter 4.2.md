@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye no longer should live the rest of your time in the flesh to the lusts of men, but to the will of God.
+that you no longer should live the rest of your time in the flesh for the lusts of men, but for the will of God.

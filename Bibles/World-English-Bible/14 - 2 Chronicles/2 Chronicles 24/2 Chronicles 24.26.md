@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are they that conspired against him: Zabad the son of Shimeath the Ammonitess, and Jehozabad the son of Shimrith the Moabitess.
+These are those who conspired against him: Zabad the son of Shimeath the Ammonitess, and Jehozabad the son of Shimrith the Moabitess.

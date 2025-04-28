@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give this people favor in the sight of the Egyptians: and it shall come to pass, that, when ye go, ye shall not go empty:
+I will give this people favor in the sight of the Egyptians, and it will happen that when you go, you shall not go empty-handed.

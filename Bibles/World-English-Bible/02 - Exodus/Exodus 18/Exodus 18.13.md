@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that Moses sat to judge the people: and the people stood about Moses from the morning unto the evening.
+It happened on the next day, that Moses sat to judge the people, and the people stood around Moses from the morning to the evening.

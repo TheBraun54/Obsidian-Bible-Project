@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be pleased, O Jehovah, to deliver me: Make haste to help me, O Jehovah.
+Be pleased, Yahweh, to deliver me. Hurry to help me, Yahweh.

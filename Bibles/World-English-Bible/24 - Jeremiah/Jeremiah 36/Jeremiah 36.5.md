@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeremiah commanded Baruch, saying, I am shut up; I cannot go into the house of Jehovah:
+Jeremiah commanded Baruch, saying, I am shut up; I can't go into the house of Yahweh:

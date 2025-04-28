@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But beware of men: for they will deliver you up to councils, and in theirs synagogues they will scourge you;
+But beware of men: for they will deliver you up to councils, and in their synagogues they will scourge you.

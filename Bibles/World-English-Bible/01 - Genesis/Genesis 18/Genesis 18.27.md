@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, who am but dust and ashes:
+Abraham answered, "See now, I have taken it on myself to speak to the Lord, who am but dust and ashes.

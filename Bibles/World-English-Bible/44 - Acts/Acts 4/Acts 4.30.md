@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-while thy stretchest forth thy hand to heal; and that signs and wonders may be done through the name of thy holy Servant Jesus.
+while you stretch out your hand to heal; and that signs and wonders may be done through the name of your holy Servant Jesus."

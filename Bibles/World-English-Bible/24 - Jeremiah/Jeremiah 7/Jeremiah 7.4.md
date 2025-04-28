@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trust ye not in lying words, saying, The temple of Jehovah, the temple of Jehovah, the temple of Jehovah, are these.
+Don't trust in lying words, saying, The temple of Yahweh, the temple of Yahweh, the temple of Yahweh, are these.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In all labor there is profit; But the talk of the lips [tendeth] only to penury.
+In all hard work there is profit, but the talk of the lips leads only to poverty.

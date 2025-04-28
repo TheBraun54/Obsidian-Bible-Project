@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To do righteousness and justice Is more acceptable to Jehovah than sacrifice.
+To do righteousness and justice is more acceptable to Yahweh than sacrifice.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So we built the wall; and all the wall was joined together unto half [the height] thereof: for the people had a mind to work.
+So we built the wall; and all the wall was joined together to half [the height] of it: for the people had a mind to work.

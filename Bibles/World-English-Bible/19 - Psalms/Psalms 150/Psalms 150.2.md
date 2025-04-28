@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise him for his mighty acts: Praise him according to his excellent greatness.
+Praise him for his mighty acts! Praise him according to his excellent greatness!

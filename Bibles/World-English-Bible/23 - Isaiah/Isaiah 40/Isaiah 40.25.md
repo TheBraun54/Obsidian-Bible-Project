@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom then will ye liken me, that I should be equal [to him] ? saith the Holy One.
+"To whom then will you liken me? Who is my equal?" says the Holy One.

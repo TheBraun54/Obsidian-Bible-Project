@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but shall minister with their brethren in the tent of meeting, to keep the charge, and shall do no service. Thus shalt thou do unto the Levites touching their charges.
+but shall minister with their brothers in the Tent of Meeting, to perform the duty, and shall do no service. You shall do thus to the Levites concerning their duties."

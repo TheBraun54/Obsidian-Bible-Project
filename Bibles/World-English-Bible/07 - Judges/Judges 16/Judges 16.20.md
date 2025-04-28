@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, The Philistines are upon thee, Samson. And he awoke out of his sleep, and said, I will go out as at other times, and shake myself free. But he knew not that Jehovah was departed from him.
+She said, "The Philistines are upon you, Samson!" He awoke out of his sleep, and said, "I will go out as at other times, and shake myself free." But he didn't know that Yahweh had departed from him.

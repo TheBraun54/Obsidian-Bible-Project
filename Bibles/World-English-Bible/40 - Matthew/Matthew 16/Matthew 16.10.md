@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither the seven loaves of the four thousand, and how many baskets ye took up?
+Nor the seven loaves for the four thousand, and how many baskets you took up?

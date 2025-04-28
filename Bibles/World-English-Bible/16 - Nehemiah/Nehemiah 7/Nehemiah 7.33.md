@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of the other Nebo, fifty and two.
+The men of the other Nebo, fifty-two.

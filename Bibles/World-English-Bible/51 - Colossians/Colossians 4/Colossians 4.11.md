@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jesus that is called Justus, who are of the circumcision: these only [are my] fellow-workers unto the kingdom of God, men that have been a comfort unto me.
+and Jesus who is called Justus. These are my only fellow workers for the Kingdom of God who are of the circumcision, men who have been a comfort to me.

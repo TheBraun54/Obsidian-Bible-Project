@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And did eat up every herb in their land, And did eat up the fruit of their ground.
+ate up every plant in their land; and ate up the fruit of their ground.

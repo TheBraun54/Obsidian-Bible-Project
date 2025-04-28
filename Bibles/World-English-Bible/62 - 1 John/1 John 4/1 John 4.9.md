@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Herein was the love of God manifested in us, that God hath sent his only begotten Son into the world that we might live through him.
+By this God's love was revealed in us, that God has sent his one and only Son into the world that we might live through him.

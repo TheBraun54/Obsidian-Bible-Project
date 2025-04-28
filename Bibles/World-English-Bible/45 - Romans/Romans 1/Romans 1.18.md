@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men, who hinder the truth in unrighteousness;
+For the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men, who suppress the truth in unrighteousness,

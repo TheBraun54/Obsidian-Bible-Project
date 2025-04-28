@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will show wonders in the heavens and in the earth: blood, and fire, and pillars of smoke.
+I will show wonders in the heavens and in the earth: blood, fire, and pillars of smoke.

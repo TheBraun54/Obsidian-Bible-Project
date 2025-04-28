@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he shall build a house for my name; and he shall be my son, and I will be his father; and I will establish the throne of his kingdom over Israel for ever.
+He shall build a house for my name; and he shall be my son, and I will be his father; and I will establish the throne of his kingdom over Israel for ever.'

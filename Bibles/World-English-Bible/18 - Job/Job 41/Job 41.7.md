@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou fill his skin with barbed irons, Or his head with fish-spears?
+Can you fill his skin with barbed irons, or his head with fish spears?

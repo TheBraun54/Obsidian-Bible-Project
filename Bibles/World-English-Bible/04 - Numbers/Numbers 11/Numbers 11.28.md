@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua the son of Nun, the minister of Moses, one of his chosen men, answered and said, My lord Moses, forbid them.
+Joshua the son of Nun, the servant of Moses, one of his chosen men, answered, "My lord Moses, forbid them!"

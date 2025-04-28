@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as these went their way, Jesus began to say unto the multitudes concerning John, What went ye out into the wilderness to behold? a reed shaken with the wind?
+As these went their way, Jesus began to say to the multitudes concerning John, "What did you go out into the wilderness to see? A reed shaken by the wind?

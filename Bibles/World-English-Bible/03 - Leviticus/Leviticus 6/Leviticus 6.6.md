@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall bring his trespass-offering unto Jehovah, a ram without blemish out of the flock, according to thy estimation, for a trespass-offering, unto the priest:
+He shall bring his trespass offering to Yahweh, a ram without blemish from the flock, according to your estimation, for a trespass offering, to the priest.

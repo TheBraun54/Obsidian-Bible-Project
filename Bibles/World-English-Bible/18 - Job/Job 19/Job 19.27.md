@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whom I, even I, shall see, on my side, And mine eyes shall behold, and not as a stranger. My heart is consumed within me.
+Whom I, even I, shall see on my side. My eyes shall see, and not as a stranger. "My heart is consumed within me.

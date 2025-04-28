@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the names of the mighty men whom David had: Josheb-basshebeth a Tahchemonite, chief of the captains; the same was Adino the Eznite, against eight hundred slain at one time.
+These are the names of the mighty men whom David had: Josheb Basshebeth a Tahchemonite, chief of the captains; the same was Adino the Eznite, against eight hundred slain at one time.

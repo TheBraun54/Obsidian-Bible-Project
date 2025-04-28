@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-among whom was Mary Magdalene, and Mary the mother of James and Joses, and the mother of the sons of Zebedee.
+Among them were Mary Magdalene, Mary the mother of James and Joses, and the mother of the sons of Zebedee.

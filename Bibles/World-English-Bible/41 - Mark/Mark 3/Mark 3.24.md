@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a kingdom be divided against itself, that kingdom cannot stand.
+If a kingdom is divided against itself, that kingdom cannot stand.

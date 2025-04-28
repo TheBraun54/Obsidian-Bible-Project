@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the three sons of Zeruiah were there, Joab, and Abishai, and Asahel: and Asahel was as light of foot as a wild roe.
+The three sons of Zeruiah were there, Joab, and Abishai, and Asahel: and Asahel was as light of foot as a wild gazelle.

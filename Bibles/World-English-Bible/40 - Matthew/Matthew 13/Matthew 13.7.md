@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And others fell upon the thorns; and the thorns grew up and choked them:
+Others fell among thorns. The thorns grew up and choked them.

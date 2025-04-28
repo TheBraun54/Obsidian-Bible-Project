@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, Cast [lots] between me and Jonathan my son. And Jonathan was taken.
+Saul said, "Cast lots between me and Jonathan my son." Jonathan was selected.

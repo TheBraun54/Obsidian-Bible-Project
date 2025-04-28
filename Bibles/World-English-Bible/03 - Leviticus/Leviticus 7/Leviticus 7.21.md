@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when any one shall touch any unclean thing, the uncleanness of man, or an unclean beast, or any unclean abomination, and eat of the flesh of the sacrifice of peace-offerings, which pertain unto Jehovah, that soul shall be cut off from his people.
+When anyone touches any unclean thing, the uncleanness of man, or an unclean animal, or any unclean abomination, and eats some of the flesh of the sacrifice of peace offerings, which belong to Yahweh, that soul shall be cut off from his people.'"

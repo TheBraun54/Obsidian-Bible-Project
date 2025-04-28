@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by chance a certain priest was going down that way: and when he saw him, he passed by on the other side.
+By chance a certain priest was going down that way. When he saw him, he passed by on the other side.

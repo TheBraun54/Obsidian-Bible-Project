@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall thy lovingkindness be declared in the grave? Or thy faithfulness in Destruction?
+Is your loving kindness declared in the grave? Or your faithfulness in Destruction?

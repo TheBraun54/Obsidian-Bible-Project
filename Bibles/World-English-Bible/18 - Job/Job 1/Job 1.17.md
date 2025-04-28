@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he was yet speaking, there came also another, and said, The Chaldeans made three bands, and fell upon the camels, and have taken them away, yea, and slain the servants with the edge of the sword; and I only am escaped alone to tell thee.
+While he was still speaking, there came also another, and said, "The Chaldeans made three bands, and swept down on the camels, and have taken them away, yes, and killed the servants with the edge of the sword; and I alone have escaped to tell you."

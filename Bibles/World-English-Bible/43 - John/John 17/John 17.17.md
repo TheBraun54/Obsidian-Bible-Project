@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sanctify them in the truth: thy word is truth.
+Sanctify them in your truth. Your word is truth.

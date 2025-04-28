@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though our iniquities testify against us, work thou for thy name's sake, O Jehovah; for our backslidings are many; we have sinned against thee.
+Though our iniquities testify against us, work for your name's sake, Yahweh; for our backslidings are many; we have sinned against you.

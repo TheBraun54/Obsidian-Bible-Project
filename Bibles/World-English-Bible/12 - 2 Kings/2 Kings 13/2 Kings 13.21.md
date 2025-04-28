@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as they were burying a man, that, behold, they spied a band; and they cast the man into the sepulchre of Elisha: and as soon as the man touched the bones of Elisha, he revived, and stood up on his feet.
+It happened, as they were burying a man, that behold, they spied a band; and they cast the man into the tomb of Elisha: and as soon as the man touched the bones of Elisha, he revived, and stood up on his feet.

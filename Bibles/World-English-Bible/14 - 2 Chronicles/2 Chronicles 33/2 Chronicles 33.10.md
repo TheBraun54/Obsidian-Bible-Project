@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake to Manasseh, and to his people; but they gave no heed.
+Yahweh spoke to Manasseh, and to his people; but they gave no heed.

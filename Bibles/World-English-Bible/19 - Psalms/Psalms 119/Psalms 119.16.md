@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will delight myself in thy statutes: I will not forget thy word.
+I will delight myself in your statutes. I will not forget your word. GIMEL

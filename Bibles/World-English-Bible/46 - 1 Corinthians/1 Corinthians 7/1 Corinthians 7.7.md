@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet I would that all men were even as I myself. Howbeit each man hath his own gift from God, one after this manner, and another after that.
+Yet I wish that all men were like me. However each man has his own gift from God, one of this kind, and another of that kind.

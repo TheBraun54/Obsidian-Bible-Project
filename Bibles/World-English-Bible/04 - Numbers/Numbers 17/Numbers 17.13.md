@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one that cometh near, that cometh near unto the tabernacle of Jehovah, dieth: shall we perish all of us?
+Everyone who comes near, who comes near to the tabernacle of Yahweh, dies! Will we all perish?"

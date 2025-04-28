@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know thy tribulation, and thy poverty (but thou art rich), and the blasphemy of them that say they are Jews, and they art not, but are a synagogue of Satan.
+"I know your works, oppression, and your poverty (but you are rich), and the blasphemy of those who say they are Jews, and they are not, but are a synagogue of Satan.

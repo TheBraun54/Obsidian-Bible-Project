@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Repent ye; for the kingdom of heaven is at hand.
+"Repent, for the Kingdom of Heaven is at hand!"

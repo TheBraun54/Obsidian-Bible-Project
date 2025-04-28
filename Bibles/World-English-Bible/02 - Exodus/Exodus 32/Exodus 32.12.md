@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore should the Egyptians speak, saying, For evil did he bring them forth, to slay them in the mountains, and to consume them from the face of the earth? Turn from thy fierce wrath, and repent of this evil against thy people.
+Why should the Egyptians speak, saying, 'He brought them forth for evil, to kill them in the mountains, and to consume them from the surface of the earth?' Turn from your fierce wrath, and repent of this evil against your people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will ransom them from the power of Sheol; I will redeem them from death: O death, where are thy plagues? O Sheol, where is thy destruction? repentance shall be hid from mine eyes.
+I will ransom them from the power of Sheol. I will redeem them from death! Death, where are your plagues? Sheol, where is your destruction? "Compassion will be hidden from my eyes.

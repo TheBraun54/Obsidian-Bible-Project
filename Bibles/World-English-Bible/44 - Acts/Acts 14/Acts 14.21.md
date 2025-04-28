@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had preached the gospel to that city, and had made many disciples, they returned to Lystra, and to Iconium, and to Antioch,
+When they had preached the Good News to that city, and had made many disciples, they returned to Lystra, Iconium, and Antioch,

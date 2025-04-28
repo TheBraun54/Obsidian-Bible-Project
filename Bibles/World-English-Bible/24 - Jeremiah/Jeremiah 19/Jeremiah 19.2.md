@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and go forth unto the valley of the son of Hinnom, which is by the entry of the gate Harsith, and proclaim there the words that I shall tell thee;
+and go forth to the valley of the son of Hinnom, which is by the entry of the gate Harsith, and proclaim there the words that I shall tell you;

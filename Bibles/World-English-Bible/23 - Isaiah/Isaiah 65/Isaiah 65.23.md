@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not labor in vain, nor bring forth for calamity; for they are the seed of the blessed of Jehovah, and their offspring with them.
+They shall not labor in vain, nor bring forth for calamity; for they are the seed of the blessed of Yahweh, and their offspring with them.

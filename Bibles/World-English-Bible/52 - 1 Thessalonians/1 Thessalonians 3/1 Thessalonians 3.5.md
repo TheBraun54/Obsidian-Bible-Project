@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause I also, when I could no longer forbear, sent that I might know your faith, lest by any means the tempter had tempted you, and our labor should be in vain.
+For this cause I also, when I couldn't stand it any longer, sent that I might know your faith, for fear that by any means the tempter had tempted you, and our labor would have been in vain.

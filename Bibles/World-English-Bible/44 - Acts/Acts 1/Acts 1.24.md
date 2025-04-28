@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they prayed, and said, Thou, Lord, who knowest the hearts of all men, show of these two the one whom thou hast chosen,
+They prayed, and said, "You, Lord, who know the hearts of all men, show which one of these two you have chosen

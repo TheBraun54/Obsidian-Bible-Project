@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hear thou from heaven, even from thy dwelling-place, their prayer and their supplications, and maintain their cause, and forgive thy people who have sinned against thee.
+then hear from heaven, even from your dwelling place, their prayer and their petitions, and maintain their cause, and forgive your people who have sinned against you.

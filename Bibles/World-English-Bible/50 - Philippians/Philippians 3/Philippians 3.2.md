@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware of the dogs, beware of the evil workers, beware of the concision:
+Beware of the dogs, beware of the evil workers, beware of the false circumcision.

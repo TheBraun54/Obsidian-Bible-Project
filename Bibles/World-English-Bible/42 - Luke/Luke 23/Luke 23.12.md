@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Herod and Pilate became friends with each other that very day: for before they were at enmity between themselves.
+Herod and Pilate became friends with each other that very day, for before that they were enemies with each other.

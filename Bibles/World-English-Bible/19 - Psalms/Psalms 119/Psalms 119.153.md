@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-RESH. Consider mine affliction, and deliver me; For I do not forget thy law.
+Consider my affliction, and deliver me, for I don't forget your law.

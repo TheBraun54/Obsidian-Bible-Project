@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will establish my covenant between me and thee and thy seed after thee throughout their generations for an everlasting covenant, to be a God unto thee and to thy seed after thee.
+I will establish my covenant between me and you and your seed after you throughout their generations for an everlasting covenant, to be a God to you and to your seed after you.

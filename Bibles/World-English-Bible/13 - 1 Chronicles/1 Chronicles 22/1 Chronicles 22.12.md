@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only Jehovah give thee discretion and understanding, and give thee charge concerning Israel; that so thou mayest keep the law of Jehovah thy God.
+May Yahweh give you discretion and understanding, and put you in charge of Israel; that so you may keep the law of Yahweh your God.

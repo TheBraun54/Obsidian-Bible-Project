@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was sore war against the Philistines all the days of Saul: and when Saul saw any mighty man, or any valiant man, he took him unto him.
+There was severe war against the Philistines all the days of Saul: and when Saul saw any mighty man, or any valiant man, he took him to him.

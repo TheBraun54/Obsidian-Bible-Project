@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he putteth no trust in his holy ones; Yea, the heavens are not clean in his sight:
+Behold, he puts no trust in his holy ones. Yes, the heavens are not clean in his sight;

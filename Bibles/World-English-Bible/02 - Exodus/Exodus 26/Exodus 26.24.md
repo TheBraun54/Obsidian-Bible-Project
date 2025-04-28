@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall be double beneath, and in like manner they shall be entire unto the top thereof unto one ring: thus shall it be for them both; they shall be for the two corners.
+They shall be double beneath, and in the same way they shall be whole to its top to one ring: thus shall it be for them both; they shall be for the two corners.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, all ye yourselves have seen it; Why then are ye become altogether vain?
+Behold, all of you have seen it yourselves; why then have you become altogether vain?

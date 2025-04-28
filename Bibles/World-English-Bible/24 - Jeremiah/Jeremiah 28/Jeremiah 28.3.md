@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Within two full years will I bring again into this place all the vessels of Jehovah's house, that Nebuchadnezzar king of Babylon took away from this place, and carried to Babylon:
+Within two full years will I bring again into this place all the vessels of Yahweh's house, that Nebuchadnezzar king of Babylon took away from this place, and carried to Babylon:

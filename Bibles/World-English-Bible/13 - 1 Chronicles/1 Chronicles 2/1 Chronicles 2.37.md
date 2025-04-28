@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zabad begat Ephlal, and Ephlal begat Obed,
+and Zabad became the father of Ephlal, and Ephlal became the father of Obed,

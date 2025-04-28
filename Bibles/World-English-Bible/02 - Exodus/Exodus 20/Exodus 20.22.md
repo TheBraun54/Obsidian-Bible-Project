@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Thus thou shalt say unto the children of Israel, Ye yourselves have seen that I have talked with you from heaven.
+Yahweh said to Moses, "This is what you shall tell the children of Israel: 'You yourselves have seen that I have talked with you from heaven.

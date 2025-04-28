@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou exalted, O Jehovah, in thy strength: So will we sing and praise thy power.
+Be exalted, Yahweh, in your strength, so we will sing and praise your power. For the Chief Musician; set to "The Doe of the Morning." A Psalm by David.

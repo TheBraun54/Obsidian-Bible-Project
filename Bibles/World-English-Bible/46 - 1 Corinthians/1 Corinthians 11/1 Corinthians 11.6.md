@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if a woman is not veiled, let her also be shorn: but if it is a shame to a woman to be shorn or shaven, let her be veiled.
+For if a woman is not covered, let her also be shorn. But if it is shameful for a woman to be shorn or shaved, let her be covered.

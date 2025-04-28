@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for your fellowship in furtherance of the gospel from the first day until now;
+for your partnership in furtherance of the Good News from the first day until now;

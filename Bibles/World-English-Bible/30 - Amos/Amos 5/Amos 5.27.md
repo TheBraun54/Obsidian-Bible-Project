@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will I cause you to go into captivity beyond Damascus, saith Jehovah, whose name is the God of hosts.
+Therefore will I cause you to go into captivity beyond Damascus," says Yahweh, whose name is the God of Armies.

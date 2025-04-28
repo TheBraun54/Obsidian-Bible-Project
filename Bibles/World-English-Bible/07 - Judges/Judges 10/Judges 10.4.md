@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had thirty sons that rode on thirty ass colts, and they had thirty cities, which are called Havvoth-jair unto this day, which are in the land of Gilead.
+He had thirty sons who rode on thirty donkey colts, and they had thirty cities, which are called Havvoth Jair to this day, which are in the land of Gilead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when they heard [this], they were pricked in their heart, and said unto Peter and the rest of the apostles, Brethren, what shall we do?
+Now when they heard this, they were cut to the heart, and said to Peter and the rest of the apostles, "Brothers, what shall we do?"

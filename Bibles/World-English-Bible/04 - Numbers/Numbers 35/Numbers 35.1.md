@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses in the plains of Moab by the Jordan at Jericho, saying,
+Yahweh spoke to Moses in the plains of Moab by the Jordan at Jericho, saying,

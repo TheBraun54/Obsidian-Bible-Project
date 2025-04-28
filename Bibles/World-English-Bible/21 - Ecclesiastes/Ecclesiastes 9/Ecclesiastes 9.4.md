@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For to him that is joined with all the living there is hope; for a living dog is better than a dead lion.
+For to him who is joined with all the living there is hope; for a living dog is better than a dead lion.

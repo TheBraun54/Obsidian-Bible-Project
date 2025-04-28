@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Jehovah was very angry with Israel, and removed them out of his sight: there was none left but the tribe of Judah only.
+Therefore Yahweh was very angry with Israel, and removed them out of his sight: there was none left but the tribe of Judah only.

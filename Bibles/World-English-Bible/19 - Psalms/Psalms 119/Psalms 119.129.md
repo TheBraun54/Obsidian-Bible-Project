@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-PE. Thy testimonies are wonderful; Therefore doth my soul keep them.
+Your testimonies are wonderful, therefore my soul keeps them.

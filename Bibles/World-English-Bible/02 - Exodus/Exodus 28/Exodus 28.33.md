@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon the skirts of it thou shalt make pomegranates of blue, and of purple, and of scarlet, round about the skirts thereof; and bells of gold between them round about:
+On its hem you shall make pomegranates of blue, and of purple, and of scarlet, around its hem; and bells of gold between and around them:

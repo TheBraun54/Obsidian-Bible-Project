@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bind them upon thy fingers; Write them upon the tablet of thy heart.
+Bind them on your fingers. Write them on the tablet of your heart.

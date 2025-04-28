@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lines are fallen unto me in pleasant places; Yea, I have a goodly heritage.
+The lines have fallen to me in pleasant places. Yes, I have a good inheritance.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Abram was ninety years old and nine, Jehovah appeared to Abram, and said unto him, I am God Almighty; walk before me, and be thou perfect.
+When Abram was ninety-nine years old, Yahweh appeared to Abram, and said to him, "I am God Almighty. Walk before me, and be blameless.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Heal the sick, raise the dead, cleanse the lepers, cast out demons: freely ye received, freely give.
+Heal the sick, cleanse the lepers, and cast out demons. Freely you received, so freely give.

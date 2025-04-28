@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I gave thee thy master's house, and thy master's wives into thy bosom, and gave thee the house of Israel and of Judah; and if that had been too little, I would have added unto thee such and such things.
+I gave you your master's house, and your master's wives into your bosom, and gave you the house of Israel and of Judah; and if that would have been too little, I would have added to you many more such things.

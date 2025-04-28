@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I exhorted Titus, and I sent the brother with him. Did Titus take any advantage of you? walked we not in the same spirit? [walked we] not in the same steps?
+I exhorted Titus, and I sent the brother with him. Did Titus take any advantage of you? Didn't we walk in the same spirit? Didn't we walk in the same steps?

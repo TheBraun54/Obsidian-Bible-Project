@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which is crooked cannot be made straight; and that which is wanting cannot be numbered.
+That which is crooked can't be made straight; and that which is lacking can't be counted.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thieves came to thee, if robbers by night (how art thou cut off!), would they not steal [only] till they had enough? if grape-gatherers came to thee, would they not leave some gleaning grapes?
+"If thieves came to you, if robbers by night--oh, what disaster awaits you--wouldn't they only steal until they had enough? If grape pickers came to you, wouldn't they leave some gleaning grapes?

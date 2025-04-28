@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Watch and pray, that ye enter not into temptation: the spirit indeed is willing, but the flesh is weak.
+Watch and pray, that you don't enter into temptation. The spirit indeed is willing, but the flesh is weak."

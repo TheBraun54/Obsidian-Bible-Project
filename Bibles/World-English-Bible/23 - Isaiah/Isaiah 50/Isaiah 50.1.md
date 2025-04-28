@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Where is the bill of your mother's divorcement, wherewith I have put her away? or which of my creditors is it to whom I have sold you? Behold, for your iniquities were ye sold, and for your transgressions was your mother put away.
+Thus says Yahweh, "Where is the bill of your mother's divorce, with which I have put her away? or which of my creditors is it to whom I have sold you? Behold, for your iniquities were you sold, and for your transgressions was your mother put away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus were both the daughters of Lot with child by their father.
+Thus both of Lot's daughters were with child by their father.

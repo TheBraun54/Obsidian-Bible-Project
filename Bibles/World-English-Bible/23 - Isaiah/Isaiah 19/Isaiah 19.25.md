@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for that Jehovah of hosts hath blessed them, saying, Blessed be Egypt my people, and Assyria the work of my hands, and Israel mine inheritance.
+because Yahweh of Armies has blessed them, saying, "Blessed be Egypt my people, Assyria the work of my hands, and Israel my inheritance."

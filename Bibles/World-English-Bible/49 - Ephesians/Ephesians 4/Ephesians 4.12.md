@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the perfecting of the saints, unto the work of ministering, unto the building up of the body of Christ:
+for the perfecting of the saints, to the work of serving, to the building up of the body of Christ;

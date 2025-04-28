@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Go in unto Pharaoh: for I have hardened his heart, and the heart of his servants, that I may show these my signs in the midst of them,
+Yahweh said to Moses, "Go in to Pharaoh, for I have hardened his heart, and the heart of his servants, that I may show these my signs in the midst of them,

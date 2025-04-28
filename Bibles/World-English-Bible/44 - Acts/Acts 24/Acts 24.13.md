@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither can they prove to thee the things whereof they now accuse me.
+Nor can they prove to you the things of which they now accuse me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their line is gone out through all the earth, And their words to the end of the world. In them hath he set a tabernacle for the sun,
+Their voice has gone out through all the earth, their words to the end of the world. In them he has set a tent for the sun,

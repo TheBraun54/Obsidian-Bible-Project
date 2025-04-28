@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-inasmuch as he hath appointed a day in which he will judge the world in righteousness by the man whom he hath ordained; whereof he hath given assurance unto all men, in that he hath raised him from the dead.
+because he has appointed a day in which he will judge the world in righteousness by the man whom he has ordained; of which he has given assurance to all men, in that he has raised him from the dead."

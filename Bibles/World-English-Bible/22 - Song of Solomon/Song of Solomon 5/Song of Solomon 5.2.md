@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was asleep, but my heart waked: It is the voice of my beloved that knocketh, [saying], Open to me, my sister, my love, my dove, my undefiled; For my head is filled with dew, My locks with the drops of the night.
+I was asleep, but my heart was awake. It is the voice of my beloved who knocks: "Open to me, my sister, my love, my dove, my undefiled; for my head is filled with dew, and my hair with the dampness of the night."

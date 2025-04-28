@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And walking by the sea of Galilee, he saw two brethren, Simon who is called Peter, and Andrew his brother, casting a net into the sea; for they were fishers.
+Walking by the sea of Galilee, he saw two brothers: Simon, who is called Peter, and Andrew, his brother, casting a net into the sea; for they were fishermen.

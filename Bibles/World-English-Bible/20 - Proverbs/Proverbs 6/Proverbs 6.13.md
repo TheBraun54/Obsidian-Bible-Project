@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That winketh with his eyes, that speaketh with his feet, That maketh signs with his fingers;
+who winks with his eyes, who signals with his feet, who motions with his fingers;

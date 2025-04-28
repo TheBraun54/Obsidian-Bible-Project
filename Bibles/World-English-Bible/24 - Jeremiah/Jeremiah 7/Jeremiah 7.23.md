@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but this thing I commanded them, saying, Hearken unto my voice, and I will be your God, and ye shall be my people; and walk ye in all the way that I command you, that it may be well with you.
+but this thing I commanded them, saying, Listen to my voice, and I will be your God, and you shall be my people; and walk in all the way that I command you, that it may be well with you.

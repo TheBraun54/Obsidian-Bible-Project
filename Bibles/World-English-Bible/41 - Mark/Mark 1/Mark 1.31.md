@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he came and took her by the hand, and raised her up; and the fever left her, and she ministered unto them.
+He came and took her by the hand, and raised her up. The fever left her, and she served them.

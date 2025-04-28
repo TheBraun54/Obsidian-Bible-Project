@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fight the good fight of the faith, lay hold on the life eternal, whereunto thou wast called, and didst confess the good confession in the sight of many witnesses.
+Fight the good fight of faith. Lay hold of the eternal life to which you were called, and you confessed the good confession in the sight of many witnesses.

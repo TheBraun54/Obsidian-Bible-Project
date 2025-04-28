@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, I pray thee, give pledges to my master the king of Assyria, and I will give thee two thousand horses, if thou be able on thy part to set riders upon them.
+Now therefore, please give pledges to my master the king of Assyria, and I will give you two thousand horses, if you are able on your part to set riders on them.

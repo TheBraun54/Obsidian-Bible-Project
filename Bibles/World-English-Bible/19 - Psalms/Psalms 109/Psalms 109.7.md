@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he is judged, let him come forth guilty; And let his prayer be turned into sin.
+When he is judged, let him come forth guilty. Let his prayer be turned into sin.

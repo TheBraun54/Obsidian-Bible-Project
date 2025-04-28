@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teach us what we shall say unto him; [For] we cannot set [our speech] in order by reason of darkness.
+Teach us what we shall tell him, for we can't make our case by reason of darkness.

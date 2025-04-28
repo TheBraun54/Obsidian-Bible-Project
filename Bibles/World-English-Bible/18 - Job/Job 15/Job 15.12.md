@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why doth thy heart carry thee away? And why do thine eyes flash,
+Why does your heart carry you away? Why do your eyes flash,

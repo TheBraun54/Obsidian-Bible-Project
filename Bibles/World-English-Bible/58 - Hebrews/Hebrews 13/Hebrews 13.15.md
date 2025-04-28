@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through him then let us offer up a sacrifice of praise to God continually, that is, the fruit of lips which make confession to his name.
+Through him, then, let us offer up a sacrifice of praise to God continually, that is, the fruit of lips which proclaim allegiance to his name.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the end of the charge is love out of a pure heart and a good conscience and faith unfeigned:
+but the goal of this command is love, out of a pure heart and a good conscience and sincere faith;

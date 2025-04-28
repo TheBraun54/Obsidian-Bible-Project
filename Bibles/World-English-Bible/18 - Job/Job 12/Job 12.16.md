@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With him is strength and wisdom; The deceived and the deceiver are his.
+With him is strength and wisdom. The deceived and the deceiver are his.

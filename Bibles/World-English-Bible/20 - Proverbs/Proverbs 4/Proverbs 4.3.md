@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I was a son unto my father, Tender and only beloved in the sight of my mother.
+For I was a son to my father, tender and an only child in the sight of my mother.

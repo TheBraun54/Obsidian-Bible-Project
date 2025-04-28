@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I trod down the peoples in mine anger, and made them drunk in my wrath, and I poured out their lifeblood on the earth.
+I trod down the peoples in my anger, and made them drunk in my wrath, and I poured out their lifeblood on the earth."

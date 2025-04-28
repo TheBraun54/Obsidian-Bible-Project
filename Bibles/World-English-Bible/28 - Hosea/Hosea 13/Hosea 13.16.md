@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Samaria shall bear her guilt; for she hath rebelled against her God: they shall fall by the sword; their infants shall be dashed in pieces, and their women with child shall be ripped up.
+Samaria will bear her guilt; for she has rebelled against her God. They will fall by the sword. Their infants will be dashed in pieces, and their pregnant women will be ripped open."

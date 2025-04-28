@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have seen thy goings, O God, Even the goings of my God, my King, into the sanctuary.
+They have seen your processions, God, even the processions of my God, my King, into the sanctuary.

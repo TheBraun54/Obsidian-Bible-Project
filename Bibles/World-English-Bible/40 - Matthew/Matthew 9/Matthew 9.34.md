@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Pharisees said, By the prince of the demons casteth he out demons.
+But the Pharisees said, "By the prince of the demons, he casts out demons."

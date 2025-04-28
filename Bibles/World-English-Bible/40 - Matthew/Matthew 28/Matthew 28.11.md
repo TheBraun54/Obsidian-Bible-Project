@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now while they were going, behold, some of the guard came into the city, and told unto the chief priests all the things that were come to pass.
+Now while they were going, behold, some of the guards came into the city, and told the chief priests all the things that had happened.

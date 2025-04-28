@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the afflicted people thou wilt save; But thine eyes are upon the haughty, that thou mayest bring them down.
+You will save the afflicted people, But your eyes are on the haughty, that you may bring them down.

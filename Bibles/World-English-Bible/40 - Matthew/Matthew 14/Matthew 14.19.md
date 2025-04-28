@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded the multitudes to sit down on the grass; and he took the five loaves, and the two fishes, and looking up to heaven, he blessed, and brake and gave the loaves to the disciples, and the disciples to the multitudes.
+He commanded the multitudes to sit down on the grass; and he took the five loaves and the two fish, and looking up to heaven, he blessed, broke and gave the loaves to the disciples, and the disciples gave to the multitudes.

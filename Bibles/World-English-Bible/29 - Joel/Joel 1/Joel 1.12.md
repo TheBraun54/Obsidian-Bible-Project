@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The vine is withered, and the fig-tree languisheth; the pomegranate-tree, the palm-tree also, and the apple-tree, even all the trees of the field are withered: for joy is withered away from the sons of men.
+The vine has dried up, and the fig tree withered; the pomegranate tree, the palm tree also, and the apple tree, even all of the trees of the field are withered; for joy has withered away from the sons of men.

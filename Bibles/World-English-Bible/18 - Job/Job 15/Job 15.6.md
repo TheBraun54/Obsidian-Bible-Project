@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine own mouth condemneth thee, and not I; Yea, thine own lips testify against thee.
+Your own mouth condemns you, and not I. Yes, your own lips testify against you.

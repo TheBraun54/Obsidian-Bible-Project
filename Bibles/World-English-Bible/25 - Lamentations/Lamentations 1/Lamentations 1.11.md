@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All her people sigh, they seek bread; They have given their pleasant things for food to refresh the soul: See, O Jehovah, and behold; for I am become abject.
+All her people sigh, they seek bread; they have given their pleasant things for food to refresh the soul: look, Yahweh, and see; for I am become abject.

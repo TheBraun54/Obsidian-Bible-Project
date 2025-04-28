@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, This is the blood of the covenant which God commanded to you-ward.
+saying, "This is the blood of the covenant which God has commanded you."

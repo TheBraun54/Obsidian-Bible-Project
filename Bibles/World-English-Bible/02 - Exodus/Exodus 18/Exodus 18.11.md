@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I know that Jehovah is greater than all gods; yea, in the thing wherein they dealt proudly against them.
+Now I know that Yahweh is greater than all gods because of the thing in which they dealt arrogantly against them."

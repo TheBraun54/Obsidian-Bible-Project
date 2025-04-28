@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O God, be not far from me; O my God, make haste to help me.
+God, don't be far from me. My God, hurry to help me.

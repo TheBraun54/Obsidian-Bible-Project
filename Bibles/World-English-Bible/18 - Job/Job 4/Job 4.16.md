@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It stood still, but I could not discern the appearance thereof; A form was before mine eyes: [There was] silence, and I heard a voice, [saying] ,
+It stood still, but I couldn't discern its appearance. A form was before my eyes. Silence, then I heard a voice, saying,

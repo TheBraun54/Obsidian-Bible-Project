@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon the flesh of man shall it not be poured, neither shall ye make any like it, according to the composition thereof: it is holy, [and] it shall be holy unto you.
+It shall not be poured on man's flesh, neither shall you make any like it, according to its composition: it is holy. It shall be holy to you.

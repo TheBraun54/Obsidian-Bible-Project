@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-say ye of him, whom the Father sanctified and sent into the world, Thou blasphemest; because I said, I am [the] Son of God?
+do you say of him whom the Father sanctified and sent into the world, 'You blaspheme,' because I said, 'I am the Son of God?'

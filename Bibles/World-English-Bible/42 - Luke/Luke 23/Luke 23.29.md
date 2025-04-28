@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For behold, the days are coming, in which they shall say, Blessed are the barren, and the wombs that never bare, and the breasts that never gave suck.
+For behold, the days are coming in which they will say, 'Blessed are the barren, the wombs that never bore, and the breasts that never nursed.'

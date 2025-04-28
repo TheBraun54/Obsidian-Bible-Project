@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-always bearing about in the body the dying of Jesus, that the life also of Jesus may be manifested in our body.
+always carrying in the body the putting to death of the Lord Jesus, that the life of Jesus may also be revealed in our body.

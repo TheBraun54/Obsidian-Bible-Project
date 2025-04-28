@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus cried and said, He that believeth on me, believeth not on me, but on him that sent me.
+Jesus cried out and said, "Whoever believes in me, believes not in me, but in him who sent me.

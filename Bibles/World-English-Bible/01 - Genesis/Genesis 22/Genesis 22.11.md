@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah called unto him out of heaven, and said, Abraham, Abraham: and he said, Here I am.
+The angel of Yahweh called to him out of the sky, and said, "Abraham, Abraham!" He said, "Here I am."

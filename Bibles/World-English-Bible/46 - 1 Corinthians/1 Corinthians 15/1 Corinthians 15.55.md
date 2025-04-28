@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O death, where is thy victory? O death, where is thy sting?
+"Death, where is your sting? Hades, where is your victory?"

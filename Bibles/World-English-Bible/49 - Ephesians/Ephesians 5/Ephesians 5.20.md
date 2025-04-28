@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-giving thanks always for all things in the name of our Lord Jesus Christ to God, even the Father;
+giving thanks always concerning all things in the name of our Lord Jesus Christ, to God, even the Father;

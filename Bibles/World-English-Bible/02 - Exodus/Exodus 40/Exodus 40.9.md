@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take the anointing oil, and anoint the tabernacle, and all that is therein, and shalt hallow it, and all the furniture thereof: and it shall be holy.
+"You shall take the anointing oil, and anoint the tabernacle, and all that is in it, and shall make it holy, and all its furniture: and it will be holy.

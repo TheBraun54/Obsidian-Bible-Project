@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O Jehovah, art a shield about me; My glory and the lifter up of my head.
+But you, Yahweh, are a shield around me, my glory, and the one who lifts up my head.

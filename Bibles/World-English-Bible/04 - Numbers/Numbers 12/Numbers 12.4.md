@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake suddenly unto Moses, and unto Aaron, and unto Miriam, Come out ye three unto the tent of meeting. And they three came out.
+Yahweh spoke suddenly to Moses, to Aaron, and to Miriam, "You three come out to the Tent of Meeting!" The three of them came out.

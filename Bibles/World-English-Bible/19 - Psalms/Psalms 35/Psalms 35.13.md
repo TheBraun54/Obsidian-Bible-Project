@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, when they were sick, my clothing was sackcloth: I afflicted my soul with fasting; And my prayer returned into mine own bosom.
+But as for me, when they were sick, my clothing was sackcloth. I afflicted my soul with fasting. My prayer returned into my own bosom.

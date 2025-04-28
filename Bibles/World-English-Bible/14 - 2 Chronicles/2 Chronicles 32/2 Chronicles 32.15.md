@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore let not Hezekiah deceive you, nor persuade you after this manner, neither believe ye him; for no god of any nation or kingdom was able to deliver his people out of my hand, and out of the hand of my fathers: how much less shall your God deliver you out of my hand?
+Now therefore don't let Hezekiah deceive you, nor persuade you in this way, neither believe him; for no god of any nation or kingdom was able to deliver his people out of my hand, and out of the hand of my fathers. How much less will your God deliver you out of my hand?"

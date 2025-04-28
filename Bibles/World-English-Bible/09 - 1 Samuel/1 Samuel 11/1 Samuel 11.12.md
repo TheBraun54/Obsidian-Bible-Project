@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people said unto Samuel, Who is he that said, Shall Saul reign over us? bring the men, that we may put them to death.
+The people said to Samuel, "Who is he who said, 'Shall Saul reign over us?' Bring those men, that we may put them to death!"

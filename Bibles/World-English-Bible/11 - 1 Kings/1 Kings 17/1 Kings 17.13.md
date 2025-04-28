@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah said unto her, Fear not; go and do as thou hast said; but make me thereof a little cake first, and bring it forth unto me, and afterward make for thee and for thy son.
+Elijah said to her, "Don't be afraid. Go and do as you have said; but make me of it a little cake first, and bring it out to me, and afterward make some for you and for your son.

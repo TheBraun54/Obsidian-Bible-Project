@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For through the anger of Jehovah did it come to pass in Jerusalem and Judah, until he had cast them out from his presence. And Zedekiah rebelled against the king of Babylon.
+For through the anger of Yahweh did it happen in Jerusalem and Judah, until he had cast them out from his presence. Zedekiah rebelled against the king of Babylon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to them that were in Hormah, and to them that were in Bor-ashan, and to them that were in Athach,
+and to those who were in Hormah, and to those who were in Borashan, and to those who were in Athach,

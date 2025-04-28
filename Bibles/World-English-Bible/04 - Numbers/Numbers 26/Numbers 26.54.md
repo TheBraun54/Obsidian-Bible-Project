@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the more thou shalt give the more inheritance, and to the fewer thou shalt give the less inheritance: to every one according to those that were numbered of him shall his inheritance be given.
+To the more you shall give the more inheritance, and to the fewer you shall give the less inheritance: to everyone according to those who were numbered of him shall his inheritance be given.

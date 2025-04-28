@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I wept much, because no one was found worthy to open the book, or to look thereon:
+And I wept much, because no one was found worthy to open the book, or to look in it.

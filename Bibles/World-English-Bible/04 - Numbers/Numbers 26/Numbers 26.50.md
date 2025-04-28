@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of Naphtali according to their families; and they that were numbered of them were forty and five thousand and four hundred.
+These are the families of Naphtali according to their families; and those who were numbered of them were forty-five thousand four hundred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews then who were with her in the house, and were consoling her, when they saw Mary, that she rose up quickly and went out, followed her, supposing that she was going unto the tomb to weep there.
+Then the Jews who were with her in the house, and were consoling her, when they saw Mary, that she rose up quickly and went out, followed her, saying, "She is going to the tomb to weep there."

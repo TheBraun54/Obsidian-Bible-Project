@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And working together [with him] we entreat also that ye receive not the grace of God in vain
+Working together, we entreat also that you not receive the grace of God in vain,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast heard it; behold all this; and ye, will ye not declare it? I have showed thee new things from this time, even hidden things, which thou hast not known.
+You have heard it; see all this; and you, will you not declare it? "I have shown you new things from this time, even hidden things, which you have not known.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by knowledge are the chambers filled With all precious and pleasant riches.
+by knowledge the rooms are filled with all rare and beautiful treasure.

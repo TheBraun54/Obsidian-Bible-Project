@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is the message which ye heard from the beginning, that we should love one another:
+For this is the message which you heard from the beginning, that we should love one another;

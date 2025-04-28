@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall bind the breastplate by the rings thereof unto the rings of the ephod with a lace of blue, that it may be upon the skilfully woven band of the ephod, and that the breastplate be not loosed from the ephod.
+They shall bind the breastplate by its rings to the rings of the ephod with a lace of blue, that it may be on the skillfully woven band of the ephod, and that the breastplate may not swing out from the ephod.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levites shall answer, and say unto all the men of Israel with a loud voice,
+The Levites shall answer, and tell all the men of Israel with a loud voice,

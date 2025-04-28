@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that we ourselves glory in you in the churches of God for your patience and faith in all your persecutions and in the afflictions which ye endure;
+so that we ourselves boast about you in the assemblies of God for your patience and faith in all your persecutions and in the afflictions which you endure.

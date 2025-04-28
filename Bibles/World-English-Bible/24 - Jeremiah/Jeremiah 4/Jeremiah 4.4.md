@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Circumcise yourselves to Jehovah, and take away the foreskins of your heart, ye men of Judah and inhabitants of Jerusalem; lest my wrath go forth like fire, and burn so that none can quench it, because of the evil of your doings.
+Circumcise yourselves to Yahweh, and take away the foreskins of your heart, you men of Judah and inhabitants of Jerusalem; lest my wrath go forth like fire, and burn so that none can quench it, because of the evil of your doings.

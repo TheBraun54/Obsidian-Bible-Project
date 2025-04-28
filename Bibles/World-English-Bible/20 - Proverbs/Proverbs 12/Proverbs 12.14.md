@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man shall be satisfied with good by the fruit of his mouth; And the doings of a man's hands shall be rendered unto him.
+A man shall be satisfied with good by the fruit of his mouth. The work of a man's hands shall be rewarded to him.

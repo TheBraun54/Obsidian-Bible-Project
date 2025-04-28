@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore came round about him, and said unto him, How long dost thou hold us in suspense? If thou art the Christ, tell us plainly.
+The Jews therefore came around him and said to him, "How long will you hold us in suspense? If you are the Christ, tell us plainly."

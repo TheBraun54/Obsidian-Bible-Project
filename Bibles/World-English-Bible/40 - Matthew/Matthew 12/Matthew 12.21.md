@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in his name shall the Gentiles hope.
+In his name, the nations will hope."

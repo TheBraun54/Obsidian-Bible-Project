@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy art thou, O Israel: Who is like unto thee, a people saved by Jehovah, The shield of thy help, And the sword of thy excellency! And thine enemies shall submit themselves unto thee; And thou shalt tread upon their high places.
+You are happy, Israel. Who is like you, a people saved by Yahweh, the shield of your help, the sword of your excellency! Your enemies shall submit themselves to you. You shall tread on their high places."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then shall one answer the messengers of the nation? That Jehovah hath founded Zion, and in her shall the afflicted of his people take refuge.
+What will they answer the messengers of the nation? That Yahweh has founded Zion, and in her the afflicted of his people will take refuge.

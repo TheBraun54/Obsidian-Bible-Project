@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will multiply thy seed as the stars of heaven, and will give unto thy seed all these lands; and in thy seed shall all the nations of the earth be blessed;
+I will multiply your seed as the stars of the sky, and will give to your seed all these lands. In your seed will all the nations of the earth be blessed,

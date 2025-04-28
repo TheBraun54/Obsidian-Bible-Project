@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will a lion roar in the forest, when he hath no prey? will a young lion cry out of his den, if he have taken nothing?
+Will a lion roar in the thicket, when he has no prey? Does a young lion cry out of his den, if he has caught nothing?

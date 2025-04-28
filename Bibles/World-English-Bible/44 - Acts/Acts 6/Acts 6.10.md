@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were not able to withstand the wisdom and the Spirit by which he spake.
+They weren't able to withstand the wisdom and the Spirit by which he spoke.

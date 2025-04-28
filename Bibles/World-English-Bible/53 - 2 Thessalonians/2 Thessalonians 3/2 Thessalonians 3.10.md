@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For even when we were with you, this we commanded you, If any will not work, neither let him eat.
+For even when we were with you, we commanded you this: "If anyone will not work, neither let him eat."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief priests and the scribes sought how they might put him to death; for they feared the people.
+The chief priests and the scribes sought how they might put him to death, for they feared the people.

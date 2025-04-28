@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by thy great wisdom [and] by thy traffic hast thou increased thy riches, and thy heart is lifted up because of thy riches;--
+by your great wisdom [and] by your traffic you have increased your riches, and your heart is lifted up because of your riches--

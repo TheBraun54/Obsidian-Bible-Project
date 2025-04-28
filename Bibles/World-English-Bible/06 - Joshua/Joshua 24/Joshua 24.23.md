@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore put away, [said he], the foreign gods which are among you, and incline your heart unto Jehovah, the God of Israel.
+"Now therefore put away the foreign gods which are among you, and incline your heart to Yahweh, the God of Israel."

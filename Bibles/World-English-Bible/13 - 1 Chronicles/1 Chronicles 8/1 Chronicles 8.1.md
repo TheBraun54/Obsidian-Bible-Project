@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Benjamin begat Bela his first-born, Ashbel the second, and Aharah the third,
+Benjamin became the father of Bela his firstborn, Ashbel the second, and Aharah the third,

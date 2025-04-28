@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I let them go after the stubbornness of their heart, That they might walk in their own counsels.
+So I let them go after the stubbornness of their hearts, that they might walk in their own counsels.

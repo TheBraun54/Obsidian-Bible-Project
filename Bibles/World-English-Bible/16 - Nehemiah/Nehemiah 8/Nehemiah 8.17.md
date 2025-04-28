@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the assembly of them that were come again out of the captivity made booths, and dwelt in the booths; for since the days of Jeshua the son of Nun unto that day had not the children of Israel done so. And there was very great gladness.
+All the assembly of those who were come again out of the captivity made booths, and lived in the booths; for since the days of Jeshua the son of Nun to that day the children of Israel had not done so. There was very great gladness.

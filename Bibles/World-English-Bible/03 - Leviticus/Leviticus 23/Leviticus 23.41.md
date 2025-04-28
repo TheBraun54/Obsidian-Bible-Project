@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall keep it a feast unto Jehovah seven days in the year: it is a statute for ever throughout your generations; ye shall keep it in the seventh month.
+You shall keep it a feast to Yahweh seven days in the year: it is a statute forever throughout your generations; you shall keep it in the seventh month.

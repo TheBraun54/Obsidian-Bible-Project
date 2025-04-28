@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Joseph's brethren saw that their father was dead, they said, It may be that Joseph will hate us, and will fully requite us all the evil which we did unto him.
+When Joseph's brothers saw that their father was dead, they said, "It may be that Joseph will hate us, and will fully pay us back for all of the evil which we did to him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the children of Ammon saw that the Syrians were fled, they likewise fled before Abishai, and entered into the city. Then Joab returned from the children of Ammon, and came to Jerusalem.
+When the children of Ammon saw that the Syrians had fled, they likewise fled before Abishai, and entered into the city. Then Joab returned from the children of Ammon, and came to Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore [he] saith, Awake, thou that sleepest, and arise from the dead, and Christ shall shine upon thee.
+Therefore he says, "Awake, you who sleep, and arise from the dead, and Christ will shine on you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, in the morning shalt thou hear my voice; In the morning will I order [my prayer] unto thee, and will keep watch.
+Yahweh, in the morning you shall hear my voice. In the morning I will lay my requests before you, and will watch expectantly.

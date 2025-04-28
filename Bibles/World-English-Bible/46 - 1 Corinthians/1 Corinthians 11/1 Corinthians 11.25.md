@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In like manner also the cup, after supper, saying, This cup is the new covenant in my blood: this do, as often as ye drink [it], in remembrance of me.
+In the same way he also took the cup, after supper, saying, "This cup is the new covenant in my blood. Do this, as often as you drink, in memory of me."

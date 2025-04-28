@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is good for me that I have been afflicted; That I may learn thy statutes.
+It is good for me that I have been afflicted, that I may learn your statutes.

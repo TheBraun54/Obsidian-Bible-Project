@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by reason of the exceeding greatness of the revelations, that I should not be exalted overmuch, there was given to me a thorn in the flesh, a messenger of Satan to buffet me, that I should not be exalted overmuch.
+By reason of the exceeding greatness of the revelations, that I should not be exalted excessively, there was given to me a thorn in the flesh, a messenger of Satan to torment me, that I should not be exalted excessively.

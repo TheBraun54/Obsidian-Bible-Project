@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his lord was wroth, and delivered him to the tormentors, till he should pay all that was due.
+His lord was angry, and delivered him to the tormentors, until he should pay all that was due to him.

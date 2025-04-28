@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Grace be with all them that love our Lord Jesus Christ with [a love] incorruptible.
+Grace be with all those who love our Lord Jesus Christ with incorruptible love. Amen.

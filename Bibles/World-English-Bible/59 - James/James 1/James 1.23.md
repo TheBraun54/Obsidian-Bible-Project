@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if any one is a hearer of the word and not a doer, he is like unto a man beholding his natural face in a mirror:
+For if anyone is a hearer of the word and not a doer, he is like a man looking at his natural face in a mirror;

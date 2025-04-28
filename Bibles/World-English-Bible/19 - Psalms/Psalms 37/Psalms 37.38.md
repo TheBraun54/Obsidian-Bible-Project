@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for transgressors, they shall be destroyed together; The end of the wicked shall be cut off.
+As for transgressors, they shall be destroyed together. The future of the wicked shall be cut off.

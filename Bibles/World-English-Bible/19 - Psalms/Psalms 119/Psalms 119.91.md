@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They abide this day according to thine ordinances; For all things are thy servants.
+Your laws remain to this day, for all things serve you.

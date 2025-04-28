@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If his master give him a wife, and she bear him sons or daughters; the wife and her children shall be her master's, and he shall go out by himself.
+If his master gives him a wife and she bears him sons or daughters, the wife and her children shall be her master's, and he shall go out by himself.

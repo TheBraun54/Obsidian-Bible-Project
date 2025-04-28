@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall they come unto thee from Assyria and the cities of Egypt, and from Egypt even to the River, and from sea to sea, and [from] mountain to mountain.
+In that day they will come to you from Assyria and the cities of Egypt, and from Egypt even to the River, and from sea to sea, and mountain to mountain.

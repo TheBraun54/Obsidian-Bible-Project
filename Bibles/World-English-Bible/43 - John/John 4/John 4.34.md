@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto them, My meat is to do the will of him that sent me, and to accomplish his work.
+Jesus said to them, "My food is to do the will of him who sent me, and to accomplish his work.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(The mountains rose, the valleys sank down) Unto the place which thou hadst founded for them.
+The mountains rose, the valleys sank down, to the place which you had assigned to them.

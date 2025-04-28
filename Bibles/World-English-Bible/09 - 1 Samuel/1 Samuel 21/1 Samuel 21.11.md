@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servants of Achish said unto him, Is not this David the king of the land? did they not sing one to another of him in dances, saying, Saul hath slain his thousands, And David his ten thousands?
+The servants of Achish said to him, "Isn't this David the king of the land? Didn't they sing one to another about him in dances, saying, 'Saul has slain his thousands, David his ten thousands?'"

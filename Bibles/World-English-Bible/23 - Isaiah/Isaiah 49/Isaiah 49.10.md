@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not hunger nor thirst; neither shall the heat nor sun smite them: for he that hath mercy on them will lead them, even by springs of water will he guide them.
+They shall not hunger nor thirst; neither shall the heat nor sun strike them: for he who has mercy on them will lead them, even by springs of water he will guide them.

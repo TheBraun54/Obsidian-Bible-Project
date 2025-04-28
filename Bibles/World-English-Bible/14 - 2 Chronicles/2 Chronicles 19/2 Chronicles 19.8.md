@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover in Jerusalem did Jehoshaphat set of the Levites and the priests, and of the heads of the fathers' [houses] of Israel, for the judgment of Jehovah, and for controversies. And they returned to Jerusalem.
+Moreover in Jerusalem Jehoshaphat appointed Levites and priests, and of the heads of the fathers' [houses] of Israel, for the judgment of Yahweh, and for controversies. They returned to Jerusalem.

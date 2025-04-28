@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward the people journeyed from Hazeroth, and encamped in the wilderness of Paran.
+Afterward the people traveled from Hazeroth, and encamped in the wilderness of Paran.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover I have given to thee one portion above thy brethren, which I took out of the hand of the Amorite with my sword and with my bow.
+Moreover I have given to you one portion above your brothers, which I took out of the hand of the Amorite with my sword and with my bow."

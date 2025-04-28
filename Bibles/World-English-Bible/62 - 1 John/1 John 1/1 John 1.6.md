@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we say that we have fellowship with him and walk in the darkness, we lie, and do not the truth:
+If we say that we have fellowship with him and walk in the darkness, we lie, and don't tell the truth.

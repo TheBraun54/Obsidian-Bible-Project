@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the cold of snow in the time of harvest, [So is] a faithful messenger to them that send him; For he refresheth the soul of his masters.
+As the cold of snow in the time of harvest, so is a faithful messenger to those who send him; for he refreshes the soul of his masters.

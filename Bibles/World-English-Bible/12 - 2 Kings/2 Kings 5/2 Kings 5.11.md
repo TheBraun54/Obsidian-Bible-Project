@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Naaman was wroth, and went away, and said, Behold, I thought, He will surely come out to me, and stand, and call on the name of Jehovah his God, and wave his hand over the place, and recover the leper.
+But Naaman was angry, and went away, and said, "Behold, I thought, 'He will surely come out to me, and stand, and call on the name of Yahweh his God, and wave his hand over the place, and heal the leper.'

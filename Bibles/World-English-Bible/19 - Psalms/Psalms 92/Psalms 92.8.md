@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O Jehovah, art on high for evermore.
+But you, Yahweh, are on high forevermore.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon and all the congregation of Israel, that were assembled unto him, were with him before the ark, sacrificing sheep and oxen, that could not be counted nor numbered for multitude.
+King Solomon and all the congregation of Israel, who were assembled to him, were with him before the ark, sacrificing sheep and cattle, that could not be counted nor numbered for multitude.

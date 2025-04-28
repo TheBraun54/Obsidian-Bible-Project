@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a bird that wandereth from her nest, So is a man that wandereth from his place.
+As a bird that wanders from her nest, so is a man who wanders from his home.

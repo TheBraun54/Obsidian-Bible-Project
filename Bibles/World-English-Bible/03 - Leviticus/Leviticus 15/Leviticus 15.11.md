@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whomsoever he that hath the issue toucheth, without having rinsed his hands in water, he shall wash his clothes, and bathe himself in water, and be unclean until the even.
+"'Whoever he who has the discharge touches, without having rinsed his hands in water, he shall wash his clothes, and bathe himself in water, and be unclean until the evening.

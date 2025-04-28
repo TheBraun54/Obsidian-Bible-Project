@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For our shield belongeth unto Jehovah; And our king to the Holy One of Israel.
+For our shield belongs to Yahweh; our king to the Holy One of Israel.

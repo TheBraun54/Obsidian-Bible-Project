@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, cry out in the night, at the beginning of the watches; Pour out thy heart like water before the face of the Lord: Lift up thy hands toward him for the life of thy young children, that faint for hunger at the head of every street.
+Arise, cry out in the night, at the beginning of the watches; Pour out your heart like water before the face of the Lord: Lift up your hands toward him for the life of your young children, that faint for hunger at the head of every street.

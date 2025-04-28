@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah said unto Samuel, Look not on his countenance, or on the height of his stature; because I have rejected him: for [Jehovah seeth] not as man seeth; for man looketh on the outward appearance, but Jehovah looketh on the heart.
+But Yahweh said to Samuel, "Don't look on his face, or on the height of his stature; because I have rejected him: for [Yahweh sees] not as man sees; for man looks at the outward appearance, but Yahweh looks at the heart."

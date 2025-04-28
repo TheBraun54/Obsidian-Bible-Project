@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now faith is assurance of [things] hoped for, a conviction of things not seen.
+Now faith is assurance of things hoped for, proof of things not seen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon this Pilate sought to release him: but the Jews cried out, saying, If thou release this man, thou art not Caesar's friend: every one that maketh himself a king speaketh against Caesar.
+At this, Pilate was seeking to release him, but the Jews cried out, saying, "If you release this man, you aren't Caesar's friend! Everyone who makes himself a king speaks against Caesar!"

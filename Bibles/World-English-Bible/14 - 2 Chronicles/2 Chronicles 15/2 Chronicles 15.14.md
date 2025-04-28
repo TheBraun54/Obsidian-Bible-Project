@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sware unto Jehovah with a loud voice, and with shouting, and with trumpets, and with cornets.
+They swore to Yahweh with a loud voice, and with shouting, and with trumpets, and with cornets.

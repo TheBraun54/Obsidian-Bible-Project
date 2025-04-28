@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the rest laid hold on his servants, and treated them shamefully, and killed them.
+and the rest grabbed his servants, and treated them shamefully, and killed them.

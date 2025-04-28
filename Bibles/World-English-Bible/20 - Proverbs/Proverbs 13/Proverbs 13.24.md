@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that spareth his rod hateth his son; But he that loveth him chasteneth him betimes.
+One who spares the rod hates his son, but one who loves him is careful to discipline him.

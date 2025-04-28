@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they that were numbered, whom Moses and Aaron numbered, and the princes of Israel, being twelve men: they were each one for his fathers' house.
+These are those who were numbered, whom Moses and Aaron numbered, and the princes of Israel, being twelve men: they were each one for his fathers' house.

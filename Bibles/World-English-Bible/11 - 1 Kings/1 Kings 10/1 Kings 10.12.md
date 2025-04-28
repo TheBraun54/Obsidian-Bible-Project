@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king made of the almug-trees pillars for the house of Jehovah, and for the king's house, harps also and psalteries for the singers: there came no such almug-trees, nor were seen, unto this day.
+The king made of the almug trees pillars for the house of Yahweh, and for the king's house, harps also and stringed instruments for the singers: there came no such almug trees, nor were seen, to this day.

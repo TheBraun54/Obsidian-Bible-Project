@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For with what judgment ye judge, ye shall be judged: and with what measure ye mete, it shall be measured unto you.
+For with whatever judgment you judge, you will be judged; and with whatever measure you measure, it will be measured to you.

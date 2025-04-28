@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while there was war between the house of Saul and the house of David, that Abner made himself strong in the house of Saul.
+It happened, while there was war between the house of Saul and the house of David, that Abner made himself strong in the house of Saul.

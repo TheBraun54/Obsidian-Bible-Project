@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and as he sowed, some [seeds] fell by the way side, and the birds came and devoured them:
+As he sowed, some seeds fell by the roadside, and the birds came and devoured them.

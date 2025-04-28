@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The merchants of these things, who were made rich by her, shall stand afar off for the fear of her torment, weeping and mourning;
+The merchants of these things, who were made rich by her, will stand far away for the fear of her torment, weeping and mourning;

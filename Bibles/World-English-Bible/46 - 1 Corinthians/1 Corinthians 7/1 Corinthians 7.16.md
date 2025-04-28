@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For how knowest thou, O wife, whether thou shalt save thy husband? Or how knowest thou, O husband, whether thou shalt save thy wife?
+For how do you know, wife, whether you will save your husband? Or how do you know, husband, whether you will save your wife?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Behold, I will raise up evil against thee out of thine own house; and I will take thy wives before thine eyes, and give them unto thy neighbor, and he shall lie with thy wives in the sight of this sun.
+"This is what Yahweh says: 'Behold, I will raise up evil against you out of your own house; and I will take your wives before your eyes, and give them to your neighbor, and he will lie with your wives in the sight of this sun.

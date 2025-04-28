@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit I believed not the words, until I came, and mine eyes had seen it: and, behold, the half was not told me; thy wisdom and prosperity exceed the fame which I heard.
+However I didn't believe the words, until I came, and my eyes had seen it. Behold, the half was not told me! Your wisdom and prosperity exceed the fame which I heard.

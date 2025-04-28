@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ram begat Amminadab; and Amminadab begat Nahshon; and Nahshon begat Salmon;
+Ram became the father of Amminadab. Amminadab became the father of Nahshon. Nahshon became the father of Salmon.

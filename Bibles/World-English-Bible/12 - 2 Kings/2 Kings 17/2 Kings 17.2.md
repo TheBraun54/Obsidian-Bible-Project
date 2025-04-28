@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil in the sight of Jehovah, yet not as the kings of Israel that were before him.
+He did that which was evil in the sight of Yahweh, yet not as the kings of Israel who were before him.

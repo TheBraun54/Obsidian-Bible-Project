@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban said to Jacob, Behold this heap, and behold the pillar, which I have set betwixt me and thee.
+Laban said to Jacob, "See this heap, and see the pillar, which I have set between me and you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was a strife between the herdsmen of Abram's cattle and the herdsmen of Lot's cattle: and the Canaanite and the Perizzite dwelt then in the land.
+There was a strife between the herdsmen of Abram's livestock and the herdsmen of Lot's livestock: and the Canaanite and the Perizzite lived in the land at that time.

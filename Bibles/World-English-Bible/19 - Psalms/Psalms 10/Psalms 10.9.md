@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He lurketh in secret as a lion in his covert; He lieth in wait to catch the poor: He doth catch the poor, when he draweth him in his net.
+He lurks in secret as a lion in his ambush. He lies in wait to catch the helpless. He catches the helpless, when he draws him in his net.

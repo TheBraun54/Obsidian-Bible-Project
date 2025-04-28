@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of the plague of leprosy in a garment of woollen or linen, either in the warp, or the woof, or anything of skin, to pronounce it clean, or to pronounce it unclean.
+This is the law of the plague of mildew in a garment of wool or linen, either in the warp, or the woof, or in anything of skin, to pronounce it clean, or to pronounce it unclean.

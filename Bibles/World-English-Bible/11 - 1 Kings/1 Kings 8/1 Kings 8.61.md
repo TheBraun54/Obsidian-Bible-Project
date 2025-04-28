@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let your heart therefore be perfect with Jehovah our God, to walk in his statutes, and to keep his commandments, as at this day.
+"Let your heart therefore be perfect with Yahweh our God, to walk in his statutes, and to keep his commandments, as at this day."

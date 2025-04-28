@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then thy handmaid said, Let, I pray thee, the word of my lord the king be comfortable; for as an angel of God, so is my lord the king to discern good and bad: and Jehovah thy God be with thee.
+Then your handmaid said, 'Please let the word of my lord the king bring rest; for as an angel of God, so is my lord the king to discern good and bad. May Yahweh, your God, be with you.'"

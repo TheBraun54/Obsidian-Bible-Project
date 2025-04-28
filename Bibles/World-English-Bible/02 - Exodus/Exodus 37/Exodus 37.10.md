@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the table of acacia wood: two cubits [was] the length thereof, and a cubit the breadth thereof, and a cubit and a half the height thereof.
+He made the table of acacia wood. Its length was two cubits, and its breadth was a cubit, and its height was a cubit and a half.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man sell a dwelling-house in a walled city, then he may redeem it within a whole year after it is sold; for a full year shall he have the right of redemption.
+"'If a man sells a dwelling house in a walled city, then he may redeem it within a whole year after it has been sold. For a full year he shall have the right of redemption.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trust ye not in a neighbor; put ye not confidence in a friend; keep the doors of thy mouth from her that lieth in thy bosom.
+Don't trust in a neighbor. Don't put confidence in a friend. With the woman lying in your embrace, be careful of the words of your mouth!

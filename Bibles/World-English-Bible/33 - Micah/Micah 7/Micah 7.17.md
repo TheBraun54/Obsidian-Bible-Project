@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall lick the dust like a serpent; like crawling things of the earth they shall come trembling out of their close places; they shall come with fear unto Jehovah our God, and shall be afraid because of thee.
+They will lick the dust like a serpent. Like crawling things of the earth they shall come trembling out of their dens. They will come with fear to Yahweh our God, and will be afraid because of you.

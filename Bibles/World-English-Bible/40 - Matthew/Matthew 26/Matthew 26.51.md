@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, one of them that were with Jesus stretched out his hand, and drew his sword, and smote the servant of the high priest, and struck off his ear.
+Behold, one of those who were with Jesus stretched out his hand, and drew his sword, and struck the servant of the high priest, and struck off his ear.

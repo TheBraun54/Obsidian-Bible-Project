@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proud have had me greatly in derision: [Yet] have I not swerved from thy law.
+The arrogant mock me excessively, but I don't swerve from your law.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the priest shall look upon him; and, behold, if the rising of the plague be reddish-white in his bald head, or in his bald forehead, as the appearance of leprosy in the skin of the flesh;
+Then the priest shall examine him; and, behold, if the rising of the plague is reddish-white in his bald head, or in his bald forehead, like the appearance of leprosy in the skin of the flesh,

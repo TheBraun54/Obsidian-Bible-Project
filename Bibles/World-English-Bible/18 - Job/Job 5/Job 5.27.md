@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo this, we have searched it, so it is; Hear it, and know thou it for thy good.
+Look this, we have searched it, so it is. Hear it, and know it for your good."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they passed on and went their way; and the sun went down upon them near to Gibeah, which belongeth to Benjamin.
+So they passed on and went their way; and the sun went down on them near to Gibeah, which belongs to Benjamin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: This is Jerusalem; I have set her in the midst of the nations, and countries are round about her.
+Thus says the Lord Yahweh: This is Jerusalem; I have set her in the midst of the nations, and countries are around her.

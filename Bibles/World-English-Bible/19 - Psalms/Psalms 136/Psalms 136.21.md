@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And gave their land for a heritage; For his lovingkindness [endureth] for ever;
+And gave their land as an inheritance; for his loving kindness endures forever;

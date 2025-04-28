@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who gave himself for us, that he might redeem us from all iniquity, and purify unto himself a people for his own possession, zealous of good works.
+who gave himself for us, that he might redeem us from all iniquity, and purify for himself a people for his own possession, zealous for good works.

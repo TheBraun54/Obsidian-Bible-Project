@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have trodden the winepress alone; and of the peoples there was no man with me: yea, I trod them in mine anger, and trampled them in my wrath; and their lifeblood [ is sprinkled upon my garments, and I have stained all my raiment.
+"I have trodden the winepress alone; and of the peoples there was no man with me: yes, I trod them in my anger, and trampled them in my wrath; and their lifeblood is sprinkled on my garments, and I have stained all my clothing.

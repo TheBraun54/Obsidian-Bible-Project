@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O Jehovah, wilt laugh at them; Thou wilt have all the nations in derision.
+But you, Yahweh, laugh at them. You scoff at all the nations.

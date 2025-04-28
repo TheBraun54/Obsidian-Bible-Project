@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to a virgin betrothed to a man whose name was Joseph, of the house of David; and the virgin's name was Mary.
+to a virgin pledged to be married to a man whose name was Joseph, of the house of David. The virgin's name was Mary.

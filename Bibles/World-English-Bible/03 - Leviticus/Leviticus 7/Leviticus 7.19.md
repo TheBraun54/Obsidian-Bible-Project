@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the flesh that toucheth any unclean thing shall not be eaten; it shall be burnt with fire. And as for the flesh, every one that is clean shall eat thereof:
+"'The flesh that touches any unclean thing shall not be eaten. It shall be burned with fire. As for the flesh, everyone who is clean may eat it;

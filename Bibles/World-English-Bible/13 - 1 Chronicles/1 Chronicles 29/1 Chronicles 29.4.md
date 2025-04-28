@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even three thousand talents of gold, of the gold of Ophir, and seven thousand talents of refined silver, wherewith to overlay the walls of the houses;
+even three thousand talents of gold, of the gold of Ophir, and seven thousand talents of refined silver, with which to overlay the walls of the houses;

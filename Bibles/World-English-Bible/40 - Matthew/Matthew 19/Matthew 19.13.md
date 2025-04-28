@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were there brought unto him little children, that he should lay his hands on them, and pray: and the disciples rebuked them.
+Then little children were brought to him, that he should lay his hands on them and pray; and the disciples rebuked them.

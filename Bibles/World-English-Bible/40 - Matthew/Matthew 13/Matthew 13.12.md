@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever hath, to him shall be given, and he shall have abundance: but whosoever hath not, from him shall be taken away even that which he hath.
+For whoever has, to him will be given, and he will have abundance, but whoever doesn't have, from him will be taken away even that which he has.

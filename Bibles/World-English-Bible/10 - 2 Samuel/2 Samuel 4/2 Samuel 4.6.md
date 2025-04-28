@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came thither into the midst of the house, as though they would have fetched wheat; and they smote him in the body: and Rechab and Baanah his brother escaped.
+They came there into the midst of the house, as though they would have fetched wheat; and they struck him in the body: and Rechab and Baanah his brother escaped.

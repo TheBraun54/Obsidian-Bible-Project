@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for thy cattle, and for the beasts that are in thy land, shall all the increase thereof be for food.
+For your livestock also, and for the animals that are in your land, shall all its increase be for food.

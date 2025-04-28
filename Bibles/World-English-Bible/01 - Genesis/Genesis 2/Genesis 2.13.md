@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of the second river is Gihon: the same is it that compasseth the whole land of Cush.
+The name of the second river is Gihon: the same river that flows through the whole land of Cush.

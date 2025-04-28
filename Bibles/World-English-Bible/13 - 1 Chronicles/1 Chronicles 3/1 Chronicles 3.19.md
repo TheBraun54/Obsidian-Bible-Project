@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Pedaiah: Zerubbabel, and Shimei. And the sons of Zerubbabel: Meshullam, and Hananiah; and Shelomith was their sister;
+The sons of Pedaiah: Zerubbabel, and Shimei. The sons of Zerubbabel: Meshullam, and Hananiah; and Shelomith was their sister;

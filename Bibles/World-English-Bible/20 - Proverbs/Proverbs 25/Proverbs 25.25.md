@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] cold waters to a thirsty soul, So is good news from a far country.
+Like cold water to a thirsty soul, so is good news from a far country.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore pride is as a chain about their neck; Violence covereth them as a garment.
+Therefore pride is like a chain around their neck. Violence covers them like a garment.

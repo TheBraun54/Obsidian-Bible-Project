@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the offering which ye shall take of them: gold, and silver, and brass,
+This is the offering which you shall take from them: gold, silver, brass,

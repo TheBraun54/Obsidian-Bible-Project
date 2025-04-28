@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Day unto day uttereth speech, And night unto night showeth knowledge.
+Day after day they pour forth speech, and night after night they display knowledge.

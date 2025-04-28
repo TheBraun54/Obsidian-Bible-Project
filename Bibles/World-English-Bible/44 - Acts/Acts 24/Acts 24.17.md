@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after some years I came to bring alms to my nation, and offerings:
+Now after some years, I came to bring gifts for the needy to my nation, and offerings;

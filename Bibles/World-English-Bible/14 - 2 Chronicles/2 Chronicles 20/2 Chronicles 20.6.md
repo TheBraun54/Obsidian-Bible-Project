@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, O Jehovah, the God of our fathers, art not thou God in heaven? and art not thou ruler over all the kingdoms of the nations? and in thy hand is power and might, so that none is able to withstand thee.
+and he said, "Yahweh, the God of our fathers, aren't you God in heaven? Aren't you ruler over all the kingdoms of the nations? Power and might are in your hand, so that no one is able to withstand you.

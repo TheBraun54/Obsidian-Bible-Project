@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let that man be as the cities which Jehovah overthrew, and repented not: and let him hear a cry in the morning, and shouting at noontime;
+Let that man be as the cities which Yahweh overthrew, and didn't repent: and let him hear a cry in the morning, and shouting at noontime;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a tenth part shalt thou offer for every lamb of the seven lambs;
+You shall offer a tenth part for every lamb of the seven lambs;

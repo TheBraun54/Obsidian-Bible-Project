@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore have I poured out mine indignation upon them; I have consumed them with the fire of my wrath: their own way have I brought upon their heads, saith the Lord Jehovah.
+Therefore have I poured out my indignation on them; I have consumed them with the fire of my wrath: their own way have I brought on their heads, says the Lord Yahweh.

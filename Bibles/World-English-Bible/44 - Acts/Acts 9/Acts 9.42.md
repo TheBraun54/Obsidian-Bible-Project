@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it became known throughout all Joppa: and many believed on the Lord.
+And it became known throughout all Joppa, and many believed in the Lord.

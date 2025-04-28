@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus departed thence, and came nigh unto the sea of Galilee; and he went up into the mountain, and sat there.
+Jesus departed there, and came near to the sea of Galilee; and he went up into the mountain, and sat there.

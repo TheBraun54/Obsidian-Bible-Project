@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have despised the cause of my man-servant or of my maid-servant, When they contended with me;
+"If I have despised the cause of my male servant or of my female servant, when they contended with me;

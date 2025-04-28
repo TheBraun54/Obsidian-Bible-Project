@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither to give heed to fables and endless genealogies, which minister questionings, rather than a dispensation of God which is in faith; [so do I now] .
+neither to pay attention to myths and endless genealogies, which cause disputes, rather than God's stewardship, which is in faith--

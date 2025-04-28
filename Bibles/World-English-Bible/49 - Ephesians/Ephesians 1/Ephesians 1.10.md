@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto a dispensation of the fulness of the times, to sum up all things in Christ, the things in the heavens, and the things upon the earth; in him, [I say],
+to an administration of the fullness of the times, to sum up all things in Christ, the things in the heavens, and the things on the earth, in him;

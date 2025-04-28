@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the beasts go into coverts, And remain in their dens.
+Then the animals take cover, and remain in their dens.

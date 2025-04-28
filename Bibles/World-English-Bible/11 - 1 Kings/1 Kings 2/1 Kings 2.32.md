@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will return his blood upon his own head, because he fell upon two men more righteous and better than he, and slew them with the sword, and my father David knew it not, [to wit], Abner the son of Ner, captain of the host of Israel, and Amasa the son of Jether, captain of the host of Judah.
+Yahweh will return his blood on his own head, because he fell on two men more righteous and better than he, and killed them with the sword, and my father David didn't know it: Abner the son of Ner, captain of the army of Israel, and Amasa the son of Jether, captain of the army of Judah.

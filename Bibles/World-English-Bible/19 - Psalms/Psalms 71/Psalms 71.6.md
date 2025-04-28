@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By thee have I been holden up from the womb; Thou art he that took me out of my mother's bowels: My praise shall be continually of thee.
+I have relied on you from the womb. You are he who took me out of my mother's womb. I will always praise you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that despiseth his neighbor is void of wisdom; But a man of understanding holdeth his peace.
+One who despises his neighbor is void of wisdom, but a man of understanding holds his peace.

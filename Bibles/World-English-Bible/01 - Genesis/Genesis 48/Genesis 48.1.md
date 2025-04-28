@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after these things, that one said to Joseph, Behold, thy father is sick: and he took with him his two sons, Manasseh and Ephraim.
+It happened after these things, that someone said to Joseph, "Behold, your father is sick." He took with him his two sons, Manasseh and Ephraim.

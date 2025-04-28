@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the voice which I heard from heaven, [I heard it] again speaking with me, and saying, Go, take the book which is open in the hand of the angel that standeth upon the sea and upon the earth.
+The voice which I heard from heaven, again speaking with me, said, "Go, take the book which is open in the hand of the angel who stands on the sea and on the land."

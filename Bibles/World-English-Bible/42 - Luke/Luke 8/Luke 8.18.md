@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed therefore how ye hear: for whosoever hath, to him shall be given; and whosoever hath not, from him shall be taken away even that which he thinketh he hath.
+Be careful therefore how you hear. For whoever has, to him will be given; and whoever doesn't have, from him will be taken away even that which he thinks he has."

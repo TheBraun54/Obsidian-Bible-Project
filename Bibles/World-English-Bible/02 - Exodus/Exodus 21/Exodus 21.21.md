@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Notwithstanding, if he continue a day or two, he shall not be punished: for he is his money.
+Notwithstanding, if he gets up after a day or two, he shall not be punished, for he is his property.

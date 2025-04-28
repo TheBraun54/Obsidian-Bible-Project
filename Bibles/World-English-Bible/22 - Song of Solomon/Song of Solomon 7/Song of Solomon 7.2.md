@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy body is [like] a round goblet, [Wherein] no mingled wine is wanting: Thy waist is [like] a heap of wheat Set about with lilies.
+Your body is like a round goblet, no mixed wine is wanting. Your waist is like a heap of wheat, set about with lilies.

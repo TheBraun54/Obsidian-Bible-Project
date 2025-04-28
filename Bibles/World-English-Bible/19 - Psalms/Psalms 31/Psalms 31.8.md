@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou hast not shut me up into the hand of the enemy; Thou hast set my feet in a large place.
+You have not shut me up into the hand of the enemy. You have set my feet in a large place.

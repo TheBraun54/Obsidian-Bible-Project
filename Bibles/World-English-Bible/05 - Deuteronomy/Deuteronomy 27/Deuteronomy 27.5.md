@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shalt thou build an altar unto Jehovah thy God, an altar of stones: thou shalt lift up no iron [tool] upon them.
+There you shall build an altar to Yahweh your God, an altar of stones: you shall lift up no iron [tool] on them.

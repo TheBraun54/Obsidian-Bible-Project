@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which of the two did the will of his father? They say, The first. Jesus saith unto them, Verily I say unto you, that the publicans and the harlots go into the kingdom of God before you.
+Which of the two did the will of his father?" They said to him, "The first." Jesus said to them, "Most certainly I tell you that the tax collectors and the prostitutes are entering into the Kingdom of God before you.

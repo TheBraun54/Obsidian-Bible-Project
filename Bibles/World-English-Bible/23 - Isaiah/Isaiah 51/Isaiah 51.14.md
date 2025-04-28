@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The captive exile shall speedily be loosed; and he shall not die [and go down] into the pit, neither shall his bread fail.
+The captive exile shall speedily be freed; and he shall not die [and go down] into the pit, neither shall his bread fail.

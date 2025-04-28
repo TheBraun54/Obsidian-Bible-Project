@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can a man be profitable unto God? Surely he that is wise is profitable unto himself.
+"Can a man be profitable to God? Surely he who is wise is profitable to himself.

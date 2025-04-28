@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who teacheth us more than the beasts of the earth, And maketh us wiser than the birds of the heavens?
+who teaches us more than the animals of the earth, and makes us wiser than the birds of the sky?'

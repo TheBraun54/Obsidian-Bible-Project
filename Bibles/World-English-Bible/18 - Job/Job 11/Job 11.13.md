@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou set thy heart aright, And stretch out thy hands toward him;
+"If you set your heart aright, stretch out your hands toward him.

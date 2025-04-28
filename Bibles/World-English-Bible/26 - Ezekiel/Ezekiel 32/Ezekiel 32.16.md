@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the lamentation wherewith they shall lament; the daughters of the nations shall lament therewith; over Egypt, and over all her multitude, shall they lament therewith, saith the Lord Jehovah.
+This is the lamentation with which they shall lament; the daughters of the nations shall lament therewith; over Egypt, and over all her multitude, shall they lament therewith, says the Lord Yahweh.

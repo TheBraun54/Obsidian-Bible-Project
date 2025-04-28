@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall bathe his flesh in water in a holy place, and put on his garments, and come forth, and offer his burnt-offering and the burnt-offering of the people, and make atonement for himself and for the people.
+Then he shall bathe himself in water in a holy place, and put on his garments, and come out and offer his burnt offering and the burnt offering of the people, and make atonement for himself and for the people.

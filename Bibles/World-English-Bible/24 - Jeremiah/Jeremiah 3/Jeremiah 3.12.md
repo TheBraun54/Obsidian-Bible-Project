@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go, and proclaim these words toward the north, and say, Return, thou backsliding Israel, saith Jehovah; I will not look in anger upon you; for I am merciful, saith Jehovah, I will not keep [anger] for ever.
+Go, and proclaim these words toward the north, and say, 'Return, you backsliding Israel,' says Yahweh; 'I will not look in anger on you; for I am merciful,' says Yahweh. 'I will not keep [anger] forever.

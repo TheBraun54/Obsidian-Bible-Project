@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, and see the works of God; [He is] terrible in his doing toward the children of men.
+Come, and see God's deeds-- awesome work on behalf of the children of men.

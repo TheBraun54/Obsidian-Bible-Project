@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit we know this man whence he is: but when the Christ cometh, no one knoweth whence he is.
+However we know where this man comes from, but when the Christ comes, no one will know where he comes from."

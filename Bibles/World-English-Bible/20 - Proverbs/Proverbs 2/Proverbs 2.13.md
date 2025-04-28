@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who forsake the paths of uprightness, To walk in the ways of darkness;
+who forsake the paths of uprightness, to walk in the ways of darkness;

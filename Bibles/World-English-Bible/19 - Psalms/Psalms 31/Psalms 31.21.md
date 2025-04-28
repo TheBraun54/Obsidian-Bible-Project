@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah; For he hath showed me his marvellous lovingkindness in a strong city.
+Praise be to Yahweh, for he has shown me his marvelous loving kindness in a strong city.

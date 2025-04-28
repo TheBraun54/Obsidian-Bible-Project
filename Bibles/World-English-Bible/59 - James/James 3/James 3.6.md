@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tongue is a fire: the world of iniquity among our members is the tongue, which defileth the whole body, and setteth on fire the wheel of nature, and is set on fire by hell.
+And the tongue is a fire. The world of iniquity among our members is the tongue, which defiles the whole body, and sets on fire the course of nature, and is set on fire by Gehenna.

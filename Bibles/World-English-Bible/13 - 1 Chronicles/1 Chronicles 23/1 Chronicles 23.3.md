@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levites were numbered from thirty years old and upward: and their number by their polls, man by man, was thirty and eight thousand.
+The Levites were numbered from thirty years old and upward: and their number by their polls, man by man, was thirty-eight thousand.

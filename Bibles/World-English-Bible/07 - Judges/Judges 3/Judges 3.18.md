@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had made an end of offering the tribute, he sent away the people that bare the tribute.
+When he had made an end of offering the tribute, he sent away the people who bore the tribute.

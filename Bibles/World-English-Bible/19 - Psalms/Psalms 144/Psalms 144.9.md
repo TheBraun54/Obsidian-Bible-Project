@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will sing a new song unto thee, O God: Upon a psaltery of ten strings will I sing praises unto thee.
+I will sing a new song to you, God. On a ten-stringed lyre, I will sing praises to you.

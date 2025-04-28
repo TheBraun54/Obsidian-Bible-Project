@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He giveth power to the faint; and to him that hath no might he increaseth strength.
+He gives power to the weak. He increases the strength of him who has no might.

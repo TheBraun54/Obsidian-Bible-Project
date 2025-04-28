@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who were snatched away before their time, Whose foundation was poured out as a stream,
+who were snatched away before their time, whose foundation was poured out as a stream,

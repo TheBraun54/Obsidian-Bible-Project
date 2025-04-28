@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon that day shall the prince prepare for himself and for all the people of the land a bullock for a sin-offering.
+On that day shall the prince prepare for himself and for all the people of the land a bull for a sin offering.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the house of Israel will not hearken unto thee; for they will not hearken unto me: for all the house of Israel are of hard forehead and of a stiff heart.
+But the house of Israel will not listen to you; for they will not listen to me: for all the house of Israel are obstinate and hard-hearted.

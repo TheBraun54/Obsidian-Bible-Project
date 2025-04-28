@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I made an ark of acacia wood, and hewed two tables of stone like unto the first, and went up into the mount, having the two tables in my hand.
+So I made an ark of acacia wood, and cut two tables of stone like the first, and went up onto the mountain, having the two tables in my hand.

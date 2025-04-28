@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he asked for a writing tablet, and wrote, saying, His name is John. And they marvelled all.
+He asked for a writing tablet, and wrote, "His name is John." They all marveled.

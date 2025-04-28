@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and so fearful was the appearance, [that] Moses said, I exceedingly fear and quake:
+and so fearful was the appearance, that Moses said, "I am terrified and trembling."

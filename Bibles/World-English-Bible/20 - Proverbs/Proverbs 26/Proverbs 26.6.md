@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that sendeth a message by the hand of a fool Cutteth off [his own] feet, [and] drinketh in damage.
+One who sends a message by the hand of a fool is cutting off feet and drinking violence.

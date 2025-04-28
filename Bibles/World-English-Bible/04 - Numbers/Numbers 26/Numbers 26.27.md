@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of the Zebulunites according to those that were numbered of them, threescore thousand and five hundred.
+These are the families of the Zebulunites according to those who were numbered of them, sixty thousand five hundred.

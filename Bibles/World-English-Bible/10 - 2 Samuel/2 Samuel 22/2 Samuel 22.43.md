@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then did I beat them small as the dust of the earth, I did crush them as the mire of the streets, and did spread them abroad.
+Then I beat them as small as the dust of the earth. I crushed them as the mire of the streets, and spread them abroad.

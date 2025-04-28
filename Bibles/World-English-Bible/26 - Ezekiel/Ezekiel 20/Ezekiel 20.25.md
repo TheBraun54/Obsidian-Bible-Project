@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover also I gave them statutes that were not good, and ordinances wherein they should not live;
+Moreover also I gave them statutes that were not good, and ordinances in which they should not live;

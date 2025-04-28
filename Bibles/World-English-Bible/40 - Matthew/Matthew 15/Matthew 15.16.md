@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Are ye also even yet without understanding?
+So Jesus said, "Do you also still not understand?

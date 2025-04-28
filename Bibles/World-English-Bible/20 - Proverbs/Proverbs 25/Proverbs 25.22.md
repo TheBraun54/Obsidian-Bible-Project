@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou wilt heap coals of fire upon his head, And Jehovah will reward thee.
+for you will heap coals of fire on his head, and Yahweh will reward you.

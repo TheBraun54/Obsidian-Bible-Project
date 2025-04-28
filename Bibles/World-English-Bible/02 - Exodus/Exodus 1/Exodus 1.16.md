@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, When ye do the office of a midwife to the Hebrew women, and see them upon the birth-stool; if it be a son, then ye shall kill him; but if it be a daughter, then she shall live.
+and he said, "When you perform the duty of a midwife to the Hebrew women, and see them on the birth stool; if it is a son, then you shall kill him; but if it is a daughter, then she shall live."

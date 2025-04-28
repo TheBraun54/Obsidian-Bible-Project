@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Joseph said unto the people, Behold, I have bought you this day and your land for Pharaoh: lo, here is seed for you, and ye shall sow the land.
+Then Joseph said to the people, "Behold, I have bought you and your land today for Pharaoh. Behold, here is seed for you, and you shall sow the land.

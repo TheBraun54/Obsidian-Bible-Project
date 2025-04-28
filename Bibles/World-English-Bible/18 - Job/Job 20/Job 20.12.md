@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though wickedness be sweet in his mouth, Though he hide it under his tongue,
+"Though wickedness is sweet in his mouth, though he hide it under his tongue,

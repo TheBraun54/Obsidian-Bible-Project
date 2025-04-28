@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But seek ye first his kingdom, and his righteousness; and all these things shall be added unto you.
+But seek first God's Kingdom, and his righteousness; and all these things will be given to you as well.

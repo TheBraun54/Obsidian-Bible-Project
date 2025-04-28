@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall dwell securely therein; yea, they shall build houses, and plant vineyards, and shall dwell securely, when I have executed judgments upon all those that do them despite round about them; and they shall know that I am Jehovah their God.
+They shall dwell securely therein; yes, they shall build houses, and plant vineyards, and shall dwell securely, when I have executed judgments on all those who do them despite all around them; and they shall know that I am Yahweh their God.

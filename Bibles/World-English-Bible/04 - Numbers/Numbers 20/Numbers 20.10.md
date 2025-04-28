@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron gathered the assembly together before the rock, and he said unto them, Hear now, ye rebels; shall we bring you forth water out of this rock?
+Moses and Aaron gathered the assembly together before the rock, and he said to them, "Hear now, you rebels; shall we bring you water out of this rock for you?"

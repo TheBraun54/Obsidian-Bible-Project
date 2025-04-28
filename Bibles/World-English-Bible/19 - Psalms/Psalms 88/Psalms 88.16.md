@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy fierce wrath is gone over me; Thy terrors have cut me off.
+Your fierce wrath has gone over me. Your terrors have cut me off.

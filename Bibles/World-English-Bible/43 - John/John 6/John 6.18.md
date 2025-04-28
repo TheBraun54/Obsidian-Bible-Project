@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sea was rising by reason of a great wind that blew.
+The sea was tossed by a great wind blowing.

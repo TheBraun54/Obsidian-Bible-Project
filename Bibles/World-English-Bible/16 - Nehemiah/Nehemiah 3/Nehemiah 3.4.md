@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto them repaired Meremoth the son of Uriah, the son of Hakkoz. And next unto them repaired Meshullam the son of Berechiah, the son of Meshezabel. And next unto them repaired Zadok the son of Baana.
+Next to them repaired Meremoth the son of Uriah, the son of Hakkoz. Next to them repaired Meshullam the son of Berechiah, the son of Meshezabel. Next to them repaired Zadok the son of Baana.

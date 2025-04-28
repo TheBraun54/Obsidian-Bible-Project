@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The father of the righteous will greatly rejoice; And he that begetteth a wise child will have joy of him.
+The father of the righteous has great joy. Whoever fathers a wise child delights in him.

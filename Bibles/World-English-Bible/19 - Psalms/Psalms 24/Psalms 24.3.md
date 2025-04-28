@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who shall ascend into the hill of Jehovah? And who shall stand in his holy place?
+Who may ascend to Yahweh's hill? Who may stand in his holy place?

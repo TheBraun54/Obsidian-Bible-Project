@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am Jehovah your God: sanctify yourselves therefore, and be ye holy; for I am holy: neither shall ye defile yourselves with any manner of creeping thing that moveth upon the earth.
+For I am Yahweh your God. Sanctify yourselves therefore, and be holy; for I am holy: neither shall you defile yourselves with any kind of creeping thing that moves on the earth.

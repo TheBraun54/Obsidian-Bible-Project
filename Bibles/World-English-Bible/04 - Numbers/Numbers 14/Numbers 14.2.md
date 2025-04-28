@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the children of Israel murmured against Moses and against Aaron: and the whole congregation said unto them, Would that we had died in the land of Egypt! or would that we had died in this wilderness!
+All the children of Israel murmured against Moses and against Aaron: and the whole congregation said to them, "Would that we had died in the land of Egypt! or would that we had died in this wilderness!

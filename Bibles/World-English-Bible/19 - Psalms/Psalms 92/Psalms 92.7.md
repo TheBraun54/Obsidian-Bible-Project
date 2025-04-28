@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the wicked spring as the grass, And when all the workers of iniquity do flourish; It is that they shall be destroyed for ever.
+though the wicked spring up as the grass, and all the evildoers flourish, they will be destroyed forever.

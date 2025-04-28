@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Amaziah said unto Amos, O thou seer, go, flee thou away into the land of Judah, and there eat bread, and prophesy there:
+Amaziah also said to Amos, "You seer, go, flee away into the land of Judah, and there eat bread, and prophesy there:

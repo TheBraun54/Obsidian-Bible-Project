@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But she came and worshipped him, saying, Lord, help me.
+But she came and worshiped him, saying, "Lord, help me."

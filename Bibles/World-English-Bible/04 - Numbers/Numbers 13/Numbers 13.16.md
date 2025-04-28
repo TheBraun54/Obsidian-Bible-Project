@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the names of the men that Moses sent to spy out the land. And Moses called Hoshea the son of Nun Joshua.
+These are the names of the men who Moses sent to spy out the land. Moses called Hoshea the son of Nun Joshua.

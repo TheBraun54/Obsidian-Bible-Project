@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but now, having no more any place in these regions, and having these many years a longing to come unto you,
+but now, no longer having any place in these regions, and having these many years a longing to come to you,

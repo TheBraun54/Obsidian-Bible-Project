@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses returned unto Jehovah, and said, Oh, this people have sinned a great sin, and have made them gods of gold.
+Moses returned to Yahweh, and said, "Oh, this people have sinned a great sin, and have made themselves gods of gold.

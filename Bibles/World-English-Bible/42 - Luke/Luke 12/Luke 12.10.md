@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every one who shall speak a word against the Son of man, it shall be forgiven him: but unto him that blasphemeth against the Holy Spirit it shall not be forgiven.
+Everyone who speaks a word against the Son of Man will be forgiven, but those who blaspheme against the Holy Spirit will not be forgiven.

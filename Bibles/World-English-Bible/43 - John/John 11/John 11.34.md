@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, Where have ye laid him? They say unto him, Lord, come and see.
+and said, "Where have you laid him?" They told him, "Lord, come and see."

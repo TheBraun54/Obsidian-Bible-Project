@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If like Adam I have covered my transgressions, By hiding mine iniquity in my bosom,
+if like Adam I have covered my transgressions, by hiding my iniquity in my heart,

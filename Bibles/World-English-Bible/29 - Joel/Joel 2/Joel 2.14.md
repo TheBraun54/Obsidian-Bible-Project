@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who knoweth whether he will not turn and repent, and leave a blessing behind him, even a meal-offering and a drink-offering unto Jehovah your God?
+Who knows? He may turn and relent, and leave a blessing behind him, even a meal offering and a drink offering to Yahweh, your God.

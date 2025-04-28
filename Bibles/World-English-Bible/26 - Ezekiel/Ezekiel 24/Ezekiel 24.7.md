@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For her blood is in the midst of her; she set it upon the bare rock; she poured it not upon the ground, to cover it with dust.
+For her blood is in the midst of her; she set it on the bare rock; she didn't pour it on the ground, to cover it with dust.

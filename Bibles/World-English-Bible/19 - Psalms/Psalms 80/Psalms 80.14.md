@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn again, we beseech thee, O God of hosts: Look down from heaven, and behold, and visit this vine,
+Turn again, we beg you, God of Armies. Look down from heaven, and see, and visit this vine,

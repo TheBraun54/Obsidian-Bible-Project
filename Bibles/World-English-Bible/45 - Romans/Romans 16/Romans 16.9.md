@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Urbanus our fellow-worker in Christ, and Stachys my beloved.
+Greet Urbanus, our fellow worker in Christ, and Stachys, my beloved.

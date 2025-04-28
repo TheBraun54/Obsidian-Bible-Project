@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh fear Jehovah, ye his saints; For there is no want to them that fear him.
+Oh fear Yahweh, you his saints, for there is no lack with those who fear him.

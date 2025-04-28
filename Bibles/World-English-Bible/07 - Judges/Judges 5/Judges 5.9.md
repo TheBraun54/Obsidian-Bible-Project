@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart is toward the governors of Israel, That offered themselves willingly among the people: Bless ye Jehovah.
+My heart is toward the governors of Israel, who offered themselves willingly among the people. Bless Yahweh!

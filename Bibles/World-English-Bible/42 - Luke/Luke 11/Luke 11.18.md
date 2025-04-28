@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if Satan also is divided against himself, how shall his kingdom stand? because ye say that I cast out demons by Beelzebub.
+If Satan also is divided against himself, how will his kingdom stand? For you say that I cast out demons by Beelzebul.

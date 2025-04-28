@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In his days Pharaoh-necoh king of Egypt went up against the king of Assyria to the river Euphrates: and king Josiah went against him; and [Pharaoh-necoh] slew him at Megiddo, when he had seen him.
+In his days Pharaoh Necoh king of Egypt went up against the king of Assyria to the river Euphrates: and king Josiah went against him; and [Pharaoh Necoh] killed him at Megiddo, when he had seen him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For even as Jonah became a sign unto the Ninevites, so shall also the Son of man be to this generation.
+For even as Jonah became a sign to the Ninevites, so will also the Son of Man be to this generation.

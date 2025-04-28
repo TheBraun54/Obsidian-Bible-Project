@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said not that he would blot out the name of Israel from under heaven; but he saved them by the hand of Jeroboam the son of Joash.
+Yahweh didn't say that he would blot out the name of Israel from under the sky; but he saved them by the hand of Jeroboam the son of Joash.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is blind, but my servant? or deaf, as my messenger that I send? who is blind as he that is at peace [with me], and blind as Jehovah's servant?
+Who is blind, but my servant? Or who is as deaf as my messenger whom I send? Who is as blind as he who is at peace, and as blind as Yahweh's servant?

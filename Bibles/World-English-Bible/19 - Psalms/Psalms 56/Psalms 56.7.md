@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall they escape by iniquity? In anger cast down the peoples, O God.
+Shall they escape by iniquity? In anger cast down the peoples, God.

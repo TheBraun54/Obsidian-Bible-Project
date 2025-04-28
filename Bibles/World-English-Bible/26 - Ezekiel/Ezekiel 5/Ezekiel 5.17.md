@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will send upon you famine and evil beasts, and they shall bereave thee; and pestilence and blood shall pass through thee; and I will bring the sword upon thee: I, Jehovah, have spoken it.
+and I will send on you famine and evil animals, and they shall bereave you; and pestilence and blood shall pass through you; and I will bring the sword on you: I, Yahweh, have spoken it.

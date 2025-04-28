@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is man, that thou art mindful of him? And the son of man, that thou visitest him?
+what is man, that you think of him? What is the son of man, that you care for him?

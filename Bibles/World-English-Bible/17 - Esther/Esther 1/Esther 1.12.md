@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the queen Vashti refused to come at the king's commandment by the chamberlains: therefore was the king very wroth, and his anger burned in him.
+But the queen Vashti refused to come at the king's commandment by the eunuchs. Therefore the king was very angry, and his anger burned in him.

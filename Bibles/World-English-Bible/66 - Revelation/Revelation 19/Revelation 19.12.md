@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his eyes [are] a flame of fire, and upon his head [are] many diadems; and he hath a name written which no one knoweth but he himself.
+His eyes are a flame of fire, and on his head are many crowns. He has names written and a name written which no one knows but he himself.

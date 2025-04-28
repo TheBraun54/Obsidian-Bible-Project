@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn away thine eyes from me, For they have overcome me. Thy hair is as a flock of goats, That lie along the side of Gilead.
+Turn away your eyes from me, for they have overcome me. Your hair is like a flock of goats, that lie along the side of Gilead.

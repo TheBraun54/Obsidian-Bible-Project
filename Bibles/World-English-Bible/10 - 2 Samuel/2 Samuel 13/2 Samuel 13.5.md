@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonadab said unto him, Lay thee down on thy bed, and feign thyself sick: and when thy father cometh to see thee, say unto him, Let my sister Tamar come, I pray thee, and give me bread to eat, and dress the food in my sight, that I may see it, and eat it from her hand.
+Jonadab said to him, "Lay down on your bed, and pretend to be sick. When your father comes to see you, tell him, 'Please let my sister Tamar come and give me bread to eat, and dress the food in my sight, that I may see it, and eat it from her hand.'"

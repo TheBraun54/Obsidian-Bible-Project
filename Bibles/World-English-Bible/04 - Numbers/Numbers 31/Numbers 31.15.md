@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto them, Have ye saved all the women alive?
+Moses said to them, "Have you saved all the women alive?

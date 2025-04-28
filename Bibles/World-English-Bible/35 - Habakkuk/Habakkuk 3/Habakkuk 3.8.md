@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Was Jehovah displeased with the rivers? Was thine anger against the rivers, Or thy wrath against the sea, That thou didst ride upon thy horses, Upon thy chariots of salvation?
+Was Yahweh displeased with the rivers? Was your anger against the rivers, or your wrath against the sea, that you rode on your horses, on your chariots of salvation?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Elihu answered and said,
+Moreover Elihu answered,

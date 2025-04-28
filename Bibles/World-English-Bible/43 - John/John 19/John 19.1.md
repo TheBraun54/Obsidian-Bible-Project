@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Pilate therefore took Jesus, and scourged him.
+So Pilate then took Jesus, and flogged him.

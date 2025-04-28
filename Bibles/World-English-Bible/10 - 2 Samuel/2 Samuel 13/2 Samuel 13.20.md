@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom her brother said unto her, Hath Amnon thy brother been with thee? but now hold thy peace, my sister: he is thy brother; take not this thing to heart. So Tamar remained desolate in her brother Absalom's house.
+Absalom her brother said to her, "Has Amnon your brother been with you? But now hold your peace, my sister. He is your brother. Don't take this thing to heart." So Tamar remained desolate in her brother Absalom's house.

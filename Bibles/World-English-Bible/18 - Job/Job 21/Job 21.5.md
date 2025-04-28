@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mark me, and be astonished, And lay your hand upon your mouth.
+Look at me, and be astonished. Lay your hand on your mouth.

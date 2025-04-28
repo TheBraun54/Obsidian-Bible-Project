@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for a great door and effectual is opened unto me, and there are many adversaries.
+for a great and effective door has opened to me, and there are many adversaries.

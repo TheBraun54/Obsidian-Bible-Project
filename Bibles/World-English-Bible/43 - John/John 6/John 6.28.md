@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, What must we do, that we may work the works of God?
+They said therefore to him, "What must we do, that we may work the works of God?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he presented the meal-offering, and filled his hand therefrom, and burnt it upon the altar, besides the burnt-offering of the morning.
+He presented the meal offering, and filled his hand from there, and burned it upon the altar, besides the burnt offering of the morning.

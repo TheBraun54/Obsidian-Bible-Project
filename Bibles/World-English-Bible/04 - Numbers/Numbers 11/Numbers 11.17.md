@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will come down and talk with thee there: and I will take of the Spirit which is upon thee, and will put it upon them; and they shall bear the burden of the people with thee, that thou bear it not thyself alone.
+I will come down and talk with you there. I will take of the Spirit which is on you, and will put it on them; and they shall bear the burden of the people with you, that you not bear it yourself alone.

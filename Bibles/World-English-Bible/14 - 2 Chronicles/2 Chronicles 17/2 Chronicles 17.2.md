@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he placed forces in all the fortified cities of Judah, and set garrisons in the land of Judah, and in the cities of Ephraim, which Asa his father had taken.
+He placed forces in all the fortified cities of Judah, and set garrisons in the land of Judah, and in the cities of Ephraim, which Asa his father had taken.

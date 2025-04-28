@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Righteous art thou, O Jehovah, when I contend with thee; yet would I reason the cause with thee: wherefore doth the way of the wicked prosper? wherefore are all they at ease that deal very treacherously?
+You are righteous, Yahweh, when I contend with you; yet I would reason the cause with you: why does the way of the wicked prosper? why are all they at ease who deal very treacherously?

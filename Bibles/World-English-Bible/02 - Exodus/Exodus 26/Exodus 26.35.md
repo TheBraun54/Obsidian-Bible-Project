@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set the table without the veil, and the candlestick over against the table on the side of the tabernacle toward the south: and thou shalt put the table on the north side.
+You shall set the table outside the veil, and the lampstand over against the table on the side of the tabernacle toward the south: and you shall put the table on the north side.

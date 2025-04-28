@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Egypt deposed him at Jerusalem, and fined the land a hundred talents of silver and a talent of gold.
+The king of Egypt deposed him at Jerusalem, and fined the land one hundred talents of silver and a talent of gold.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went out, they and all their hosts with them, much people, even as the sand that is upon the sea-shore in multitude, with horses and chariots very many.
+They went out, they and all their armies with them, many people, even as the sand that is on the seashore in multitude, with very many horses and chariots.

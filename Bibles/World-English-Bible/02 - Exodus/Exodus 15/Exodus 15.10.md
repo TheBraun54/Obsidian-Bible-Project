@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst blow with thy wind, the sea covered them: They sank as lead in the mighty waters.
+You blew with your wind. The sea covered them. They sank like lead in the mighty waters.

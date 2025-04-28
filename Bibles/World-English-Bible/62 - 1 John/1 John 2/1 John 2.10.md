@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth his brother abideth in the light, and there is no occasion of stumbling in him.
+He who loves his brother remains in the light, and there is no occasion for stumbling in him.

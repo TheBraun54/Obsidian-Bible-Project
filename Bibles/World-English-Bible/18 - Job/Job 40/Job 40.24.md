@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall any take him when he is on the watch, Or pierce through his nose with a snare?
+Shall any take him when he is on the watch, or pierce through his nose with a snare?

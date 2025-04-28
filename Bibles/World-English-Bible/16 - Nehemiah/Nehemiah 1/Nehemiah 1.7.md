@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-we have dealt very corruptly against thee, and have not kept the commandments, nor the statutes, nor the ordinances, which thou commandedst thy servant Moses.
+We have dealt very corruptly against you, and have not kept the commandments, nor the statutes, nor the ordinances, which you commanded your servant Moses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came nigh and touched the bier: and the bearers stood still. And he said, Young man, I say unto thee, Arise.
+He came near and touched the coffin, and the bearers stood still. He said, "Young man, I tell you, arise!"

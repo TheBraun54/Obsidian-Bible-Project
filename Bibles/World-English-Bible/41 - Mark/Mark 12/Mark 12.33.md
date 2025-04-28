@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to love him with all the heart, and with all the understanding, and with all the strength, and to love his neighbor as himself, is much more than all whole burnt-offerings and sacrifices.
+and to love him with all the heart, and with all the understanding, with all the soul, and with all the strength, and to love his neighbor as himself, is more important than all whole burnt offerings and sacrifices."

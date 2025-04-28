@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, Thus saith the Lord Jehovah: A great eagle with great wings and long pinions, full of feathers, which had divers colors, came unto Lebanon, and took the top of the cedar:
+and say, Thus says the Lord Yahweh: A great eagle with great wings and long feathers, full of feathers, which had various colors, came to Lebanon, and took the top of the cedar:

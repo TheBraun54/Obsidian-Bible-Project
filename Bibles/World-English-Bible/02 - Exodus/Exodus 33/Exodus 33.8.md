@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Moses went out unto the Tent, that all the people rose up, and stood, every man at his tent door, and looked after Moses, until he was gone into the Tent.
+It happened that when Moses went out to the Tent, that all the people rose up, and stood, everyone at their tent door, and watched Moses, until he had gone into the Tent.

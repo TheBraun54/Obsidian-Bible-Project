@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [he bade them] provide beasts, that they might set Paul thereon, and bring him safe unto Felix the governor.
+He asked them to provide animals, that they might set Paul on one, and bring him safely to Felix the governor.

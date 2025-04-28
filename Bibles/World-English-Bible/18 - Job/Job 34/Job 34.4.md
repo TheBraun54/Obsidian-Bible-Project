@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us choose for us that which is right: Let us know among ourselves what is good.
+Let us choose for us that which is right. Let us know among ourselves what is good.

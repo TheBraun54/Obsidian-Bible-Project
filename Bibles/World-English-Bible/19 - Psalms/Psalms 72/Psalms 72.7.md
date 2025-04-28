@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In his days shall the righteous flourish, And abundance of peace, till the moon be no more.
+In his days, the righteous shall flourish, and abundance of peace, until the moon is no more.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the north side a hundred cubits, their pillars twenty, and their sockets twenty, of brass; the hooks of the pillars, and their fillets, of silver.
+For the north side one hundred cubits, their pillars twenty, and their sockets twenty, of brass; the hooks of the pillars, and their fillets, of silver.

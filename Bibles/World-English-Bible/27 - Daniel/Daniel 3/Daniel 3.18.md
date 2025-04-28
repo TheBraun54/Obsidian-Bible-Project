@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if not, be it known unto thee, O king, that we will not serve thy gods, nor worship the golden image which thou hast set up.
+But if not, be it known to you, O king, that we will not serve your gods, nor worship the golden image which you have set up.

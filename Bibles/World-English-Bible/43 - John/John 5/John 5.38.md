@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye have not his word abiding in you: for whom he sent, him ye believe not.
+You don't have his word living in you; because you don't believe him whom he sent.

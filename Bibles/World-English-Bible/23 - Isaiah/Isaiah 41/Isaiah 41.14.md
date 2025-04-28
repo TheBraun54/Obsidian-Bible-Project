@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not, thou worm Jacob, and ye men of Israel; I will help thee, saith Jehovah, and thy Redeemer is the Holy One of Israel.
+Don't be afraid, you worm Jacob, and you men of Israel. I will help you," says Yahweh, "and your Redeemer is the Holy One of Israel.

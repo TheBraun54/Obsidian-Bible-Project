@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people that were encamped heard say, Zimri hath conspired, and hath also smitten the king: wherefore all Israel made Omri, the captain of the host, king over Israel that day in the camp.
+The people who were encamped heard say, Zimri has conspired, and has also struck the king: therefore all Israel made Omri, the captain of the army, king over Israel that day in the camp.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come to the other side into the country of the Gadarenes, there met him two possessed with demons, coming forth out of the tombs, exceeding fierce, so that no man could pass by that way.
+When he came to the other side, into the country of the Gergesenes, two people possessed by demons met him there, coming out of the tombs, exceedingly fierce, so that nobody could pass that way.

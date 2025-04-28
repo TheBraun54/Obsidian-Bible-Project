@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David smote them from the twilight even unto the evening of the next day: and there escaped not a man of them, save four hundred young men, who rode upon camels and fled.
+David struck them from the twilight even to the evening of the next day. Not a man of them escaped from there, except four hundred young men, who rode on camels and fled.

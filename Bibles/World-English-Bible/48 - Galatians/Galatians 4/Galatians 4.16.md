@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then am I become your enemy, by telling you the truth?
+So then, have I become your enemy by telling you the truth?

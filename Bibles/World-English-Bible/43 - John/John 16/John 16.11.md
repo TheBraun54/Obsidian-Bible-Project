@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of judgment, because the prince of this world hath been judged.
+about judgment, because the prince of this world has been judged.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto Jehoshaphat, Wilt thou go with me to battle to Ramoth-gilead? And Jehoshaphat said to the king of Israel, I am as thou art, my people as thy people, my horses as thy horses.
+He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?" Jehoshaphat said to the king of Israel, "I am as you are, my people as your people, my horses as your horses."

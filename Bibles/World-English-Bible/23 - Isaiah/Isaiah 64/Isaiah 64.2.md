@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as when fire kindleth the brushwood, [and] the fire causeth the waters to boil; to make thy name known to thine adversaries, that the nations may tremble at thy presence!
+as when fire kindles the brushwood, [and] the fire causes the waters to boil; to make your name known to your adversaries, that the nations may tremble at your presence!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, as I live, saith the Lord Jehovah, I will prepare thee unto blood, and blood shall pursue thee: since thou hast not hated blood, therefore blood shall pursue thee.
+therefore, as I live, says the Lord Yahweh, I will prepare you for blood, and blood shall pursue you: since you have not hated blood, therefore blood shall pursue you.

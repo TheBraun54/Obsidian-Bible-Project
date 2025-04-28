@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where then is that gratulation of yourselves? for I bear you witness, that, if possible, ye would have plucked out your eyes and given them to me.
+What was the blessing you enjoyed? For I testify to you that, if possible, you would have plucked out your eyes and given them to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall come to pass, while my glory passeth by, that I will put thee in a cleft of the rock, and will cover thee with my hand until I have passed by:
+It will happen, while my glory passes by, that I will put you in a cleft of the rock, and will cover you with my hand until I have passed by;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath ransomed Jacob, and redeemed him from the hand of him that was stronger than he.
+For Yahweh has ransomed Jacob, and redeemed him from the hand of him who was stronger than he.

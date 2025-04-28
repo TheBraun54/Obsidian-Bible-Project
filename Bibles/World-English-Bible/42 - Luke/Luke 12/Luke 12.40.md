@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye also ready: for in an hour that ye think not the Son of man cometh.
+Therefore be ready also, for the Son of Man is coming in an hour that you don't expect him."

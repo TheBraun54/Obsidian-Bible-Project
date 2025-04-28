@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Isaiah had said, Let them take a cake of figs, and lay it for a plaster upon the boil, and he shall recover.
+Now Isaiah had said, "Let them take a cake of figs, and lay it for a poultice on the boil, and he shall recover."

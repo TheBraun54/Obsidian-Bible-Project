@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His disciples remembered that it was written, Zeal for thy house shall eat me up.
+His disciples remembered that it was written, "Zeal for your house will eat me up."

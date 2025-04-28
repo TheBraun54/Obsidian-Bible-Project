@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the families of scribes that dwelt at Jabez: the Tirathites, the Shimeathites, the Sucathites. These are the Kenites that came of Hammath, the father of the house of Rechab.
+The families of scribes who lived at Jabez: the Tirathites, the Shimeathites, the Sucathites. These are the Kenites who came of Hammath, the father of the house of Rechab.

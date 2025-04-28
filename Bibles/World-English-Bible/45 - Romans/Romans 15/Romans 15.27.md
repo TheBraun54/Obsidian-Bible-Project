@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, it hath been their good pleasure; and their debtors they are. For if the Gentiles have been made partakers of their spiritual things, they owe it [to them] also to minister unto them in carnal things.
+Yes, it has been their good pleasure, and they are their debtors. For if the Gentiles have been made partakers of their spiritual things, they owe it to them also to serve them in fleshly things.

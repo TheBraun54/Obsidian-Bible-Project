@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whose confidence shall break in sunder, And whose trust is a spider's web.
+Whose confidence shall break apart, Whose trust is a spider's web.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be unto them as a false divination in their sight, who have sworn oaths unto them; but he bringeth iniquity to remembrance, that they may be taken.
+It shall be to them as a false divination in their sight, who have sworn oaths to them; but he brings iniquity to memory, that they may be taken.

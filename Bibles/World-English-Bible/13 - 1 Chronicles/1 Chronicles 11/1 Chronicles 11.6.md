@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said, Whosoever smiteth the Jebusites first shall be chief and captain. And Joab the son of Zeruiah went up first, and was made chief.
+David said, "Whoever strikes the Jebusites first shall be chief and captain." Joab the son of Zeruiah went up first, and was made chief.

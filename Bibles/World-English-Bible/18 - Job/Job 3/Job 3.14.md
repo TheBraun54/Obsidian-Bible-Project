@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With kings and counsellors of the earth, Who built up waste places for themselves;
+with kings and counselors of the earth, who built up waste places for themselves;

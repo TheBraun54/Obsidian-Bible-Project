@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hear thou from heaven, even from thy dwelling-place, and do according to all that the foreigner calleth to thee for; that all the peoples of the earth may know thy name, and fear thee, as doth thy people Israel, and that they may know that this house which I have built is called by thy name.
+then hear from heaven, even from your dwelling place, and do according to all that the foreigner calls to you for; that all the peoples of the earth may know your name, and fear you, as does your people Israel, and that they may know that this house which I have built is called by your name.

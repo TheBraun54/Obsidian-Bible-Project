@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he was strong, his heart was lifted up, so that he did corruptly, and he trespassed against Jehovah his God; for he went into the temple of Jehovah to burn incense upon the altar of incense.
+But when he was strong, his heart was lifted up, so that he did corruptly, and he trespassed against Yahweh his God; for he went into the temple of Yahweh to burn incense on the altar of incense.

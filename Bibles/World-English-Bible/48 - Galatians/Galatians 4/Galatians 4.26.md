@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Jerusalem that is above is free, which is our mother.
+But the Jerusalem that is above is free, which is the mother of us all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that thy choicest valleys were full of chariots, and the horsemen set themselves in array at the gate.
+It happened that your choicest valleys were full of chariots, and the horsemen set themselves in array at the gate.

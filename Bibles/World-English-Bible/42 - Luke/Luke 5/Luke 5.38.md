@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But new wine must be put into fresh wine-skins.
+But new wine must be put into fresh wineskins, and both are preserved.

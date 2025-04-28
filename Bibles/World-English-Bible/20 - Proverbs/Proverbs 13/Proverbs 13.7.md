@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is that maketh himself rich, yet hath nothing: There is that maketh himself poor, yet hath great wealth.
+There are some who pretend to be rich, yet have nothing. There are some who pretend to be poor, yet have great wealth.

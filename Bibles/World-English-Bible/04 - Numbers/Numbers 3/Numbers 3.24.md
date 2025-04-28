@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince of the fathers' house of the Gershonites shall be Eliasaph the son of Lael.
+The prince of the fathers' house of the Gershonites shall be Eliasaph the son of Lael.

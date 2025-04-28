@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou see the ass of him that hateth thee lying under his burden, thou shalt forbear to leave him, thou shalt surely release [it] with him.
+If you see the donkey of him who hates you fallen down under his burden, don't leave him, you shall surely help him with it.

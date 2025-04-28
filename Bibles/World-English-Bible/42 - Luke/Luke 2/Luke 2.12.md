@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this [is] the sign unto you: Ye shall find a babe wrapped in swaddling clothes, and lying in a manger.
+This is the sign to you: you will find a baby wrapped in strips of cloth, lying in a feeding trough."

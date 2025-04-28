@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lot also, who went with Abram, had flocks, and herds, and tents.
+Lot also, who went with Abram, had flocks, and herds, and tents.

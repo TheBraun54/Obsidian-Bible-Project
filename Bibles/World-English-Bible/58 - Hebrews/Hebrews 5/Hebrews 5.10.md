@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-named of God a high priest after the order of Melchizedek.
+named by God a high priest after the order of Melchizedek.

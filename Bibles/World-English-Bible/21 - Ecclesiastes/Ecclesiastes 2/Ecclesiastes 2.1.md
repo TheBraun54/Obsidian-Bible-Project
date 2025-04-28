@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said in my heart, Come now, I will prove thee with mirth; therefore enjoy pleasure: and, behold, this also was vanity.
+I said in my heart, "Come now, I will test you with mirth: therefore enjoy pleasure;" and behold, this also was vanity.

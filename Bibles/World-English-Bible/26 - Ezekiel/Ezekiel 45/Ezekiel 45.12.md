@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the shekel shall be twenty gerahs; twenty shekels, five and twenty shekels, fifteen shekels, shall be your maneh.
+The shekel shall be twenty gerahs. Twenty shekels plus twenty-five shekels plus fifteen shekels shall be your mina.

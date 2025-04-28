@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One thousand [shall flee] at the threat of one; at the threat of five shall ye flee: till ye be left as a beacon upon the top of a mountain, and as an ensign on a hill.
+One thousand will flee at the threat of one. At the threat of five, you will flee until you are left like a beacon on the top of a mountain, and like a banner on a hill.

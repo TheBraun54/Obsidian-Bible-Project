@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath not dealt with us after our sins, Nor rewarded us after our iniquities.
+He has not dealt with us according to our sins, nor repaid us for our iniquities.

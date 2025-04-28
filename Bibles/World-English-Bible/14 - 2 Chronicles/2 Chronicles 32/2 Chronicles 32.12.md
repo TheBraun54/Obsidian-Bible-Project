@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hath not the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, Ye shall worship before one altar, and upon it shall ye burn incense?
+Hasn't the same Hezekiah taken away his high places and his altars, and commanded Judah and Jerusalem, saying, 'You shall worship before one altar, and on it you shall burn incense?'

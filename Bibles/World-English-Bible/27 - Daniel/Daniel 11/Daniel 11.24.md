@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In time of security shall he come even upon the fattest places of the province; and he shall do that which his fathers have not done, nor his fathers' fathers; he shall scatter among them prey, and spoil, and substance: yea, he shall devise his devices against the strongholds, even for a time.
+In time of security shall he come even on the fattest places of the province; and he shall do that which his fathers have not done, nor his fathers' fathers; he shall scatter among them prey, and spoil, and substance: yes, he shall devise his devices against the strongholds, even for a time.

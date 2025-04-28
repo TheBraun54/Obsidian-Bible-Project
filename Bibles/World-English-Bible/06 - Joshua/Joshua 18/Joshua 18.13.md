@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border passed along from thence to Luz, to the side of Luz (the same is Beth-el), southward; and the border went down to Ataroth-addar, by the mountain that lieth on the south of Beth-horon the nether.
+The border passed along from there to Luz, to the side of Luz (the same is Bethel), southward. The border went down to Ataroth Addar, by the mountain that lies on the south of Beth Horon the lower.

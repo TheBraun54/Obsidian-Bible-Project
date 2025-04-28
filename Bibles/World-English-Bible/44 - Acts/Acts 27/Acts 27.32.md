@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the soldiers cut away the ropes of the boat, and let her fall off.
+Then the soldiers cut away the ropes of the boat, and let it fall off.

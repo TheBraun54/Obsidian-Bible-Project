@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, I beseech thee, the word that thou commandedst thy servant Moses, saying, If ye trespass, I will scatter you abroad among the peoples:
+"Remember, I beg you, the word that you commanded your servant Moses, saying, 'If you trespass, I will scatter you abroad among the peoples;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sheol; And the barren womb; The earth that is not satisfied with water; And the fire that saith not, Enough.
+Sheol, the barren womb; the earth that is not satisfied with water; and the fire that doesn't say, 'Enough.'

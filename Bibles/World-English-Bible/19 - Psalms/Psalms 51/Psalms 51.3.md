@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know my transgressions; And my sin is ever before me.
+For I know my transgressions. My sin is constantly before me.

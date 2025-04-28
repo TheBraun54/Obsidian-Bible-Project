@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The priest that offereth it for sin shall eat it: in a holy place shall it be eaten, in the court of the tent of meeting.
+The priest who offers it for sin shall eat it. It shall be eaten in a holy place, in the court of the Tent of Meeting.

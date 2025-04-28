@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David gat him a name when he returned from smiting the Syrians in the Valley of Salt, even eighteen thousand men.
+David earned a reputation when he returned from smiting the Syrians in the Valley of Salt, even eighteen thousand men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if he say thus, I have no delight in thee; behold, here am I, let him do to me as seemeth good unto him.
+but if he say thus, 'I have no delight in you;' behold, here am I. Let him do to me as seems good to him."

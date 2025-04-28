@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If then ye have to judge things pertaining to this life, do ye set them to judge who are of no account in the church?
+If then, you have to judge things pertaining to this life, do you set them to judge who are of no account in the assembly?

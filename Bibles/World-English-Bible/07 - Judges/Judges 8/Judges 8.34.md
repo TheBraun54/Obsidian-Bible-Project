@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel remembered not Jehovah their God, who had delivered them out of the hand of all their enemies on every side;
+The children of Israel didn't remember Yahweh their God, who had delivered them out of the hand of all their enemies on every side;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now go, write it before them on a tablet, and inscribe it in a book, that it may be for the time to come for ever and ever.
+Now go, write it before them on a tablet, and inscribe it in a book, that it may be for the time to come forever and ever.

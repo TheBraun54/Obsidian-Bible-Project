@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if they say thus, Come up unto us; then we will go up; for Jehovah hath delivered them into our hand: and this shall be the sign unto us.
+But if they say this, 'Come up to us!' then we will go up; for Yahweh has delivered them into our hand. This shall be the sign to us."

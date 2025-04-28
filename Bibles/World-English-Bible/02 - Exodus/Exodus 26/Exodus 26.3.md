@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Five curtains shall be coupled together one to another; and [the other] five curtains shall be coupled one to another.
+Five curtains shall be coupled together one to another; and the other five curtains shall be coupled one to another.

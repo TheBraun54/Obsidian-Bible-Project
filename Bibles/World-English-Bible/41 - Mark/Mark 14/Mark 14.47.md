@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But a certain one of them that stood by drew his sword, and smote the servant of the high priest, and struck off his ear.
+But a certain one of those who stood by drew his sword, and struck the servant of the high priest, and cut off his ear.

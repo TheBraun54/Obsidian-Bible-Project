@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye him, all his angels: Praise ye him, all his host.
+Praise him, all his angels! Praise him, all his army!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto the people, Ye are witnesses against yourselves that ye have chosen you Jehovah, to serve him. And they said, We are witnesses.
+Joshua said to the people, "You are witnesses against yourselves that you have chosen Yahweh yourselves, to serve him." They said, "We are witnesses."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah said unto him, Tarry here, I pray thee; for Jehovah hath sent me to the Jordan. And he said, As Jehovah liveth, and as thy soul liveth, I will not leave thee. And they two went on.
+Elijah said to him, "Please wait here, for Yahweh has sent me to the Jordan." He said, "As Yahweh lives, and as your soul lives, I will not leave you." They both went on.

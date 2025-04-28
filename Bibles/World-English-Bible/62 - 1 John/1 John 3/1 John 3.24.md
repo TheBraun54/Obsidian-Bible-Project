@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that keepeth his commandments abideth in him, and he in him. And hereby we know that he abideth in us, by the Spirit which he gave us.
+He who keeps his commandments remains in him, and he in him. By this we know that he remains in us, by the Spirit which he gave us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will give you shepherds according to my heart, who shall feed you with knowledge and understanding.
+I will give you shepherds according to my heart, who shall feed you with knowledge and understanding.

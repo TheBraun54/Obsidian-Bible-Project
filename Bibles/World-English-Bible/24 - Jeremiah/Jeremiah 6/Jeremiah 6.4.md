@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Prepare ye war against her; arise, and let us go up at noon. Woe unto us! for the day declineth, for the shadows of the evening are stretched out.
+"Prepare war against her; arise, and let us go up at noon. Woe to us! For the day declines, for the shadows of the evening are stretched out.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Aaron, Draw near unto the altar, and offer thy sin-offering, and thy burnt-offering, and make atonement for thyself, and for the people; and offer the oblation of the people, and make atonement for them; as Jehovah commanded.
+Moses said to Aaron, "Draw near to the altar, and offer your sin offering, and your burnt offering, and make atonement for yourself, and for the people; and offer the offering of the people, and make atonement for them; as Yahweh commanded."

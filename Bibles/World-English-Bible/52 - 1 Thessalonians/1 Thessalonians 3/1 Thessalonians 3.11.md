@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now may our God and Father himself, and our Lord Jesus, direct our way unto you:
+Now may our God and Father himself, and our Lord Jesus Christ, direct our way to you;

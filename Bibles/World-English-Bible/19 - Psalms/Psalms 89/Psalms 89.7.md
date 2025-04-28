@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A God very terrible in the council of the holy ones, And to be feared above all them that are round about him?
+a very awesome God in the council of the holy ones, to be feared above all those who are around him?

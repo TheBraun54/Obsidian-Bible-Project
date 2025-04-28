@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shema begat Raham, the father of Jorkeam; and Rekem begat Shammai.
+Shema became the father of Raham, the father of Jorkeam; and Rekem became the father of Shammai.

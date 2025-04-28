@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there come near unto him James and John, the sons of Zebedee, saying unto him, Teacher, we would that thou shouldest do for us whatsoever we shall ask of thee.
+James and John, the sons of Zebedee, came near to him, saying, "Teacher, we want you to do for us whatever we will ask."

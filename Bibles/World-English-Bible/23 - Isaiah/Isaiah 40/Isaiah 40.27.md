@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why sayest thou, O Jacob, and speakest, O Israel, My way is hid from Jehovah, and the justice [due] to me is passed away from my God?
+Why do you say, Jacob, and speak, Israel, "My way is hidden from Yahweh, and the justice due me is disregarded by my God?"

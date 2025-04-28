@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I say unto you, that except your righteousness shall exceed [the righteousness] of the scribes and Pharisees, ye shall in no wise enter into the kingdom of heaven.
+For I tell you that unless your righteousness exceeds that of the scribes and Pharisees, there is no way you will enter into the Kingdom of Heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore doth Job open his mouth in vanity; He multiplieth words without knowledge.
+Therefore Job opens his mouth with empty talk, and he multiplies words without knowledge."

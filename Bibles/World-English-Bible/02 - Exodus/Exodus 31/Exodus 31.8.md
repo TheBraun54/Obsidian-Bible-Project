@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the table and its vessels, and the pure candlestick with all its vessels, and the altar of incense,
+the table and its vessels, the pure lampstand with all its vessels, the altar of incense,

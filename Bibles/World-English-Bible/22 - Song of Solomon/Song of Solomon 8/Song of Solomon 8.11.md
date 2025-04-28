@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Solomon had a vineyard at Baal-hamon; He let out the vineyard unto keepers; Every one for the fruit thereof was to bring a thousand [pieces] of silver.
+Solomon had a vineyard at Baal Hamon. He leased out the vineyard to keepers. Each was to bring a thousand shekels of silver for its fruit.

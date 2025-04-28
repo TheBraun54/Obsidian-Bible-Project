@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The man that wandereth out of the way of understanding Shall rest in the assembly of the dead.
+The man who wanders out of the way of understanding shall rest in the assembly of the dead.

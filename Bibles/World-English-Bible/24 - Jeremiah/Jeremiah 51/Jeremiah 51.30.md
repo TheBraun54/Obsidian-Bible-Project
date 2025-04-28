@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mighty men of Babylon have forborne to fight, they remain in their strongholds; their might hath failed; they are become as women: her dwelling-places are set on fire; her bars are broken.
+The mighty men of Babylon have forborne to fight, they remain in their strongholds; their might has failed; they are become as women: her dwelling places are set on fire; her bars are broken.

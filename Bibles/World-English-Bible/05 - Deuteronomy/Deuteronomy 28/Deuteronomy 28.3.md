@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed shalt thou be in the city, and blessed shalt thou be in the field.
+You shall be blessed in the city, and you shall be blessed in the field.

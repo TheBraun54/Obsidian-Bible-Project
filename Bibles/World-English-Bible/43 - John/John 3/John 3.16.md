@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God so loved the world, that he gave his only begotten Son, that whosoever believeth on him should not perish, but have eternal life.
+For God so loved the world, that he gave his one and only Son, that whoever believes in him should not perish, but have eternal life.

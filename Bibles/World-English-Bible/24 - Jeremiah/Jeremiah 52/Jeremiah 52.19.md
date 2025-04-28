@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cups, and the firepans, and the basins, and the pots, and the candlesticks, and the spoons, and the bowls--that which was of gold, in gold, and that which was of silver, in silver,--the captain of the guard took away.
+The cups, and the fire pans, and the basins, and the pots, and the lampstands, and the spoons, and the bowls--that which was of gold, in gold, and that which was of silver, in silver,--the captain of the guard took away.

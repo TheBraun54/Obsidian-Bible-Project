@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to every beast of the earth, and to every bird of the heavens, and to everything that creepeth upon the earth, wherein there is life, [I have given] every green herb for food: and it was so.
+To every animal of the earth, and to every bird of the sky, and to everything that creeps on the earth, in which there is life, I have given every green herb for food;" and it was so.

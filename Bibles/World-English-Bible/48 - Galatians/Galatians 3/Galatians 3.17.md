@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this I say: A covenant confirmed beforehand by God, the law, which came four hundred and thirty years after, doth not disannul, so as to make the promise of none effect.
+Now I say this. A covenant confirmed beforehand by God in Christ, the law, which came four hundred thirty years after, does not annul, so as to make the promise of no effect.

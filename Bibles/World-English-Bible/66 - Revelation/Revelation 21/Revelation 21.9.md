@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came one of the seven angels who had the seven bowls, who were laden with the seven last plagues; and he spake with me, saying, Come hither, I will show thee the bride, the wife of the Lamb.
+One of the seven angels who had the seven bowls, who were loaded with the seven last plagues came, and he spoke with me, saying, "Come here. I will show you the wife, the Lamb's bride."

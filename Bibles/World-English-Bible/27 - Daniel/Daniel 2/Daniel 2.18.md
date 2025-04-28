@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they would desire mercies of the God of heaven concerning this secret; that Daniel and his companions should nor perish with the rest of the wise men of Babylon.
+that they would desire mercies of the God of heaven concerning this secret; that Daniel and his companions should not perish with the rest of the wise men of Babylon.

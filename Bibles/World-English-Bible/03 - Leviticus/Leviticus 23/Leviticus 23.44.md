@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses declared unto the children of Israel the set feasts of Jehovah.
+Moses declared to the children of Israel the appointed feasts of Yahweh.

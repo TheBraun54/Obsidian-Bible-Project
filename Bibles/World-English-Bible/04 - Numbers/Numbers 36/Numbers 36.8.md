@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every daughter, that possesseth an inheritance in any tribe of the children of Israel, shall be wife unto one of the family of the tribe of her father, that the children of Israel may possess every man the inheritance of his fathers.
+Every daughter who possesses an inheritance in any tribe of the children of Israel shall be wife to one of the family of the tribe of her father, that the children of Israel may possess every man the inheritance of his fathers.

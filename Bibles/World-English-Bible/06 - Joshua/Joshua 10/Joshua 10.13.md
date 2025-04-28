@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sun stood still, and the moon stayed, Until the nation had avenged themselves of their enemies. Is not this written in the book of Jashar? And the sun stayed in the midst of heaven, and hasted not to go down about a whole day.
+The sun stood still, and the moon stayed, until the nation had avenged themselves of their enemies. Isn't this written in the book of Jashar? The sun stayed in the midst of the sky, and didn't hurry to go down about a whole day.

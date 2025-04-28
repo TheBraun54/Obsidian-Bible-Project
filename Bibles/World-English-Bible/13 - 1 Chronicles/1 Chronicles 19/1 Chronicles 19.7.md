@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they hired them thirty and two thousand chariots, and the king of Maacah and his people, who came and encamped before Medeba. And the children of Ammon gathered themselves together from their cities, and came to battle.
+So they hired for themselves thirty-two thousand chariots, and the king of Maacah and his people, who came and encamped before Medeba. The children of Ammon gathered themselves together from their cities, and came to battle.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-laying up in store for themselves a good foundation against the time to come, that they may lay hold on the life which is [life] indeed.
+laying up in store for themselves a good foundation against the time to come, that they may lay hold of eternal life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were born unto the giant in Gath; and they fell by the hand of David, and by the hand of his servants.
+These were born to the giant in Gath; and they fell by the hand of David, and by the hand of his servants.

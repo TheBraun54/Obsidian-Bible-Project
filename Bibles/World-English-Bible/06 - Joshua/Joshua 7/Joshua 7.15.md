@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, that he that is taken with the devoted thing shall be burnt with fire, he and all that he hath; because he hath transgressed the covenant of Jehovah, and because he hath wrought folly in Israel.
+It shall be, that he who is taken with the devoted thing shall be burnt with fire, he and all that he has, because he has transgressed the covenant of Yahweh, and because he has done a disgraceful thing in Israel.'"

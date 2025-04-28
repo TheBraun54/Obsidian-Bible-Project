@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take good heed therefore unto yourselves, that ye love Jehovah your God.
+Take good heed therefore to yourselves, that you love Yahweh your God.

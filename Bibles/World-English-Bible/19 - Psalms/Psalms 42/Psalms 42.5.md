@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why art thou cast down, O my soul? And [why] art thou disquieted within me? Hope thou in God; for I shall yet praise him [For] the help of his countenance.
+Why are you in despair, my soul? Why are you disturbed within me? Hope in God! For I shall still praise him for the saving help of his presence.

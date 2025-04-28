@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he left them, and went forth out of the city to Bethany, and lodged there.
+He left them, and went out of the city to Bethany, and lodged there.

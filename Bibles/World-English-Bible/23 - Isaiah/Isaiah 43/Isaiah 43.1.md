@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now thus saith Jehovah that created thee, O Jacob, and he that formed thee, O Israel: Fear not, for I have redeemed thee; I have called thee by thy name, thou art mine.
+But now thus says Yahweh who created you, Jacob, and he who formed you, Israel: "Don't be afraid, for I have redeemed you. I have called you by your name. You are mine.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So is he that layeth up treasure for himself, and is not rich toward God.
+So is he who lays up treasure for himself, and is not rich toward God."

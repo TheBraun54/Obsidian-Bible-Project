@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after these things, that it was told Abraham, saying, Behold, Milcah, she also hath borne children unto thy brother Nahor:
+It happened after these things, that it was told Abraham, saying, "Behold, Milcah, she also has borne children to your brother Nahor:

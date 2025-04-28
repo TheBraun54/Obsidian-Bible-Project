@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when ye are passed over the Jordan, that ye shall set up these stones, which I command you this day, in mount Ebal, and thou shalt plaster them with plaster.
+It shall be, when you have passed over the Jordan, that you shall set up these stones, which I command you this day, in Mount Ebal, and you shall plaster them with plaster.

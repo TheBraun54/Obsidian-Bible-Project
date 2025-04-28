@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had taken counsel with the people, he appointed them that should sing unto Jehovah, and give praise in holy array, as they went out before the army, and say, Give thanks unto Jehovah; for his lovingkindness [endureth] for ever.
+When he had taken counsel with the people, he appointed those who should sing to Yahweh, and give praise in holy array, as they went out before the army, and say, Give thanks to Yahweh; for his loving kindness endures forever.

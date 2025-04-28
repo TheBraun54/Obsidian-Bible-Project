@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, These are the boiling-houses, where the ministers of the house shall boil the sacrifice of the people.
+Then he said to me, These are the boiling houses, where the ministers of the house shall boil the sacrifice of the people.

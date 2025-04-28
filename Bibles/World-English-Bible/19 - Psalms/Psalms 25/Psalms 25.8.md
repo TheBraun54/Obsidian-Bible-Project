@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Good and upright is Jehovah: Therefore will he instruct sinners in the way.
+Good and upright is Yahweh, therefore he will instruct sinners in the way.

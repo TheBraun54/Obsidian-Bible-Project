@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Break thou the arm of the wicked; And as for the evil man, seek out his wickedness till thou find none.
+Break the arm of the wicked. As for the evil man, seek out his wickedness until you find none.

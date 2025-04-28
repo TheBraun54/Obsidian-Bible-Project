@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To give knowledge of salvation unto his people In the remission of their sins,
+to give knowledge of salvation to his people by the remission of their sins,

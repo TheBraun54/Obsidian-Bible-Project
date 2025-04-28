@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when the ear heard [me], then it blessed me; And when the eye saw [me], it gave witness unto me:
+For when the ear heard me, then it blessed me; and when the eye saw me, it commended me:

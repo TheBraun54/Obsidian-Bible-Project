@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken now unto my voice, I will give thee counsel, and God be with thee: be thou for the people to Godward, and bring thou the causes unto God:
+Listen now to my voice. I will give you counsel, and God be with you. You represent the people before God, and bring the causes to God.

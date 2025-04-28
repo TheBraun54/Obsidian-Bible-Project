@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever toucheth anything that she sitteth upon shall wash his clothes, and bathe himself in water, and be unclean until the even.
+Whoever touches anything that she sits on shall wash his clothes, and bathe himself in water, and be unclean until the evening.

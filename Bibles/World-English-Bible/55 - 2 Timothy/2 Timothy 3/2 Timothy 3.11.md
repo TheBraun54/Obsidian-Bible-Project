@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-persecutions, sufferings. What things befell me at Antioch, at Iconium, at Lystra; what persecutions I endured. And out of them all the Lord delivered me.
+persecutions, and sufferings: those things that happened to me at Antioch, Iconium, and Lystra. I endured those persecutions. Out of them all the Lord delivered me.

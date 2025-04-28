@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast fed them with the bread of tears, And given them tears to drink in large measure.
+You have fed them with the bread of tears, and given them tears to drink in large measure.

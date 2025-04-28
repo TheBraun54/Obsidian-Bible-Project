@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Moses had done speaking with them, he put a veil on his face.
+When Moses was done speaking with them, he put a veil on his face.

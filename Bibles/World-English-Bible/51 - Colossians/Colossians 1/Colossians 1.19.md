@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it was the good pleasure [of the Father] that in him should all the fulness dwell;
+For all the fullness was pleased to dwell in him;

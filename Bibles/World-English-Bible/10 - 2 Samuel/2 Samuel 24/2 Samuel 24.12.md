@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go and speak unto David, Thus saith Jehovah, I offer thee three things: choose thee one of them, that I may do it unto thee.
+"Go and speak to David, 'Thus says Yahweh, "I offer you three things. Choose one of them, that I may do it to you."'"

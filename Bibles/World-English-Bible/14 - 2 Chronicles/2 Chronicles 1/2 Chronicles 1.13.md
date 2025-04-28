@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Solomon came from the high place that was at Gibeon, from before the tent of meeting, unto Jerusalem; and he reigned over Israel.
+So Solomon came from the high place that was at Gibeon, from before the Tent of Meeting, to Jerusalem; and he reigned over Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the elders that rule well be counted worthy of double honor, especially those who labor in the word and in teaching.
+Let the elders who rule well be counted worthy of double honor, especially those who labor in the word and in teaching.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ought ye not to know that Jehovah, the God of Israel, gave the kingdom over Israel to David for ever, even to him and to his sons by a covenant of salt?
+Ought you not to know that Yahweh, the God of Israel, gave the kingdom over Israel to David forever, even to him and to his sons by a covenant of salt?

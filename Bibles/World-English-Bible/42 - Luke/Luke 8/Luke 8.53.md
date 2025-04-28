@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they laughed him to scorn, knowing that she was dead.
+They were ridiculing him, knowing that she was dead.

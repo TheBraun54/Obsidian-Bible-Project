@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And be ready by the morning, and come up in the morning unto mount Sinai, and present thyself there to me on the top of the mount.
+Be ready by the morning, and come up in the morning to Mount Sinai, and present yourself there to me on the top of the mountain.

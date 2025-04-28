@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hoshea the son of Elah made a conspiracy against Pekah the son of Remaliah, and smote him, and slew him, and reigned in his stead, in the twentieth year of Jotham the son of Uzziah.
+Hoshea the son of Elah made a conspiracy against Pekah the son of Remaliah, and struck him, and killed him, and reigned in his place, in the twentieth year of Jotham the son of Uzziah.

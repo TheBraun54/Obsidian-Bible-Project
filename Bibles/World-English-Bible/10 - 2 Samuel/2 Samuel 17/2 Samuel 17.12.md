@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall we come upon him in some place where he shall be found, and we will light upon him as the dew falleth on the ground; and of him and of all the men that are with him we will not leave so much as one.
+So shall we come on him in some place where he shall be found, and we will light on him as the dew falls on the ground; and of him and of all the men who are with him we will not leave so much as one.

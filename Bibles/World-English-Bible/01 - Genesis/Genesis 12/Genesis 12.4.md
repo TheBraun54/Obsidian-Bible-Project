@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Abram went, as Jehovah had spoken unto him; and Lot went with him: and Abram was seventy and five years old when he departed out of Haran.
+So Abram went, as Yahweh had spoken to him. Lot went with him. Abram was seventy-five years old when he departed out of Haran.

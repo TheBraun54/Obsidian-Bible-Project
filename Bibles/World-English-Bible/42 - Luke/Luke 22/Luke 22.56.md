@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain maid seeing him as he sat in the light [of the fire], and looking stedfastly upon him, said, This man also was with him.
+A certain servant girl saw him as he sat in the light, and looking intently at him, said, "This man also was with him."

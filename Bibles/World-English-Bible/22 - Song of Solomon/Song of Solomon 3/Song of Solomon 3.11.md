@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go forth, O ye daughters of Zion, and behold king Solomon, With the crown wherewith his mother hath crowned him In the day of his espousals, And in the day of the gladness of his heart.
+Go forth, you daughters of Zion, and see king Solomon, with the crown with which his mother has crowned him, in the day of his weddings, in the day of the gladness of his heart. Lover

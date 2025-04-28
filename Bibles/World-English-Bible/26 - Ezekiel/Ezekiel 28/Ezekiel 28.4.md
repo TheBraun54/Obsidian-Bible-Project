@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by thy wisdom and by thine understanding thou hast gotten thee riches, and hast gotten gold and silver into thy treasures;
+by your wisdom and by your understanding you have gotten yourself riches, and have gotten gold and silver into your treasures;

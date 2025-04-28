@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Others said, These are not the sayings of one possessed with a demon. Can a demon open the eyes of the blind?
+Others said, "These are not the sayings of one possessed by a demon. It isn't possible for a demon to open the eyes of the blind, is it?"

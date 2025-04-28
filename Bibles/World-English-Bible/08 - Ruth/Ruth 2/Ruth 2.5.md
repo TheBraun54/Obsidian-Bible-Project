@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Boaz unto his servant that was set over the reapers, Whose damsel is this?
+Then Boaz said to his servant who was set over the reapers, "Whose young lady is this?"

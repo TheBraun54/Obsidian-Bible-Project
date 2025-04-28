@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall tread down the wicked; for they shall be ashes under the soles of your feet in the day that I make, saith Jehovah of hosts.
+You shall tread down the wicked; for they will be ashes under the soles of your feet in the day that I make," says Yahweh of Armies.

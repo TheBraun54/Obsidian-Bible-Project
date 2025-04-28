@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is a statute for Israel, An ordinance of the God of Jacob.
+For it is a statute for Israel, an ordinance of the God of Jacob.

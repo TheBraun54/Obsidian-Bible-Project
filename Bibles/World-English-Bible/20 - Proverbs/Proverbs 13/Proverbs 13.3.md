@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that guardeth his mouth keepeth his life; [But] he that openeth wide his lips shall have destruction.
+He who guards his mouth guards his soul. One who opens wide his lips comes to ruin.

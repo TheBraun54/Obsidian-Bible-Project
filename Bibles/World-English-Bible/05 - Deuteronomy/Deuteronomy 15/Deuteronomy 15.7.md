@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be with thee a poor man, one of thy brethren, within any of thy gates in thy land which Jehovah thy God giveth thee, thou shalt not harden thy heart, nor shut thy hand from thy poor brother;
+If a poor man, one of your brothers, is with you within any of your gates in your land which Yahweh your God gives you, you shall not harden your heart, nor shut your hand from your poor brother;

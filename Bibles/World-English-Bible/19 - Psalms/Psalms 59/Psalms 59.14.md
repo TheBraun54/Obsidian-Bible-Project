@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at evening let them return, let them howl like a dog, And go round about the city.
+At evening let them return. Let them howl like a dog, and go around the city.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In like manner he also that [received] the two gained other two.
+In the same way, he also who got the two gained another two.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who should not fear thee, O King of the nations? for to thee doth it appertain; forasmuch as among all the wise men of the nations, and in all their royal estate, there is none like unto thee. [
+Who should not fear you, King of the nations? For it appertains to you; because among all the wise men of the nations, and in all their royal estate, there is none like you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore hear ye the counsel of Jehovah, that he hath taken against Edom; and his purposes, that he hath purposed against the inhabitants of Teman: Surely they shall drag them away, [even] the little ones of the flock; surely he shall make their habitation desolate over them.
+Therefore hear the counsel of Yahweh, that he has taken against Edom; and his purposes, that he has purposed against the inhabitants of Teman: Surely they shall drag them away, [even] the little ones of the flock; surely he shall make their habitation desolate over them.

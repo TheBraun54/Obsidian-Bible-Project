@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came unto his father, and said, My father: and he said, Here am I; who art thou, my son?
+He came to his father, and said, "My father?" He said, "Here I am. Who are you, my son?"

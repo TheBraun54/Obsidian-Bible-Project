@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Paul thought not good to take with them him who withdrew from them from Pamphylia, and went not with them to the work.
+But Paul didn't think that it was a good idea to take with them someone who had withdrawn from them in Pamphylia, and didn't go with them to do the work.

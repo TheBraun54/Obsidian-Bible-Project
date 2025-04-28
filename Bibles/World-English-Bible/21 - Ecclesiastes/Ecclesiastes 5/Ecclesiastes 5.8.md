@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou seest the oppression of the poor, and the violent taking away of justice and righteousness in a province, marvel not at the matter: for one higher than the high regardeth; and there are higher than they.
+If you see the oppression of the poor, and the violent taking away of justice and righteousness in a district, don't marvel at the matter: for one official is eyed by a higher one; and there are officials over them.

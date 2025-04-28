@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proud have hid a snare for me, and cords; They have spread a net by the wayside; They have set gins for me. {{Selah
+The proud have hidden a snare for me, they have spread the cords of a net by the path. They have set traps for me. Selah.

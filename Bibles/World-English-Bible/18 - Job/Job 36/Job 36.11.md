@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If they hearken and serve [him], They shall spend their days in prosperity, And their years in pleasures.
+If they listen and serve him, they shall spend their days in prosperity, and their years in pleasures.

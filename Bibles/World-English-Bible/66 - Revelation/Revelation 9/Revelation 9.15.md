@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the four angels were loosed, that had been prepared for the hour and day and month and year, that they should kill the third part of men.
+The four angels were freed who had been prepared for that hour and day and month and year, so that they might kill one third of mankind.

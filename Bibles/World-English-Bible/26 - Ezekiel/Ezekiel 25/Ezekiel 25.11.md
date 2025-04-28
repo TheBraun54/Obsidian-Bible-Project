@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will execute judgments upon Moab; and they shall know that I am Jehovah.
+and I will execute judgments on Moab; and they shall know that I am Yahweh.

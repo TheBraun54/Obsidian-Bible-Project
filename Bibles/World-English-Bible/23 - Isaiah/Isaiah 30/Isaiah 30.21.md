@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thine ears shall hear a word behind thee, saying, This is the way, walk ye in it; when ye turn to the right hand, and when ye turn to the left.
+and when you turn to the right hand, and when you turn to the left, your ears will hear a voice behind you, saying, "This is the way. Walk in it."

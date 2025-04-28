@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the greater house he ceiled with fir-wood, which he overlaid with fine gold, and wrought thereon palm-trees and chains.
+The greater house he made a ceiling with fir wood, which he overlaid with fine gold, and ornamented it with palm trees and chains.

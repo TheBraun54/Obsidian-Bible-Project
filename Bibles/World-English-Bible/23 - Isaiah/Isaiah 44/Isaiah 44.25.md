@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that frustrateth the signs of the liars, and maketh diviners mad; that turneth wise men backward, and maketh their knowledge foolish;
+who frustrates the signs of the liars, and makes diviners mad; who turns wise men backward, and makes their knowledge foolish;

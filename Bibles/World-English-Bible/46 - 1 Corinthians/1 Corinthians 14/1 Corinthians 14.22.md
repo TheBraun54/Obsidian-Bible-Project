@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore tongues are for a sign, not to them that believe, but to the unbelieving: but prophesying [is for a sign], not to the unbelieving, but to them that believe.
+Therefore other languages are for a sign, not to those who believe, but to the unbelieving; but prophesying is for a sign, not to the unbelieving, but to those who believe.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a grievous evil which I have seen under the sun, [namely], riches kept by the owner thereof to his hurt:
+There is a grievous evil which I have seen under the sun: wealth kept by its owner to his harm.

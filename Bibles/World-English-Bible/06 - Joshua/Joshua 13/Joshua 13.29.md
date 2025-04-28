@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses gave [inheritance] unto the half-tribe of Manasseh: and it was for the half-tribe of the children of Manasseh according to their families.
+Moses gave an inheritance to the half-tribe of Manasseh. It was for the half-tribe of the children of Manasseh according to their families.

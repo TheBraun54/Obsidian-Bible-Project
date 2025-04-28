@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But straightway Jesus spake unto them, saying Be of good cheer; it is I; be not afraid.
+But immediately Jesus spoke to them, saying "Cheer up! It is I! Don't be afraid."

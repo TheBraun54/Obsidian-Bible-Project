@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But [I say], that the things which the Gentiles sacrifice, they sacrifice to demons, and not to God: and I would not that ye should have communion with demons.
+But I say that the things which the Gentiles sacrifice, they sacrifice to demons, and not to God, and I don't desire that you would have fellowship with demons.

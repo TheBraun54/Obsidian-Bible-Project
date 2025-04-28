@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it is come to pass that, as he cried, and they would not hear, so they shall cry, and I will not hear, said Jehovah of hosts;
+It has come to pass that, as he called, and they refused to listen, so they will call, and I will not listen," said Yahweh of Armies;

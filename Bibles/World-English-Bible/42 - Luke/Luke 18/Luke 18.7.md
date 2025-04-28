@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And shall not God avenge his elect, that cry to him day and night, and [yet] he is longsuffering over them?
+Won't God avenge his chosen ones, who are crying out to him day and night, and yet he exercises patience with them?

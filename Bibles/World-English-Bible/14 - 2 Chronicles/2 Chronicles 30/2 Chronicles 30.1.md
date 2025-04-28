@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah sent to all Israel and Judah, and wrote letters also to Ephraim and Manasseh, that they should come to the house of Jehovah at Jerusalem, to keep the passover unto Jehovah, the God of Israel.
+Hezekiah sent to all Israel and Judah, and wrote letters also to Ephraim and Manasseh, that they should come to the house of Yahweh at Jerusalem, to keep the Passover to Yahweh, the God of Israel.

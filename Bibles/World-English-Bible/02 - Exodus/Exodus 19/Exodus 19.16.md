@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the third day, when it was morning, that there were thunders and lightnings, and a thick cloud upon the mount, and the voice of a trumpet exceeding loud; and all the people that were in the camp trembled.
+It happened on the third day, when it was morning, that there were thunders and lightnings, and a thick cloud on the mountain, and the sound of an exceedingly loud trumpet; and all the people who were in the camp trembled.

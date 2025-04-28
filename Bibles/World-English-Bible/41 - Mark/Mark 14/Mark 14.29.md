@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter said unto him, Although all shall be offended, yet will not I.
+But Peter said to him, "Although all will be offended, yet I will not."

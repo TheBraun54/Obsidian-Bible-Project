@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he measured the house, a hundred cubits long; and the separate place, and the building, with the walls thereof, a hundred cubits long;
+So he measured the house, one hundred cubits long; and the separate place, and the building, with its walls, one hundred cubits long;

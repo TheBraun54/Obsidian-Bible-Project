@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom, whom we anointed over us, is dead in battle. Now therefore why speak ye not a word of bringing the king back?
+Absalom, whom we anointed over us, is dead in battle. Now therefore why don't you speak a word of bringing the king back?"

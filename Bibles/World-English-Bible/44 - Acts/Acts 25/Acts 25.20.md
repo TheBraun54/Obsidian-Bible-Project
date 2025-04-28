@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, being perplexed how to inquire concerning these things, asked whether he would go to Jerusalem and there be judged of these matters.
+Being perplexed how to inquire concerning these things, I asked whether he was willing to go to Jerusalem and there be judged concerning these matters.

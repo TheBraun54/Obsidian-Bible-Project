@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not afflict any widow, or fatherless child.
+"You shall not take advantage of any widow or fatherless child.

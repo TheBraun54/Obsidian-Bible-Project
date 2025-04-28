@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He wandereth abroad for bread, [saying], Where is it? He knoweth that the day of darkness is ready at his hand.
+He wanders abroad for bread, saying, 'Where is it?' He knows that the day of darkness is ready at his hand.

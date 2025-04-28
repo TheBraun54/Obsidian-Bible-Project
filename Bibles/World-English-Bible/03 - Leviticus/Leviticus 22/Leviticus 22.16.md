@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [so] cause them to bear the iniquity that bringeth guilt, when they eat their holy things: for I am Jehovah who sanctifieth them.
+and so cause them to bear the iniquity that brings guilt, when they eat their holy things: for I am Yahweh who sanctifies them.'"

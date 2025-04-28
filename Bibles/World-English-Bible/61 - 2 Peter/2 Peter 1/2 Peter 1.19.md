@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we have the word of prophecy [made] more sure; whereunto ye do well that ye take heed, as unto a lamp shining in a dark place, until the day dawn, and the day-star arise in your hearts:
+We have the more sure word of prophecy; and you do well that you heed it, as to a lamp shining in a dark place, until the day dawns, and the morning star arises in your hearts:

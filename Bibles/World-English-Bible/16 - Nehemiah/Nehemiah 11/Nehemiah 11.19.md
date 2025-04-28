@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the porters, Akkub, Talmon, and their brethren, that kept watch at the gates, were a hundred seventy and two.
+Moreover the porters, Akkub, Talmon, and their brothers, who kept watch at the gates, were one hundred seventy-two.

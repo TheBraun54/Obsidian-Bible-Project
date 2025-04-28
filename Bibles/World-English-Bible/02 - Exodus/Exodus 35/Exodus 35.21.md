@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came, every one whose heart stirred him up, and every one whom his spirit made willing, [and] brought Jehovah's offering, for the work of the tent of meeting, and for all the service thereof, and for the holy garments.
+They came, everyone whose heart stirred him up, and everyone whom his spirit made willing, and brought Yahweh's offering, for the work of the Tent of Meeting, and for all of its service, and for the holy garments.

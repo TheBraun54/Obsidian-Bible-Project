@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they wrote [thus] by them, The apostles and the elders, brethren, unto the brethren who are of the Gentiles in Antioch and Syria and Cilicia, greeting:
+They wrote these things by their hand: "The apostles, the elders, and the brothers, to the brothers who are of the Gentiles in Antioch, Syria, and Cilicia: greetings.

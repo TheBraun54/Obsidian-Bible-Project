@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Asher, from the east side even unto the west side, Naphtali, one [portion] .
+By the border of Asher, from the east side even to the west side, Naphtali, one [portion].

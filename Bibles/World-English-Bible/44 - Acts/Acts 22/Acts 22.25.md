@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had tied him up with the thongs, Paul said unto the centurion that stood by, Is it lawful for you to scourge a man that is a Roman, and uncondemned?
+When they had tied him up with thongs, Paul asked the centurion who stood by, "Is it lawful for you to scourge a man who is a Roman, and not found guilty?"

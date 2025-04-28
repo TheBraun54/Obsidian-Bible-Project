@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forty years old was I when Moses the servant of Jehovah sent me from Kadesh-barnea to spy out the land; and I brought him word again as it was in my heart.
+I was forty years old when Moses the servant of Yahweh sent me from Kadesh Barnea to spy out the land. I brought him word again as it was in my heart.

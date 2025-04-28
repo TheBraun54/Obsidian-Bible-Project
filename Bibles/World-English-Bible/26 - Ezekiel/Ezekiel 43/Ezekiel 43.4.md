@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glory of Jehovah came into the house by the way of the gate whose prospect is toward the east.
+The glory of Yahweh came into the house by the way of the gate whose prospect is toward the east.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eshton begat Beth-rapha, and Paseah, and Tehinnah the father of Ir-nahash. These are the men of Recah.
+Eshton became the father of Beth Rapha, and Paseah, and Tehinnah the father of Ir Nahash. These are the men of Recah.

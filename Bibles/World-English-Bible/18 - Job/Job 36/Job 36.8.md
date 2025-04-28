@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if they be bound in fetters, And be taken in the cords of afflictions;
+If they are bound in fetters, and are taken in the cords of afflictions,

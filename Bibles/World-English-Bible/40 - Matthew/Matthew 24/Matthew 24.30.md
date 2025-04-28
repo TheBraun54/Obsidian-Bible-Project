@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and then shall appear the sign of the Son of man in heaven: and then shall all the tribes of the earth mourn, and they shall see the Son of man coming on the clouds of heaven with power and great glory.
+and then the sign of the Son of Man will appear in the sky. Then all the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds of the sky with power and great glory.

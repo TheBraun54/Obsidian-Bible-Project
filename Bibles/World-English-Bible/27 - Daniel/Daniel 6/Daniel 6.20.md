@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came near unto the den to Daniel, he cried with a lamentable voice; the king spake and said to Daniel, O Daniel, servant of the living God, is thy God, whom thou servest continually, able to deliver thee from the lions?
+When he came near to the den to Daniel, he cried with a lamentable voice; the king spoke and said to Daniel, Daniel, servant of the living God, is your God, whom you serve continually, able to deliver you from the lions?

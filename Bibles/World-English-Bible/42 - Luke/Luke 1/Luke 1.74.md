@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To grant unto us that we being delivered out of the hand of our enemies Should serve him without fear,
+to grant to us that we, being delivered out of the hand of our enemies, should serve him without fear,

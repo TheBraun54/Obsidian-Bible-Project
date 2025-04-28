@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is fit neither for the land nor for the dunghill: [men] cast it out. He that hath ears to hear, let him hear.
+It is fit neither for the soil nor for the manure pile. It is thrown out. He who has ears to hear, let him hear."

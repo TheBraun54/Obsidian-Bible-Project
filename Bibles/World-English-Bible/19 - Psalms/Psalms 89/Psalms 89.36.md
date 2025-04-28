@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His seed shall endure for ever, And his throne as the sun before me.
+His seed will endure forever, his throne like the sun before me.

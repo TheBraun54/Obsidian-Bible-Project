@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For so is the will of God, that by well-doing ye should put to silence the ignorance of foolish men:
+For this is the will of God, that by well-doing you should put to silence the ignorance of foolish men:

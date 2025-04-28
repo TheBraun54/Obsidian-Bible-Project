@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he travaileth with iniquity; Yea, he hath conceived mischief, and brought forth falsehood.
+Behold, he travails with iniquity. Yes, he has conceived mischief, and brought forth falsehood.

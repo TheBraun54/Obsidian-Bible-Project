@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when the adversaries of Judah and Benjamin heard that the children of the captivity were building a temple unto Jehovah, the God of Israel;
+Now when the adversaries of Judah and Benjamin heard that the children of the captivity were building a temple to Yahweh, the God of Israel;

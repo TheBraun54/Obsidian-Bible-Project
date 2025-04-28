@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the covering of rams' skins dyed red, and the covering of sealskins, and the veil of the screen;
+the covering of rams' skins dyed red, the covering of sea cow hides, the veil of the screen,

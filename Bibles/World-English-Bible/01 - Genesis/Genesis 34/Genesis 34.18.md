@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their words pleased Hamor, and Shechem Hamor's son.
+Their words pleased Hamor and Shechem, Hamor's son.

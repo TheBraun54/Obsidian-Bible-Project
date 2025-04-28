@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they have wrought folly in Israel, and have committed adultery with their neighbors' wives, and have spoken words in my name falsely, which I commanded them not; and I am he that knoweth, and am witness, saith Jehovah.
+because they have worked folly in Israel, and have committed adultery with their neighbors' wives, and have spoken words in my name falsely, which I didn't command them; and I am he who knows, and am witness, says Yahweh.

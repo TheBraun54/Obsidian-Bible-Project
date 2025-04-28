@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath an ear, let him hear what the Spirit saith to the churches. To him that overcometh, to him will I give of the hidden manna, and I will give him a white stone, and upon the stone a new name written, which no one knoweth but he that receiveth it.
+He who has an ear, let him hear what the Spirit says to the assemblies. To him who overcomes, to him I will give of the hidden manna, and I will give him a white stone, and on the stone a new name written, which no one knows but he who receives it.

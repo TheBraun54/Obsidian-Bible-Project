@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is in the way of life that heedeth correction; But he that forsaketh reproof erreth.
+He is in the way of life who heeds correction, but he who forsakes reproof leads others astray.

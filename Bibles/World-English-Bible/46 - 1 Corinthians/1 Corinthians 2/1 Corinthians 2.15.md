@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that is spiritual judgeth all things, and he himself is judged of no man.
+But he who is spiritual discerns all things, and he himself is judged by no one.

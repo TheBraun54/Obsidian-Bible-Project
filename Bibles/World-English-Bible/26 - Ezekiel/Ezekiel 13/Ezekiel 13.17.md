@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, set thy face against the daughters of thy people, that prophesy out of their own heart; and prophesy thou against them,
+You, son of man, set your face against the daughters of your people, who prophesy out of their own heart; and prophesy against them,

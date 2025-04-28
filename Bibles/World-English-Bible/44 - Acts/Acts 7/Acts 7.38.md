@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is he that was in the church in the wilderness with the angel that spake to him in the Mount Sinai, and with our fathers: who received living oracles to give unto us:
+This is he who was in the assembly in the wilderness with the angel that spoke to him on Mount Sinai, and with our fathers, who received living oracles to give to us,

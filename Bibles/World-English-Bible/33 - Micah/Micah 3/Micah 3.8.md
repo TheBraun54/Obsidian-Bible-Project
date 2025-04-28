@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, I am full of power by the Spirit of Jehovah, and of judgment, and of might, to declare unto Jacob his transgression, and to Israel his sin.
+But as for me, I am full of power by the Spirit of Yahweh, and of judgment, and of might, to declare to Jacob his disobedience, and to Israel his sin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob boiled pottage: and Esau came in from the field, and he was faint:
+Jacob boiled stew. Esau came in from the field, and he was famished.

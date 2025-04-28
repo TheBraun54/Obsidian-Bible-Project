@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for all the first-born are mine; on the day that I smote all the first-born in the land of Egypt I hallowed unto me all the first-born in Israel, both man and beast; mine they shall be: I am Jehovah.
+for all the firstborn are mine. On the day that I struck down all the firstborn in the land of Egypt I made holy to me all the firstborn in Israel, both man and animal. They shall be mine. I am Yahweh."

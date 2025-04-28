@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servant answered Saul again, and said, Behold, I have in my hand the fourth part of a shekel of silver: that will I give to the man of God, to tell us our way.
+The servant answered Saul again, and said, "Behold, I have in my hand the fourth part of a shekel of silver. I will give that to the man of God, to tell us our way."

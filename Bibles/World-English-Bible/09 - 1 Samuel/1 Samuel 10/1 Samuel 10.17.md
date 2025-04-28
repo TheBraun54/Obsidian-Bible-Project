@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel called the people together unto Jehovah to Mizpah;
+Samuel called the people together to Yahweh to Mizpah;

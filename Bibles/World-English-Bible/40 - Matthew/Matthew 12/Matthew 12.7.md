@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye had known what this meaneth, I desire mercy, and not sacrifice, ye would not have condemned the guiltless.
+But if you had known what this means, 'I desire mercy, and not sacrifice,' you would not have condemned the guiltless.

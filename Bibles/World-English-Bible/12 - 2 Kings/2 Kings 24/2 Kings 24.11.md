@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nebuchadnezzar king of Babylon came unto the city, while his servants were besieging it;
+Nebuchadnezzar king of Babylon came to the city, while his servants were besieging it;

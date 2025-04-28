@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king answered and said unto the man of God, Entreat now the favor of Jehovah thy God, and pray for me, that my hand may be restored me again. And the man of God entreated Jehovah, and the king's hand was restored him again, and became as it was before.
+The king answered the man of God, "Now entreat the favor of Yahweh your God, and pray for me, that my hand may be restored me again." The man of God entreated Yahweh, and the king's hand was restored him again, and became as it was before.

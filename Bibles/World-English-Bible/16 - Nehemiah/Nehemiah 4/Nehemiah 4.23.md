@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So neither I, nor my brethren, nor my servants, nor the men of the guard that followed me, none of us put off our clothes, every one [went with] his weapon [to] the water.
+So neither I, nor my brothers, nor my servants, nor the men of the guard who followed me, none of us took off our clothes. Everyone took his weapon to the water.

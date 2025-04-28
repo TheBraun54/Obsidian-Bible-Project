@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one that is found shall be thrust through; and every one that is taken shall fall by the sword.
+Everyone who is found will be thrust through. Everyone who is captured will fall by the sword.

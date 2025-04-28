@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all the gods of the peoples are idols; But Jehovah made the heavens.
+For all the gods of the peoples are idols, but Yahweh made the heavens.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus entered into the temple of God, and cast out all them that sold and bought in the temple, and overthrew the tables of the money-changers, and the seats of them that sold the doves; [
+Jesus entered into the temple of God, and drove out all of those who sold and bought in the temple, and overthrew the money changers' tables and the seats of those who sold the doves.

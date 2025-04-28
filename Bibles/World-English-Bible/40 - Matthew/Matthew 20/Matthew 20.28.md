@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.
+even as the Son of Man came not to be served, but to serve, and to give his life as a ransom for many."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Concerning therefore the eating of things sacrificed to idols, we know that no idol is [anything] in the world, and that there is no God but one.
+Therefore concerning the eating of things sacrificed to idols, we know that no idol is anything in the world, and that there is no other God but one.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For pass over to the isles of Kittim, and see; and send unto Kedar, and consider diligently; and see if there hath been such a thing.
+For pass over to the islands of Kittim, and see; and send to Kedar, and consider diligently; and see if there has been such a thing.

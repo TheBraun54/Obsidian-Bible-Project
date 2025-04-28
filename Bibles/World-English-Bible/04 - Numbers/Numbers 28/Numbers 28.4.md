@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The one lamb shalt thou offer in the morning, and the other lamb shalt thou offer at even;
+You shall offer the one lamb in the morning, and you shall offer the other lamb at evening;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and now it hath pleased thee to bless the house of thy servant, that it may continue for ever before thee: for thou, O Jehovah, hast blessed, and it is blessed for ever.
+Now it has pleased you to bless the house of your servant, that it may continue forever before you; for you, Yahweh, have blessed, and it is blessed forever."

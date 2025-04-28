@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-this is the burnt-offering of every sabbath, besides the continual burnt-offering, and the drink-offering thereof.
+this is the burnt offering of every Sabbath, besides the continual burnt offering, and the drink offering of it.

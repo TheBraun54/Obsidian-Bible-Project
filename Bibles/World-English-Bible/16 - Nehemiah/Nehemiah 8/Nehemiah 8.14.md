@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they found written in the law, how that Jehovah had commanded by Moses, that the children of Israel should dwell in booths in the feast of the seventh month;
+They found written in the law, how that Yahweh had commanded by Moses, that the children of Israel should dwell in booths in the feast of the seventh month;

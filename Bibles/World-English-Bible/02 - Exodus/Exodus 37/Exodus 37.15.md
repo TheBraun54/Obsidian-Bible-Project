@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the staves of acacia wood, and overlaid them with gold, to bear the table.
+He made the poles of acacia wood, and overlaid them with gold, to carry the table.

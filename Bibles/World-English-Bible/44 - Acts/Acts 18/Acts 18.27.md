@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was minded to pass over into Achaia, the brethren encouraged him, and wrote to the disciples to receive him: and when he was come, he helped them much that had believed through grace;
+When he had determined to pass over into Achaia, the brothers encouraged him, and wrote to the disciples to receive him. When he had come, he greatly helped those who had believed through grace;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob said unto Pharaoh, The days of the years of my pilgrimage are a hundred and thirty years: few and evil have been the days of the years of my life, and they have not attained unto the days of the years of the life of my fathers in the days of their pilgrimage.
+Jacob said to Pharaoh, "The days of the years of my pilgrimage are one hundred thirty years. Few and evil have been the days of the years of my life, and they have not attained to the days of the years of the life of my fathers in the days of their pilgrimage."

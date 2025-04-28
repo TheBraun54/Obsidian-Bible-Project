@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is too impoverished for [such] an oblation chooseth a tree that will not rot; he seeketh unto him a skilful workman to set up a graven image, that shall not be moved.
+He who is too impoverished for such an offering chooses a tree that will not rot. He seeks a skillful workman to set up an engraved image for him that will not be moved.

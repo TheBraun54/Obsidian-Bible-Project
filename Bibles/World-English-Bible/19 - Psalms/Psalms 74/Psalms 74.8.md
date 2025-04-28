@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said in their heart, Let us make havoc of them altogether: They have burned up all the synagogues of God in the land.
+They said in their heart, "We will crush them completely." They have burned up all the places in the land where God was worshiped.

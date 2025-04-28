@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From henceforth I tell you before it come to pass, that, when it is come to pass, ye may believe that I am [he] .
+From now on, I tell you before it happens, that when it happens, you may believe that I am he.

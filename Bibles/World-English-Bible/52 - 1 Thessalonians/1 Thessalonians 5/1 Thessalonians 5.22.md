@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-abstain from every form of evil.
+Abstain from every form of evil.

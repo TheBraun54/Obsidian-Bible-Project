@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do not abhor [us], for thy name's sake; do not disgrace the throne of thy glory: remember, break not thy covenant with us.
+Do not abhor [us], for your name's sake; do not disgrace the throne of your glory: remember, don't break your covenant with us.

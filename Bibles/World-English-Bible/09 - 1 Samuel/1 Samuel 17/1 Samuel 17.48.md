@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the Philistine arose, and came and drew nigh to meet David, that David hastened, and ran toward the army to meet the Philistine.
+It happened, when the Philistine arose, and came and drew near to meet David, that David hurried, and ran toward the army to meet the Philistine.

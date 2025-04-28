@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall eat neither bread, nor parched grain, nor fresh ears, until this selfsame day, until ye have brought the oblation of your God: it is a statute for ever throughout your generations in all your dwellings.
+You shall eat neither bread, nor roasted grain, nor fresh grain, until this same day, until you have brought the offering of your God. This is a statute forever throughout your generations in all your dwellings.

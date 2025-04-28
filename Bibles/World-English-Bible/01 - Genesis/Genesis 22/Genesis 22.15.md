@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah called unto Abraham a second time out of heaven,
+The angel of Yahweh called to Abraham a second time out of the sky,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it not that I have no help in me, And that wisdom is driven quite from me?
+Isn't it that I have no help in me, That wisdom is driven quite from me?

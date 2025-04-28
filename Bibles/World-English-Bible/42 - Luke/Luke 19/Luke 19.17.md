@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Well done, thou good servant: because thou wast found faithful in a very little, have thou authority over ten cities.
+"He said to him, 'Well done, you good servant! Because you were found faithful with very little, you shall have authority over ten cities.'

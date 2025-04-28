@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he said unto me, Son of man, these bones are the whole house of Israel: behold, they say, Our bones are dried up, and our hope is lost; we are clean cut off.
+Then he said to me, Son of man, these bones are the whole house of Israel: behold, they say, Our bones are dried up, and our hope is lost; we are clean cut off.

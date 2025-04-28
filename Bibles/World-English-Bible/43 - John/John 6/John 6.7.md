@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Philip answered him, Two hundred shillings' worth of bread is not sufficient for them, that every one may take a little.
+Philip answered him, "Two hundred denarii worth of bread is not sufficient for them, that everyone of them may receive a little."

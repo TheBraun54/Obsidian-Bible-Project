@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the beast was taken, and with him the false prophet that wrought the signs in his sight, wherewith he deceived them that had received the mark of the beast and them that worshipped his image: they two were cast alive into the lake of fire that burneth with brimstone:
+The beast was taken, and with him the false prophet who worked the signs in his sight, with which he deceived those who had received the mark of the beast and those who worshiped his image. These two were thrown alive into the lake of fire that burns with sulfur.

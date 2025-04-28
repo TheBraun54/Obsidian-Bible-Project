@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall offer these besides the burnt-offering of the morning, which is for a continual burnt-offering.
+You shall offer these besides the burnt offering of the morning, which is for a continual burnt offering.

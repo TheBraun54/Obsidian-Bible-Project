@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt beat some of it very small, and put of it before the testimony in the tent of meeting, where I will meet with thee: it shall be unto you most holy.
+and you shall beat some of it very small, and put some of it before the testimony in the Tent of Meeting, where I will meet with you. It shall be to you most holy.

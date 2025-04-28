@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bezalel the son of Uri, the son of Hur, of the tribe of Judah, made all that Jehovah commanded Moses.
+Bezalel the son of Uri, the son of Hur, of the tribe of Judah, made all that Yahweh commanded Moses.

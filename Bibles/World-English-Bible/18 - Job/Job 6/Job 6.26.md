@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do ye think to reprove words, Seeing that the speeches of one that is desperate are as wind?
+Do you intend to reprove words, since the speeches of one who is desperate are as wind?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto the place which Jehovah your God shall choose out of all your tribes, to put his name there, even unto his habitation shall ye seek, and thither thou shalt come;
+But to the place which Yahweh your God shall choose out of all your tribes, to put his name there, even to his habitation you shall seek, and there you shall come;

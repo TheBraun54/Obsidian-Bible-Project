@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the pride of Israel doth testify to his face: therefore Israel and Ephraim shall stumble in their iniquity; Judah also shall stumble with them.
+The pride of Israel testifies to his face. Therefore Israel and Ephraim will stumble in their iniquity. Judah also will stumble with them.

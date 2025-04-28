@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the chief Shepherd shall be manifested, ye shall receive the crown of glory that fadeth not away.
+When the chief Shepherd is revealed, you will receive the crown of glory that doesn't fade away.

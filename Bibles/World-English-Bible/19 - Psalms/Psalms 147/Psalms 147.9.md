@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He giveth to the beast his food, [And] to the young ravens which cry.
+He provides food for the livestock, and for the young ravens when they call.

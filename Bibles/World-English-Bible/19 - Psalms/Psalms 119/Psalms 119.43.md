@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And take not the word of truth utterly out of my mouth; For I have hoped in thine ordinances.
+Don't snatch the word of truth out of my mouth, for I put my hope in your ordinances.

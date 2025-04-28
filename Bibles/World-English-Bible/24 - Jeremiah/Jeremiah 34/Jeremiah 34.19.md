@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the princes of Judah, and the princes of Jerusalem, the eunuchs, and the priests, and all the people of the land, that passed between the parts of the calf;
+the princes of Judah, and the princes of Jerusalem, the eunuchs, and the priests, and all the people of the land, who passed between the parts of the calf;

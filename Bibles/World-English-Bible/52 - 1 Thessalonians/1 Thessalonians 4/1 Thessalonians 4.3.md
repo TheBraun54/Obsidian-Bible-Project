@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is the will of God, [even] your sanctification, that ye abstain from fornication;
+For this is the will of God: your sanctification, that you abstain from sexual immorality,

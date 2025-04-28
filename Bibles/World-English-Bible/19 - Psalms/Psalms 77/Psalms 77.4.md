@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou holdest mine eyes watching: I am so troubled that I cannot speak.
+You hold my eyelids open. I am so troubled that I can't speak.

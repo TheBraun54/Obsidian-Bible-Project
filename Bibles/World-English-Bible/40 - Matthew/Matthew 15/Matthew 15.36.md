@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he took the seven loaves and the fishes; and he gave thanks and brake, and gave to the disciples, and the disciples to the multitudes.
+and he took the seven loaves and the fish. He gave thanks and broke them, and gave to the disciples, and the disciples to the multitudes.

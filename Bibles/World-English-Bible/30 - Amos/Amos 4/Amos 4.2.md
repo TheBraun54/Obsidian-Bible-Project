@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord Jehovah hath sworn by his holiness, that, lo, the days shall come upon you, that they shall take you away with hooks, and your residue with fish-hooks.
+The Lord Yahweh has sworn by his holiness that behold, "The days shall come on you that they will take you away with hooks, and the last of you with fish hooks.

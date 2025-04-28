@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, What cities are these which thou hast given me, my brother? And he called them the land of Cabul unto this day.
+He said, "What cities are these which you have given me, my brother?" He called them the land of Cabul to this day.

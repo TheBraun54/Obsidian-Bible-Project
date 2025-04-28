@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that passed by railed on him, wagging their heads,
+Those who passed by blasphemed him, wagging their heads,

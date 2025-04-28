@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will say, Cast ye up, cast ye up, prepare the way, take up the stumbling-block out of the way of my people.
+He will say, "Cast up, cast up, prepare the way, take up the stumbling-block out of the way of my people."

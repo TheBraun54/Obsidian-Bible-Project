@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they were come over against Mysia, they assayed to go into Bithynia; and the Spirit of Jesus suffered them not;
+When they had come opposite Mysia, they tried to go into Bithynia, but the Spirit didn't allow them.

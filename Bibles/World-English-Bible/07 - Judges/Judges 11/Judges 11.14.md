@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jephthah sent messengers again unto the king of the children of Ammon;
+Jephthah sent messengers again to the king of the children of Ammon;

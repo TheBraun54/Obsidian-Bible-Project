@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and madest them [to be] unto our God a kingdom and priests; and they reign upon earth.
+and made us kings and priests to our God, and we will reign on earth."

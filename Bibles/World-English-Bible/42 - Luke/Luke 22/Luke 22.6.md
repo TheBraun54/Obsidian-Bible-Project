@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he consented, and sought opportunity to deliver him unto them in the absence of the multitude.
+He consented, and sought an opportunity to deliver him to them in the absence of the multitude.

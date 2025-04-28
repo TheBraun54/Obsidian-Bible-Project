@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall pass through it, sore distressed and hungry; and it shall come to pass that, when they shall be hungry, they shall fret themselves, and curse by their king and by their God, and turn their faces upward:
+They will pass through it, very distressed and hungry; and it will happen that when they are hungry, they will worry, and curse by their king and by their God. They will turn their faces upward,

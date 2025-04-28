@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he brought me by the way of the north gate before the house; and I looked, and, behold, the glory of Jehovah filled the house of Jehovah: and I fell upon my face.
+Then he brought me by the way of the north gate before the house; and I looked, and behold, the glory of Yahweh filled the house of Yahweh: and I fell on my face.

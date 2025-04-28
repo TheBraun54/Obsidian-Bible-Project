@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the superscription of his accusation was written over, THE KING OF THE JEWS.
+The superscription of his accusation was written over him, "THE KING OF THE JEWS."

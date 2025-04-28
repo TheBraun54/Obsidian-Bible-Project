@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gathered together to Mizpah, and drew water, and poured it out before Jehovah, and fasted on that day, and said there, We have sinned against Jehovah. And Samuel judged the children of Israel in Mizpah.
+They gathered together to Mizpah, and drew water, and poured it out before Yahweh, and fasted on that day, and said there, "We have sinned against Yahweh." Samuel judged the children of Israel in Mizpah.

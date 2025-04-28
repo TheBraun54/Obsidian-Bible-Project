@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the Egyptians are men, and not God; and their horses flesh, and not spirit: and when Jehovah shall stretch out his hand, both he that helpeth shall stumble, and he that is helped shall fall, and they all shall be consumed together.
+Now the Egyptians are men, and not God; and their horses flesh, and not spirit. When Yahweh stretches out his hand, both he who helps shall stumble, and he who is helped shall fall, and they all shall be consumed together.

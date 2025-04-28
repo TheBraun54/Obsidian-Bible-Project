@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the likeness of any beast that is on the earth, the likeness of any winged bird that flieth in the heavens,
+the likeness of any animal that is on the earth, the likeness of any winged bird that flies in the sky,

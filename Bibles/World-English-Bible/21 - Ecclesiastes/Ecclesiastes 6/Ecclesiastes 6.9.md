@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is the sight of the eyes than the wandering of the desire: this also is vanity and a striving after wind.
+Better is the sight of the eyes than the wandering of the desire. This also is vanity and a chasing after wind.

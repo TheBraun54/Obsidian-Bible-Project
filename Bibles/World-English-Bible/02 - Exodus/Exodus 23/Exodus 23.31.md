@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set thy border from the Red Sea even unto the sea of the Philistines, and from the wilderness unto the River: for I will deliver the inhabitants of the land into your hand; and thou shalt drive them out before thee.
+I will set your border from the Red Sea even to the sea of the Philistines, and from the wilderness to the River; for I will deliver the inhabitants of the land into your hand, and you shall drive them out before you.

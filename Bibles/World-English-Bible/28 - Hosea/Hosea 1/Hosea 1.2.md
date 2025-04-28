@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jehovah spake at the first by Hosea, Jehovah said unto Hosea, Go, take unto thee a wife of whoredom and children of whoredom; for the land doth commit great whoredom, [departing] from Jehovah.
+When Yahweh spoke at first by Hosea, Yahweh said to Hosea, "Go, take for yourself a wife of prostitution and children of unfaithfulness; for the land commits great adultery, forsaking Yahweh."

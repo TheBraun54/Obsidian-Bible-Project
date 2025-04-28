@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Samaritan woman therefore saith unto him, How is it that thou, being a Jew, askest drink of me, who am a Samaritan woman? (For Jews have no dealings with Samaritans.)
+The Samaritan woman therefore said to him, "How is it that you, being a Jew, ask for a drink from me, a Samaritan woman?" (For Jews have no dealings with Samaritans.)

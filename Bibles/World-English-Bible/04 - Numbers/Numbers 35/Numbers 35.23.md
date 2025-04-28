@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or with any stone, whereby a man may die, seeing him not, and cast it upon him, so that he died, and he was not his enemy, neither sought his harm;
+or with any stone, by which a man may die, not seeing him, and cast it on him, so that he died, and he was not his enemy, neither sought his harm;

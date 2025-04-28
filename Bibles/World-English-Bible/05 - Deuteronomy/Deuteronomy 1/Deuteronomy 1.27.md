@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye murmured in your tents, and said, Because Jehovah hated us, he hath brought us forth out of the land of Egypt, to deliver us into the hand of the Amorites, to destroy us.
+and you murmured in your tents, and said, "Because Yahweh hated us, he has brought us forth out of the land of Egypt, to deliver us into the hand of the Amorites, to destroy us.

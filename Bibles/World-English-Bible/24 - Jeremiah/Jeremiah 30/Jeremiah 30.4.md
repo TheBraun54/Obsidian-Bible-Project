@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the words that Jehovah spake concerning Israel and concerning Judah.
+These are the words that Yahweh spoke concerning Israel and concerning Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if there be yet a tenth in it, it also shall in turn be eaten up: as a terebinth, and as an oak, whose stock remaineth, when they are felled; so the holy seed is the stock thereof.
+If there is a tenth left in it, that also will in turn be consumed: as a terebinth, and as an oak, whose stock remains when they are felled; so the holy seed is its stock."

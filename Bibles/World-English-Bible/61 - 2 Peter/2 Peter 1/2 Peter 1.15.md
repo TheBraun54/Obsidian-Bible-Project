@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, I will give diligence that at every time ye may be able after my decease to call these things to remembrance.
+Yes, I will make every effort that you may always be able to remember these things even after my departure.

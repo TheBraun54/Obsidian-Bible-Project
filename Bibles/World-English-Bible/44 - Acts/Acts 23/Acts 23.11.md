@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the night following the Lord stood by him, and said, Be of good cheer: for as thou hast testified concerning me at Jerusalem, so must thou bear witness also at Rome.
+The following night, the Lord stood by him, and said, "Cheer up, Paul, for as you have testified about me at Jerusalem, so you must testify also at Rome."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are ye so foolish? having begun in the Spirit, are ye now perfected in the flesh?
+Are you so foolish? Having begun in the Spirit, are you now completed in the flesh?

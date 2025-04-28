@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He buildeth his house as the moth, And as a booth which the keeper maketh.
+He builds his house as the moth, as a booth which the watchman makes.

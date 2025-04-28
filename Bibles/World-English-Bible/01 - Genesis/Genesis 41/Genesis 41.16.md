@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph answered Pharaoh, saying, It is not in me: God will give Pharaoh an answer of peace.
+Joseph answered Pharaoh, saying, "It isn't in me. God will give Pharaoh an answer of peace."

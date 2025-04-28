@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither, because they are Abraham's seed, are they all children: but, In Isaac shall thy seed be called.
+Neither, because they are Abraham's seed, are they all children. But, "In Isaac will your seed be called."

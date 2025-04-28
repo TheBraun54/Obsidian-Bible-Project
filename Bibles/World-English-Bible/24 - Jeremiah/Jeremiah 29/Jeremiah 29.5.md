@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Build ye houses, and dwell in them; and plant gardens, and eat the fruit of them.
+Build houses, and dwell in them; and plant gardens, and eat the fruit of them.

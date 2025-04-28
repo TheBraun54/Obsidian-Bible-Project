@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God is my witness, whom I serve in my spirit in the gospel of his Son, how unceasingly I make mention of you, always in my prayers
+For God is my witness, whom I serve in my spirit in the Good News of his Son, how unceasingly I make mention of you always in my prayers,

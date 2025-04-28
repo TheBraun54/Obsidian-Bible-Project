@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the vine said unto them, Should I leave my new wine, which cheereth God and man, and go to wave to and fro over the trees?
+"The vine said to them, 'Should I leave my new wine, which cheers God and man, and go to wave back and forth over the trees?'

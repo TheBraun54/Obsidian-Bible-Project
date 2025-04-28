@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the teraphim have spoken vanity, and the diviners have seen a lie; and they have told false dreams, they comfort in vain: therefore they go their way like sheep, they are afflicted, because there is no shepherd.
+For the teraphim have spoken vanity, and the diviners have seen a lie; and they have told false dreams. They comfort in vain. Therefore they go their way like sheep. They are oppressed, because there is no shepherd.

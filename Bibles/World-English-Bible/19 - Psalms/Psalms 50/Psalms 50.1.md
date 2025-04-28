@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of Asaph]. The Mighty One, God, Jehovah, hath spoken, And called the earth from the rising of the sun unto the going down thereof.
+The Mighty One, God, Yahweh, speaks, and calls the earth from sunrise to sunset.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if we shall say, From men; all the people will stone us: for they are persuaded that John was a prophet.
+But if we say, 'From men,' all the people will stone us, for they are persuaded that John was a prophet."

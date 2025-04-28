@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall be turned back, they shall be utterly put to shame, that trust in graven images, that say unto molten images, Ye are our gods.
+"Those who trust in engraved images, who tell molten images, 'You are our gods' will be turned back. They will be utterly disappointed.

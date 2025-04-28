@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was entered into Capernaum, there came unto him a centurion, beseeching him,
+When he came into Capernaum, a centurion came to him, asking him,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Woe to the bloody city! I also will make the pile great.
+Therefore thus says the Lord Yahweh: Woe to the bloody city! I also will make the pile great.

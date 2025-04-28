@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Pallu: Eliab.
+The sons of Pallu: Eliab.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people went to the house of Baal, and brake it down, and brake his altars and his images in pieces, and slew Mattan the priest of Baal before the altars.
+All the people went to the house of Baal, and broke it down, and broke his altars and his images in pieces, and killed Mattan the priest of Baal before the altars.

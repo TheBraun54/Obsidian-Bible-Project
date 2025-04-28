@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this commandment have we from him, that he who loveth God love his brother also.
+This commandment we have from him, that he who loves God should also love his brother.

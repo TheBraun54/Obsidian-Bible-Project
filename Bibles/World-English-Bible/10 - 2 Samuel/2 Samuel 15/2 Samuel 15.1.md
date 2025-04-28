@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after this, that Absalom prepared him a chariot and horses, and fifty men to run before him.
+It happened after this, that Absalom prepared him a chariot and horses, and fifty men to run before him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while they were smiting, and I was left, that I fell upon my face, and cried, and said, Ah Lord Jehovah! wilt thou destroy all the residue of Israel in thy pouring out of thy wrath upon Jerusalem?
+It happened, while they were smiting, and I was left, that I fell on my face, and cried, and said, Ah Lord Yahweh! will you destroy all the residue of Israel in your pouring out of your wrath on Jerusalem?

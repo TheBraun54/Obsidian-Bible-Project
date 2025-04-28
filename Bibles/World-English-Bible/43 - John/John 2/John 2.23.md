@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when he was in Jerusalem at the passover, during the feast, many believed on his name, beholding his signs which he did.
+Now when he was in Jerusalem at the Passover, during the feast, many believed in his name, observing his signs which he did.

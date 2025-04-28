@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as many as shall walk by this rule, peace [be] upon them, and mercy, and upon the Israel of God.
+As many as walk by this rule, peace and mercy be on them, and on God's Israel.

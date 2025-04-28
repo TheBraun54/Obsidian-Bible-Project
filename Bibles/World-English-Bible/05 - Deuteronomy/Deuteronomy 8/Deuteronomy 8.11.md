@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware lest thou forget Jehovah thy God, in not keeping his commandments, and his ordinances, and his statutes, which I command thee this day:
+Beware lest you forget Yahweh your God, in not keeping his commandments, and his ordinances, and his statutes, which I command you this day:

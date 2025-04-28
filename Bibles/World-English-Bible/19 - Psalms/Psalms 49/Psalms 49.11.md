@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their inward thought is, [that] their houses [shall continue] for ever, [And] their dwelling-places to all generations; They call their lands after their own names.
+Their inward thought is that their houses will endure forever, and their dwelling places to all generations. They name their lands after themselves.

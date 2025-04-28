@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest I be full, and deny [thee], and say, Who is Jehovah? Or lest I be poor, and steal, And use profanely the name of my God.
+lest I be full, deny you, and say, 'Who is Yahweh?' or lest I be poor, and steal, and so dishonor the name of my God.

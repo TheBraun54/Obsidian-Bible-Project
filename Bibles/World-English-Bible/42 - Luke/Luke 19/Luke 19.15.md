@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he was come back again, having received the kingdom, that he commanded these servants, unto whom he had given the money, to be called to him, that he might know what they had gained by trading.
+"It happened when he had come back again, having received the kingdom, that he commanded these servants, to whom he had given the money, to be called to him, that he might know what they had gained by conducting business.

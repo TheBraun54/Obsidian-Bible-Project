@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob asked him, and said, Tell me, I pray thee, thy name. And he said, Wherefore is it that thou dost ask after my name? And he blessed him there.
+Jacob asked him, "Please tell me your name." He said, "Why is it that you ask what my name is?" He blessed him there.

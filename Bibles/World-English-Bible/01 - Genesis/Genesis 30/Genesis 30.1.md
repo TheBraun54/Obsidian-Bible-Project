@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Rachel saw that she bare Jacob no children, Rachel envied her sister; and she said unto Jacob, Give me children, or else I die.
+When Rachel saw that she bore Jacob no children, Rachel envied her sister. She said to Jacob, "Give me children, or else I will die."

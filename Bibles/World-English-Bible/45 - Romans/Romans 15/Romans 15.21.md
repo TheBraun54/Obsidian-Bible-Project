@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but, as it is written, They shall see, to whom no tidings of him came, And they who have not heard shall understand.
+But, as it is written, "They will see, to whom no news of him came. They who haven't heard will understand."

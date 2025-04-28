@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto all the people, Behold, this stone shall be a witness against us; for it hath heard all the words of Jehovah which he spake unto us: it shall be therefore a witness against you, lest ye deny your God.
+Joshua said to all the people, "Behold, this stone shall be a witness against us; for it has heard all the words of Yahweh which he spoke to us. It shall be therefore a witness against you, lest you deny your God."

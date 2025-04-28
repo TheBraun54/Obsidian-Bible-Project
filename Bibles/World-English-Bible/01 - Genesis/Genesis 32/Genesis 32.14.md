@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-two hundred she-goats and twenty he-goats, two hundred ewes and twenty rams,
+two hundred female goats and twenty male goats, two hundred ewes and twenty rams,

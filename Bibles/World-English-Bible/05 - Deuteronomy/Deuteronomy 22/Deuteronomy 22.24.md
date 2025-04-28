@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then ye shall bring them both out unto the gate of that city, and ye shall stone them to death with stones; the damsel, because she cried not, being in the city; and the man, because he hath humbled his neighbor's wife: so thou shalt put away the evil from the midst of thee.
+then you shall bring them both out to the gate of that city, and you shall stone them to death with stones; the lady, because she didn't cry, being in the city; and the man, because he has humbled his neighbor's wife: so you shall put away the evil from the midst of you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, we are in thy hand: as it seemeth good and right unto thee to do unto us, do.
+Now, behold, we are in your hand. Do to us as it seems good and right to you to do."

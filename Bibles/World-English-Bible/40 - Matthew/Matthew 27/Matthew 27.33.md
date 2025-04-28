@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were come unto a place called Golgotha, that is to say, The place of a skull,
+They came to a place called "Golgotha," that is to say, "The place of a skull."

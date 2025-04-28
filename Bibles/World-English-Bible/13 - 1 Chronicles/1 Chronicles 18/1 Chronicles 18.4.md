@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David took from him a thousand chariots, and seven thousand horsemen, and twenty thousand footmen; and David hocked all the chariot horses, but reserved of them for a hundred chariots.
+David took from him one thousand chariots, and seven thousand horsemen, and twenty thousand footmen; and David hamstrung all the chariot horses, but reserved of them for one hundred chariots.

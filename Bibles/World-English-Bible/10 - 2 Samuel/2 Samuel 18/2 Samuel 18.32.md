@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto the Cushite, Is it well with the young man Absalom? And the Cushite answered, The enemies of my lord the king, and all that rise up against thee to do thee hurt, be as that young man is.
+The king said to the Cushite, "Is it well with the young man Absalom?" The Cushite answered, "May the enemies of my lord the king, and all who rise up against you to do you harm, be as that young man is."

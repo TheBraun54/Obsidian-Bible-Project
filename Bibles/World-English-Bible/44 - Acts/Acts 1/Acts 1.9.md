@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had said these things, as they were looking, he was taken up; and a cloud received him out of their sight.
+When he had said these things, as they were looking, he was taken up, and a cloud received him out of their sight.

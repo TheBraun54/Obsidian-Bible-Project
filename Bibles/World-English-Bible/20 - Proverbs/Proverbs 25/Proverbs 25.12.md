@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] an ear-ring of gold, and an ornament of fine gold, [So is] a wise reprover upon an obedient ear.
+As an earring of gold, and an ornament of fine gold, so is a wise reprover to an obedient ear.

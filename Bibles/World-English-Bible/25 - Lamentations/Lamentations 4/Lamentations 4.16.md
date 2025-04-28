@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The anger of Jehovah hath scattered them; He will no more regard them: They respected not the persons of the priests, they favored not the elders.
+The anger of Yahweh has scattered them; he will no more regard them: They didn't respect the persons of the priests, they didn't favor the elders.

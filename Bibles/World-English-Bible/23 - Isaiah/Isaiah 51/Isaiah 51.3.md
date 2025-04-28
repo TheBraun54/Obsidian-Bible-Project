@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath comforted Zion; he hath comforted all her waste places, and hath made her wilderness like Eden, and her desert like the garden of Jehovah; joy and gladness shall be found therein, thanksgiving, and the voice of melody.
+For Yahweh has comforted Zion; he has comforted all her waste places, and has made her wilderness like Eden, and her desert like the garden of Yahweh; joy and gladness shall be found therein, thanksgiving, and the voice of melody.

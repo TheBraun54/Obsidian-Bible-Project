@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though I am like a rotten thing that consumeth, Like a garment that is moth-eaten.
+though I am decaying like a rotten thing, like a garment that is moth-eaten.

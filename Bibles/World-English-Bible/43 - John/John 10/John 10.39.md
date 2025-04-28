@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They sought again to take him: and he went forth out of their hand.
+They sought again to seize him, and he went out of their hand.

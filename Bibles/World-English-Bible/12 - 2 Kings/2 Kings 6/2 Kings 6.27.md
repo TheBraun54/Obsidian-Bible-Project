@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, If Jehovah do not help thee, whence shall I help thee? out of the threshing-floor, or out of the winepress?
+He said, "If Yahweh doesn't help you, from where could I help you? From of the threshing floor, or from the winepress?"

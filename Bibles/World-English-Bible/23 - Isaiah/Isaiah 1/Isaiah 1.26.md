@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will restore thy judges as at the first, and thy counsellors as at the beginning: afterward thou shalt be called The city of righteousness, a faithful town.
+I will restore your judges as at the first, and your counselors as at the beginning. Afterward you shall be called 'The city of righteousness, a faithful town.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jonah prayed unto Jehovah his God out of the fish's belly.
+Then Jonah prayed to Yahweh, his God, out of the fish's belly.

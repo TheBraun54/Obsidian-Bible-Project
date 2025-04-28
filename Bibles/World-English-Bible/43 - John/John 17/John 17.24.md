@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Father, I desire that they also whom thou hast given me be with me where I am, that they may behold my glory, which thou hast given me: for thou lovedst me before the foundation of the world. [
+Father, I desire that they also whom you have given me be with me where I am, that they may see my glory, which you have given me, for you loved me before the foundation of the world.

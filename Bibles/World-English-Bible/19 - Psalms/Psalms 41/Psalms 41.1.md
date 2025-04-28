@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. Blessed is he that considereth the poor: Jehovah will deliver him in the day of evil.
+Blessed is he who considers the poor. Yahweh will deliver him in the day of evil.

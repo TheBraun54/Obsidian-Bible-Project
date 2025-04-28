@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall divide it into seven portions: Judah shall abide in his border on the south, and the house of Joseph shall abide in their border on the north.
+They shall divide it into seven portions. Judah shall live in his borders on the south, and the house of Joseph shall live in their borders on the north.

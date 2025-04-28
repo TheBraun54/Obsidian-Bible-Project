@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the men of Israel rose up out of their place, and set themselves in array at Baal-tamar: and the liers-in-wait of Israel brake forth out of their place, even out of Maareh-geba.
+All the men of Israel rose up out of their place, and set themselves in array at Baal Tamar: and the ambushers of Israel broke forth out of their place, even out of Maareh Geba.

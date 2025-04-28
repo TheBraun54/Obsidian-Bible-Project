@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah. Praise God in his sanctuary: Praise him in the firmament of his power.
+Praise Yah! Praise God in his sanctuary! Praise him in his heavens for his acts of power!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make thee bald, and cut off thy hair for the children of thy delight: enlarge thy baldness as the eagle; for they are gone into captivity from thee.
+Shave your heads, and cut off your hair for the children of your delight. Enlarge your baldness like the vulture; for they have gone into captivity from you!

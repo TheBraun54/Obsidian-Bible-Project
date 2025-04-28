@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that were numbered of the families of the sons of Merari, by their families, by their fathers' houses,
+Those who were numbered of the families of the sons of Merari, by their families, by their fathers' houses,

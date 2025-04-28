@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Demetrius hath the witness of all [men], and of the truth itself: yea, we also bear witness: and thou knowest that our witness is true.
+Demetrius has the testimony of all, and of the truth itself; yes, we also testify, and you know that our testimony is true.

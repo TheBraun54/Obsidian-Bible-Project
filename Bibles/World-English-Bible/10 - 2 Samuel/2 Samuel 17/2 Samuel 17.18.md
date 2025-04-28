@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But a lad saw them, and told Absalom: and they went both of them away quickly, and came to the house of a man in Bahurim, who had a well in his court; and they went down thither.
+But a boy saw them, and told Absalom. Then they both went away quickly, and came to the house of a man in Bahurim, who had a well in his court; and they went down there.

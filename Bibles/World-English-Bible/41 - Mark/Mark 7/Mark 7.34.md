@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and looking up to heaven, he sighed, and saith unto him, Ephphatha, that is, Be opened.
+Looking up to heaven, he sighed, and said to him, "Ephphatha!" that is, "Be opened!"

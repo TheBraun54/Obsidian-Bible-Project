@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whilst it is yet in its greenness, [and] not cut down, It withereth before any [other] herb.
+While it is yet in its greenness, not cut down, it withers before any other reed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Samuel took the horn of oil, and anointed him in the midst of his brethren: and the Spirit of Jehovah came mightily upon David from that day forward. So Samuel rose up, and went to Ramah.
+Then Samuel took the horn of oil, and anointed him in the midst of his brothers: and the Spirit of Yahweh came mightily on David from that day forward. So Samuel rose up, and went to Ramah.

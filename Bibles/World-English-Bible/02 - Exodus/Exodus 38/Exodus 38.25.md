@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the silver of them that were numbered of the congregation was a hundred talents, and a thousand seven hundred and threescore and fifteen shekels, after the shekel of the sanctuary:
+The silver of those who were numbered of the congregation was one hundred talents, and one thousand seven hundred seventy-five shekels, after the shekel of the sanctuary:

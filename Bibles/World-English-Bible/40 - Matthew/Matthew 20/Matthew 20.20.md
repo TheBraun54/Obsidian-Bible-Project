@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came to him the mother of the sons of Zebedee with her sons, worshipping [him], and asking a certain thing of him.
+Then the mother of the sons of Zebedee came to him with her sons, kneeling and asking a certain thing of him.

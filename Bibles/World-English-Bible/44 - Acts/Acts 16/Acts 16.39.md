@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they came and besought them; and when they had brought them out, they asked them to go away from the city.
+and they came and begged them. When they had brought them out, they asked them to depart from the city.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said therefore unto the twelve, Would ye also go away?
+Jesus said therefore to the twelve, "You don't also want to go away, do you?"

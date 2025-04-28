@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the very hairs of your head are all numbered. Fear not: ye are of more value than many sparrows.
+But the very hairs of your head are all numbered. Therefore don't be afraid. You are of more value than many sparrows.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because it is written, Ye shall be holy; for I am holy.
+because it is written, "You shall be holy; for I am holy."

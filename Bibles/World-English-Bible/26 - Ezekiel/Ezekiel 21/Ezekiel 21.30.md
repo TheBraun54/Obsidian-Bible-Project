@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cause it to return into its sheath. In the place where thou wast created, in the land of thy birth, will I judge thee.
+Cause it to return into its sheath. In the place where you were created, in the land of your birth, will I judge you.

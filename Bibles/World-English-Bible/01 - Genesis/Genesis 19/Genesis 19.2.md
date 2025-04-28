@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, Behold now, my lords, turn aside, I pray you, into your servant's house, and tarry all night, and wash your feet, and ye shall rise up early, and go on your way. And they said, Nay; but we will abide in the street all night.
+and he said, "See now, my lords, please turn aside into your servant's house, stay all night, wash your feet, and you can rise up early, and go on your way." They said, "No, but we will stay in the street all night."

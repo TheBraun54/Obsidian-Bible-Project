@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Bethany was nigh unto Jerusalem, about fifteen furlongs off;
+Now Bethany was near Jerusalem, about fifteen stadia away.

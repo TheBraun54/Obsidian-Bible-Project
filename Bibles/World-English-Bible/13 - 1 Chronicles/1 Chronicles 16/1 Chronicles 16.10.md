@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Glory ye in his holy name; Let the heart of them rejoice that seek Jehovah.
+Glory in his holy name. Let the heart of those who seek Yahweh rejoice.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine: the soul that sinneth, it shall die.
+Behold, all souls are mine; as the soul of the father, so also the soul of the son is mine: the soul who sins, he shall die.

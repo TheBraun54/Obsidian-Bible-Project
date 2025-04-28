@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet they had a file for the mattocks, and for the coulters, and for the forks, and for the axes, and to set the goads.
+yet they had a file for the mattocks, and for the plowshares, and for the forks, and for the axes, and to set the goads.

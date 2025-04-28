@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-there came unto him a woman having an alabaster cruse of exceeding precious ointment, and she poured it upon his head, as he sat at meat.
+a woman came to him having an alabaster jar of very expensive ointment, and she poured it on his head as he sat at the table.

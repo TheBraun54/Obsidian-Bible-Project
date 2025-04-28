@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they persecute him whom thou hast smitten; And they tell of the sorrow of those whom thou hast wounded.
+For they persecute him whom you have wounded. They tell of the sorrow of those whom you have hurt.

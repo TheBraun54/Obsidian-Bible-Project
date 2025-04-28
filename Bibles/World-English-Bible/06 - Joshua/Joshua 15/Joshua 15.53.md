@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Janim, and Beth-tappuah, and Aphekah,
+Janim, Beth Tappuah, Aphekah,

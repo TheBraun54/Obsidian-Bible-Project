@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look ye out therefore, brethren, from among you seven men of good report, full of the Spirit and of wisdom, whom we may appoint over this business.
+Therefore select from among you, brothers, seven men of good report, full of the Holy Spirit and of wisdom, whom we may appoint over this business.

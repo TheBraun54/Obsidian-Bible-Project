@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that were in the boat worshipped him, saying, Of a truth thou art the Son of God.
+Those who were in the boat came and worshiped him, saying, "You are truly the Son of God!"

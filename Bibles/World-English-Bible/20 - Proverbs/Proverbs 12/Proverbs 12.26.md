@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous is a guide to his neighbor; But the way of the wicked causeth them to err.
+A righteous person is cautious in friendship, but the way of the wicked leads them astray.

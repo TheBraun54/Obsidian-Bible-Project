@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which I have reserved against the time of trouble, Against the day of battle and war?
+which I have reserved against the time of trouble, against the day of battle and war?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall be the weeping and the gnashing of teeth, when ye shall see Abraham, and Isaac, and Jacob, and all the prophets, in the kingdom of God, and yourselves cast forth without.
+There will be weeping and gnashing of teeth, when you see Abraham, Isaac, Jacob, and all the prophets, in the Kingdom of God, and yourselves being thrown outside.

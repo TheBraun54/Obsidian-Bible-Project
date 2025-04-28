@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto them, Let no man leave of it till the morning.
+Moses said to them, "Let no one leave of it until the morning."

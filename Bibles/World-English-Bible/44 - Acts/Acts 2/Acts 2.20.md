@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun shall be turned into darkness, And the moon into blood, Before the day of the Lord come, That great and notable [day] .
+The sun will be turned into darkness, and the moon into blood, before the great and glorious day of the Lord comes.

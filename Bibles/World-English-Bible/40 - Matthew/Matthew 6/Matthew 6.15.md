@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye forgive not men their trespasses, neither will your Father forgive your trespasses.
+But if you don't forgive men their trespasses, neither will your Father forgive your trespasses.

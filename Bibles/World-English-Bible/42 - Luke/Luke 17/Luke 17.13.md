@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they lifted up their voices, saying, Jesus, Master, have mercy on us.
+They lifted up their voices, saying, "Jesus, Master, have mercy on us!"

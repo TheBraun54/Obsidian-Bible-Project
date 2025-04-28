@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he withholdeth the waters, and they dry up; Again, he sendeth them out, and they overturn the earth.
+Behold, he withholds the waters, and they dry up. Again, he sends them out, and they overturn the earth.

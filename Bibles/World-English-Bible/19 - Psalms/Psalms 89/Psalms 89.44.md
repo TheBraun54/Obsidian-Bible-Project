@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast made his brightness to cease, And cast his throne down to the ground.
+You have ended his splendor, and thrown his throne down to the ground.

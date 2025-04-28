@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will cut off all flattering lips, The tongue that speaketh great things;
+May Yahweh cut off all flattering lips, and the tongue that boasts,

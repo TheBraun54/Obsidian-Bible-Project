@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Herod the tetrarch heard of all that was done: and he was much perplexed, because that it was said by some, that John was risen from the dead;
+Now Herod the tetrarch heard of all that was done by him; and he was very perplexed, because it was said by some that John had risen from the dead,

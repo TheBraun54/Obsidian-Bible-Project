@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now to Abraham were the promises spoken, and to his seed. He saith not, And to seeds, as of many; but as of one, And to thy seed, which is Christ.
+Now the promises were spoken to Abraham and to his seed. He doesn't say, "To seeds," as of many, but as of one, "To your seed," which is Christ.

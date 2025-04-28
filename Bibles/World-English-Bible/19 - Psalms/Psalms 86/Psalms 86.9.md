@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All nations whom thou hast made shall come and worship before thee, O Lord; And they shall glorify thy name.
+All nations you have made will come and worship before you, Lord. They shall glorify your name.

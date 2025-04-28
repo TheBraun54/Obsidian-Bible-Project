@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have allotted unto you these nations that remain, to be an inheritance for your tribes, from the Jordan, with all the nations that I have cut off, even unto the great sea toward the going down of the sun.
+Behold, I have allotted to you these nations that remain, to be an inheritance for your tribes, from the Jordan, with all the nations that I have cut off, even to the great sea toward the going down of the sun.

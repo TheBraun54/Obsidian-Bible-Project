@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All flesh shall perish together, And man shall turn again unto dust.
+all flesh would perish together, and man would turn again to dust.

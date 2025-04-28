@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is enough for the disciple that he be as his teacher, and the servant as his lord. If they have called the master of the house Beelzebub, how much more them of his household!
+It is enough for the disciple that he be like his teacher, and the servant like his lord. If they have called the master of the house Beelzebul, how much more those of his household!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he, taking her by the hand, called, saying, Maiden, arise.
+But he put them all outside, and taking her by the hand, he called, saying, "Child, arise!"

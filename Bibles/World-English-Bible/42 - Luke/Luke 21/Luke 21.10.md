@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto them, Nation shall rise against nation, and kingdom against kingdom;
+Then he said to them, "Nation will rise against nation, and kingdom against kingdom.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had thirty sons; and thirty daughters he sent abroad, and thirty daughters he brought in from abroad for his sons. And he judged Israel seven years.
+He had thirty sons; and thirty daughters he sent abroad, and thirty daughters he brought in from abroad for his sons. He judged Israel seven years.

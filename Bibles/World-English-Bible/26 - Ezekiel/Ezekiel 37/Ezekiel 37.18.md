@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the children of thy people shall speak unto thee, saying, Wilt thou not show us what thou meanest by these?
+When the children of your people shall speak to you, saying, Will you not show us what you mean by these?

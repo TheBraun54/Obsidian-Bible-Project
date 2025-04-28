@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fifty loops shalt thou make in the one curtain, and fifty loops shalt thou make in the edge of the curtain that is in the second coupling; the loops shall be opposite one to another.
+You shall make fifty loops in the one curtain, and you shall make fifty loops in the edge of the curtain that is in the second coupling. The loops shall be opposite one to another.

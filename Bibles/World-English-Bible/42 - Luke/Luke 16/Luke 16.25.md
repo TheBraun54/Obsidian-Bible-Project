@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Abraham said, Son, remember that thou in thy lifetime receivedst thy good things, and Lazarus in like manner evil things: but now here he is comforted, and thou art in anguish.
+"But Abraham said, 'Son, remember that you, in your lifetime, received your good things, and Lazarus, in the same way, bad things. But now here he is comforted and you are in anguish.

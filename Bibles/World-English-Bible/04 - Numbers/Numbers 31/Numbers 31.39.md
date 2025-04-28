@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the asses were thirty thousand and five hundred; of which Jehovah's tribute was threescore and one.
+The donkeys were thirty thousand five hundred; of which Yahweh's tribute was sixty-one.

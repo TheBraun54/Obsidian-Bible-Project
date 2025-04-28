@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah doth build up Jerusalem; He gathereth together the outcasts of Israel.
+Yahweh builds up Jerusalem. He gathers together the outcasts of Israel.

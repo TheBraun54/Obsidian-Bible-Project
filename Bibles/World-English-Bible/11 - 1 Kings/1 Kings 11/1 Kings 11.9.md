@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah was angry with Solomon, because his heart was turned away from Jehovah, the God of Israel, who had appeared unto him twice,
+Yahweh was angry with Solomon, because his heart was turned away from Yahweh, the God of Israel, who had appeared to him twice,

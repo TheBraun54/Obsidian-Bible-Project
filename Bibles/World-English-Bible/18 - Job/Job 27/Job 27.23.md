@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Men shall clap their hands at him, And shall hiss him out of his place.
+Men shall clap their hands at him, and shall hiss him out of his place.

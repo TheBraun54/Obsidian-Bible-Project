@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they understood not the saying, and were afraid to ask him.
+But they didn't understand the saying, and were afraid to ask him.

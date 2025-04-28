@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah appeared unto him the same night, and said, I am the God of Abraham thy father: fear not, for I am with thee, and will bless thee, and multiply thy seed for my servant Abraham's sake.
+Yahweh appeared to him the same night, and said, "I am the God of Abraham your father. Don't be afraid, for I am with you, and will bless you, and multiply your seed for my servant Abraham's sake."

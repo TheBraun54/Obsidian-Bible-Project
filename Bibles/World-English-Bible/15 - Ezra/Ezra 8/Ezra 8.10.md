@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Shelomith, the son of Josiphiah; and with him a hundred and threescore males.
+Of the sons of Shelomith, the son of Josiphiah; and with him one hundred sixty males.

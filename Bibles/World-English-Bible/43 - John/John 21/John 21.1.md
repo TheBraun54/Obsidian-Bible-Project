@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things Jesus manifested himself again to the disciples at the sea of Tiberias; and he manifested [himself] on this wise.
+After these things, Jesus revealed himself again to the disciples at the sea of Tiberias. He revealed himself this way.

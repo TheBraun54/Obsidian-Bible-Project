@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them melt away as water that runneth apace: When he aimeth his arrows, let them be as though they were cut off.
+Let them vanish as water that flows away. When they draw the bow, let their arrows be made blunt.

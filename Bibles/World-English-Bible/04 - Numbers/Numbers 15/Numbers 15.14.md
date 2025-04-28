@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a stranger sojourn with you, or whosoever may be among you throughout your generations, and will offer an offering made by fire, of a sweet savor unto Jehovah; as ye do, so he shall do.
+If a stranger lives as a foreigner with you, or whoever may be among you throughout your generations, and will offer an offering made by fire, of a pleasant aroma to Yahweh; as you do, so he shall do.

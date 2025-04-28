@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and after the earthquake a fire; but Jehovah was not in the fire: and after the fire a still small voice.
+After the earthquake a fire passed; but Yahweh was not in the fire: and after the fire a still small voice.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even the darkness hideth not from thee, But the night shineth as the day: The darkness and the light are both alike [to thee] .
+even the darkness doesn't hide from you, but the night shines as the day. The darkness is like light to you.

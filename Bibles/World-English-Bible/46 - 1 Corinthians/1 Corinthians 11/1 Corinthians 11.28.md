@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let a man prove himself, and so let him eat of the bread, and drink of the cup.
+But let a man examine himself, and so let him eat of the bread, and drink of the cup.

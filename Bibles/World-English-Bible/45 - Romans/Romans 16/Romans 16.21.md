@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Timothy my fellow-worker saluteth you; and Lucius and Jason and Sosipater, my kinsmen.
+Timothy, my fellow worker, greets you, as do Lucius, Jason, and Sosipater, my relatives.

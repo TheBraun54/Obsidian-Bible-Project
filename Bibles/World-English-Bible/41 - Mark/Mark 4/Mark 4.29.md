@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the fruit is ripe, straightway he putteth forth the sickle, because the harvest is come.
+But when the fruit is ripe, immediately he puts forth the sickle, because the harvest has come."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Some indeed preach Christ even of envy and strife; and some also of good will:
+Some indeed preach Christ even out of envy and strife, and some also out of good will.

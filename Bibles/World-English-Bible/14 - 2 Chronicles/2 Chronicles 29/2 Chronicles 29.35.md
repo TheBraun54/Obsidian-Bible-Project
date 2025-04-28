@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also the burnt-offerings were in abundance, with the fat of the peace-offerings, and with the drink-offerings for every burnt-offering. So the service of the house of Jehovah was set in order.
+Also the burnt offerings were in abundance, with the fat of the peace offerings, and with the drink offerings for every burnt offering. So the service of the house of Yahweh was set in order.

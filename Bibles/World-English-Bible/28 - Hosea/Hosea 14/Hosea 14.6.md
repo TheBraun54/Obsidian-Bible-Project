@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His branches shall spread, and his beauty shall be as the olive-tree, and his smell as Lebanon.
+His branches will spread, and his beauty will be like the olive tree, and his fragrance like Lebanon.

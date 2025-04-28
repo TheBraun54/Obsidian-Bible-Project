@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he is come, he findeth it swept and garnished.
+When he returns, he finds it swept and put in order.

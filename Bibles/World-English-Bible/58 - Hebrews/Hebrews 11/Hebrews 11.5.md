@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Enoch was translated that he should not see death; and he was not found, because God translated him: for he hath had witness borne to him that before his translation he had been well-pleasing unto God:
+By faith, Enoch was taken away, so that he wouldn't see death, and he was not found, because God translated him. For he has had testimony given to him that before his translation he had been well pleasing to God.

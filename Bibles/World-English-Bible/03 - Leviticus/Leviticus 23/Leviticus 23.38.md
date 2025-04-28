@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-besides the sabbaths of Jehovah, and besides your gifts, and besides all your vows, and besides all your freewill-offerings, which ye give unto Jehovah.
+besides the Sabbaths of Yahweh, and besides your gifts, and besides all your vows, and besides all your freewill offerings, which you give to Yahweh.

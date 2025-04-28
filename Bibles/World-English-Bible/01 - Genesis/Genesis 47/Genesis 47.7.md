@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph brought in Jacob his father, and set him before Pharaoh: and Jacob blessed Pharaoh.
+Joseph brought in Jacob, his father, and set him before Pharaoh, and Jacob blessed Pharaoh.

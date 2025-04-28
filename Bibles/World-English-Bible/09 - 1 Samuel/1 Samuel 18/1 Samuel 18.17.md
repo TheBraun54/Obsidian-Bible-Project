@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said to David, Behold, my elder daughter Merab, her will I give thee to wife: only be thou valiant for me, and fight Jehovah's battles. For Saul said, Let not my hand be upon him, but let the hand of the Philistines be upon him.
+Saul said to David, "Behold, my elder daughter Merab, I will give her to you as wife. Only be valiant for me, and fight Yahweh's battles." For Saul said, "Don't let my hand be on him, but let the hand of the Philistines be on him."

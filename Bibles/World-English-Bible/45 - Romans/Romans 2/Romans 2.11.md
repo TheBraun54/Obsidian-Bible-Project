@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for there is no respect of persons with God.
+For there is no partiality with God.

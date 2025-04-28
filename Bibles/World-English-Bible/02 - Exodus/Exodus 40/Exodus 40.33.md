@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he reared up the court round about the tabernacle and the altar, and set up the screen of the gate of the court. So Moses finished the work.
+He raised up the court around the tabernacle and the altar, and set up the screen of the gate of the court. So Moses finished the work.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king held out to Esther the golden sceptre. So Esther arose, and stood before the king.
+Then the king held out to Esther the golden scepter. So Esther arose, and stood before the king.

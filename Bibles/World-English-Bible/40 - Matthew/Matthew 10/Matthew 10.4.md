@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon the Cananaean, and Judas Iscariot, who also betrayed him.
+Simon the Canaanite; and Judas Iscariot, who also betrayed him.

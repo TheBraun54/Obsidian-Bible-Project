@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall therefore keep my charge, lest they bear sin for it, and die therein, if they profane it: I am Jehovah who sanctifieth them.
+"'They shall therefore follow my requirements, lest they bear sin for it, and die therein, if they profane it. I am Yahweh who sanctifies them.

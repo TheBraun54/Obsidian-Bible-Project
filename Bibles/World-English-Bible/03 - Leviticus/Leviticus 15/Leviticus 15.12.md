@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the earthen vessel, which he that hath the issue toucheth, shall be broken; and every vessel of wood shall be rinsed in water.
+"'The earthen vessel, which he who has the discharge touches, shall be broken; and every vessel of wood shall be rinsed in water.

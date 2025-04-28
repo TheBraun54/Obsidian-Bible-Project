@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, making it my aim so to preach the gospel, not where Christ was [already] named, that I might not build upon another man's foundation;
+yes, making it my aim to preach the Good News, not where Christ was already named, that I might not build on another's foundation.

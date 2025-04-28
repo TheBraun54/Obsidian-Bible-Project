@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can any hide himself in secret places so that I shall not see him? saith Jehovah. Do not I fill heaven and earth? saith Jehovah.
+Can any hide himself in secret places so that I shall not see him? says Yahweh. Don't I fill heaven and earth? says Yahweh.

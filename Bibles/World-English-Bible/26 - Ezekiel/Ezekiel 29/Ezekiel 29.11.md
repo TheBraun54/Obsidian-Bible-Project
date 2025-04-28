@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No foot of man shall pass through it, nor foot of beast shall pass through it, neither shall it be inhabited forty years.
+No foot of man shall pass through it, nor foot of animal shall pass through it, neither shall it be inhabited forty years.

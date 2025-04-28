@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people strove with Moses, and spake, saying, Would that we had died when our brethren died before Jehovah!
+The people strove with Moses, and spoke, saying, "We wish that we had died when our brothers died before Yahweh!

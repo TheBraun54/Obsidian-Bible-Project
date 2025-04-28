@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Offer unto God the sacrifice of thanksgiving; And pay thy vows unto the Most High:
+Offer to God the sacrifice of thanksgiving. Pay your vows to the Most High.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Which wise men have told From their fathers, and have not hid it;
+(Which wise men have told by their fathers, and have not hidden it;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh his feet like hinds' [feet], And setteth me upon my high places.
+He makes his feet like hinds' [feet], and sets me on my high places.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely there is not a righteous man upon earth, that doeth good, and sinneth not.
+Surely there is not a righteous man on earth, who does good and doesn't sin.

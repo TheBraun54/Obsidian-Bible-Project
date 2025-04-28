@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went out, and wept bitterly.
+He went out, and wept bitterly.

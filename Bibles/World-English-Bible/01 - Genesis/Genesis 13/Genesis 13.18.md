@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram moved his tent, and came and dwelt by the oaks of Mamre, which are in Hebron, and built there an altar unto Jehovah.
+Abram moved his tent, and came and lived by the oaks of Mamre, which are in Hebron, and built an altar there to Yahweh.

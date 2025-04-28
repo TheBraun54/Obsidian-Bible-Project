@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel spake unto Moses, saying, Behold, we perish, we are undone, we are all undone.
+The children of Israel spoke to Moses, saying, "Behold, we perish! We are undone! We are all undone!

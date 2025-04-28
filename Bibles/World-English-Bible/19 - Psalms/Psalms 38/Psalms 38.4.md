@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For mine iniquities are gone over my head: As a heavy burden they are too heavy for me.
+For my iniquities have gone over my head. As a heavy burden, they are too heavy for me.

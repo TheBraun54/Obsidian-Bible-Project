@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Noah builded an altar unto Jehovah, and took of every clean beast, and of every clean bird, and offered burnt-offerings on the altar.
+Noah built an altar to Yahweh, and took of every clean animal, and of every clean bird, and offered burnt offerings on the altar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye love me, ye will keep my commandments.
+If you love me, keep my commandments.

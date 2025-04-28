@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make Pathros desolate, and will set a fire in Zoan, and will execute judgments upon No.
+I will make Pathros desolate, and will set a fire in Zoan, and will execute judgments on No.

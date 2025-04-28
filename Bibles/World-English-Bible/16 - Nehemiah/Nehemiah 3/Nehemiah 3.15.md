@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fountain gate repaired Shallun the son of Col-hozeh, the ruler of the district of Mizpah; he built it, and covered it, and set up the doors thereof, the bolts thereof, and the bars thereof, and the wall of the pool of Shelah by the king's garden, even unto the stairs that go down from the city of David.
+The spring gate repaired Shallun the son of Colhozeh, the ruler of the district of Mizpah; he built it, and covered it, and set up its doors, its bolts, and its bars, and the wall of the pool of Shelah by the king's garden, even to the stairs that go down from the city of David.

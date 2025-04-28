@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God will shoot at them; With an arrow suddenly shall they be wounded.
+But God will shoot at them. They will be suddenly struck down with an arrow.

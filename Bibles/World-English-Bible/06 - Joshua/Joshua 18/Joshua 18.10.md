@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua cast lots for them in Shiloh before Jehovah: and there Joshua divided the land unto the children of Israel according to their divisions.
+Joshua cast lots for them in Shiloh before Yahweh. There Joshua divided the land to the children of Israel according to their divisions.

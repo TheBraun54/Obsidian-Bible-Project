@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is a dinner of herbs, where love is, Than a stalled ox and hatred therewith.
+Better is a dinner of herbs, where love is, than a fattened calf with hatred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am weary with my groaning; Every night make I my bed to swim; I water my couch with my tears.
+I am weary with my groaning. Every night I flood my bed. I drench my couch with my tears.

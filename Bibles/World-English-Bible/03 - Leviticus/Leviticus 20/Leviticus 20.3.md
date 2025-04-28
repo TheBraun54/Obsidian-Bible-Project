@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I also will set my face against that man, and will cut him off from among his people; because he hath given of his seed unto Molech, to defile my sanctuary, and to profane my holy name.
+I also will set my face against that person, and will cut him off from among his people because he has given of his seed to Molech, to defile my sanctuary, and to profane my holy name.

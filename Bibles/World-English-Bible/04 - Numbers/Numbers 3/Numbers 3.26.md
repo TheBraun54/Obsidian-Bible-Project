@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the hangings of the court, and the screen for the door of the court, which is by the tabernacle, and by the altar round about, and the cords of it for all the service thereof.
+and the hangings of the court, and the screen for the door of the court, which is by the tabernacle, and around the altar, and its cords for all of its service.

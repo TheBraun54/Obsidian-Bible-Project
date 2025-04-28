@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the day is near, even the day of Jehovah is near; it shall be a day of clouds, a time of the nations.
+For the day is near, even the day of Yahweh is near; it shall be a day of clouds, a time of the nations.

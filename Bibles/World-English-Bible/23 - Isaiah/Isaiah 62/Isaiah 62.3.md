@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt also be a crown of beauty in the hand of Jehovah, and a royal diadem in the hand of thy God.
+You shall also be a crown of beauty in the hand of Yahweh, and a royal diadem in the hand of your God.

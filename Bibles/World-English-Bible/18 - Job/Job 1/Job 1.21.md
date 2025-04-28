@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, Naked came I out of my mother's womb, and naked shall I return thither: Jehovah gave, and Jehovah hath taken away; blessed be the name of Jehovah.
+He said, "Naked I came out of my mother's womb, and naked shall I return there. Yahweh gave, and Yahweh has taken away. Blessed be the name of Yahweh."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Believe me that I am in the Father, and the Father in me: or else believe me for the very works' sake.
+Believe me that I am in the Father, and the Father in me; or else believe me for the very works' sake.

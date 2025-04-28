@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then cried a wise woman out of the city, Hear, hear; say, I pray you, unto Joab, Come near hither, that I may speak with thee.
+Then a wise woman cried out of the city, "Hear, hear! Please say to Joab, 'Come near here, that I may speak with you.'"

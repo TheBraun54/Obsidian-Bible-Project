@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the watchers saw a man come forth out of the city, and they said unto him, Show us, we pray thee, the entrance into the city, and we will deal kindly with thee.
+The watchers saw a man come forth out of the city, and they said to him, "Please show us the entrance into the city, and we will deal kindly with you."

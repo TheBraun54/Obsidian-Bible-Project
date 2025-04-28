@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any of the flesh of the sacrifice of his peace-offerings be eaten on the third day, it shall not be accepted, neither shall it be imputed unto him that offereth it: it shall be an abomination, and the soul that eateth of it shall bear his iniquity.
+If any of the flesh of the sacrifice of his peace offerings is eaten on the third day, it will not be accepted, neither shall it be imputed to him who offers it. It will be an abomination, and the soul who eats any of it will bear his iniquity.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And four great beasts came up from the sea, diverse one from another.
+Four great animals came up from the sea, diverse one from another.

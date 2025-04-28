@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Tobiah the Ammonite was by him, and he said, Even that which they are building, if a fox go up, he shall break down their stone wall.
+Now Tobiah the Ammonite was by him, and he said, "What they are building, if a fox climbed up it, he would break down their stone wall."

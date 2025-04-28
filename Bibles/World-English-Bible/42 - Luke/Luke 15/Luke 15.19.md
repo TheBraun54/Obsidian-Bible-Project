@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am no more worthy to be called your son: make me as one of thy hired servants.
+I am no more worthy to be called your son. Make me as one of your hired servants."'

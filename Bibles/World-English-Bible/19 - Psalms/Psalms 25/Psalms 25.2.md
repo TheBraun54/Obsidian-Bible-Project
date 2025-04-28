@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my God, in thee have I trusted, Let me not be put to shame; Let not mine enemies triumph over me.
+My God, I have trusted in you. Don't let me be shamed. Don't let my enemies triumph over me.

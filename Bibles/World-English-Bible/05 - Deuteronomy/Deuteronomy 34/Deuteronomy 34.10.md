@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there hath not arisen a prophet since in Israel like unto Moses, whom Jehovah knew face to face,
+There has not arisen a prophet since in Israel like Moses, whom Yahweh knew face to face,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is none to plead thy cause, that thou mayest be bound up: thou hast no healing medicines.
+There is none to plead your cause, that you may be bound up: you have no healing medicines.

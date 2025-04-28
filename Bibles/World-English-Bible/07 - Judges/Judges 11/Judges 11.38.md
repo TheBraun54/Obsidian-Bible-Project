@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Go. And he sent her away for two months: and she departed, she and her companions, and bewailed her virginity upon the mountains.
+He said, "Go." He sent her away for two months: and she departed, she and her companions, and mourned her virginity on the mountains.

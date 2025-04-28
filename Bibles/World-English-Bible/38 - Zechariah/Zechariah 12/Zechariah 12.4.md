@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day, saith Jehovah, I will smite every horse with terror, and his rider with madness; and I will open mine eyes upon the house of Judah, and will smite every horse of the peoples with blindness.
+In that day," says Yahweh, "I will strike every horse with terror, and his rider with madness; and I will open my eyes on the house of Judah, and will strike every horse of the peoples with blindness.

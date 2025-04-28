@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought him unto him: and when he saw him, straightway the spirit tare him grievously; and he fell on the ground, and wallowed foaming.
+They brought him to him, and when he saw him, immediately the spirit convulsed him, and he fell on the ground, wallowing and foaming at the mouth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he, desiring to justify himself, said unto Jesus, And who is my neighbor?
+But he, desiring to justify himself, asked Jesus, "Who is my neighbor?"

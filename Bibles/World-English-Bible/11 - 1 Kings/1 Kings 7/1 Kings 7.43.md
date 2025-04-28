@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the ten bases, and the ten lavers on the bases;
+and the ten bases, and the ten basins on the bases;

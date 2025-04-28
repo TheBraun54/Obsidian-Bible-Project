@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thy children will keep my covenant And my testimony that I shall teach them, Their children also shall sit upon thy throne for evermore.
+If your children will keep my covenant, my testimony that I will teach them, their children also will sit on your throne forevermore."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the songs of the temple shall be wailings in that day, saith the Lord Jehovah: the dead bodies shall be many: in every place shall they cast them forth with silence.
+The songs of the temple will be wailings in that day," says the Lord Yahweh. "The dead bodies will be many. In every place they will throw them out with silence.

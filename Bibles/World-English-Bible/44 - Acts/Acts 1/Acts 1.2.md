@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-until the day in which he was received up, after that he had given commandment through the Holy Spirit unto the apostles whom he had chosen:
+until the day in which he was received up, after he had given commandment through the Holy Spirit to the apostles whom he had chosen.

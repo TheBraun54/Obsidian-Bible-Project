@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the hand of Jehovah was on Elijah; and he girded up his loins, and ran before Ahab to the entrance of Jezreel.
+The hand of Yahweh was on Elijah; and he tucked his cloak into his belt and ran before Ahab to the entrance of Jezreel.

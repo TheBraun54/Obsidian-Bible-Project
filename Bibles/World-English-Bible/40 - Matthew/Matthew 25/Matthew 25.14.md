@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For [it is] as [when] a man, going into another country, called his own servants, and delivered unto them his goods.
+"For it is like a man, going into another country, who called his own servants, and entrusted his goods to them.

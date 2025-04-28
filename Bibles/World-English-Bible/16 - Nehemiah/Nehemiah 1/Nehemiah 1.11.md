@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord, I beseech thee, let now thine ear be attentive to the prayer of thy servant, and to the prayer of thy servants, who delight to fear thy name; and prosper, I pray thee, thy servant this day, and grant him mercy in the sight of this man. Now I was cupbearer to the king.
+Lord, I beg you, let your ear be attentive now to the prayer of your servant, and to the prayer of your servants, who delight to fear your name; and please prosper your servant this day, and grant him mercy in the sight of this man." Now I was cup bearer to the king.

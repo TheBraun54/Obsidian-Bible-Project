@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He paweth in the valley, and rejoiceth in his strength: He goeth out to meet the armed men.
+He paws in the valley, and rejoices in his strength. He goes out to meet the armed men.

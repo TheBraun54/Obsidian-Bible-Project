@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou say in thy heart, How shall we know the word which Jehovah hath not spoken?
+If you say in your heart, "How shall we know the word which Yahweh has not spoken?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a full end, and that determined, will the Lord, Jehovah of hosts, make in the midst of all the earth.
+For the Lord, Yahweh of Armies, will make a full end, and that determined, in the midst of all the earth.

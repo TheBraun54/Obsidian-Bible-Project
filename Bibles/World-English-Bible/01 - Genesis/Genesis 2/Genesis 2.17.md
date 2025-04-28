@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but of the tree of the knowledge of good and evil, thou shalt not eat of it: for in the day that thou eatest thereof thou shalt surely die.
+but of the tree of the knowledge of good and evil, you shall not eat of it; for in the day that you eat of it you will surely die."

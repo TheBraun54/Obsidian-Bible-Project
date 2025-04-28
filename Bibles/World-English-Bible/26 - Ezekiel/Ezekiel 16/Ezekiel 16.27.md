@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold therefore, I have stretched out my hand over thee, and have diminished thine ordinary [food], and delivered thee unto the will of them that hate thee, the daughters of the Philistines, that are ashamed of thy lewd way.
+See therefore, I have stretched out my hand over you, and have diminished your ordinary [food], and delivered you to the will of those who hate you, the daughters of the Philistines, who are ashamed of your lewd way.

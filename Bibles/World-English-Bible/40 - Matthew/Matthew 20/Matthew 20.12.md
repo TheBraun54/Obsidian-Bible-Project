@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, These last have spent [but] one hour, and thou hast made them equal unto us, who have borne the burden of the day and the scorching heat.
+saying, 'These last have spent one hour, and you have made them equal to us, who have borne the burden of the day and the scorching heat!'

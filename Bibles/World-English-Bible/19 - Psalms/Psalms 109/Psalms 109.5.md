@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they have rewarded me evil for good, And hatred for my love.
+They have rewarded me evil for good, and hatred for my love.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To understand a proverb, and a figure, The words of the wise, and their dark sayings.
+to understand a proverb, and parables, the words and riddles of the wise.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He would feed them also with the finest of the wheat; And with honey out of the rock would I satisfy thee.
+But he would have also fed them with the finest of the wheat. I will satisfy you with honey out of the rock." A Psalm by Asaph.

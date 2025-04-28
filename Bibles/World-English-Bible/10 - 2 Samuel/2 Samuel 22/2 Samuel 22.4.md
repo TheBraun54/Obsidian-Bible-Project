@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will call upon Jehovah, who is worthy to be praised: So shall I be saved from mine enemies.
+I will call on Yahweh, who is worthy to be praised: So shall I be saved from my enemies.

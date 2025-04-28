@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus the Lord Jehovah showed me: and, behold, the Lord Jehovah called to contend by fire; and it devoured the great deep, and would have eaten up the land.
+Thus the Lord Yahweh showed me and behold, the Lord Yahweh called for judgment by fire; and it dried up the great deep, and would have devoured the land.

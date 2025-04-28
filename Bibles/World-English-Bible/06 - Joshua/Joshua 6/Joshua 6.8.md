@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, when Joshua had spoken unto the people, the seven priests bearing the seven trumpets of rams' horns before Jehovah passed on, and blew the trumpets: and the ark of the covenant of Jehovah followed them.
+It was so, that when Joshua had spoken to the people, the seven priests bearing the seven trumpets of rams' horns before Yahweh advanced, and blew the trumpets; and the ark of the covenant of Yahweh followed them.

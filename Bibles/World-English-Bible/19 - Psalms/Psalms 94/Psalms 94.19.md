@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the multitude of my thoughts within me Thy comforts delight my soul.
+In the multitude of my thoughts within me, your comforts delight my soul.

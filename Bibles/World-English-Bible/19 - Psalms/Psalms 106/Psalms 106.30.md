@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then stood up Phinehas, and executed judgment; And so the plague was stayed.
+Then Phinehas stood up, and executed judgment, so the plague was stopped.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the people went forth, and brought them, and made themselves booths, every one upon the roof of his house, and in their courts, and in the courts of the house of God, and in the broad place of the water gate, and in the broad place of the gate of Ephraim.
+So the people went out, and brought them, and made themselves booths, everyone on the roof of his house, and in their courts, and in the courts of the house of God, and in the broad place of the water gate, and in the broad place of the gate of Ephraim.

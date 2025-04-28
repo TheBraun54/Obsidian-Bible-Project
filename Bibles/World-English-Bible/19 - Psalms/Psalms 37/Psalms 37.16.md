@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is a little that the righteous hath Than the abundance of many wicked.
+Better is a little that the righteous has, than the abundance of many wicked.

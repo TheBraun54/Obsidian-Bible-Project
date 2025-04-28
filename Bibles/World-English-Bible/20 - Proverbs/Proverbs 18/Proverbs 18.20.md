@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man's belly shall be filled with the fruit of his mouth; With the increase of his lips shall he be satisfied.
+A man's stomach is filled with the fruit of his mouth. With the harvest of his lips he is satisfied.

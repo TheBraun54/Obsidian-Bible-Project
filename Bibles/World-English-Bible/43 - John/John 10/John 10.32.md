@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered them, Many good works have I showed you from the Father; for which of those works do ye stone me?
+Jesus answered them, "I have shown you many good works from my Father. For which of those works do you stone me?"

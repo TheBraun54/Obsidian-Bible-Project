@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six years thou shalt sow thy field, and six years thou shalt prune thy vineyard, and gather in the fruits thereof;
+Six years you shall sow your field, and six years you shall prune your vineyard, and gather in its fruits;

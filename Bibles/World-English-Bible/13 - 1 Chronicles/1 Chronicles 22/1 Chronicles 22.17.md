@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David also commanded all the princes of Israel to help Solomon his son, [saying] ,
+David also commanded all the princes of Israel to help Solomon his son, saying,

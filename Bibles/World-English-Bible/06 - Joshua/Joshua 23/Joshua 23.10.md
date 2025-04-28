@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One man of you shall chase a thousand; for Jehovah your God, he it is that fighteth for you, as he spake unto you.
+One man of you shall chase a thousand; for it is Yahweh your God who fights for you, as he spoke to you.

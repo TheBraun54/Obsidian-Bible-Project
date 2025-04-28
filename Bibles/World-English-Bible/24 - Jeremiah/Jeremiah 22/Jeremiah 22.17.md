@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thine eyes and thy heart are not but for thy covetousness, and for shedding innocent blood, and for oppression, and for violence, to do it.
+But your eyes and your heart are not but for your covetousness, and for shedding innocent blood, and for oppression, and for violence, to do it.

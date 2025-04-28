@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts hath sworn by himself, [saying], Surely I will fill thee with men, as with the canker-worm; and they shall lift up a shout against thee.
+Yahweh of Armies has sworn by himself, [saying], Surely I will fill you with men, as with the canker worm; and they shall lift up a shout against you.

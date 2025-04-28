@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Paul said, I am a Jew, of Tarsus in Cilicia, a citizen of no mean city: and I beseech thee, give me leave to speak unto the people.
+But Paul said, "I am a Jew, from Tarsus in Cilicia, a citizen of no insignificant city. I beg you, allow me to speak to the people."

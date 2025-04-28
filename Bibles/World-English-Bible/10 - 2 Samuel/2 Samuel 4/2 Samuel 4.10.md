@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when one told me, saying, Behold, Saul is dead, thinking to have brought good tidings, I took hold of him, and slew him in Ziklag, which was the reward I gave him for his tidings.
+when someone told me, 'Behold, Saul is dead,' thinking to have brought good news, I took hold of him, and killed him in Ziklag, which was the reward I gave him for his news.

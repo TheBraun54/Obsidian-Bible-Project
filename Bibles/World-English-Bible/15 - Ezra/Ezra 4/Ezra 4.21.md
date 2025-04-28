@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make ye now a decree to cause these men to cease, and that this city be not builded, until a decree shall be made by me.
+Make a decree now to cause these men to cease, and that this city not be built, until a decree shall be made by me.

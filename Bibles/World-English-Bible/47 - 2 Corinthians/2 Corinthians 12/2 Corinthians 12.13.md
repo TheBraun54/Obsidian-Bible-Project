@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what is there wherein ye were made inferior to the rest of the churches, except [it be] that I myself was not a burden to you? forgive me this wrong.
+For what is there in which you were made inferior to the rest of the assemblies, unless it is that I myself was not a burden to you? Forgive me this wrong.

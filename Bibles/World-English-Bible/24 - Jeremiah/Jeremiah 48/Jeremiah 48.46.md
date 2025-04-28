@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto thee, O Moab! the people of Chemosh is undone; for thy sons are taken away captive, and thy daughters into captivity.
+Woe to you, O Moab! the people of Chemosh is undone; for your sons are taken away captive, and your daughters into captivity.

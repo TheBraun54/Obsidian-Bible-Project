@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the boards for the tabernacle: twenty boards for the south side southward;
+He made the boards for the tabernacle: twenty boards for the south side southward.

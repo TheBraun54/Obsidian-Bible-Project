@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Peter and said unto him, Lo, we have left all, and followed thee; what then shall we have?
+Then Peter answered, "Behold, we have left everything, and followed you. What then will we have?"

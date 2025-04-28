@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] the waters fail from the sea, And the river wasteth and drieth up;
+As the waters fail from the sea, and the river wastes and dries up,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] a troubled fountain, and a corrupted spring, [So is] a righteous man that giveth way before the wicked.
+Like a muddied spring, and a polluted well, so is a righteous man who gives way before the wicked.

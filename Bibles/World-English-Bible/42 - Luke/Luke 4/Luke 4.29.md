@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they rose up, and cast him forth out of the city, and led him unto the brow of the hill whereon their city was built, that they might throw him down headlong.
+They rose up, threw him out of the city, and led him to the brow of the hill that their city was built on, that they might throw him off the cliff.

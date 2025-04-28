@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban said to Jacob, What hast thou done, that thou hast stolen away unawares to me, and carried away my daughters as captives of the sword?
+Laban said to Jacob, "What have you done, that you have deceived me, and carried away my daughters like captives of the sword?

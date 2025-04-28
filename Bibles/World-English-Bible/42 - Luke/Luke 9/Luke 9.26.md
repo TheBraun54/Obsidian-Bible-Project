@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever shall be ashamed of me and of my words, of him shall the Son of man be ashamed, when he cometh in his own glory, and [the glory] of the Father, and of the holy angels.
+For whoever will be ashamed of me and of my words, of him will the Son of Man be ashamed, when he comes in his glory, and the glory of the Father, and of the holy angels.

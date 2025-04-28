@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehu the son of Nimshi shalt thou anoint to be king over Israel; and Elisha the son of Shaphat of Abel-meholah shalt thou anoint to be prophet in thy room.
+You shall anoint Jehu the son of Nimshi to be king over Israel; and you shall anoint Elisha the son of Shaphat of Abel Meholah to be prophet in your place.

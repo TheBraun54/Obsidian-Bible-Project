@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet thou saidst, I am innocent; surely his anger is turned away from me. Behold, I will enter into judgment with thee, because thou sayest, I have not sinned.
+"Yet you said, 'I am innocent. Surely his anger has turned away from me.' "Behold, I will judge you, because you say, 'I have not sinned.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Samuel was offering up the burnt-offering, the Philistines drew near to battle against Israel; but Jehovah thundered with a great thunder on that day upon the Philistines, and discomfited them; and they were smitten down before Israel.
+As Samuel was offering up the burnt offering, the Philistines drew near to battle against Israel; but Yahweh thundered with a great thunder on that day on the Philistines, and confused them; and they were struck down before Israel.

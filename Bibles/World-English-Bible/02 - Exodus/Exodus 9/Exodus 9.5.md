@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah appointed a set time, saying, To-morrow Jehovah shall do this thing in the land.
+Yahweh appointed a set time, saying, "Tomorrow Yahweh shall do this thing in the land."

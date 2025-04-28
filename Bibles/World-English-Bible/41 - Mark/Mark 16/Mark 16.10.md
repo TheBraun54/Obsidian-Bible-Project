@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She went and told them that had been with him, as they mourned and wept.
+She went and told those who had been with him, as they mourned and wept.

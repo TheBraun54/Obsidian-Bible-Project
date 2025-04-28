@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah bless thee, and keep thee:
+'Yahweh bless you, and keep you.

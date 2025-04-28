@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Create in me a clean heart, O God; And renew a right spirit within me.
+Create in me a clean heart, O God. Renew a right spirit within me.

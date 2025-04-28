@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set threescore and ten thousand of them to bear burdens, and fourscore thousand that were hewers in the mountains, and three thousand and six hundred overseers to set the people at work.
+He set seventy thousand of them to bear burdens, and eighty thousand who were stone cutters in the mountains, and three thousand six hundred overseers to set the people at work.

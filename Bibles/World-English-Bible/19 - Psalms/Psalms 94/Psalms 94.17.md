@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unless Jehovah had been my help, My soul had soon dwelt in silence.
+Unless Yahweh had been my help, my soul would have soon lived in silence.

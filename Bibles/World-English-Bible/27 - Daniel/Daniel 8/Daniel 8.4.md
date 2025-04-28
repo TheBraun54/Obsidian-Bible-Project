@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw the ram pushing westward, and northward, and southward; and no beasts could stand before him, neither was there any that could deliver out of his hand; but he did according to his will, and magnified himself.
+I saw the ram pushing westward, and northward, and southward; and no animals could stand before him, neither was there any who could deliver out of his hand; but he did according to his will, and magnified himself.

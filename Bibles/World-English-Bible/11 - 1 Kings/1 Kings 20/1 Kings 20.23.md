@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servants of the king of Syria said unto him, Their god is a god of the hills; therefore they were stronger than we: but let us fight against them in the plain, and surely we shall be stronger than they.
+The servants of the king of Syria said to him, "Their god is a god of the hills; therefore they were stronger than we. But let us fight against them in the plain, and surely we shall be stronger than they.

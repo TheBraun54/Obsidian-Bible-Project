@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah our God spake unto us in Horeb, saying, Ye have dwelt long enough in this mountain:
+"Yahweh our God spoke to us in Horeb, saying, You have lived long enough in this mountain:

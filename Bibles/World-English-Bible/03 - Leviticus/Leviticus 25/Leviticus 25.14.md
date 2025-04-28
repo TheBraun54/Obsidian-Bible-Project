@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou sell aught unto thy neighbor, or buy of thy neighbor's hand, ye shall not wrong one another.
+"'If you sell anything to your neighbor, or buy from your neighbor, you shall not wrong one another.

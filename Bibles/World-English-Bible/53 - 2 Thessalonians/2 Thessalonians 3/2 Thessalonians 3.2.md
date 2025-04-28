@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that we may be delivered from unreasonable and evil men; for all have not faith.
+and that we may be delivered from unreasonable and evil men; for not all have faith.

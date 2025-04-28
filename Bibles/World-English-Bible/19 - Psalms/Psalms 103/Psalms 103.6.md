@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah executeth righteous acts, And judgments for all that are oppressed.
+Yahweh executes righteous acts, and justice for all who are oppressed.

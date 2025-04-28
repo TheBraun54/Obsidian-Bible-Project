@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zadok the priest, and his brethren the priests, before the tabernacle of Jehovah in the high place that was at Gibeon,
+and Zadok the priest, and his brothers the priests, before the tabernacle of Yahweh in the high place that was at Gibeon,

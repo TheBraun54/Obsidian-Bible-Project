@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An evil speaker shall not be established in the earth: Evil shall hunt the violent man to overthrow him.
+An evil speaker won't be established in the earth. Evil will hunt the violent man to overthrow him.

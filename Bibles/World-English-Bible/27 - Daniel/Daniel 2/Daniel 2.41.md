@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whereas thou sawest the feet and toes, part of potters' clay, and part of iron, it shall be a divided kingdom; but there shall be in it of the strength of the iron, forasmuch as thou sawest the iron mixed with miry clay.
+Whereas you saw the feet and toes, part of potters' clay, and part of iron, it shall be a divided kingdom; but there shall be in it of the strength of the iron, because you saw the iron mixed with miry clay.

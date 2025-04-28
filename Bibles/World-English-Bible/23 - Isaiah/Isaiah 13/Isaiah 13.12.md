@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will make a man more rare than fine gold, even a man than the pure gold of Ophir.
+I will make people more rare than fine gold, even a person than the pure gold of Ophir.

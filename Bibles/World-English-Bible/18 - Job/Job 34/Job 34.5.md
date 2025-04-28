@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Job hath said, I am righteous, And God hath taken away my right:
+For Job has said, 'I am righteous, God has taken away my right:

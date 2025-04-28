@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And sow fields, and plant vineyards, And get them fruits of increase.
+sow fields, plant vineyards, and reap the fruits of increase.

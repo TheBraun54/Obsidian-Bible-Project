@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath not despised nor abhorred the affliction of the afflicted; Neither hath he hid his face from him; But when he cried unto him, he heard.
+For he has not despised nor abhorred the affliction of the afflicted, Neither has he hidden his face from him; but when he cried to him, he heard.

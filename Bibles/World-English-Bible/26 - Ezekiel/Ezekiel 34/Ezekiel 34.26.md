@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make them and the places round about my hill a blessing; and I will cause the shower to come down in its season; there shall be showers of blessing.
+I will make them and the places around my hill a blessing; and I will cause the shower to come down in its season; there shall be showers of blessing.

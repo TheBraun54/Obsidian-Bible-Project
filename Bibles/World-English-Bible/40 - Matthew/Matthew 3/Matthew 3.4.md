@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now John himself had his raiment of camel's hair, and a leathern girdle about his loins; and his food was locusts and wild honey.
+Now John himself wore clothing made of camel's hair, with a leather belt around his waist. His food was locusts and wild honey.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway in the synagogues he proclaimed Jesus, that he is the Son of God.
+Immediately in the synagogues he proclaimed the Christ, that he is the Son of God.

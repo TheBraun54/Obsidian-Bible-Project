@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he denied, saying, Woman, I know him not.
+He denied Jesus, saying, "Woman, I don't know him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I bring near my righteousness, it shall not be far off, and my salvation shall not tarry; and I will place salvation in Zion for Israel my glory.
+I bring near my righteousness, it shall not be far off, and my salvation shall not wait; and I will place salvation in Zion for Israel my glory.

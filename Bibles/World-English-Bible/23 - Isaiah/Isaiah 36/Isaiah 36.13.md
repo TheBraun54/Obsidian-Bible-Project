@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Rabshakeh stood, and cried with a loud voice in the Jews' language, and said, Hear ye the words of the great king, the king of Assyria.
+Then Rabshakeh stood, and called out with a loud voice in the Jews' language, and said, "Hear the words of the great king, the king of Assyria!

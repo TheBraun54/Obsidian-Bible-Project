@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cast off the remnant of mine inheritance, and deliver them into the hand of their enemies; and they shall become a prey and a spoil to all their enemies;
+I will cast off the remnant of my inheritance, and deliver them into the hand of their enemies. They will become a prey and a spoil to all their enemies;

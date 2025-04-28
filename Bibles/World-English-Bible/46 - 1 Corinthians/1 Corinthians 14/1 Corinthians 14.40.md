@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let all things be done decently and in order.
+Let all things be done decently and in order.

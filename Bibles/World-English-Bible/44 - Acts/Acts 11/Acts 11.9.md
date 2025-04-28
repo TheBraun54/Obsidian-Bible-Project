@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But a voice answered the second time out of heaven, What God hath cleansed, make not thou common.
+But a voice answered me the second time out of heaven, 'What God has cleansed, don't you call unclean.'

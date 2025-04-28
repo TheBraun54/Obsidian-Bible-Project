@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they have turned unto me the back, and not the face: and though I taught them, rising up early and teaching them, yet they have not hearkened to receive instruction.
+They have turned to me the back, and not the face: and though I taught them, rising up early and teaching them, yet they have not listened to receive instruction.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they went forth, behold, there was brought to him a dumb man possessed with a demon.
+As they went out, behold, a mute man who was demon possessed was brought to him.

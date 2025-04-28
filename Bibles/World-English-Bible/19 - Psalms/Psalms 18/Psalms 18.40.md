@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast also made mine enemies turn their backs unto me, That I might cut off them that hate me.
+You have also made my enemies turn their backs to me, that I might cut off those who hate me.

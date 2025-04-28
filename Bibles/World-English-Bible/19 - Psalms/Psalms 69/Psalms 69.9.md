@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the zeal of thy house hath eaten me up; And the reproaches of them that reproach thee are fallen upon me.
+For the zeal of your house consumes me. The reproaches of those who reproach you have fallen on me.

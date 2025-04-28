@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a hired servant, and as a sojourner, he shall be with thee; he shall serve with thee unto the year of jubilee:
+As a hired servant, and as a temporary resident, he shall be with you; he shall serve with you until the Year of Jubilee:

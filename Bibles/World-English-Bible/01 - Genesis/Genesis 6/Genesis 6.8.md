@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Noah found favor in the eyes of Jehovah.
+But Noah found favor in Yahweh's eyes.

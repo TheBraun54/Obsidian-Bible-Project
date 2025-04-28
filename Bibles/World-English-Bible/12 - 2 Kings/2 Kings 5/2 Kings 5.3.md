@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto her mistress, Would that my lord were with the prophet that is in Samaria! then would he recover him of his leprosy.
+She said to her mistress, "I wish that my lord were with the prophet who is in Samaria! Then he would heal him of his leprosy."

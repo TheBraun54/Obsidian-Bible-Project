@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went, and found as he had said unto them: and they made ready the passover.
+They went, found things as he had told them, and they prepared the Passover.

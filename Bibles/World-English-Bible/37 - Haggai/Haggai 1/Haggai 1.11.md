@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I called for a drought upon the land, and upon the mountains, and upon the grain, and upon the new wine, and upon the oil, and upon that which the ground bringeth forth, and upon men, and upon cattle, and upon all the labor of the hands.
+I called for a drought on the land, on the mountains, on the grain, on the new wine, on the oil, on that which the ground brings forth, on men, on livestock, and on all the labor of the hands."

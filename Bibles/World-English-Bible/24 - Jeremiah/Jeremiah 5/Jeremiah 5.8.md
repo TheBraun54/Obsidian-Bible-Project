@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They were as fed horses roaming at large; every one neighed after his neighbor's wife.
+They were as fed horses roaming at large: everyone neighed after his neighbor's wife.

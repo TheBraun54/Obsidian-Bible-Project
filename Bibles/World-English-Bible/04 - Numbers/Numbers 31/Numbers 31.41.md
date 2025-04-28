@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses gave the tribute, which was Jehovah's heave-offering, unto Eleazar the priest, as Jehovah commanded Moses.
+Moses gave the tribute, which was Yahweh's wave offering, to Eleazar the priest, as Yahweh commanded Moses.

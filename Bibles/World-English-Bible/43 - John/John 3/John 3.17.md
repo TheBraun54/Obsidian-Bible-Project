@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God sent not the Son into the world to judge the world; but that the world should be saved through him.
+For God didn't send his Son into the world to judge the world, but that the world should be saved through him.

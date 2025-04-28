@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my people shall abide in a peaceable habitation, and in safe dwellings, and in quiet resting-places.
+My people will live in a peaceful habitation, in safe dwellings, and in quiet resting places.

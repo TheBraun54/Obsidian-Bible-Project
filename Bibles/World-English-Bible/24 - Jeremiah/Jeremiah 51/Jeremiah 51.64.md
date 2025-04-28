@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt say, Thus shall Babylon sink, and shall not rise again because of the evil that I will bring upon her; and they shall be weary. Thus far are the words of Jeremiah.
+and you shall say, Thus shall Babylon sink, and shall not rise again because of the evil that I will bring on her; and they shall be weary. Thus far are the words of Jeremiah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bezalel made the ark of acacia wood: two cubits and a half was the length of it, and a cubit and a half the breadth of it, and a cubit and a half the height of it.
+Bezalel made the ark of acacia wood. Its length was two and a half cubits, and its breadth a cubit and a half, and a cubit and a half its height.

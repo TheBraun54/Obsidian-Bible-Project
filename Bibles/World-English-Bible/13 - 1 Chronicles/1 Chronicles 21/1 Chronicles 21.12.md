@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-either three years of famine; or three months to be consumed before thy foes, while the sword of thine enemies overtaketh thee; or else three days the sword of Jehovah, even pestilence in the land, and the angel of Jehovah destroying throughout all the borders of Israel. Now therefore consider what answer I shall return to him that sent me.
+either three years of famine; or three months to be consumed before your foes, while the sword of your enemies overtakes you; or else three days the sword of Yahweh, even pestilence in the land, and the angel of Yahweh destroying throughout all the borders of Israel. Now therefore consider what answer I shall return to him who sent me.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Believe on the Lord Jesus, and thou shalt be saved, thou and thy house.
+They said, "Believe in the Lord Jesus Christ, and you will be saved, you and your household."

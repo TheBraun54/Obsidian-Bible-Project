@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he poureth water into the basin, and began to wash the disciples' feet, and to wipe them with the towel wherewith he was girded.
+Then he poured water into the basin, and began to wash the disciples' feet, and to wipe them with the towel that was wrapped around him.

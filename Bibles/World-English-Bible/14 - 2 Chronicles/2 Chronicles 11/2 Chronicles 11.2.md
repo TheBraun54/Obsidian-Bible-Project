@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the word of Jehovah came to Shemaiah the man of God, saying,
+But the word of Yahweh came to Shemaiah the man of God, saying,

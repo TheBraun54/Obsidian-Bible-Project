@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to the Gittith. A Psalm of David]. O Jehovah, our Lord, How excellent is thy name in all the earth, Who hast set thy glory upon the heavens!
+Yahweh, our Lord, how majestic is your name in all the earth, who has set your glory above the heavens!

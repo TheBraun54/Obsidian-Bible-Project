@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore prophesy against them, prophesy, O son of man.
+Therefore prophesy against them, prophesy, son of man.

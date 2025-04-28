@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely after that I was turned, I repented; and after that I was instructed, I smote upon my thigh: I was ashamed, yea, even confounded, because I did bear the reproach of my youth.
+Surely after that I was turned, I repented; and after that I was instructed, I struck on my thigh: I was ashamed, yes, even confounded, because I did bear the reproach of my youth.

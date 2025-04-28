@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the angel that spake unto him was departed, he called two of his household-servants, and a devout soldier of them that waited on him continually;
+When the angel who spoke to him had departed, Cornelius called two of his household servants and a devout soldier of those who waited on him continually.

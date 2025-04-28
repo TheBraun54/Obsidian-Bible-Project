@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not, little flock; for it is your Father's good pleasure to give you the kingdom.
+Don't be afraid, little flock, for it is your Father's good pleasure to give you the Kingdom.

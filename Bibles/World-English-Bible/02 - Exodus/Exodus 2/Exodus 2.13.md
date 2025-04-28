@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went out the second day, and, behold, two men of the Hebrews were striving together: and he said to him that did the wrong, Wherefore smitest thou thy fellow?
+He went out the second day, and behold, two men of the Hebrews were fighting with each other. He said to him who did the wrong, "Why do you strike your fellow?"

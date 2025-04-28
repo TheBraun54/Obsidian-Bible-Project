@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they entered into the covenant to seek Jehovah, the God of their fathers, with all their heart and with all their soul;
+They entered into the covenant to seek Yahweh, the God of their fathers, with all their heart and with all their soul;

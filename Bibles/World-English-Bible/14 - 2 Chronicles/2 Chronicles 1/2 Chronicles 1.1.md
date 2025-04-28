@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon the son of David was strengthened in his kingdom, and Jehovah his God was with him, and magnified him exceedingly.
+Solomon the son of David was strengthened in his kingdom, and Yahweh his God was with him, and magnified him exceedingly.

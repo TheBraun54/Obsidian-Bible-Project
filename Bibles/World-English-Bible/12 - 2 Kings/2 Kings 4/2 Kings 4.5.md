@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So she went from him, and shut the door upon her and upon her sons; they brought [the vessels] to her, and she poured out.
+So she went from him, and shut the door on her and on her sons; they brought the containers to her, and she poured out.

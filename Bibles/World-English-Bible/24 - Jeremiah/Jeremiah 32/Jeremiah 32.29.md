@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Chaldeans, that fight against this city, shall come and set this city on fire, and burn it, with the houses, upon whose roofs they have offered incense unto Baal, and poured out drink-offerings unto other gods, to provoke me to anger.
+and the Chaldeans, who fight against this city, shall come and set this city on fire, and burn it, with the houses, on whose roofs they have offered incense to Baal, and poured out drink offerings to other gods, to provoke me to anger.

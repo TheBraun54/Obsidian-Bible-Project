@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he beholdeth himself, and goeth away, and straightway forgetteth what manner of man he was.
+for he sees himself, and goes away, and immediately forgets what kind of man he was.

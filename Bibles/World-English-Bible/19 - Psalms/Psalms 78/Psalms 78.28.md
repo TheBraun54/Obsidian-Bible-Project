@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he let it fall in the midst of their camp, Round about their habitations.
+He let them fall in the midst of their camp, around their habitations.

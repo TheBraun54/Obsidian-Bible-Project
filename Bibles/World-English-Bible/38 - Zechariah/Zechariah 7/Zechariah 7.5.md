@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto all the people of the land, and to the priests, saying, When ye fasted and mourned in the fifth and in the seventh [month], even these seventy years, did ye at all fast unto me, even to me?
+"Speak to all the people of the land, and to the priests, saying, 'When you fasted and mourned in the fifth and in the seventh month for these seventy years, did you at all fast to me, really to me?

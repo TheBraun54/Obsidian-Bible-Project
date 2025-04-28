@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua the son of Nun and Caleb the son of Jephunneh, who were of them that spied out the land, rent their clothes:
+Joshua the son of Nun and Caleb the son of Jephunneh, who were of those who spied out the land, tore their clothes:

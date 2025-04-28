@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore said I, Look away from me, I will weep bitterly; labor not to comfort me for the destruction of the daughter of my people.
+Therefore I said, "Look away from me. I will weep bitterly. Don't labor to comfort me for the destruction of the daughter of my people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Doubtless], thou knowest, for thou wast then born, And the number of thy days is great!
+Surely you know, for you were born then, and the number of your days is great!

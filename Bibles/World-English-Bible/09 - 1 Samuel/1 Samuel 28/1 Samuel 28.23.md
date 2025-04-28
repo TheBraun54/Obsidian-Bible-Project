@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he refused, and said, I will not eat. But his servants, together with the woman, constrained him; and he hearkened unto their voice. So he arose from the earth, and sat upon the bed.
+But he refused, and said, I will not eat. But his servants, together with the woman, constrained him; and he listened to their voice. So he arose from the earth, and sat on the bed.

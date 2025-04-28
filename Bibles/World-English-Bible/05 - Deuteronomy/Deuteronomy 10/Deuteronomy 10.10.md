@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I stayed in the mount, as at the first time, forty days and forty nights: and Jehovah hearkened unto me that time also; Jehovah would not destroy thee.
+I stayed on the mountain, as at the first time, forty days and forty nights: and Yahweh listened to me that time also; Yahweh would not destroy you.

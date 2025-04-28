@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For while we were yet weak, in due season Christ died for the ungodly.
+For while we were yet weak, at the right time Christ died for the ungodly.

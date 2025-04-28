@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Samuel told the people the manner of the kingdom, and wrote it in a book, and laid it up before Jehovah. And Samuel sent all the people away, every man to his house.
+Then Samuel told the people the regulations of the kingdom, and wrote it in a book, and laid it up before Yahweh. Samuel sent all the people away, every man to his house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But whoso shall cause one of these little ones that believe on me to stumble, it is profitable for him that a great millstone should be hanged about his neck, and [that] he should be sunk in the depth of the sea.
+but whoever causes one of these little ones who believe in me to stumble, it would be better for him that a huge millstone should be hung around his neck, and that he should be sunk in the depths of the sea.

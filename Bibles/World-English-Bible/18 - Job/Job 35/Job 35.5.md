@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look unto the heavens, and see; And behold the skies, which are higher than thou.
+Look to the heavens, and see. See the skies, which are higher than you.

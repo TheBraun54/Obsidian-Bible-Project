@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let sinners be consumed out of the earth. And let the wicked be no more. Bless Jehovah, O my soul. Praise ye Jehovah.
+Let sinners be consumed out of the earth. Let the wicked be no more. Bless Yahweh, my soul. Praise Yah!

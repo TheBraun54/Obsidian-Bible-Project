@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they took hold of thee by thy hand, thou didst break, and didst rend all their shoulders; and when they leaned upon thee, thou brakest, and madest all their loins to be at a stand.
+When they took hold of you by your hand, you broke, and tore all their shoulders; and when they leaned on you, you broke, and paralyzed all of their thighs."

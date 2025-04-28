@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But who can abide the day of his coming? and who shall stand when he appeareth? for he is like a refiner's fire, and like fuller's soap:
+"But who can endure the day of his coming? And who will stand when he appears? For he is like a refiner's fire, and like launderer's soap;

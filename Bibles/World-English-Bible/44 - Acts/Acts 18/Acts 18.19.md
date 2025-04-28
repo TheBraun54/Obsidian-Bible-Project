@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to Ephesus, and he left them there: but he himself entered into the synagogue, and reasoned with the Jews.
+He came to Ephesus, and he left them there; but he himself entered into the synagogue, and reasoned with the Jews.

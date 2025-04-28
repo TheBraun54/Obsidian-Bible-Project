@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, son of man, speak unto the house of Israel, and say unto them, Thus saith the Lord Jehovah: In this moreover have your fathers blasphemed me, in that they have committed a trespass against me.
+Therefore, son of man, speak to the house of Israel, and tell them, Thus says the Lord Yahweh: In this moreover have your fathers blasphemed me, in that they have committed a trespass against me.

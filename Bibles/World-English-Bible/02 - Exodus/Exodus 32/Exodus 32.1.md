@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the people saw that Moses delayed to come down from the mount, the people gathered themselves together unto Aaron, and said unto him, Up, make us gods, which shall go before us; for as for this Moses, the man that brought us up out of the land of Egypt, we know not what is become of him.
+When the people saw that Moses delayed to come down from the mountain, the people gathered themselves together to Aaron, and said to him, "Come, make us gods, which shall go before us; for as for this Moses, the man who brought us up out of the land of Egypt, we don't know what has become of him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Ahijah, Behold, the wife of Jeroboam cometh to inquire of thee concerning her son; for he is sick: thus and thus shalt thou say unto her; for it will be, when she cometh in, that she will feign herself to be another woman.
+Yahweh said to Ahijah, "Behold, the wife of Jeroboam comes to inquire of you concerning her son; for he is sick. Thus and thus you shall tell her; for it will be, when she comes in, that she will pretend to be another woman."

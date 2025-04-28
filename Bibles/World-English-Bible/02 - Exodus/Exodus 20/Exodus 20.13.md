@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not kill.
+"You shall not murder.

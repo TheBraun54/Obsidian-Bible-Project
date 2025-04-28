@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake again unto Ahaz, saying,
+Yahweh spoke again to Ahaz, saying,

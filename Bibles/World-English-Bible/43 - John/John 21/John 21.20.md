@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter, turning about, seeth the disciple whom Jesus loved following; who also leaned back on his breast at the supper, and said, Lord, who is he that betrayeth thee?
+Then Peter, turning around, saw a disciple following. This was the disciple whom Jesus sincerely loved, the one who had also leaned on Jesus' breast at the supper and asked, "Lord, who is going to betray You?"

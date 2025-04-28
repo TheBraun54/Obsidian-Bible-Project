@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and assemble thou all the congregation at the door of the tent of meeting.
+and assemble all the congregation at the door of the Tent of Meeting."

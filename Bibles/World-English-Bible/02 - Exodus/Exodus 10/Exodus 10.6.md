@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thy houses shall be filled, and the houses of all thy servants, and the houses of all the Egyptians; as neither thy fathers nor thy fathers' fathers have seen, since the day that they were upon the earth unto this day. And he turned, and went out from Pharaoh.
+Your houses shall be filled, and the houses of all your servants, and the houses of all the Egyptians; as neither your fathers nor your fathers' fathers have seen, since the day that they were on the earth to this day.'" He turned, and went out from Pharaoh.

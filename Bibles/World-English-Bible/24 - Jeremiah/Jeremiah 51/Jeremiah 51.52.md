@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, behold, the days come, saith Jehovah, that I will execute judgment upon her graven images; and through all her land the wounded shall groan.
+Therefore, behold, the days come, says Yahweh, that I will execute judgment on her engraved images; and through all her land the wounded shall groan.

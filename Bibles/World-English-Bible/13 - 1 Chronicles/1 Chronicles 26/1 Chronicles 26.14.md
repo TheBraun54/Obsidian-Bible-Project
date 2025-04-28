@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lot eastward fell to Shelemiah. Then for Zechariah his son, a discreet counsellor, they cast lots; and his lot came out northward.
+The lot eastward fell to Shelemiah. Then for Zechariah his son, a wise counselor, they cast lots; and his lot came out northward.

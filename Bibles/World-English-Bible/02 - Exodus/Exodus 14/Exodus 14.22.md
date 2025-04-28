@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel went into the midst of the sea upon the dry ground: and the waters were a wall unto them on their right hand, and on their left.
+The children of Israel went into the midst of the sea on the dry ground, and the waters were a wall to them on their right hand, and on their left.

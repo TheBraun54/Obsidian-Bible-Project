@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So she gleaned in the field until even; and she beat out that which she had gleaned, and it was about an ephah of barley.
+So she gleaned in the field until evening; and she beat out that which she had gleaned, and it was about an ephah of barley.

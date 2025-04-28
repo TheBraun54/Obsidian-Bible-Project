@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the watchman cried, and told the king. And the king said, If he be alone, there is tidings in his mouth. And he came apace, and drew near.
+The watchman cried, and told the king. The king said, "If he is alone, there is news in his mouth." He came closer and closer.

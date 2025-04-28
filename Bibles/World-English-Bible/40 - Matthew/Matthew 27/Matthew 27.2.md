@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they bound him, and led him away, and delivered him up to Pilate the governor.
+and they bound him, and led him away, and delivered him up to Pontius Pilate, the governor.

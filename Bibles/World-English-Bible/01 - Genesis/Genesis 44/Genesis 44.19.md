@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My lord asked his servants, saying, Have ye a father, or a brother?
+My lord asked his servants, saying, 'Have you a father, or a brother?'

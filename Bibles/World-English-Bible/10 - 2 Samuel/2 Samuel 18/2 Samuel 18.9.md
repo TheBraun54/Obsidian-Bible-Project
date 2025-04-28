@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom chanced to meet the servants of David. And Absalom was riding upon his mule, and the mule went under the thick boughs of a great oak, and his head caught hold of the oak, and he was taken up between heaven and earth; and the mule that was under him went on.
+Absalom happened to meet the servants of David. Absalom was riding on his mule, and the mule went under the thick boughs of a great oak, and his head caught hold of the oak, and he was taken up between the sky and earth; and the mule that was under him went on.

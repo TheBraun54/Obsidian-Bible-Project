@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson took hold of the two middle pillars upon which the house rested, and leaned upon them, the one with his right hand, and the other with his left.
+Samson took hold of the two middle pillars on which the house rested, and leaned on them, the one with his right hand, and the other with his left.

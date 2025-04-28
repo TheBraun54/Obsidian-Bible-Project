@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have sent among you the pestilence after the manner of Egypt: your young men have I slain with the sword, and have carried away your horses; and I have made the stench of your camp to come up even into your nostrils: yet have ye not returned unto me, saith Jehovah.
+"I sent plagues among you like I did Egypt. I have slain your young men with the sword, and have carried away your horses; and I filled your nostrils with the stench of your camp, yet you haven't returned to me," says Yahweh.

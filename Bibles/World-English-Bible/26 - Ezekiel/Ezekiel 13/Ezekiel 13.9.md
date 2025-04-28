@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my hand shall be against the prophets that see false visions, and that divine lies: they shall not be in the council of my people, neither shall they be written in the writing of the house of Israel, neither shall they enter into the land of Israel; and ye shall know that I am the Lord Jehovah.
+My hand shall be against the prophets who see false visions, and who divine lies: they shall not be in the council of my people, neither shall they be written in the writing of the house of Israel, neither shall they enter into the land of Israel; and you shall know that I am the Lord Yahweh.

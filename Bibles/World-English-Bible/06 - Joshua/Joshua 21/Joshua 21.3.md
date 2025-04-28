@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel gave unto the Levites out of their inheritance, according to the commandment of Jehovah, these cities with their suburbs.
+The children of Israel gave to the Levites out of their inheritance, according to the commandment of Yahweh, these cities with their suburbs.

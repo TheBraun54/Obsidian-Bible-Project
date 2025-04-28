@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered them, Is it not written in your law, I said, ye are gods?
+Jesus answered them, "Isn't it written in your law, 'I said, you are gods?'

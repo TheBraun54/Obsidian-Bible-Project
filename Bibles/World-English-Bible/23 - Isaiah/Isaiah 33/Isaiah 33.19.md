@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not see the fierce people, a people of a deep speech that thou canst not comprehend, of a strange tongue that thou canst not understand.
+You will no longer see the fierce people, a people of a deep speech that you can't comprehend, with a strange language that you can't understand.

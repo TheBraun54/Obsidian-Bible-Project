@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and with thee will I break in pieces the shepherd and his flock; and with thee will I break in pieces the husbandman and his yoke [of oxen] ; and with thee will I break in pieces governors and deputies.
+and with you will I break in pieces the shepherd and his flock; and with you will I break in pieces the farmer and his yoke [of oxen]; and with you will I break in pieces governors and deputies.

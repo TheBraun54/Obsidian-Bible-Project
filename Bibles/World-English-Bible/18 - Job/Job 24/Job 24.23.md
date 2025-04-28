@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ God] giveth them to be in security, and they rest thereon; And his eyes are upon their ways.
+God gives them security, and they rest in it. His eyes are on their ways.

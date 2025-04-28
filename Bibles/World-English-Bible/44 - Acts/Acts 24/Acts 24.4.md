@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But, that I be not further tedious unto thee, I entreat thee to hear us of thy clemency a few words.
+But, that I don't delay you, I entreat you to bear with us and hear a few words.

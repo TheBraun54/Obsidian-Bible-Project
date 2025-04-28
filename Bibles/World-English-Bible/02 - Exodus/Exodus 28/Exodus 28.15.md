@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a breastplate of judgment, the work of the skilful workman; like the work of the ephod thou shalt make it; of gold, of blue, and purple, and scarlet, and fine twined linen, shalt thou make it.
+"You shall make a breastplate of judgment, the work of the skillful workman; like the work of the ephod you shall make it; of gold, of blue, and purple, and scarlet, and fine twined linen, you shall make it.

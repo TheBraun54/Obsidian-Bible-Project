@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Women received their dead by a resurrection: and others were tortured, not accepting their deliverance; that they might obtain a better resurrection:
+Women received their dead by resurrection. Others were tortured, not accepting their deliverance, that they might obtain a better resurrection.

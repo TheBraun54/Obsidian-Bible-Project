@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the Lord Jehovah will help me; who is he that shall condemn me? behold, all they shall wax old as a garment, the moth shall eat them up.
+Behold, the Lord Yahweh will help me; who is he who shall condemn me? Behold, all they shall wax old as a garment, the moth shall eat them up.

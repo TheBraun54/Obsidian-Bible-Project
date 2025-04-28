@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Counsel is mine, and sound knowledge: I am understanding; I have might.
+Counsel and sound knowledge are mine. I have understanding and power.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto him, If thou passest on with me, then thou wilt be a burden unto me:
+David said to him, "If you pass on with me, then you will be a burden to me;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Devise not evil against thy neighbor, Seeing he dwelleth securely by thee.
+Don't devise evil against your neighbor, since he dwells securely by you.

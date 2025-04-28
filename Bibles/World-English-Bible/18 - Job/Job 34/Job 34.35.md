@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Job speaketh without knowledge, And his words are without wisdom.
+'Job speaks without knowledge. His words are without wisdom.'

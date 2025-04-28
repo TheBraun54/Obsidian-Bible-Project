@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Rabshakeh said unto them, Hath my master sent me to thy master, and to thee, to speak these words? [hath he] not [sent me] to the men that sit on the wall, to eat their own dung, and to drink their own water with you?
+But Rabshakeh said to them, "Has my master sent me to your master, and to you, to speak these words? Hasn't he sent me to the men who sit on the wall, to eat their own dung, and to drink their own water with you?"

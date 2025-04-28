@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Up, sanctify the people, and say, Sanctify yourselves against to-morrow: for thus saith Jehovah, the God of Israel, There is a devoted thing in the midst of thee, O Israel; thou canst not stand before thine enemies, until ye take away the devoted thing from among you.
+"Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for Yahweh, the God of Israel, says, "There is a devoted thing in the midst of you, Israel. You cannot stand before your enemies until you take away the devoted thing from among you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Joshua, Open the mouth of the cave, and bring forth those five kings unto me out of the cave.
+Then Joshua said, "Open the mouth of the cave, and bring those five kings out of the cave to me."

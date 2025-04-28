@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went a cry throughout the host about the going down of the sun, saying, Every man to his city, and every man to his country.
+A cry went throughout the army about the going down of the sun, saying, "Every man to his city, and every man to his country!"

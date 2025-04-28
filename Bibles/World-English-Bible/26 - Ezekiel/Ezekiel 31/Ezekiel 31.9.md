@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I made it fair by the multitude of its branches, so that all the trees of Eden, that were in the garden of God, envied it.
+I made it beautiful by the multitude of its branches, so that all the trees of Eden, that were in the garden of God, envied it.

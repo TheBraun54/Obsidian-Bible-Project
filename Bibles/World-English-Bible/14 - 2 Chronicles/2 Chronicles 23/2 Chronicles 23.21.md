@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So all the people of the land rejoiced, and the city was quiet. And Athaliah they had slain with the sword.
+So all the people of the land rejoiced, and the city was quiet. Athaliah they had slain with the sword.

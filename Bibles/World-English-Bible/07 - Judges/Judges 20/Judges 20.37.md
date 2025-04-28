@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the liers-in-wait hasted, and rushed upon Gibeah; and the liers-in-wait drew themselves along, and smote all the city with the edge of the sword.
+The ambushers hurried, and rushed on Gibeah; and the ambushers drew themselves along, and struck all the city with the edge of the sword.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of them, when he saw that he was healed, turned back, with a loud voice glorifying God;
+One of them, when he saw that he was healed, turned back, glorifying God with a loud voice.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the second poured out his bowl into the sea; and it became blood as of a dead man; and every living soul died, [even] the things that were in the sea.
+The second angel poured out his bowl into the sea, and it became blood as of a dead man. Every living thing in the sea died.

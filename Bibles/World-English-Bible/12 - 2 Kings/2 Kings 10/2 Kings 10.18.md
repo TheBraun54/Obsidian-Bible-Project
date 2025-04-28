@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehu gathered all the people together, and said unto them, Ahab served Baal a little; but Jehu will serve him much.
+Jehu gathered all the people together, and said to them, "Ahab served Baal a little; but Jehu will serve him much.

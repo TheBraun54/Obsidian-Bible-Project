@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, Daniel, alone saw the vision; for the men that were with me saw not the vision; but a great quaking fell upon them, and they fled to hide themselves.
+I, Daniel, alone saw the vision; for the men who were with me didn't see the vision; but a great quaking fell on them, and they fled to hide themselves.

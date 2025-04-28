@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw a great white throne, and him that sat upon it, from whose face the earth and the heaven fled away; and there was found no place for them.
+I saw a great white throne, and him who sat on it, from whose face the earth and the heaven fled away. There was found no place for them.

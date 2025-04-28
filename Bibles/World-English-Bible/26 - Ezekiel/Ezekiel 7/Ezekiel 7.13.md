@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the seller shall not return to that which is sold, although they be yet alive: for the vision is touching the whole multitude thereof, none shall return; neither shall any strengthen himself in the iniquity of his life.
+For the seller shall not return to that which is sold, although they be yet alive: for the vision is touching the whole multitude of it, none shall return; neither shall any strengthen himself in the iniquity of his life.

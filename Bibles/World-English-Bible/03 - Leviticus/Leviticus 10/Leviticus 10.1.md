@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nadab and Abihu, the sons of Aaron, took each of them his censer, and put fire therein, and laid incense thereon, and offered strange fire before Jehovah, which he had not commanded them.
+Nadab and Abihu, the sons of Aaron, each took his censer, and put fire in it, and laid incense on it, and offered strange fire before Yahweh, which he had not commanded them.

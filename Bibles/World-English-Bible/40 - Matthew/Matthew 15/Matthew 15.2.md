@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why do thy disciples transgress the tradition of the elders? for they wash not their hands when they eat bread.
+"Why do your disciples disobey the tradition of the elders? For they don't wash their hands when they eat bread."

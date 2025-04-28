@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If they say thus unto us, Tarry until we come to you; then we will stand still in our place, and will not go up unto them.
+If they say thus to us, 'Wait until we come to you!' then we will stand still in our place, and will not go up to them.

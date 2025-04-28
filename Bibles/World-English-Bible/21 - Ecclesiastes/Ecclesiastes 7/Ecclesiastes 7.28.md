@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which my soul still seeketh, but I have not found: one man among a thousand have I found; but a woman among all those have I not found.
+which my soul still seeks; but I have not found. One man among a thousand have I found; but I have not found a woman among all those.

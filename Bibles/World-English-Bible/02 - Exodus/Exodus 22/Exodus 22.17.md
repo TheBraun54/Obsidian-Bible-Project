@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If her father utterly refuse to give her unto him, he shall pay money according to the dowry of virgins.
+If her father utterly refuses to give her to him, he shall pay money according to the dowry of virgins.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they bind heavy burdens and grievous to be borne, and lay them on men's shoulders; but they themselves will not move them with their finger.
+For they bind heavy burdens that are grievous to be borne, and lay them on men's shoulders; but they themselves will not lift a finger to help them.

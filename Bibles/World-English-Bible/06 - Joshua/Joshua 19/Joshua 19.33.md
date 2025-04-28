@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their border was from Heleph, from the oak in Zaanannim, and Adami-nekeb, and Jabneel, unto Lakkum; and the goings out thereof were at the Jordan;
+Their border was from Heleph, from the oak in Zaanannim, Adaminekeb, and Jabneel, to Lakkum. It ended at the Jordan.

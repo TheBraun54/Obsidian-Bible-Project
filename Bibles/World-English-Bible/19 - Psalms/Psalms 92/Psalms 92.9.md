@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, thine enemies, O Jehovah, For, lo, thine enemies shall perish; All the workers of iniquity shall be scattered.
+For, behold, your enemies, Yahweh, for, behold, your enemies shall perish. All the evildoers will be scattered.

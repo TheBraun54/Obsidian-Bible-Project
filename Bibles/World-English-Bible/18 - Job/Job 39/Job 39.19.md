@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou given the horse [his] might? Hast thou clothed his neck with the quivering mane?
+"Have you given the horse might? Have you clothed his neck with a quivering mane?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter answered him and said, Lord, if it be thou, bid me come unto thee upon the waters.
+Peter answered him and said, "Lord, if it is you, command me to come to you on the waters."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech said unto Abraham, What sawest thou, that thou hast done this thing?
+Abimelech said to Abraham, "What did you see, that you have done this thing?"

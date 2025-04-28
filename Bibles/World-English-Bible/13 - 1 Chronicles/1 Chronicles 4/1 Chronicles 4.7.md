@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Helah were Zereth, Izhar, and Ethnan.
+The sons of Helah were Zereth, Izhar, and Ethnan.

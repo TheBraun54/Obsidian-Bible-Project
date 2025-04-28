@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the city was filled with the confusion: and they rushed with one accord into the theatre, having seized Gaius and Aristarchus, men of Macedonia, Paul's companions in travel.
+The whole city was filled with confusion, and they rushed with one accord into the theater, having seized Gaius and Aristarchus, men of Macedonia, Paul's companions in travel.

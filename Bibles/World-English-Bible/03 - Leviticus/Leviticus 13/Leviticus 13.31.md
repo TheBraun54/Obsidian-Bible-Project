@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the priest look on the plague of the scall, and, behold, the appearance thereof be not deeper than the skin, and there be no black hair in it, then the priest shall shut up [him that hath] the plague of the scall seven days:
+If the priest examines the plague of itching, and behold, its appearance isn't deeper than the skin, and there is no black hair in it, then the priest shall isolate him the person infected with itching seven days.

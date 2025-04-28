@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I am poor and needy; Make haste unto me, O God: Thou art my help and my deliverer; O Jehovah, make no tarrying.
+But I am poor and needy. Come to me quickly, God. You are my help and my deliverer. Yahweh, don't delay.

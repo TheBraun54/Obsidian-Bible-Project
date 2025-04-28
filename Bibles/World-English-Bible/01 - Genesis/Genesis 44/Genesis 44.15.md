@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto them, What deed is this that ye have done? know ye not that such a man as I can indeed divine?
+Joseph said to them, "What deed is this that you have done? Don't you know that such a man as I can indeed divine?"

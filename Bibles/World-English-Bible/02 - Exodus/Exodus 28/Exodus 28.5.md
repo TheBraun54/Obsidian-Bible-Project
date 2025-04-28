@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall take the gold, and the blue, and the purple, and the scarlet, and the fine linen.
+They shall take the gold, and the blue, and the purple, and the scarlet, and the fine linen.

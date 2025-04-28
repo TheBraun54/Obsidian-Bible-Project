@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let him that stole steal no more: but rather let him labor, working with his hands the thing that is good, that he may have whereof to give to him that hath need.
+Let him who stole steal no more; but rather let him labor, working with his hands the thing that is good, that he may have something to give to him who has need.

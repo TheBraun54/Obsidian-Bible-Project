@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If iniquity be in thy hand, put it far away, And let not unrighteousness dwell in thy tents.
+If iniquity is in your hand, put it far away. Don't let unrighteousness dwell in your tents.

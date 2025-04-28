@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, I will send and take all the families of the north, saith Jehovah, and [I will send] unto Nebuchadrezzar the king of Babylon, my servant, and will bring them against this land, and against the inhabitants thereof, and against all these nations round about; and I will utterly destroy them, and make them an astonishment, and a hissing, and perpetual desolations.
+behold, I will send and take all the families of the north, says Yahweh, and [I will send] to Nebuchadnezzar the king of Babylon, my servant, and will bring them against this land, and against its inhabitants, and against all these nations around; and I will utterly destroy them, and make them an astonishment, and a hissing, and perpetual desolations.

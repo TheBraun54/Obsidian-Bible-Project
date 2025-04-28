@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto you, Among them that are born of women there is none greater than John: yet he that is but little in the kingdom of God is greater than he.
+"For I tell you, among those who are born of women there is not a greater prophet than John the Baptizer, yet he who is least in the Kingdom of God is greater than he."

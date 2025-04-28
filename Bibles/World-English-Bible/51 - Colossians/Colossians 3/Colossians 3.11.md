@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-where there cannot be Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, bondman, freeman; but Christ is all, and in all.
+where there can't be Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, bondservant, freeman; but Christ is all, and in all.

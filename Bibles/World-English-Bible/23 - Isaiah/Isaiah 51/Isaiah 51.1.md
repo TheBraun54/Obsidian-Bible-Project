@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken to me, ye that follow after righteousness, ye that seek Jehovah: look unto the rock whence ye were hewn, and to the hole of the pit whence ye were digged.
+"Listen to me, you who follow after righteousness, you who seek Yahweh: look to the rock you were cut from, and to the hold of the pit you were dug from.

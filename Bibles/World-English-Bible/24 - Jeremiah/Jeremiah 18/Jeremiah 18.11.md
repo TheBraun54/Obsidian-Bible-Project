@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, Thus saith Jehovah: Behold, I frame evil against you, and devise a device against you: return ye now every one from his evil way, and amend your ways and your doings.
+Now therefore, speak to the men of Judah, and to the inhabitants of Jerusalem, saying, Thus says Yahweh: Behold, I frame evil against you, and devise a device against you: return you now everyone from his evil way, and amend your ways and your doings.

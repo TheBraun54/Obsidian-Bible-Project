@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she put the skins of the kids of the goats upon his hands, and upon the smooth of his neck:
+She put the skins of the young goats on his hands, and on the smooth of his neck.

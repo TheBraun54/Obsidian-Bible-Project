@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and cedar-trees without number: for the Sidonians and they of Tyre brought cedar-trees in abundance to David.
+and cedar trees without number: for the Sidonians and they of Tyre brought cedar trees in abundance to David.

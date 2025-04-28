@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the multitude of the people followed after, crying out, Away with him.
+for the multitude of the people followed after, crying out, "Away with him!"

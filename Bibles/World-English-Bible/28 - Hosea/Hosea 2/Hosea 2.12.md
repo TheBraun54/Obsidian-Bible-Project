@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will lay waste her vines and her fig-trees, whereof she hath said, These are my hire that my lovers have given me; and I will make them a forest, and the beasts of the field shall eat them.
+I will lay waste her vines and her fig trees, about which she has said, 'These are my wages that my lovers have given me; and I will make them a forest,' and the animals of the field shall eat them.

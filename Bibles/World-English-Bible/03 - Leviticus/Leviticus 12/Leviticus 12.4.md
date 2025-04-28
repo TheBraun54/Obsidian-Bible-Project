@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she shall continue in the blood of [her] purifying three and thirty days; she shall touch no hallowed thing, nor come into the sanctuary, until the days of her purifying be fulfilled.
+She shall continue in the blood of purification thirty-three days. She shall not touch any holy thing, nor come into the sanctuary, until the days of her purifying are completed.

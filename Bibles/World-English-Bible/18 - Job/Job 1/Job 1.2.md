@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were born unto him seven sons and three daughters.
+There were born to him seven sons and three daughters.

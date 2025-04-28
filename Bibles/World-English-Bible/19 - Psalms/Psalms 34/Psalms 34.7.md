@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The angel of Jehovah encampeth round about them that fear him, And delivereth them.
+The angel of Yahweh encamps around those who fear him, and delivers them.

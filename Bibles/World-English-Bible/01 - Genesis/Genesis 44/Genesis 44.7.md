@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Wherefore speaketh my lord such words as these? Far be it from thy servants that they should do such a thing.
+They said to him, "Why does my lord speak such words as these? Far be it from your servants that they should do such a thing!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the terrible one is brought to nought, and the scoffer ceaseth, and all they that watch for iniquity are cut off;
+For the ruthless is brought to nothing, and the scoffer ceases, and all those who are alert to do evil are cut off--

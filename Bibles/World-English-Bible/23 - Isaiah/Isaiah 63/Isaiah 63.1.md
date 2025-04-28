@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is this that cometh from Edom, with dyed garments from Bozrah? this that is glorious in his apparel, marching in the greatness of his strength? I that speak in righteousness, mighty to save.
+Who is this who comes from Edom, with dyed garments from Bozrah? this who is glorious in his clothing, marching in the greatness of his strength? "It is I who speak in righteousness, mighty to save."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah, Behold, I will bring evil upon them, which they shall not be able to escape; and they shall cry unto me, but I will not hearken unto them.
+Therefore thus says Yahweh, Behold, I will bring evil on them, which they shall not be able to escape; and they shall cry to me, but I will not listen to them.

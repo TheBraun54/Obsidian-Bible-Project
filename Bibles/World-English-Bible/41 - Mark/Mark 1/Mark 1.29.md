@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway, when they were come out of the synagogue, they came into the house of Simon and Andrew, with James and John.
+Immediately, when they had come out of the synagogue, they came into the house of Simon and Andrew, with James and John.

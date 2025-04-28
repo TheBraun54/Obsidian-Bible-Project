@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were shepherds in the same country abiding in the field, and keeping watch by night over their flock.
+There were shepherds in the same country staying in the field, and keeping watch by night over their flock.

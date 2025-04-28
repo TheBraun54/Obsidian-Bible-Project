@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king of Babylon hath heard the tidings of them, and his hands wax feeble: anguish hath taken hold of him, [and] pangs as of a woman in travail.
+The king of Babylon has heard the news of them, and his hands wax feeble: anguish has taken hold of him, [and] pangs as of a woman in travail.

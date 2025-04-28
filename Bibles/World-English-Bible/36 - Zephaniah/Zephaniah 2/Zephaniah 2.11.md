@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will be terrible unto them; for he will famish all the gods of the earth; and men shall worship him, every one from his place, even all the isles of the nations.
+Yahweh will be awesome to them, for he will famish all the gods of the land. Men will worship him, everyone from his place, even all the shores of the nations.

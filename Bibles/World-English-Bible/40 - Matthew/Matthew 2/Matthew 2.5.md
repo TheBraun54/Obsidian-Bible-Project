@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, In Bethlehem of Judaea: for thus it is written through the prophet,
+They said to him, "In Bethlehem of Judea, for this is written through the prophet,

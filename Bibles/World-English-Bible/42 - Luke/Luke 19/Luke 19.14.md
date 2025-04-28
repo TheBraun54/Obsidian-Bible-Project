@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his citizens hated him, and sent an ambassage after him, saying, We will not that this man reign over us.
+But his citizens hated him, and sent an envoy after him, saying, 'We don't want this man to reign over us.'

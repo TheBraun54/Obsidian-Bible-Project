@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The horse is prepared against the day of battle; But victory is of Jehovah.
+The horse is prepared for the day of battle; but victory is with Yahweh.

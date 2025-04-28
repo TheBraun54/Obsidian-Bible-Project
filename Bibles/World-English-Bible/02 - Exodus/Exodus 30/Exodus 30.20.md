@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when they go into the tent of meeting, they shall wash with water, that they die not; or when they come near to the altar to minister, to burn an offering made by fire unto Jehovah.
+When they go into the Tent of Meeting, they shall wash with water, that they not die; or when they come near to the altar to minister, to burn an offering made by fire to Yahweh.

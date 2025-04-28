@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glory of Jehovah abode upon mount Sinai, and the cloud covered it six days: and the seventh day he called unto Moses out of the midst of the cloud.
+The glory of Yahweh settled on Mount Sinai, and the cloud covered it six days. The seventh day he called to Moses out of the midst of the cloud.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the angel of Jehovah put forth the end of the staff that was in his hand, and touched the flesh and the unleavened cakes; and there went up fire out of the rock, and consumed the flesh and the unleavened cakes; and the angel of Jehovah departed out of his sight.
+Then the angel of Yahweh stretched out the end of the staff that was in his hand, and touched the meat and the unleavened cakes; and fire went up out of the rock, and consumed the meat and the unleavened cakes; and the angel of Yahweh departed out of his sight.

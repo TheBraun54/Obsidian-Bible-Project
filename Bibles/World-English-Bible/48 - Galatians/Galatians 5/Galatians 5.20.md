@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-idolatry, sorcery, enmities, strife, jealousies, wraths, factions, divisions, parties,
+idolatry, sorcery, hatred, strife, jealousies, outbursts of anger, rivalries, divisions, heresies,

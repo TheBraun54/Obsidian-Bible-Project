@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The disciples therefore said one to another, Hath any man brought him [aught] to eat?
+The disciples therefore said one to another, "Has anyone brought him something to eat?"

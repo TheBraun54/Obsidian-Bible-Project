@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zelek the Ammonite, Naharai the Beerothite, armorbearers to Joab the son of Zeruiah,
+Zelek the Ammonite, Naharai the Beerothite, armor bearers to Joab the son of Zeruiah,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the evil spirit answered and said unto them, Jesus I know, and Paul I know, but who are ye?
+The evil spirit answered, "Jesus I know, and Paul I know, but who are you?"

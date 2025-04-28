@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Benjamin gathered themselves together out of the cities unto Gibeah, to go out to battle against the children of Israel.
+The children of Benjamin gathered themselves together out of the cities to Gibeah, to go out to battle against the children of Israel.

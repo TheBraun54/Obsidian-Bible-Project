@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Azariah begat Seraiah, and Seraiah begat Jehozadak;
+and Azariah became the father of Seraiah, and Seraiah became the father of Jehozadak;

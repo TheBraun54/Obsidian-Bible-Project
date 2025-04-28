@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And among the sons of the priests there were found that had married foreign women: [namely], of the sons of Jeshua, the son of Jozadak, and his brethren, Maaseiah, and Eliezer, and Jarib, and Gedaliah.
+Among the sons of the priests there were found who had married foreign women: [namely], of the sons of Jeshua, the son of Jozadak, and his brothers, Maaseiah, and Eliezer, and Jarib, and Gedaliah.

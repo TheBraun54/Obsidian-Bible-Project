@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saw Nathanael coming to him, and saith of him, Behold, an Israelite indeed, in whom is no guile!
+Jesus saw Nathanael coming to him, and said about him, "Behold, an Israelite indeed, in whom is no deceit!"

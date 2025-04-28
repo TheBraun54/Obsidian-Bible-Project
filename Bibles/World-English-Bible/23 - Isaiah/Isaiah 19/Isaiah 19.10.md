@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the pillars [of Egypt] shall be broken in pieces; all they that work for hire [shall be] grieved in soul.
+The pillars will be broken in pieces. All those who work for hire will be grieved in soul.

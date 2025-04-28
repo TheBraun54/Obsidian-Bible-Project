@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fool also multiplieth words: [yet] man knoweth not what shall be; and that which shall be after him, who can tell him?
+A fool also multiplies words. Man doesn't know what will be; and that which will be after him, who can tell him?

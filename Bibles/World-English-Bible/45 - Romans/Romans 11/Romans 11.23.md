@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they also, if they continue not in their unbelief, shall be grafted in: for God is able to graft them in again.
+They also, if they don't continue in their unbelief, will be grafted in, for God is able to graft them in again.

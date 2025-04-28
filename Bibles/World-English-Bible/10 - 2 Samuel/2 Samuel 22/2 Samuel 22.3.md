@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God, my rock, in him will I take refuge; My shield, and the horn of my salvation, my high tower, and my refuge; My saviour, thou savest me from violence.
+God, my rock, in him I will take refuge; my shield, and the horn of my salvation, my high tower, and my refuge. My savior, you save me from violence.

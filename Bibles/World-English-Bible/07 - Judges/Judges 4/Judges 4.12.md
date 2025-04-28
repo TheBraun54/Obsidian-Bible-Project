@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they told Sisera that Barak the son of Abinoam was gone up to mount Tabor.
+They told Sisera that Barak the son of Abinoam was gone up to Mount Tabor.

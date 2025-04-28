@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if ye have respect of persons, ye commit sin, being convicted by the law as transgressors.
+But if you show partiality, you commit sin, being convicted by the law as transgressors.

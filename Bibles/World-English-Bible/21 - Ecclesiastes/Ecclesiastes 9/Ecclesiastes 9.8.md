@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy garments be always white; and let not thy head lack oil.
+Let your garments be always white, and don't let your head lack oil.

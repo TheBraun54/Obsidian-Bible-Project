@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hangings for the one side [of the gate] were fifteen cubits; their pillars three, and their sockets three;
+The hangings for the one side were fifteen cubits; their pillars three, and their sockets three;

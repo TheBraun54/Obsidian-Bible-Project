@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ask ye of Jehovah rain in the time of the latter rain, [even of] Jehovah that maketh lightnings; and he will give them showers of rain, to every one grass in the field.
+Ask of Yahweh rain in the spring time, Yahweh who makes storm clouds, and he gives rain showers to everyone for the plants in the field.

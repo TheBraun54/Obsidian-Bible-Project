@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he carved all the walls of the house round about with carved figures of cherubim and palm-trees and open flowers, within and without.
+He carved all the walls of the house around with carved figures of cherubim and palm trees and open flowers, inside and outside.

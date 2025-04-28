@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jeremiah, It is false; I am not falling away to the Chaldeans. But he hearkened not to him; so Irijah laid hold on Jeremiah, and brought him to the princes.
+Then Jeremiah said, It is false; I am not falling away to the Chaldeans. But he didn't listen to him; so Irijah laid hold on Jeremiah, and brought him to the princes.

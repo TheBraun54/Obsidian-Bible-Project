@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if Satan casteth out Satan, he is divided against himself; how then shall his kingdom stand?
+If Satan casts out Satan, he is divided against himself. How then will his kingdom stand?

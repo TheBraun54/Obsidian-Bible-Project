@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they did so, and made them all sit down.
+They did so, and made them all sit down.

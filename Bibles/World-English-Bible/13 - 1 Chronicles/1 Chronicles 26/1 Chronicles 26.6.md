@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also unto Shemaiah his son were sons born, that ruled over the house of their father; for they were mighty men of valor.
+Also to Shemaiah his son were sons born, who ruled over the house of their father; for they were mighty men of valor.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Incline thine ear, and hear the words of the wise, And apply thy heart unto my knowledge.
+Turn your ear, and listen to the words of the wise. Apply your heart to my teaching.

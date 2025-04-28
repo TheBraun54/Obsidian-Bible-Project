@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will be as the dew unto Israel; he shall blossom as the lily, and cast forth his roots as Lebanon.
+I will be like the dew to Israel. He will blossom like the lily, and send down his roots like Lebanon.

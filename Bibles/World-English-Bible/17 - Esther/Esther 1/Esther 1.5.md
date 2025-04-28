@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when these days were fulfilled, the king made a feast unto all the people that were present in Shushan the palace, both great and small, seven days, in the court of the garden of the king's palace.
+When these days were fulfilled, the king made a seven day feast for all the people who were present in Shushan the palace, both great and small, in the court of the garden of the king's palace.

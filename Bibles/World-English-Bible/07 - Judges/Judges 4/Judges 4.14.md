@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Deborah said unto Barak, Up; for this is the day in which Jehovah hath delivered Sisera into thy hand; is not Jehovah gone out before thee? So Barak went down from mount Tabor, and ten thousand men after him.
+Deborah said to Barak, "Go; for this is the day in which Yahweh has delivered Sisera into your hand. Hasn't Yahweh gone out before you?" So Barak went down from Mount Tabor, and ten thousand men after him.

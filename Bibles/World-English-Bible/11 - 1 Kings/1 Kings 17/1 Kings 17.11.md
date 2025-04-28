@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as she was going to fetch it, he called to her, and said, Bring me, I pray thee, a morsel of bread in thy hand.
+As she was going to get it, he called to her, and said, "Please bring me a morsel of bread in your hand."

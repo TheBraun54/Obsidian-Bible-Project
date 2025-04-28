@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Abimelech went to him from Gerar, and Ahuzzath his friend, and Phicol the captain of his host.
+Then Abimelech went to him from Gerar, and Ahuzzath his friend, and Phicol the captain of his army.

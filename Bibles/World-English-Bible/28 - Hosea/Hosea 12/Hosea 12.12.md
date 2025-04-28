@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob fled into the field of Aram, and Israel served for a wife, and for a wife he kept [sheep] .
+Jacob fled into the country of Aram, and Israel served to get a wife, and for a wife he tended flocks and herds.

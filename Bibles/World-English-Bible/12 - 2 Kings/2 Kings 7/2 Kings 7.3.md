@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there were four leprous men at the entrance of the gate: and they said one to another, Why sit we here until we die?
+Now there were four leprous men at the entrance of the gate. They said one to another, "Why do we sit here until we die?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, [that] in the place where it was said unto them, Ye are not my people, There shall they be called sons of the living God.
+"It will be that in the place where it was said to them, 'You are not my people,' There they will be called 'children of the living God.'"

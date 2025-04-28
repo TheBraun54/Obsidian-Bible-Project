@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I determined not to know anything among you, save Jesus Christ, and him crucified.
+For I determined not to know anything among you, except Jesus Christ, and him crucified.

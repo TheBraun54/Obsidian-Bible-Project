@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass the second day after he had slain Gedaliah, and no man knew it,
+It happened the second day after he had killed Gedaliah, and no man knew it,

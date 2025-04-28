@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and here he hath authority from the chief priests to bind all that call upon thy name.
+Here he has authority from the chief priests to bind all who call on your name."

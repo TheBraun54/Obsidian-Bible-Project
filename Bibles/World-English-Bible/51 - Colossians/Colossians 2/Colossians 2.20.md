@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye died with Christ from the rudiments of the world, why, as though living in the world, do ye subject yourselves to ordinances,
+If you died with Christ from the elements of the world, why, as though living in the world, do you subject yourselves to ordinances,

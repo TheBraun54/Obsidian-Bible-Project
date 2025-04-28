@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but they mocked the messengers of God, and despised his words, and scoffed at his prophets, until the wrath of Jehovah arose against his people, till there was no remedy.
+but they mocked the messengers of God, and despised his words, and scoffed at his prophets, until the wrath of Yahweh arose against his people, until there was no remedy.

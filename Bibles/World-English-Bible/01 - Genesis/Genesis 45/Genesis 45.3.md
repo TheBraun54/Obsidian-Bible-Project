@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto his brethren, I am Joseph; doth my father yet live? And his brethren could not answer him; for they were troubled at his presence.
+Joseph said to his brothers, "I am Joseph! Does my father still live?" His brothers couldn't answer him; for they were terrified at his presence.

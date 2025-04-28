@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again therefore the Pharisees also asked him how he received his sight. And he said unto them, He put clay upon mine eyes, and I washed, and I see.
+Again therefore the Pharisees also asked him how he received his sight. He said to them, "He put mud on my eyes, I washed, and I see."

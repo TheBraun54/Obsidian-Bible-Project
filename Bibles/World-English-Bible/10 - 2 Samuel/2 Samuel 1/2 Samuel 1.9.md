@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Stand, I pray thee, beside me, and slay me; for anguish hath taken hold of me, because my life is yet whole in me.
+He said to me, 'Please stand beside me, and kill me; for anguish has taken hold of me, because my life is yet whole in me.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wait for Jehovah, and keep his way, And he will exalt thee to inherit the land: When the wicked are cut off, thou shalt see it.
+Wait for Yahweh, and keep his way, and he will exalt you to inherit the land. When the wicked are cut off, you shall see it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that Pashhur brought forth Jeremiah out of the stocks. Then said Jeremiah unto him, Jehovah hath not called thy name Pashhur, but Magor-missabib.
+It happened on the next day, that Pashhur brought forth Jeremiah out of the stocks. Then Jeremiah said to him, Yahweh has not called your name Pashhur, but Magormissabib.

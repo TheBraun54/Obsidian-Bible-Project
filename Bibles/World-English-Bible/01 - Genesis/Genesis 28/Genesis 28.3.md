@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God Almighty bless thee, and make thee fruitful, and multiply thee, that thou mayest be a company of peoples;
+May God Almighty bless you, and make you fruitful, and multiply you, that you may be a company of peoples,

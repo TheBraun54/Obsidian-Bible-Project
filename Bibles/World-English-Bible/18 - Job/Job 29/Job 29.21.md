@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto me men gave ear, and waited, And kept silence for my counsel.
+"Men listened to me, waited, and kept silence for my counsel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now we call the proud happy; yea, they that work wickedness are built up; yea, they tempt God, and escape.
+Now we call the proud happy; yes, those who work wickedness are built up; yes, they tempt God, and escape.'

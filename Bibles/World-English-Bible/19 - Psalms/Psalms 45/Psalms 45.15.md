@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With gladness and rejoicing shall they be led: They shall enter into the king's palace.
+With gladness and rejoicing they shall be led. They shall enter into the king's palace.

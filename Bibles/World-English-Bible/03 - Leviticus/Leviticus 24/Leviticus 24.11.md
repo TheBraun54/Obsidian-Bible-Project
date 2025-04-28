@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the son of the Israelitish woman blasphemed the Name, and cursed; and they brought him unto Moses. And his mother's name was Shelomith, the daughter of Dibri, of the tribe of Dan.
+The son of the Israelite woman blasphemed the Name, and cursed; and they brought him to Moses. His mother's name was Shelomith, the daughter of Dibri, of the tribe of Dan.

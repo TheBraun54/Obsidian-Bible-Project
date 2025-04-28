@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter had followed him afar off, even within, into the court of the high priest; and he was sitting with the officers, and warming himself in the light [of the fire] .
+Peter had followed him from a distance, until he came into the court of the high priest. He was sitting with the officers, and warming himself in the light of the fire.

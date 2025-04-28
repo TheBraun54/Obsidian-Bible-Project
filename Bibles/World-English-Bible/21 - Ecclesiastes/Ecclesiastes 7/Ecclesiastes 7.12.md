@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For wisdom is a defence, even as money is a defence; but the excellency of knowledge is, that wisdom preserveth the life of him that hath it.
+For wisdom is a defense, even as money is a defense; but the excellency of knowledge is that wisdom preserves the life of him who has it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ even] Jesus of Nazareth, how God anointed him with the Holy Spirit and with power: who went about doing good, and healing all that were oppressed of the devil; for God was with him.
+even Jesus of Nazareth, how God anointed him with the Holy Spirit and with power, who went about doing good and healing all who were oppressed by the devil, for God was with him.

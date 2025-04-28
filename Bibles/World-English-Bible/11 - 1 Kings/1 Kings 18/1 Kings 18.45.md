@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in a little while, that the heavens grew black with clouds and wind, and there was a great rain. And Ahab rode, and went to Jezreel:
+It happened in a little while, that the sky grew black with clouds and wind, and there was a great rain. Ahab rode, and went to Jezreel.

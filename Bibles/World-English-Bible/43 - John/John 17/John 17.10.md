@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all things that are mine are thine, and thine are mine: and I am glorified in them.
+All things that are mine are yours, and yours are mine, and I am glorified in them.

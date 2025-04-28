@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Pharisees saw it, they said unto his disciples, Why eateth your Teacher with the publicans and sinners?
+When the Pharisees saw it, they said to his disciples, "Why does your teacher eat with tax collectors and sinners?"

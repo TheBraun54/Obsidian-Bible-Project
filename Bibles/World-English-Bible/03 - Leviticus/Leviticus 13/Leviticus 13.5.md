@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look on him the seventh day: and, behold, if in his eyes the plague be at a stay, and the plague be not spread in the skin, then the priest shall shut him up seven days more:
+The priest shall examine him on the seventh day, and, behold, if in his eyes the plague is arrested, and the plague hasn't spread in the skin, then the priest shall isolate him for seven more days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he built cities in the hill-country of Judah, and in the forests he built castles and towers.
+Moreover he built cities in the hill country of Judah, and in the forests he built castles and towers.

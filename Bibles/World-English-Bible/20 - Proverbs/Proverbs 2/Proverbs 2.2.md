@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So as to incline thine ear unto wisdom, And apply thy heart to understanding;
+So as to turn your ear to wisdom, and apply your heart to understanding;

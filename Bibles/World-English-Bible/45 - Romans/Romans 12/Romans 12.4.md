@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For even as we have many members in one body, and all the members have not the same office:
+For even as we have many members in one body, and all the members don't have the same function,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the judges shall make diligent inquisition: and, behold, if the witness be a false witness, and have testified falsely against his brother;
+and the judges shall make diligent inquisition: and, behold, if the witness is a false witness, and has testified falsely against his brother;

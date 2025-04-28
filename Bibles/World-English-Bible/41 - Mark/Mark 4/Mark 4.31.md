@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is like a grain of mustard seed, which, when it is sown upon the earth, though it be less than all the seeds that are upon the earth,
+It's like a grain of mustard seed, which, when it is sown in the earth, though it is less than all the seeds that are on the earth,

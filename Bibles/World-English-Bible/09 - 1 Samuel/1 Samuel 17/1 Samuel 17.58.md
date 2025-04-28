@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said to him, Whose son art thou, thou young man? And David answered, I am the son of thy servant Jesse the Beth-lehemite.
+Saul said to him, "Whose son are you, you young man?" David answered, "I am the son of your servant Jesse the Bethlehemite."

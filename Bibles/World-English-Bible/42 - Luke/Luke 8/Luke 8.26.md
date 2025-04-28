@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they arrived at the country of the Gerasenes, which is over against Galilee.
+They arrived at the country of the Gadarenes, which is opposite Galilee.

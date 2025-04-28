@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made bells of pure gold, and put the bells between the pomegranates upon the skirts of the robe round about, between the pomegranates;
+They made bells of pure gold, and put the bells between the pomegranates around the skirts of the robe, between the pomegranates;

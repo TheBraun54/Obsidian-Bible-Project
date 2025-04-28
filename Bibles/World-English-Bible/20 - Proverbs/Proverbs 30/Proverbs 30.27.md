@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The locusts have no king, Yet go they forth all of them by bands;
+The locusts have no king, yet they advance in ranks.

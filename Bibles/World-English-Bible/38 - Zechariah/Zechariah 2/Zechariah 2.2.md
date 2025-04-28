@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Whither goest thou? And he said unto me, To measure Jerusalem, to see what is the breadth thereof, and what is the length thereof.
+Then I asked, "Where are you going?" He said to me, "To measure Jerusalem, to see what is its breadth and what is its length."

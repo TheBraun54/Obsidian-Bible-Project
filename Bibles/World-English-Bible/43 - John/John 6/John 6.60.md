@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many therefore of his disciples, when the heard [this], said, This is a hard saying; who can hear it?
+Therefore many of his disciples, when they heard this, said, "This is a hard saying! Who can listen to it?"

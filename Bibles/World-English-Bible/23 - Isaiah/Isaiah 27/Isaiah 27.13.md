@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that a great trumpet shall be blown; and they shall come that were ready to perish in the land of Assyria, and they that were outcasts in the land of Egypt; and they shall worship Jehovah in the holy mountain at Jerusalem.
+It will happen in that day that a great trumpet will be blown; and those who were ready to perish in the land of Assyria, and those who were outcasts in the land of Egypt, shall come; and they will worship Yahweh in the holy mountain at Jerusalem.

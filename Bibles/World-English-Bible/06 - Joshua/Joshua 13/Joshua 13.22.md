@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Balaam also the son of Beor, the soothsayer, did the children of Israel slay with the sword among the rest of their slain.
+The children of Israel alse killed Balaam also the son of Beor, the soothsayer, with the sword, among the rest of their slain.

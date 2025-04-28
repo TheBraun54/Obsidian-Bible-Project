@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be from five years old even unto twenty years old, then thy estimation shall be of the male twenty shekels, and for the female ten shekels.
+If the person is from five years old even to twenty years old, then your valuation shall be for a male twenty shekels, and for a female ten shekels.

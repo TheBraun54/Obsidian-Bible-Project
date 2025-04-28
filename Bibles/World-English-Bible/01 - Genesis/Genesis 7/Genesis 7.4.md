@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For yet seven days, and I will cause it to rain upon the earth forty days and forty nights; and every living thing that I have made will I destroy from off the face of the ground.
+In seven days, I will cause it to rain on the earth for forty days and forty nights. Every living thing that I have made, I will destroy from the surface of the ground."

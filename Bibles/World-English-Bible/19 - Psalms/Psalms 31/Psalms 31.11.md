@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of all mine adversaries I am become a reproach, Yea, unto my neighbors exceedingly, And a fear to mine acquaintance: They that did see me without fled from me.
+Because of all my adversaries I have become utterly contemptible to my neighbors, A fear to my acquaintances. Those who saw me on the street fled from me.

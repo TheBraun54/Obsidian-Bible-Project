@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came unto Jacob their father unto the land of Canaan, and told him all that had befallen them, saying,
+They came to Jacob their father, to the land of Canaan, and told him all that had happened to them, saying,

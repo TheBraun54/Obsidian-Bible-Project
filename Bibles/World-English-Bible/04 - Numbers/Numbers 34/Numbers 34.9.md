@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border shall go forth to Ziphron, and the goings out thereof shall be at Hazar-enan: this shall be your north border.
+and the border shall go forth to Ziphron, and the goings out of it shall be at Hazar Enan: this shall be your north border.

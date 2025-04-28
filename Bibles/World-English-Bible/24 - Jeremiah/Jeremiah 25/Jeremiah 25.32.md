@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, Behold, evil shall go forth from nation to nation, and a great tempest shall be raised up from the uttermost parts of the earth.
+Thus says Yahweh of Armies, Behold, evil shall go forth from nation to nation, and a great storm shall be raised up from the uttermost parts of the earth.

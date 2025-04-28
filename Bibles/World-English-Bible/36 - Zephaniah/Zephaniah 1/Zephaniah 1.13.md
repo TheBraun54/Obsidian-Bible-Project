@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their wealth shall become a spoil, and their houses a desolation: yea, they shall build houses, but shall not inhabit them; and they shall plant vineyards, but shall not drink the wine thereof.
+Their wealth will become a spoil, and their houses a desolation. Yes, they will build houses, but won't inhabit them. They will plant vineyards, but won't drink their wine.

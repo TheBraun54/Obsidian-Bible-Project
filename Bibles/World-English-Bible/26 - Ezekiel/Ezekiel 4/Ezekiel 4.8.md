@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, I lay bands upon thee, and thou shalt not turn thee from one side to the other, till thou hast accomplished the days of thy siege.
+Behold, I lay bands on you, and you shall not turn you from one side to the other, until you have accomplished the days of your siege.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank him that enabled me, [even] Christ Jesus our Lord, for that he counted me faithful, appointing me to [his] service;
+And I thank him who enabled me, Christ Jesus our Lord, because he counted me faithful, appointing me to service;

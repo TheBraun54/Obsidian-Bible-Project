@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard, but I understood not: then said I, O my lord, what shall be the issue of these things?
+I heard, but I didn't understand: then I said, my lord, what shall be the issue of these things?

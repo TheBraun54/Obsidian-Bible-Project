@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath broken the staff of the wicked, the sceptre of the rulers;
+Yahweh has broken the staff of the wicked, the scepter of the rulers,

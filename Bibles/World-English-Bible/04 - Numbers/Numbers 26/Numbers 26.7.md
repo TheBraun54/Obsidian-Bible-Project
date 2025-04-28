@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of the Reubenites; and they that were numbered of them were forty and three thousand and seven hundred and thirty.
+These are the families of the Reubenites; and those who were numbered of them were forty-three thousand seven hundred thirty.

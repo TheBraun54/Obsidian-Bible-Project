@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will send the hornet before thee, which shall drive out the Hivite, the Canaanite, and the Hittite, from before thee.
+I will send the hornet before you, which will drive out the Hivite, the Canaanite, and the Hittite, from before you.

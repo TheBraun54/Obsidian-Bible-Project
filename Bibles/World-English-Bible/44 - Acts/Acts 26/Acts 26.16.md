@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But arise, and stand upon thy feet: for to this end have I appeared unto thee, to appoint thee a minister and a witness both of the things wherein thou hast seen me, and of the things wherein I will appear unto thee;
+But arise, and stand on your feet, for I have appeared to you for this purpose: to appoint you a servant and a witness both of the things which you have seen, and of the things which I will reveal to you;

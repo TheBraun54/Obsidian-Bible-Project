@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their king shall go into captivity, he and his princes together, saith Jehovah.
+and their king will go into captivity, he and his princes together," says Yahweh.

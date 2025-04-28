@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thou hast sore broken us in the place of jackals, And covered us with the shadow of death.
+Though you have crushed us in the haunt of jackals, and covered us with the shadow of death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A voice of tumult from the city, a voice from the temple, a voice of Jehovah that rendereth recompense to his enemies.
+A voice of tumult from the city, a voice from the temple, a voice of Yahweh that renders recompense to his enemies.

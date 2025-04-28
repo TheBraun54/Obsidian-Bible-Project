@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that prophesieth speaketh unto men edification, and exhortation, and consolation.
+But he who prophesies speaks to men for their edification, exhortation, and consolation.

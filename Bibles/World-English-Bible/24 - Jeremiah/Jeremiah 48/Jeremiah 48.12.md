@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, the days come, saith Jehovah, that I will send unto him them that pour off, and they shall pour him off; and they shall empty his vessels, and break their bottles in pieces.
+Therefore, behold, the days come, says Yahweh, that I will send to him those who pour off, and they shall pour him off; and they shall empty his vessels, and break their bottles in pieces.

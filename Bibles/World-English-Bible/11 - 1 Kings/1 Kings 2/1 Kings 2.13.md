@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Adonijah the son of Haggith came to Bath-sheba the mother of Solomon. And she said, Comest thou peaceably? And he said, Peaceably.
+Then Adonijah the son of Haggith came to Bathsheba the mother of Solomon. She said, "Do you come peaceably?" He said, "Peaceably.

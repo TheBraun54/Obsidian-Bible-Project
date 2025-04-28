@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they have turned aside quickly out of the way which I commanded them: they have made them a molten calf, and have worshipped it, and have sacrificed unto it, and said, These are thy gods, O Israel, which brought thee up out of the land of Egypt.
+They have turned aside quickly out of the way which I commanded them. They have made themselves a molten calf, and have worshiped it, and have sacrificed to it, and said, 'These are your gods, Israel, which brought you up out of the land of Egypt.'"

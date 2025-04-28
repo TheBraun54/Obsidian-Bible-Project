@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I besought Jehovah at that time, saying,
+I begged Yahweh at that time, saying,

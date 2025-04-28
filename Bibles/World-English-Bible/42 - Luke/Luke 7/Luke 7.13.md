@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Lord saw her, he had compassion on her, and said unto her, Weep not.
+When the Lord saw her, he had compassion on her, and said to her, "Don't cry."

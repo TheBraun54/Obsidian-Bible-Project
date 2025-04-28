@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rehoboam appointed Abijah the son of Maacah to be chief, [even] the prince among his brethren; for [he was minded] to make him king.
+Rehoboam appointed Abijah the son of Maacah to be chief, [even] the prince among his brothers; for [he was minded] to make him king.

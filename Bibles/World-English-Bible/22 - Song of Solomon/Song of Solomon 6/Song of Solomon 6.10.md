@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is she that looketh forth as the morning, Fair as the moon, Clear as the sun, Terrible as an army with banners?
+Who is she who looks forth as the morning, beautiful as the moon, clear as the sun, and awesome as an army with banners?

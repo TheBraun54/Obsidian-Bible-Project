@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Jews undertook to do as they had begun, and as Mordecai had written unto them;
+The Jews accepted the custom that they had begun, as Mordecai had written to them;

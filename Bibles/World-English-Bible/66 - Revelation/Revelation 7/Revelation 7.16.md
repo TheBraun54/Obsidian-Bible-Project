@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall hunger no more, neither thirst any more; neither shall the sun strike upon them, nor any heat:
+They will never be hungry, neither thirsty any more; neither will the sun beat on them, nor any heat;

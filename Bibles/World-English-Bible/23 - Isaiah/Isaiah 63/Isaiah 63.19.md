@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We are become as they over whom thou never barest rule, as they that were not called by thy name.
+We have become as they over whom you never bear rule, as those who were not called by your name.

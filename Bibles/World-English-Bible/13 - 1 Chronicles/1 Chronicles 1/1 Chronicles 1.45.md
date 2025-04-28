@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jobab died, and Husham of the land of the Temanites reigned in his stead.
+Jobab died, and Husham of the land of the Temanites reigned in his place.

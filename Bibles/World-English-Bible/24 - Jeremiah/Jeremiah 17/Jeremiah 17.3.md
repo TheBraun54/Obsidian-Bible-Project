@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my mountain in the field, I will give thy substance and all thy treasures for a spoil, [and] thy high places, because of sin, throughout all thy borders.
+My mountain in the field, I will give your substance and all your treasures for a spoil, [and] your high places, because of sin, throughout all your borders.

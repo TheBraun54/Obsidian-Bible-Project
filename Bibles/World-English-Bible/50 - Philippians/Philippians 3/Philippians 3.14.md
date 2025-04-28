@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I press on toward the goal unto the prize of the high calling of God in Christ Jesus.
+I press on toward the goal for the prize of the high calling of God in Christ Jesus.

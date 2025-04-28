@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the gold, the silver, and the brass, and the iron, there is no number. Arise and be doing, and Jehovah be with thee.
+of the gold, the silver, and the brass, and the iron, there is no number. Arise and be doing, and may Yahweh be with you."

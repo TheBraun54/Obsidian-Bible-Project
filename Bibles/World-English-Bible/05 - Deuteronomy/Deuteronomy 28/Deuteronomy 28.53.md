@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt eat the fruit of thine own body, the flesh of thy sons and of thy daughters, whom Jehovah thy God hath given thee, in the siege and in the distress wherewith thine enemies shall distress thee.
+You shall eat the fruit of your own body, the flesh of your sons and of your daughters, whom Yahweh your God has given you, in the siege and in the distress with which your enemies shall distress you.

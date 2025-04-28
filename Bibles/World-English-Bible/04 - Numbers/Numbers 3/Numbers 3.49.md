@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took the redemption-money from them that were over and above them that were redeemed by the Levites;
+Moses took the redemption money from those who exceeded the number of those who were redeemed by the Levites;

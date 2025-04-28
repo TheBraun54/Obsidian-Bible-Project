@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah thy God is in the midst of thee, a mighty one who will save; he will rejoice over thee with joy; he will rest in his love; he will joy over thee with singing.
+Yahweh, your God, is in the midst of you, a mighty one who will save. He will rejoice over you with joy. He will calm you in his love. He will rejoice over you with singing.

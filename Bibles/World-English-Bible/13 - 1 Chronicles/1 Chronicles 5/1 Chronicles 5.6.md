@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beerah his son, whom Tilgath-pilneser king of Assyria carried away captive: he was prince of the Reubenites.
+Beerah his son, whom Tilgath Pilneser king of Assyria carried away captive: he was prince of the Reubenites.

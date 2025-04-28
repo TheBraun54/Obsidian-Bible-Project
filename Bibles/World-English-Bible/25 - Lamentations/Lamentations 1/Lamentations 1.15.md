@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord hath set at nought all my mighty men in the midst of me; He hath called a solemn assembly against me to crush my young men: The Lord hath trodden as in a winepress the virgin daughter of Judah.
+The Lord has set at nothing all my mighty men in the midst of me; He has called a solemn assembly against me to crush my young men: The Lord has trodden as in a winepress the virgin daughter of Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thy son asketh thee in time to come, saying, What mean the testimonies, and the statutes, and the ordinances, which Jehovah our God hath commanded you?
+When your son asks you in time to come, saying, "What do the testimonies, the statutes, and the ordinances, which Yahweh our God has commanded you mean?"

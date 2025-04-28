@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath led me and caused me to walk in darkness, and not in light.
+He has led me and caused me to walk in darkness, and not in light.

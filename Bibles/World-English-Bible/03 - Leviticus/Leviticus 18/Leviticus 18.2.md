@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, I am Jehovah your God.
+"Speak to the children of Israel, and say to them, 'I am Yahweh your God.

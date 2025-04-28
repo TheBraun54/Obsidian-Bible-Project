@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, It shall be more tolerable for the land of Sodom and Gomorrah in the day of judgment, than for that city.
+Most certainly I tell you, it will be more tolerable for the land of Sodom and Gomorrah in the day of judgment than for that city.

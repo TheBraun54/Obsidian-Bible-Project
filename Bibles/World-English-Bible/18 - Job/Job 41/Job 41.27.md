@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He counteth iron as straw, [And] brass as rotten wood.
+He counts iron as straw; and brass as rotten wood.

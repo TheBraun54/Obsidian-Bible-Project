@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom said unto him, See, thy matters are good and right; but there is no man deputed of the king to hear thee.
+Absalom said to him, "Behold, your matters are good and right; but there is no man deputized by the king to hear you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of tidings, behold, it cometh, and a great commotion out of the north country, to make the cities of Judah a desolation, a dwelling-place of jackals.
+The voice of news, behold, it comes, and a great commotion out of the north country, to make the cities of Judah a desolation, a dwelling place of jackals.

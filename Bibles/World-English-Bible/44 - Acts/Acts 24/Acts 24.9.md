@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Jews also joined in the charge, affirming that these things were so.
+The Jews also joined in the attack, affirming that these things were so.

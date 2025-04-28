@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that soweth unto his own flesh shall of the flesh reap corruption; but he that soweth unto the Spirit shall of the Spirit reap eternal life.
+For he who sows to his own flesh will from the flesh reap corruption. But he who sows to the Spirit will from the Spirit reap eternal life.

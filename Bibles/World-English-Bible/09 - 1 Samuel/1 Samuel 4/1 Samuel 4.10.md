@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines fought, and Israel was smitten, and they fled every man to his tent: and there was a very great slaughter; for there fell of Israel thirty thousand footmen.
+The Philistines fought, and Israel was struck, and they fled every man to his tent: and there was a very great slaughter; for there fell of Israel thirty thousand footmen.

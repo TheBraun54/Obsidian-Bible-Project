@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank my God always, making mention of thee in my prayers,
+I thank my God always, making mention of you in my prayers,

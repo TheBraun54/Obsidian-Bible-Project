@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her sister Oholibah saw this, yet was she more corrupt in her doting than she, and in her whoredoms which were more than the whoredoms of her sister.
+Her sister Oholibah saw this, yet was she more corrupt in her doting than she, and in her prostitution which were more than the prostitution of her sister.

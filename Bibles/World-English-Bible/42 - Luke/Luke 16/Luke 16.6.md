@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, A hundred measures of oil. And he said unto him, Take thy bond, and sit down quickly and write fifty.
+He said, 'A hundred batos of oil.' He said to him, 'Take your bill, and sit down quickly and write fifty.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he presented the people's oblation, and took the goat of the sin-offering which was for the people, and slew it, and offered it for sin, as the first.
+He presented the people's offering, and took the goat of the sin offering which was for the people, and killed it, and offered it for sin, like the first.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they go into Capernaum; and straightway on the sabbath day he entered into the synagogue and taught.
+They went into Capernaum, and immediately on the Sabbath day he entered into the synagogue and taught.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to the Gittith. A Psalm of the sons of Korah]. How amiable are thy tabernacles, O Jehovah of hosts!
+How lovely are your dwellings, Yahweh of Armies!

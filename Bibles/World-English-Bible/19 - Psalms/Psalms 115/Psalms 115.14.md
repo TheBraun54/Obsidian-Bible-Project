@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah increase you more and more, You and your children.
+May Yahweh increase you more and more, you and your children.

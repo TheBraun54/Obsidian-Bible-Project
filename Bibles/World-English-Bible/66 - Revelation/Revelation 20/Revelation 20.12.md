@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw the dead, the great and the small, standing before the throne; and books were opened: and another book was opened, which is [the book] of life: and the dead were judged out of the things which were written in the books, according to their works.
+I saw the dead, the great and the small, standing before the throne, and they opened books. Another book was opened, which is the book of life. The dead were judged out of the things which were written in the books, according to their works.

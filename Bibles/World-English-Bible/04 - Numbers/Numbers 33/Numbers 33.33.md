@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Hor-haggidgad, and encamped in Jotbathah.
+They traveled from Hor Haggidgad, and encamped in Jotbathah.

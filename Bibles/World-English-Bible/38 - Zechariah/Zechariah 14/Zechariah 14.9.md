@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah shall be King over all the earth: in that day shall Jehovah be one, and his name one.
+Yahweh will be King over all the earth. In that day Yahweh will be one, and his name one.

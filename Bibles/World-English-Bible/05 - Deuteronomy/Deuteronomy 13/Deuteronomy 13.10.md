@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt stone him to death with stones, because he hath sought to draw thee away from Jehovah thy God, who brought thee out of the land of Egypt, out of the house of bondage.
+You shall stone him to death with stones, because he has sought to draw you away from Yahweh your God, who brought you out of the land of Egypt, out of the house of bondage.

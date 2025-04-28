@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, What shall we do to these men? for that indeed a notable miracle hath been wrought through them, is manifest to all that dwell in Jerusalem; and we cannot deny it.
+saying, "What shall we do to these men? Because indeed a notable miracle has been done through them, as can be plainly seen by all who dwell in Jerusalem, and we can't deny it.

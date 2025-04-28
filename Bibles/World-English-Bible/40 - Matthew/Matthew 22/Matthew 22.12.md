@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he saith unto him, Friend, how camest thou in hither not having a wedding-garment? And he was speechless.
+and he said to him, 'Friend, how did you come in here not wearing wedding clothing?' He was speechless.

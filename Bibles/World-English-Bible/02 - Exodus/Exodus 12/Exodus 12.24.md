@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall observe this thing for an ordinance to thee and to thy sons for ever.
+You shall observe this thing for an ordinance to you and to your sons forever.

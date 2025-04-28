@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and knew her not till she had brought forth a son: and he called his name JESUS.
+and didn't know her sexually until she had brought forth her firstborn son. He named him Jesus.

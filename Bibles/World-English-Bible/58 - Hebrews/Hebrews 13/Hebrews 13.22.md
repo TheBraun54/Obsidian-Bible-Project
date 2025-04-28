@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I exhort you, brethren, bear with the word of exhortation, for I have written unto you in few words.
+But I exhort you, brothers, endure the word of exhortation, for I have written to you in few words.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I turned and came down from the mount, and the mount was burning with fire: and the two tables of the covenant were in my two hands.
+So I turned and came down from the mountain, and the mountain was burning with fire: and the two tables of the covenant were in my two hands.

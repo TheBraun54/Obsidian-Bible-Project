@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And command thou the people, saying, Ye are to pass through the border of your brethren the children of Esau, that dwell in Seir; and they will be afraid of you: take ye good heed unto yourselves therefore;
+Command the people, saying, 'You are to pass through the border of your brothers the children of Esau, who dwell in Seir; and they will be afraid of you: take good heed to yourselves therefore;

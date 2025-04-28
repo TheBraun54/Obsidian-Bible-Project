@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Save us, O Jehovah our God, And gather us from among the nations, To give thanks unto thy holy name, And to triumph in thy praise.
+Save us, Yahweh, our God, gather us from among the nations, to give thanks to your holy name, to triumph in your praise!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Get thee hence, and turn thee eastward, and hide thyself by the brook Cherith, that is before the Jordan.
+"Go away from here, turn eastward, and hide yourself by the brook Cherith, that is before the Jordan.

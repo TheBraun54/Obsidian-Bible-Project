@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Touching] the Almighty, we cannot find him out: He is excellent in power; And in justice and plenteous righteousness he will not afflict.
+We can't reach the Almighty. He is exalted in power. In justice and great righteousness, he will not oppress.

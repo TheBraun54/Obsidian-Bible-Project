@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will say, Where are their gods, The rock in which they took refuge;
+He will say, "Where are their gods, The rock in which they took refuge;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why is it judged incredible with you, if God doth raise the dead?
+Why is it judged incredible with you, if God does raise the dead?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also pull out some for her from the bundles, and leave it, and let her glean, and rebuke her not.
+Also pull out some for her from the bundles, and leave it, and let her glean, and don't rebuke her."

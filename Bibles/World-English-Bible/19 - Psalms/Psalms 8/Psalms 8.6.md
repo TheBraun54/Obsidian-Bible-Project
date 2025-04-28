@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou makest him to have dominion over the works of thy hands; Thou hast put all things under his feet:
+You make him ruler over the works of your hands. You have put all things under his feet:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This testimony is true. For which cause reprove them sharply, that they may be sound in the faith,
+This testimony is true. For this cause, reprove them sharply, that they may be sound in the faith,

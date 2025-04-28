@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the officers of the children of Israel did see that they were in evil case, when it was said, Ye shall not diminish aught from your bricks, [your] daily tasks.
+The officers of the children of Israel saw that they were in trouble, when it was said, "You shall not diminish anything from your daily quota of bricks!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I make known unto you brethren, the gospel which I preached unto you, which also ye received, wherein also ye stand,
+Now I declare to you, brothers, the Good News which I preached to you, which also you received, in which you also stand,

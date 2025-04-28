@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of Zion, the perfection of beauty, God hath shined forth.
+Out of Zion, the perfection of beauty, God shines forth.

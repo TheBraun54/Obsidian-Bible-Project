@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall say unto the master of the house, The Teacher saith unto thee, Where is the guestchamber, where I shall eat the passover with my disciples?
+Tell the master of the house, 'The Teacher says to you, "Where is the guest room, where I may eat the Passover with my disciples?"'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The day is thine, the night also is thine: Thou hast prepared the light and the sun.
+The day is yours, the night is also yours. You have prepared the light and the sun.

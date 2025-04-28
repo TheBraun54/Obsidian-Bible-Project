@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of that city shall take the man and chastise him;
+The elders of that city shall take the man and chastise him;

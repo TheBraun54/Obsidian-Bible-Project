@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seventh poured out his bowl upon the air; and there came forth a great voice out of the temple, from the throne, saying, It is done:
+The seventh poured out his bowl into the air. A loud voice came forth out of the temple of heaven, from the throne, saying, "It is done!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will be glad and rejoice in thy lovingkindness; For thou hast seen my affliction: Thou hast known my soul in adversities;
+I will be glad and rejoice in your loving kindness, for you have seen my affliction. You have known my soul in adversities.

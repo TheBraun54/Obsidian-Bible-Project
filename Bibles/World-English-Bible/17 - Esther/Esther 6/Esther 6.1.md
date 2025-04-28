@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On that night could not the king sleep; and he commanded to bring the book of records of the chronicles, and they were read before the king.
+On that night, the king couldn't sleep. He commanded the book of records of the chronicles to be brought, and they were read to the king.

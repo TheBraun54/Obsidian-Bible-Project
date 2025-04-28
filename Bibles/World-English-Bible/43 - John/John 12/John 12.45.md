@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that beholdeth me beholdeth him that sent me.
+He who sees me sees him who sent me.

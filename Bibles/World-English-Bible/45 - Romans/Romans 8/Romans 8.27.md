@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he that searcheth the hearts knoweth what is the mind of the Spirit, because he maketh intercession for the saints according to [the will of] God.
+He who searches the hearts knows what is on the Spirit's mind, because he makes intercession for the saints according to God.

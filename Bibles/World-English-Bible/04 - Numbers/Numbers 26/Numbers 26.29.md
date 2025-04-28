@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Manasseh: of Machir, the family of the Machirites; and Machir begat Gilead; of Gilead, the family of the Gileadites.
+The sons of Manasseh: of Machir, the family of the Machirites; and Machir became the father of Gilead; of Gilead, the family of the Gileadites.

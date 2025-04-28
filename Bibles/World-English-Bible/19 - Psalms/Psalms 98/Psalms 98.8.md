@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the floods clap their hands; Let the hills sing for joy together
+Let the rivers clap their hands. Let the mountains sing for joy together.

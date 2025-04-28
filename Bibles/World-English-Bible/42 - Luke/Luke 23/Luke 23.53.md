@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took it down, and wrapped it in a linen cloth, and laid him in a tomb that was hewn in stone, where never man had yet lain.
+He took it down, and wrapped it in a linen cloth, and laid him in a tomb that was cut in stone, where no one had ever been laid.

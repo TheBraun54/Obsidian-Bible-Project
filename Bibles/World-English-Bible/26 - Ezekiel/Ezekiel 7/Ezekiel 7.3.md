@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now is the end upon thee, and I will send mine anger upon thee, and will judge thee according to thy ways; and I will bring upon thee all thine abominations.
+Now is the end on you, and I will send my anger on you, and will judge you according to your ways; and I will bring on you all your abominations.

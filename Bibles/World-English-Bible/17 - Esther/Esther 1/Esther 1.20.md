@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the king's decree which he shall make shall be published throughout all his kingdom (for it is great), all the wives will give to their husbands honor, both to great and small.
+When the king's decree which he shall make is published throughout all his kingdom (for it is great), all the wives will give their husbands honor, both great and small."

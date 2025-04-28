@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Ye were sold for nought; and ye shall be redeemed without money.
+For thus says Yahweh, "You were sold for nothing; and you shall be redeemed without money."

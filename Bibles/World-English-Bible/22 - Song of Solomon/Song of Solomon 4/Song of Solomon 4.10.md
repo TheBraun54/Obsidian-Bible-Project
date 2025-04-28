@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How fair is thy love, my sister, [my] bride! How much better is thy love than wine! And the fragrance of thine oils than all manner of spices!
+How beautiful is your love, my sister, my bride! How much better is your love than wine! The fragrance of your perfumes than all kinds of spices!

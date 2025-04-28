@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even the dust from your city, that cleaveth to our feet, we wipe off against you: nevertheless know this, that the kingdom of God is come nigh.
+'Even the dust from your city that clings to us, we wipe off against you. Nevertheless know this, that the Kingdom of God has come near to you.'

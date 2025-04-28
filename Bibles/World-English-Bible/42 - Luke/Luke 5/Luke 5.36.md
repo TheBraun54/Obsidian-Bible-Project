@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake also a parable unto them: No man rendeth a piece from a new garment and putteth it upon an old garment; else he will rend the new, and also the piece from the new will not agree with the old.
+He also told a parable to them. "No one puts a piece from a new garment on an old garment, or else he will tear the new, and also the piece from the new will not match the old.

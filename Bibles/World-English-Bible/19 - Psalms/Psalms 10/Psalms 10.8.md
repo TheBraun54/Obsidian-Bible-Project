@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sitteth in the lurking-places of the villages; In the secret places doth he murder the innocent; His eyes are privily set against the helpless.
+He lies in wait near the villages. From ambushes, he murders the innocent. His eyes are secretly set against the helpless.

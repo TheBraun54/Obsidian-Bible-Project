@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had thus spoken, he kneeled down and prayed with them all.
+When he had spoken these things, he knelt down and prayed with them all.

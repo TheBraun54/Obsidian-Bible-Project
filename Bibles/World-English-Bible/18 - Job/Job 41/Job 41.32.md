@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh a path to shine after him; One would think the deep to be hoary.
+He makes a path shine after him. One would think the deep had white hair.

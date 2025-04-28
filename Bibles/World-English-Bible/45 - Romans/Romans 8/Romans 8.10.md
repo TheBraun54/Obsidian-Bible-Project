@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if Christ is in you, the body is dead because of sin; but the spirit is life because of righteousness.
+If Christ is in you, the body is dead because of sin, but the spirit is alive because of righteousness.

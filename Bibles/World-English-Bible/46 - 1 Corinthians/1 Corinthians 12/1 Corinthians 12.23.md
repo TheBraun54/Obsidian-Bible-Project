@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and those [parts] of the body, which we think to be less honorable, upon these we bestow more abundant honor; and our uncomely [parts] have more abundant comeliness;
+Those parts of the body which we think to be less honorable, on those we bestow more abundant honor; and our unpresentable parts have more abundant propriety;

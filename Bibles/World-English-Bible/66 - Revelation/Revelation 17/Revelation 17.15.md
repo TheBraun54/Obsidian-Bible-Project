@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto me, The waters which thou sawest, where the harlot sitteth, are peoples, and multitudes, and nations, and tongues.
+He said to me, "The waters which you saw, where the prostitute sits, are peoples, multitudes, nations, and languages.

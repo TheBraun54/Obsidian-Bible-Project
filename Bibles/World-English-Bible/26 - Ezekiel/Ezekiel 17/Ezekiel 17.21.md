@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all his fugitives in all his bands shall fall by the sword, and they that remain shall be scattered toward every wind: and ye shall know that I, Jehovah, have spoken it.
+All his fugitives in all his bands shall fall by the sword, and those who remain shall be scattered toward every wind: and you shall know that I, Yahweh, have spoken it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] clouds and wind without rain, [So is] he that boasteth himself of his gifts falsely.
+As clouds and wind without rain, so is he who boasts of gifts deceptively.

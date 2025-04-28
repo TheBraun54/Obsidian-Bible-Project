@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan called David, and Jonathan showed him all those things. And Jonathan brought David to Saul, and he was in his presence, as beforetime.
+Jonathan called David, and Jonathan showed him all those things. Jonathan brought David to Saul, and he was in his presence, as before.

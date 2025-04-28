@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now while Paul waited for them at Athens, his spirit was provoked within him as he beheld the city full of idols.
+Now while Paul waited for them at Athens, his spirit was provoked within him as he saw the city full of idols.

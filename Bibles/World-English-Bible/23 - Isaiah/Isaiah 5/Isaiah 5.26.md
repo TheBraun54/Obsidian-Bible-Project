@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will lift up an ensign to the nations from far, and will hiss for them from the end of the earth; and, behold, they shall come with speed swiftly.
+He will lift up a banner to the nations from far, and he will whistle for them from the end of the earth. Behold, they will come speedily and swiftly.

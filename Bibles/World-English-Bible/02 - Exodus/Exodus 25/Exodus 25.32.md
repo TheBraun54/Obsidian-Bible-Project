@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there shall be six branches going out of the sides thereof; three branches of the candlestick out of the one side thereof, and three branches of the candlestick out of the other side thereof:
+There shall be six branches going out of its sides: three branches of the lampstand out of its one side, and three branches of the lampstand out of its other side;

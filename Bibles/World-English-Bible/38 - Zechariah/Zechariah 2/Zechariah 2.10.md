@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing and rejoice, O daughter of Zion; for, lo, I come, and I will dwell in the midst of thee, saith Jehovah.
+Sing and rejoice, daughter of Zion; for, behold, I come, and I will dwell in the midst of you,' says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These uncovered her nakedness; they took her sons and her daughters; and her they slew with the sword: and she became a byword among women; for they executed judgments upon her.
+These uncovered her nakedness; they took her sons and her daughters; and her they killed with the sword: and she became a byword among women; for they executed judgments on her.

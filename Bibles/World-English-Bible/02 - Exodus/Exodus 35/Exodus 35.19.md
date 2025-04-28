@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the finely wrought garments, for ministering in the holy place, the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office.
+the finely worked garments, for ministering in the holy place, the holy garments for Aaron the priest, and the garments of his sons, to minister in the priest's office.'"

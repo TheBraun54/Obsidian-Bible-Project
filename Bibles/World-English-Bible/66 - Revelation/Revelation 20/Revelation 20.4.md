@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw thrones, and they sat upon them, and judgment was given unto them: and [I saw] the souls of them that had been beheaded for the testimony of Jesus, and for the word of God, and such as worshipped not the beast, neither his image, and received not the mark upon their forehead and upon their hand; and they lived, and reigned with Christ a thousand years.
+I saw thrones, and they sat on them, and judgment was given to them. I saw the souls of those who had been beheaded for the testimony of Jesus, and for the word of God, and such as didn't worship the beast nor his image, and didn't receive the mark on their forehead and on their hand. They lived, and reigned with Christ for a thousand years.

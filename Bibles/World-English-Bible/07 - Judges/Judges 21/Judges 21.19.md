@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Behold, there is a feast of Jehovah from year to year in Shiloh, which is on the north of Beth-el, on the east side of the highway that goeth up from Beth-el to Shechem, and on the south of Lebonah.
+They said, "Behold, there is a feast of Yahweh from year to year in Shiloh, which is on the north of Bethel, on the east side of the highway that goes up from Bethel to Shechem, and on the south of Lebonah."

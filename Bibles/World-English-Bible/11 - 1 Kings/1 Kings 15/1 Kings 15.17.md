@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Baasha king of Israel went up against Judah, and built Ramah, that he might not suffer any one to go out or come in to Asa king of Judah.
+Baasha king of Israel went up against Judah, and built Ramah, that he might not allow anyone to go out or come in to Asa king of Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise him with trumpet sound: Praise him with psaltery and harp.
+Praise him with the sounding of the trumpet! Praise him with harp and lyre!

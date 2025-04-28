@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the nation to which they shall be in bondage will I judge, said God: and after that shall they come forth, and serve me in this place.
+'I will judge the nation to which they will be in bondage,' said God, 'and after that will they come out, and serve me in this place.'

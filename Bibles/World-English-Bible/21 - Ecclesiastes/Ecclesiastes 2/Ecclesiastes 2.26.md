@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For to the man that pleaseth him [God] giveth wisdom, and knowledge, and joy; but to the sinner he giveth travail, to gather and to heap up, that he may give to him that pleaseth God. This also is vanity and a striving after wind.
+For to the man who pleases him, God gives wisdom, knowledge, and joy; but to the sinner he gives travail, to gather and to heap up, that he may give to him who pleases God. This also is vanity and a chasing after wind.

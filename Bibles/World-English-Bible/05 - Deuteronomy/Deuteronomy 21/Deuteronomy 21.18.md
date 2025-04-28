@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man have a stubborn and rebellious son, that will not obey the voice of his father, or the voice of his mother, and, though they chasten him, will not hearken unto them;
+If a man have a stubborn and rebellious son, who will not obey the voice of his father, or the voice of his mother, and, though they chasten him, will not listen to them;

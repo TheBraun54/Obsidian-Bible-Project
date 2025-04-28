@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehu met with the brethren of Ahaziah king of Judah, and said, Who are ye? And they answered, We are the brethren of Ahaziah: and we go down to salute the children of the king and the children of the queen.
+Jehu met with the brothers of Ahaziah king of Judah, and said, "Who are you?" They answered, "We are the brothers of Ahaziah. We are going down to greet the children of the king and the children of the queen."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not eat any abominable thing.
+You shall not eat any abominable thing.

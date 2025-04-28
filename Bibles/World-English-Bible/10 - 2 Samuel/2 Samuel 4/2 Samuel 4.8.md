@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought the head of Ish-bosheth unto David to Hebron, and said to the king, Behold, the head of Ish-bosheth, the son of Saul, thine enemy, who sought thy life; and Jehovah hath avenged my lord the king this day of Saul, and of his seed.
+They brought the head of Ishbosheth to David to Hebron, and said to the king, "Behold, the head of Ishbosheth, the son of Saul, your enemy, who sought your life! Yahweh has avenged my lord the king this day of Saul, and of his seed."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith the Lord Jehovah, Behold, I am against thee, O Tyre, and will cause many nations to come up against thee, as the sea causeth its waves to come up.
+therefore thus says the Lord Yahweh, Behold, I am against you, Tyre, and will cause many nations to come up against you, as the sea causes its waves to come up.

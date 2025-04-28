@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Should ye] not [hear] the words which Jehovah cried by the former prophets, when Jerusalem was inhabited and in prosperity, and the cities thereof round about her, and the South and the lowland were inhabited?
+Aren't these the words which Yahweh proclaimed by the former prophets, when Jerusalem was inhabited and in prosperity, and its cities around her, and the South and the lowland were inhabited?'"

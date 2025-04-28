@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Jonathan, Behold, to-morrow is the new moon, and I should not fail to sit with the king at meat: but let me go, that I may hide myself in the field unto the third day at even.
+David said to Jonathan, "Behold, tomorrow is the new moon, and I should not fail to dine with the king; but let me go, that I may hide myself in the field to the third day at evening.

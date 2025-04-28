@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if ye oppress not the sojourner, the fatherless, and the widow, and shed not innocent blood in this place, neither walk after other gods to your own hurt:
+if you don't oppress the foreigner, the fatherless, and the widow, and don't shed innocent blood in this place, neither walk after other gods to your own hurt:

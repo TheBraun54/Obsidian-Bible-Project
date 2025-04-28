@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there are eunuchs, that were so born from their mother's womb: and there are eunuchs, that were made eunuchs by men: and there are eunuchs, that made themselves eunuchs for the kingdom of heaven's sake. He that is able to receive it, let him receive it.
+For there are eunuchs who were born that way from their mother's womb, and there are eunuchs who were made eunuchs by men; and there are eunuchs who made themselves eunuchs for the Kingdom of Heaven's sake. He who is able to receive it, let him receive it."

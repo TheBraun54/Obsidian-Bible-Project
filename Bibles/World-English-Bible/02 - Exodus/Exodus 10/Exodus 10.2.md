@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that thou mayest tell in the ears of thy son, and of thy son's son, what things I have wrought upon Egypt, and my signs which I have done among them; that ye may know that I am Jehovah.
+and that you may tell in the hearing of your son, and of your son's son, what things I have done to Egypt, and my signs which I have done among them; that you may know that I am Yahweh."

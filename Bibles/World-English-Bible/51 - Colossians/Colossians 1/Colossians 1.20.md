@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and through him to reconcile all things unto himself, having made peace through the blood of his cross; through him, [I say], whether things upon the earth, or things in the heavens.
+and through him to reconcile all things to himself, by him, whether things on the earth, or things in the heavens, having made peace through the blood of his cross.

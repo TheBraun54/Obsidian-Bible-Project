@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever ye do, in word or in deed, [do] all in the name of the Lord Jesus, giving thanks to God the Father through him.
+Whatever you do, in word or in deed, do all in the name of the Lord Jesus, giving thanks to God the Father, through him.

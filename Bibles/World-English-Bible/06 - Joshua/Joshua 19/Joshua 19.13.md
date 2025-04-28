@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and from thence it passed along eastward to Gath-hepher, to Eth-kazin; and it went out at Rimmon which stretcheth unto Neah;
+From there it passed along eastward to Gath Hepher, to Ethkazin; and it went out at Rimmon which stretches to Neah.

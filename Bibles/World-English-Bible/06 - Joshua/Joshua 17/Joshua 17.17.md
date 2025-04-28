@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua spake unto the house of Joseph, even to Ephraim and to Manasseh, saying, Thou art a great people, and hast great power; thou shalt not have one lot only:
+Joshua spoke to the house of Joseph, even to Ephraim and to Manasseh, saying, "You are a great people, and have great power. You shall not have one lot only;

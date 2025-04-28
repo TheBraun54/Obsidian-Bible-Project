@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she went up and laid him on the bed of the man of God, and shut [the door] upon him, and went out.
+She went up and laid him on the bed of the man of God, and shut the door on him, and went out.

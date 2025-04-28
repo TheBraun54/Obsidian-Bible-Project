@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Boaz unto Ruth, Hearest thou not, my daughter? Go not to glean in another field, neither pass from hence, but abide here fast by my maidens.
+Then Boaz said to Ruth, "Listen, my daughter. Don't go to glean in another field, and don't go from here, but stay here close to my maidens.

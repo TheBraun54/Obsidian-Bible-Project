@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-John said unto him, Teacher, we saw one casting out demons in thy name; and we forbade him, because he followed not us.
+John said to him, "Teacher, we saw someone who doesn't follow us casting out demons in your name; and we forbade him, because he doesn't follow us."

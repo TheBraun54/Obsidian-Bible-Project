@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while he said these things, there came a cloud, and overshadowed them: and they feared as they entered into the cloud.
+While he said these things, a cloud came and overshadowed them, and they were afraid as they entered into the cloud.

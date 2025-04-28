@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had said this, he showed unto them his hands and his side. The disciples therefore were glad, when they saw the Lord.
+When he had said this, he showed them his hands and his side. The disciples therefore were glad when they saw the Lord.

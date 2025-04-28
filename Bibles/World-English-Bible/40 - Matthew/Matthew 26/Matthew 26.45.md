@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then cometh he to the disciples, and saith unto them, Sleep on now, and take your rest: behold, the hour is at hand, and the Son of man is betrayed into the hands of sinners.
+Then he came to his disciples, and said to them, "Sleep on now, and take your rest. Behold, the hour is at hand, and the Son of Man is betrayed into the hands of sinners.

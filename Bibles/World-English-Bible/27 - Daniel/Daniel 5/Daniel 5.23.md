@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but hast lifted up thyself against the Lord of heaven; and they have brought the vessels of his house before thee, and thou and thy lords, thy wives and thy concubines, have drunk wine from them; and thou hast praised the gods of silver and gold, of brass, iron, wood, and stone, which see not, nor hear, nor know; and the God in whose hand thy breath is, and whose are all thy ways, hast thou not glorified.
+but have lifted up yourself against the Lord of heaven; and they have brought the vessels of his house before you, and you and your lords, your wives and your concubines, have drunk wine from them; and you have praised the gods of silver and gold, of brass, iron, wood, and stone, which don't see, nor hear, nor know; and the God in whose hand your breath is, and whose are all your ways, you have not glorified.

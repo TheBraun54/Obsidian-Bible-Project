@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cried out again, Crucify him.
+They cried out again, "Crucify him!"

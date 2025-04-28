@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The man answered and said unto them, Why, herein is the marvel, that ye know not whence he is, and [yet] he opened mine eyes.
+The man answered them, "How amazing! You don't know where he comes from, yet he opened my eyes.

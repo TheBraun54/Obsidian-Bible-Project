@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, He that believeth hath eternal life.
+Most certainly, I tell you, he who believes in me has eternal life.

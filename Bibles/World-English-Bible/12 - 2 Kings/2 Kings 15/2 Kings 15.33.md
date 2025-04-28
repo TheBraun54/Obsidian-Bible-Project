@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Five and twenty years old was he when he began to reign; and he reigned sixteen years in Jerusalem: and his mother's name was Jerusha the daughter of Zadok.
+He was twenty-five years old when he began to reign; and he reigned sixteen years in Jerusalem: and his mother's name was Jerusha the daughter of Zadok.

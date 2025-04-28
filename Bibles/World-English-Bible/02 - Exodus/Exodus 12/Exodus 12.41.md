@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of four hundred and thirty years, even the selfsame day it came to pass, that all the hosts of Jehovah went out from the land of Egypt.
+It happened at the end of four hundred thirty years, even the same day it happened, that all the armies of Yahweh went out from the land of Egypt.

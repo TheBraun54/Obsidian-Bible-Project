@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hathach came and told Esther the words of Mordecai.
+Hathach came and told Esther the words of Mordecai.

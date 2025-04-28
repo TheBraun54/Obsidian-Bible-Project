@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They made shoulder-pieces for it, joined together; at the two ends was it joined together.
+They made shoulder straps for it, joined together. At the two ends it was joined together.

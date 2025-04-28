@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time Jehovah said unto Joshua, Make thee knives of flint, and circumcise again the children of Israel the second time.
+At that time, Yahweh said to Joshua, "Make flint knives, and circumcise again the children of Israel the second time."

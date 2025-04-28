@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore I have accomplished this, and have sealed to them this fruit, I will go on by you unto Spain.
+When therefore I have accomplished this, and have sealed to them this fruit, I will go on by way of you to Spain.

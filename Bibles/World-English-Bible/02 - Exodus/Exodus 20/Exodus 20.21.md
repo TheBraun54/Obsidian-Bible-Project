@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people stood afar off, and Moses drew near unto the thick darkness where God was.
+The people stayed at a distance, and Moses drew near to the thick darkness where God was.

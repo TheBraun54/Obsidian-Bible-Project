@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the children of Israel looked on, when the fire came down, and the glory of Jehovah was upon the house; and they bowed themselves with their faces to the ground upon the pavement, and worshipped, and gave thanks unto Jehovah, [saying], For he is good; for his lovingkindness [endureth] for ever.
+All the children of Israel looked on, when the fire came down, and the glory of Yahweh was on the house; and they bowed themselves with their faces to the ground on the pavement, and worshiped, and gave thanks to Yahweh, [saying], "For he is good; for his loving kindness endures for ever."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said to them again, Peace [be] unto you: as the Father hath sent me, even so send I you.
+Jesus therefore said to them again, "Peace be to you. As the Father has sent me, even so I send you."

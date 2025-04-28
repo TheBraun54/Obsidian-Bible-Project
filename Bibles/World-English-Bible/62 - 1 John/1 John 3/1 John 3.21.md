@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, if our heart condemn us not, we have boldness toward God;
+Beloved, if our hearts don't condemn us, we have boldness toward God;

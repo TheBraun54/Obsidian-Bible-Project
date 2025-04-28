@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The chariots rage in the streets; they rush to and fro in the broad ways: the appearance of them is like torches; they run like the lightnings.
+The chariots rage in the streets. They rush back and forth in the broad ways. Their appearance is like torches. They run like the lightnings.

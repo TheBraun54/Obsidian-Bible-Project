@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the herdsmen of Gerar strove with Isaac's herdsmen, saying, The water is ours: and he called the name of the well Esek, because they contended with him.
+The herdsmen of Gerar argued with Isaac's herdsmen, saying, "The water is ours." He called the name of the well Esek, because they contended with him.

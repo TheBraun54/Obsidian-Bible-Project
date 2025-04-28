@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through wisdom is a house builded; And by understanding it is established;
+Through wisdom a house is built; by understanding it is established;

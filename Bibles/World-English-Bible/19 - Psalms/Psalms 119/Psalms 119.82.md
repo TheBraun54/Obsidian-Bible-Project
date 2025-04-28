@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eyes fail for thy word, While I say, When wilt thou comfort me?
+My eyes fail for your word. I say, "When will you comfort me?"

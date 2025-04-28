@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Observe the month of Abib, and keep the passover unto Jehovah thy God; for in the month of Abib Jehovah thy God brought thee forth out of Egypt by night.
+Observe the month of Abib, and keep the Passover to Yahweh your God; for in the month of Abib Yahweh your God brought you forth out of Egypt by night.

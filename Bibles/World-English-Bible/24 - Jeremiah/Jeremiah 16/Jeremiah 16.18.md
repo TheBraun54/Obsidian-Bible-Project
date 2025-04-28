@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And first I will recompense their iniquity and their sin double, because they have polluted my land with the carcasses of their detestable things, and have filled mine inheritance with their abominations.
+First I will recompense their iniquity and their sin double, because they have polluted my land with the carcasses of their detestable things, and have filled my inheritance with their abominations.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, this day thine eyes have seen how that Jehovah had delivered thee to-day into my hand in the cave: and some bade me kill thee; but [mine eye] spared thee; and I said, I will not put forth my hand against my lord; for he is Jehovah's anointed.
+Behold, this day your eyes have seen how that Yahweh had delivered you today into my hand in the cave. Some urged me to kill you; but I spared you; and I said, I will not put forth my hand against my lord; for he is Yahweh's anointed.

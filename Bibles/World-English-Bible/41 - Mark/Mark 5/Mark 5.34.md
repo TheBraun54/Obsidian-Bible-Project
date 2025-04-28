@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Daughter, thy faith hath made thee whole; go in peace, and be whole of thy plague.
+He said to her, "Daughter, your faith has made you well. Go in peace, and be cured of your disease."

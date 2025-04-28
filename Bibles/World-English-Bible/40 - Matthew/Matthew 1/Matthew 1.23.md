@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the virgin shall be with child, and shall bring forth a son, And they shall call his name Immanuel; which is, being interpreted, God with us.
+"Behold, the virgin shall be with child, and shall bring forth a son. They shall call his name Immanuel;" which is, being interpreted, "God with us."

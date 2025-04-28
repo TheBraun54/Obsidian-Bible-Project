@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that by them I may prove Israel, whether they will keep the way of Jehovah to walk therein, as their fathers did keep it, or not.
+that by them I may prove Israel, whether they will keep the way of Yahweh to walk therein, as their fathers did keep it, or not."

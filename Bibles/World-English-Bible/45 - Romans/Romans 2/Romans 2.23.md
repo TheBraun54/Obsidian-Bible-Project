@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou who gloriest in the law, through thy transgression of the law dishonorest thou God?
+You who glory in the law, through your disobedience of the law do you dishonor God?

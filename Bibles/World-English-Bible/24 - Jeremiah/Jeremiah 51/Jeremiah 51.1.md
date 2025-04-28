@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: Behold, I will raise up against Babylon, and against them that dwell in Leb-kamai, a destroying wind.
+Thus says Yahweh: Behold, I will raise up against Babylon, and against those who dwell in Lebkamai, a destroying wind.

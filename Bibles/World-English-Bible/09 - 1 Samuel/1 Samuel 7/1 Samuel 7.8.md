@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel said to Samuel, Cease not to cry unto Jehovah our God for us, that he will save us out of the hand of the Philistines.
+The children of Israel said to Samuel, "Don't cease to cry to Yahweh our God for us, that he will save us out of the hand of the Philistines."

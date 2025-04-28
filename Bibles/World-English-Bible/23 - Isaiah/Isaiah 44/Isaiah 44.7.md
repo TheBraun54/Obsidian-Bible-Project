@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And who, as I, shall call, and shall declare it, and set it in order for me, since I established the ancient people? and the things that are coming, and that shall come to pass, let them declare.
+Who is like me? Who will call, and will declare it, and set it in order for me, since I established the ancient people? Let them declare the things that are coming, and that will happen.

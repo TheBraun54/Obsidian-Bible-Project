@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be for thyself alone, And not for strangers with thee.
+Let them be for yourself alone, not for strangers with you.

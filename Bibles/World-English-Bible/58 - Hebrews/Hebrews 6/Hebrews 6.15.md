@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus, having patiently endured, he obtained the promise.
+Thus, having patiently endured, he obtained the promise.

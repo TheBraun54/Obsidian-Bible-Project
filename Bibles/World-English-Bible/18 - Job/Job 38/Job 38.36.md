@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath put wisdom in the inward parts? Or who hath given understanding to the mind?
+Who has put wisdom in the inward parts? Or who has given understanding to the mind?

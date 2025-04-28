@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give thanks unto Jehovah with the harp: Sing praises unto him with the psaltery of ten strings.
+Give thanks to Yahweh with the lyre. Sing praises to him with the harp of ten strings.

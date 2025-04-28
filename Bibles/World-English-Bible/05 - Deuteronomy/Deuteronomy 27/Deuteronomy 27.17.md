@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that removeth his neighbor's landmark. And all the people shall say, Amen.
+'Cursed is he who removes his neighbor's landmark.' All the people shall say, 'Amen.'

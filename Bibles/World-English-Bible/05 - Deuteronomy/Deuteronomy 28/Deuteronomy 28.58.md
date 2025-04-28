@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou wilt not observe to do all the words of this law that are written in this book, that thou mayest fear this glorious and fearful name, JEHOVAH THY GOD;
+If you will not observe to do all the words of this law that are written in this book, that you may fear this glorious and fearful name, YAHWEH YOUR GOD;

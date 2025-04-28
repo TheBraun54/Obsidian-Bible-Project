@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he is a minister of God to thee for good. But if thou do that which is evil, be afraid; for he beareth not the sword in vain: for he is a minister of God, an avenger for wrath to him that doeth evil.
+for he is a servant of God to you for good. But if you do that which is evil, be afraid, for he doesn't bear the sword in vain; for he is a servant of God, an avenger for wrath to him who does evil.

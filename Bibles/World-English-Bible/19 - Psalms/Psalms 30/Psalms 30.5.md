@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For his anger is but for a moment; His favor is for a life-time: Weeping may tarry for the night, But joy [cometh] in the morning.
+For his anger is but for a moment. His favor is for a lifetime. Weeping may stay for the night, but joy comes in the morning.

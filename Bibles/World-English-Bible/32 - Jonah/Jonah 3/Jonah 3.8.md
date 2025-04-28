@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but let them be covered with sackcloth, both man and beast, and let them cry mightily unto God: yea, let them turn every one from his evil way, and from the violence that is in his hands.
+but let them be covered with sackcloth, both man and animal, and let them cry mightily to God. Yes, let them turn everyone from his evil way, and from the violence that is in his hands.

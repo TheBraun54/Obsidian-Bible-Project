@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel said unto Jehovah, We have sinned: do thou unto us whatsoever seemeth good unto thee; only deliver us, we pray thee, this day.
+The children of Israel said to Yahweh, "We have sinned: do you to us whatever seems good to you; only deliver us, please, this day."

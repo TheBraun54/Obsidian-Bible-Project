@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye are reproached for the name of Christ, blessed [are ye] ; because the [Spirit] of glory and the Spirit of God resteth upon you.
+If you are insulted for the name of Christ, you are blessed; because the Spirit of glory and of God rests on you. On their part he is blasphemed, but on your part he is glorified.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The law of the wise is a fountain of life, That one may depart from the snares of death.
+The teaching of the wise is a spring of life, to turn from the snares of death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Cain, Where is Abel thy brother? And he said, I know not: am I my brother's keeper?
+Yahweh said to Cain, "Where is Abel, your brother?" He said, "I don't know. Am I my brother's keeper?"

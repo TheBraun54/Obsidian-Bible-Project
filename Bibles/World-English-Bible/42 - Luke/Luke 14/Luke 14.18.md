@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they all with one [consent] began to make excuse. The first said unto him, I have bought a field, and I must needs go out and see it; I pray thee have me excused.
+They all as one began to make excuses. "The first said to him, 'I have bought a field, and I must go and see it. Please have me excused.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the first of all the first-fruits of every thing, and every oblation of everything, of all your oblations, shall be for the priest: ye shall also give unto the priests the first of your [ dough, to cause a blessing to rest on thy house.
+The first of all the first fruits of every thing, and every offering of everything, of all your offerings, shall be for the priest: you shall also give to the priests the first of your dough, to cause a blessing to rest on your house.

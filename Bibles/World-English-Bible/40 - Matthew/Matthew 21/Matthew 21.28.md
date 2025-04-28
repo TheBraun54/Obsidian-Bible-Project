@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But what think ye? A man had two sons; and he came to the first, and said, Son, go work to-day in the vineyard.
+But what do you think? A man had two sons, and he came to the first, and said, 'Son, go work today in my vineyard.'

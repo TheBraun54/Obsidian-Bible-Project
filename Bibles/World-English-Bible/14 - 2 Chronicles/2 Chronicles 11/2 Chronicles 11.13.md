@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests and the Levites that were in all Israel resorted to him out of all their border.
+The priests and the Levites who were in all Israel resorted to him out of all their border.

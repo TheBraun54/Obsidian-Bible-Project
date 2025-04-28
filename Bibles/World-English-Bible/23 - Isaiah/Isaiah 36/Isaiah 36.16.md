@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken not to Hezekiah: for thus saith the king of Assyria, Make your peace with me, and come out to me; and eat ye every one of his vine, and every one of his fig-tree, and drink ye every one the waters of his own cistern;
+Don't listen to Hezekiah, for thus says the king of Assyria, 'Make your peace with me, and come out to me; and each of you eat from his vine, and each one from his fig tree, and each one of you drink the waters of his own cistern;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man to whom, the Lord will not reckon sin.
+Blessed is the man whom the Lord will by no means charge with sin."

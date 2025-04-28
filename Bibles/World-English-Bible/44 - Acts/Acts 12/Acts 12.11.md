@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Peter was come to himself, he said, Now I know of a truth, that the Lord hath sent forth his angel and delivered me out of the hand of Herod, and from all the expectation of the people of the Jews.
+When Peter had come to himself, he said, "Now I truly know that the Lord has sent out his angel and delivered me out of the hand of Herod, and from everything the Jewish people were expecting."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye therefore, beloved, knowing [these things] beforehand, beware lest, being carried away with the error of the wicked, ye fall from your own stedfastness.
+You therefore, beloved, knowing these things beforehand, beware, lest being carried away with the error of the wicked, you fall from your own steadfastness.

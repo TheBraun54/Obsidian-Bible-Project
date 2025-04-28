@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Joshua called the Reubenites, and the Gadites, and the half-tribe of Manasseh,
+Then Joshua called the Reubenites, the Gadites, and the half-tribe of Manasseh,

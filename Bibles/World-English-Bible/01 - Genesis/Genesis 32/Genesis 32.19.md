@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded also the second, and the third, and all that followed the droves, saying, On this manner shall ye speak unto Esau, when ye find him;
+He commanded also the second, and the third, and all that followed the herds, saying, "This is how you shall speak to Esau, when you find him.

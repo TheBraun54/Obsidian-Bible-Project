@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they may fear thee, to walk in thy ways, so long as they live in the land which thou gavest unto our fathers.
+that they may fear you, to walk in your ways, so long as they live in the land which you gave to our fathers.

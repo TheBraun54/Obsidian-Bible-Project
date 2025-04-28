@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-only to the land of the children of Ammon thou camest not near; all the side of the river Jabbok, and the cities of the hill-country, and wheresoever Jehovah our God forbade us.
+only to the land of the children of Ammon you didn't come near; all the side of the river Jabbok, and the cities of the hill country, and wherever Yahweh our God forbade us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah God of hosts, hear my prayer; Give ear, O God of Jacob. {{Selah
+Yahweh, God of Armies, hear my prayer. Listen, God of Jacob. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when I speak with thee, I will open thy mouth, and thou shalt say unto them, Thus saith the Lord Jehovah: He that heareth, let him hear; and he that forbeareth, let him forbear: for they are a rebellious house.
+But when I speak with you, I will open your mouth, and you shall tell them, Thus says the Lord Yahweh: He who hears, let him hear; and he who forbears, let him forbear: for they are a rebellious house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Peace be unto thee; fear not: thou shalt not die.
+Yahweh said to him, "Peace be to you! Don't be afraid. You shall not die."

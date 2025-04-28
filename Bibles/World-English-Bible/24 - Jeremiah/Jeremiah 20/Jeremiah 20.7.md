@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, thou hast persuaded me, and I was persuaded; thou art stronger than I, and hast prevailed: I am become a laughing-stock all the day, every one mocketh me.
+Yahweh, you have persuaded me, and I was persuaded; you are stronger than I, and have prevailed: I am become a laughing-stock all the day, every one mocks me.

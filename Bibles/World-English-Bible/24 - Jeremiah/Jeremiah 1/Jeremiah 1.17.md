@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou therefore gird up thy loins, and arise, and speak unto them all that I command thee: be not dismayed at them, lest I dismay thee before them.
+"You therefore put your belt on your waist, arise, and speak to them all that I command you. Don't be dismayed at them, lest I dismay you before them.

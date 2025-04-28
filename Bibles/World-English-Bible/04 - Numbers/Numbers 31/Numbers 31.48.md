@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the officers that were over the thousands of the host, the captains of thousands, and the captains of hundreds, came near unto Moses;
+The officers who were over the thousands of the army, the captains of thousands, and the captains of hundreds, came near to Moses;

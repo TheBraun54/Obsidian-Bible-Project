@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore they were come together here, I made no delay, but on the next day sat on the judgment-seat, and commanded the man to be brought.
+When therefore they had come together here, I didn't delay, but on the next day sat on the judgment seat, and commanded the man to be brought.

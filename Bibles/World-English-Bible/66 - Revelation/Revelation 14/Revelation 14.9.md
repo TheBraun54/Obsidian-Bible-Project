@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another angel, a third, followed them, saying with a great voice, If any man worshippeth the beast and his image, and receiveth a mark on his forehead, or upon his hand,
+Another angel, a third, followed them, saying with a great voice, "If anyone worships the beast and his image, and receives a mark on his forehead, or on his hand,

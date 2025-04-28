@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cities that are inhabited shall be laid waste, and the land shall be a desolation; and ye shall know that I am Jehovah.
+The cities that are inhabited shall be laid waste, and the land shall be a desolation; and you shall know that I am Yahweh.

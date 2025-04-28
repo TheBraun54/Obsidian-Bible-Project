@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will smite thee with consumption, and with fever, and with inflammation, and with fiery heat, and with the sword, and with blasting, and with mildew; and they shall pursue thee until thou perish.
+Yahweh will strike you with consumption, and with fever, and with inflammation, and with fiery heat, and with the sword, and with blight, and with mildew; and they shall pursue you until you perish.

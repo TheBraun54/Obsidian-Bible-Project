@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in that day shall he lift up [his voice], saying, I will not be a healer; for in my house is neither bread nor clothing: ye shall not make me ruler of the people.
+In that day he will cry out, saying, "I will not be a healer; for in my house is neither bread nor clothing. You shall not make me ruler of the people."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they heard these things, they held their peace, and glorified God, saying, Then to the Gentiles also hath God granted repentance unto life.
+When they heard these things, they held their peace, and glorified God, saying, "Then God has also granted to the Gentiles repentance to life!"

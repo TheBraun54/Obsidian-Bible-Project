@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall mark out your east border from Hazar-enan to Shepham;
+"'You shall mark out your east border from Hazar Enan to Shepham;

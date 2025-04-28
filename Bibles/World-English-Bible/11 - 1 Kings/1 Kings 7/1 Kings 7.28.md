@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the work of the bases was on this manner: they had panels; and there were panels between the ledges;
+The work of the bases was like this: they had panels; and there were panels between the ledges;

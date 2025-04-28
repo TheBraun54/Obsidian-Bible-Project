@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Until I come and take you away to a land like your own land, a land of grain and new wine, a land of bread and vineyards, a land of olive-trees and of honey, that ye may live, and not die: and hearken not unto Hezekiah, when he persuadeth you, saying, Jehovah will deliver us.
+until I come and take you away to a land like your own land, a land of grain and new wine, a land of bread and vineyards, a land of olive trees and of honey, that you may live, and not die. Don't listen to Hezekiah, when he persuades you, saying, "Yahweh will deliver us."

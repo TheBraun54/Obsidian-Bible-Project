@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And why even of yourselves judge ye not what is right?
+Why don't you judge for yourselves what is right?

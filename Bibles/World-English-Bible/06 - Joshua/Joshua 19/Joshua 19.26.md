@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Allammelech, and Amad, and Mishal; and it reached to Carmel westward, and to Shihor-libnath;
+Allammelech, Amad, Mishal. It reached to Carmel westward, and to Shihorlibnath.

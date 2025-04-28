@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hold thy peace at the presence of the Lord Jehovah; for the day of Jehovah is at hand: for Jehovah hath prepared a sacrifice, he hath consecrated his guests.
+Be silent at the presence of the Lord Yahweh, for the day of Yahweh is at hand. For Yahweh has prepared a sacrifice. He has consecrated his guests.

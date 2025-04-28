@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who bringeth forth the chariot and horse, the army and the mighty man (they lie down together, they shall not rise; they are extinct, they are quenched as a wick):
+who brings forth the chariot and horse, the army and the mighty man (they lie down together, they shall not rise; they are extinct, they are quenched like a wick):

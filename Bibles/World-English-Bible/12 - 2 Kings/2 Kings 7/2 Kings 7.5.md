@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rose up in the twilight, to go unto the camp of the Syrians; and when they were come to the outermost part of the camp of the Syrians, behold, there was no man there.
+They rose up in the twilight, to go to the camp of the Syrians. When they had come to the outermost part of the camp of the Syrians, behold, there was no man there.

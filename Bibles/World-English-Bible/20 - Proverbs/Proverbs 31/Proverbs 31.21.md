@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She is not afraid of the snow for her household; For all her household are clothed with scarlet.
+She is not afraid of the snow for her household; for all her household are clothed with scarlet.

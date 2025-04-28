@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-traitors, headstrong, puffed up, lovers of pleasure rather than lovers of God;
+traitors, headstrong, conceited, lovers of pleasure rather than lovers of God;

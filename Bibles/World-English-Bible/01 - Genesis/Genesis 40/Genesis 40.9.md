@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief butler told his dream to Joseph, and said to him, In my dream, behold, a vine was before me;
+The chief cupbearer told his dream to Joseph, and said to him, "In my dream, behold, a vine was in front of me,

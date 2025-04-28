@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the side-chambers were broader as they encompassed [the house] higher and higher; for the encompassing of the house went higher and higher round about the house: therefore the breadth of the house [continued] upward; and so one went up [from] the lowest [chamber] to the highest by the middle [chamber] .
+The side rooms were broader as they encompassed [the house] higher and higher; for the encompassing of the house went higher and higher around the house: therefore the breadth of the house [continued] upward; and so one went up [from] the lowest [room] to the highest by the middle [room].

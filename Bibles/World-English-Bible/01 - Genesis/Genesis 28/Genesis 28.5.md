@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac sent away Jacob: and he went to Paddan-aram unto Laban, son of Bethuel the Syrian, the brother of Rebekah, Jacob's and Esau's mother.
+Isaac sent Jacob away. He went to Paddan Aram to Laban, son of Bethuel the Syrian, Rebekah's brother, Jacob's and Esau's mother.

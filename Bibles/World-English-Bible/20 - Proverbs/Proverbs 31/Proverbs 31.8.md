@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Open thy mouth for the dumb, In the cause of all such as are left desolate.
+Open your mouth for the mute, in the cause of all who are left desolate.

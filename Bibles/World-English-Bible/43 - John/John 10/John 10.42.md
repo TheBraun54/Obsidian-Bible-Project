@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many believed on him there.
+Many believed in him there.

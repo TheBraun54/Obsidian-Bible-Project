@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, O north wind; And come, thou south; Blow upon my garden, that the spices thereof may flow out. Let my beloved come into his garden, And eat his precious fruits.
+Awake, north wind; and come, you south! Blow on my garden, that its spices may flow out. Let my beloved come into his garden, and taste his precious fruits. Lover

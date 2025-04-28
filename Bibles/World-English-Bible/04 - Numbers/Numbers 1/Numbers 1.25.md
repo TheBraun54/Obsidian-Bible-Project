@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Gad, were forty and five thousand six hundred and fifty.
+those who were numbered of them, of the tribe of Gad, were forty-five thousand six hundred fifty.

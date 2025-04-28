@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph made haste; for his heart yearned over his brother: and he sought where to weep; and he entered into his chamber, and wept there.
+Joseph hurried, for his heart yearned over his brother; and he sought a place to weep. He entered into his room, and wept there.

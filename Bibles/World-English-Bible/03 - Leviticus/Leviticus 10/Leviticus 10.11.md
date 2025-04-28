@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that ye may teach the children of Israel all the statutes which Jehovah hath spoken unto them by Moses.
+and that you are to teach the children of Israel all the statutes which Yahweh has spoken to them by Moses."

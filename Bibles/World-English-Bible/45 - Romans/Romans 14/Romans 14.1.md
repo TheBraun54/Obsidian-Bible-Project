@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But him that is weak in faith receive ye, [yet] not for decision of scruples.
+Now accept one who is weak in faith, but not for disputes over opinions.

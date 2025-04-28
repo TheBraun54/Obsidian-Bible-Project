@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that the Lord will set his hand again the second time to recover the remnant of his people, that shall remain, from Assyria, and from Egypt, and from Pathros, and from Cush, and from Elam, and from Shinar, and from Hamath, and from the islands of the sea.
+It will happen in that day that the Lord will set his hand again the second time to recover the remnant that is left of his people from Assyria, from Egypt, from Pathros, from Cush, from Elam, from Shinar, from Hamath, and from the islands of the sea.

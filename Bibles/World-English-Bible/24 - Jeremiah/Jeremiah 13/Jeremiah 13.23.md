@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can the Ethiopian change his skin, or the leopard his spots? then may ye also do good, that are accustomed to do evil.
+Can the Ethiopian change his skin, or the leopard his spots? then may you also do good, who are accustomed to do evil.

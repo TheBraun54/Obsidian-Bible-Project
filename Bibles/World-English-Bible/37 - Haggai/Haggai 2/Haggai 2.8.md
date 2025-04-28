@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The silver is mine, and the gold is mine, saith Jehovah of hosts.
+The silver is mine, and the gold is mine,' says Yahweh of Armies.

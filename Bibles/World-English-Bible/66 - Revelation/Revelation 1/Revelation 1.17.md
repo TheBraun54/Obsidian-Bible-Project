@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I saw him, I fell at his feet as one dead. And he laid his right hand upon me, saying, Fear not; I am the first and the last,
+When I saw him, I fell at his feet like a dead man. He laid his right hand on me, saying, "Don't be afraid. I am the first and the last,

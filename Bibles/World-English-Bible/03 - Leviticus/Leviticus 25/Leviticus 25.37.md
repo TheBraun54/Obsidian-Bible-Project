@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not give him thy money upon interest, nor give him thy victuals for increase.
+You shall not lend him your money at interest, nor give him your food for profit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Satan, Hast thou considered my servant Job? for there is none like him in the earth, a perfect and an upright man, one that feareth God, and turneth away from evil.
+Yahweh said to Satan, "Have you considered my servant, Job? For there is none like him in the earth, a blameless and an upright man, one who fears God, and turns away from evil."

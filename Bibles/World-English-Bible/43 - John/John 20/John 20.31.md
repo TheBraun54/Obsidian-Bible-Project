@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but these are written, that ye may believe that Jesus is the Christ, the Son of God; and that believing ye may have life in his name.
+but these are written, that you may believe that Jesus is the Christ, the Son of God, and that believing you may have life in his name.

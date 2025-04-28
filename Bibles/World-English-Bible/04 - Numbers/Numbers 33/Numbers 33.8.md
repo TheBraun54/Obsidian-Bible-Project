@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from before Hahiroth, and passed through the midst of the sea into the wilderness: and they went three days' journey in the wilderness of Etham, and encamped in Marah.
+They traveled from before Hahiroth, and passed through the midst of the sea into the wilderness: and they went three days' journey in the wilderness of Etham, and encamped in Marah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah: Like as I have brought all this great evil upon this people, so will I bring upon them all the good that I have promised them.
+For thus says Yahweh: Like as I have brought all this great evil on this people, so will I bring on them all the good that I have promised them.

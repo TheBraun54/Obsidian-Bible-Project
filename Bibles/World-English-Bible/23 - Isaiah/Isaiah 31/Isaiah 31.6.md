@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn ye unto him from whom ye have deeply revolted, O children of Israel.
+Return to him from whom you have deeply revolted, children of Israel.

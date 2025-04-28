@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the pendants, and the bracelets, and the mufflers;
+the earrings, the bracelets, the veils,

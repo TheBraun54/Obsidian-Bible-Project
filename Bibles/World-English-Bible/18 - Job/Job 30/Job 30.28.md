@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I go mourning without the sun: I stand up in the assembly, and cry for help.
+I go mourning without the sun. I stand up in the assembly, and cry for help.

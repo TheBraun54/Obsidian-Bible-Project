@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The virgin of Israel is fallen; she shall no more rise: she is cast down upon her land; there is none to raise her up.
+"The virgin of Israel has fallen; She shall rise no more. She is cast down on her land; there is no one to raise her up."

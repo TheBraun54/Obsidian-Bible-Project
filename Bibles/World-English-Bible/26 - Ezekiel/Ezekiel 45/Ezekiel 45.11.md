@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ephah and the bath shall be of one measure, that the bath may contain the tenth part of a homer, and the ephah the tenth part of a homer: the measure thereof shall be after the homer.
+The ephah and the bath shall be of one measure, that the bath may contain the tenth part of a homer, and the ephah the tenth part of a homer: its measure shall be after the homer.

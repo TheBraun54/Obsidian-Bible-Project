@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast proved my heart; Thou hast visited me in the night; Thou hast tried me, and findest nothing; I am purposed that my mouth shall not transgress.
+You have proved my heart. You have visited me in the night. You have tried me, and found nothing. I have resolved that my mouth shall not disobey.

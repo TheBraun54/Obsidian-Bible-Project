@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Jesus saw it, he was moved with indignation, and said unto them, Suffer the little children to come unto me; forbid them not: for to such belongeth the kingdom of God.
+But when Jesus saw it, he was moved with indignation, and said to them, "Allow the little children to come to me! Don't forbid them, for the Kingdom of God belongs to such as these.

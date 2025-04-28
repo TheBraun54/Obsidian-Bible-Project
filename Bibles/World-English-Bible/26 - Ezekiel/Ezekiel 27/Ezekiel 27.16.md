@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Syria was thy merchant by reason of the multitude of thy handiworks: they traded for thy wares with emeralds, purple, and broidered work, and fine linen, and coral, and rubies.
+Syria was your merchant by reason of the multitude of your handiworks: they traded for your wares with emeralds, purple, and embroidered work, and fine linen, and coral, and rubies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider [and] answer me, O Jehovah my God: Lighten mine eyes, lest I sleep the [sleep of] death;
+Behold, and answer me, Yahweh, my God. Give light to my eyes, lest I sleep in death;

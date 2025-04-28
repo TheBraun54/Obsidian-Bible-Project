@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The clouds poured out water; The skies sent out a sound: Thine arrows also went abroad.
+The clouds poured out water. The skies resounded with thunder. Your arrows also flashed around.

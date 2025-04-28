@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mary arose in these days and went into the hill country with haste, into a city of Judah;
+Mary arose in those days and went into the hill country with haste, into a city of Judah,

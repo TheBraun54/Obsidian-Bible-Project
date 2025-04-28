@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that whosoever came not within three days, according to the counsel of the princes and the elders, all his substance should be forfeited, and himself separated from the assembly of the captivity.
+and that whoever didn't come within three days, according to the counsel of the princes and the elders, all his substance should be forfeited, and himself separated from the assembly of the captivity.

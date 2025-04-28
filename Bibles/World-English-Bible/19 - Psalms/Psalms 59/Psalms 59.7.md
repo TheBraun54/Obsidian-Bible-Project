@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, they belch out with their mouth; Swords are in their lips: For who, [say they], doth hear?
+Behold, they spew with their mouth. Swords are in their lips, "For," they say, "who hears us?"

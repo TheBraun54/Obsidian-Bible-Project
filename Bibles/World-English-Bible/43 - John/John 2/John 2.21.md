@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he spake of the temple of his body.
+But he spoke of the temple of his body.

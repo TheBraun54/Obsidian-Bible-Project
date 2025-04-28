@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-receiving the end of your faith, [even] the salvation of [your] souls.
+receiving the result of your faith, the salvation of your souls.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to all that I show thee, the pattern of the tabernacle, and the pattern of all the furniture thereof, even so shall ye make it.
+According to all that I show you, the pattern of the tabernacle, and the pattern of all of its furniture, even so you shall make it.

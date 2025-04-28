@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he instructed me, and talked with me, and said, O Daniel, I am now come forth to give thee wisdom and understanding.
+He instructed me, and talked with me, and said, Daniel, I am now come forth to give you wisdom and understanding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the morrow he seeth Jesus coming unto him, and saith, Behold, the Lamb of God, that taketh away the sin of the world!
+The next day, he saw Jesus coming to him, and said, "Behold, the Lamb of God, who takes away the sin of the world!

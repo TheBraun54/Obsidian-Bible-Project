@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Kenaz: Othniel, and Seraiah. And the sons of Othniel: Hathath.
+The sons of Kenaz: Othniel, and Seraiah. The sons of Othniel: Hathath.

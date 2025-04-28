@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my loins are filled with burning; And there is no soundness in my flesh.
+For my waist is filled with burning. There is no soundness in my flesh.

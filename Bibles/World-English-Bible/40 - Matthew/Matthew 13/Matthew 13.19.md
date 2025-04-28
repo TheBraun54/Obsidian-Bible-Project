@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When any one heareth the word of the kingdom, and understandeth it not, [then] cometh the evil [one], and snatcheth away that which hath been sown in his heart. This is he that was sown by the way side.
+When anyone hears the word of the Kingdom, and doesn't understand it, the evil one comes, and snatches away that which has been sown in his heart. This is what was sown by the roadside.

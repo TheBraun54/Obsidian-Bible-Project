@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the builders, every one had his sword girded by his side, and so builded. And he that sounded the trumpet was by me.
+and the builders, everyone wore his sword at his side, and so built. He who sounded the trumpet was by me.

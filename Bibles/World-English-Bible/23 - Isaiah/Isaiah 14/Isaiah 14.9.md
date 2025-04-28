@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sheol from beneath is moved for thee to meet thee at thy coming; it stirreth up the dead for thee, even all the chief ones of the earth; it hath raised up from their thrones all the kings of the nations.
+Sheol from beneath has moved for you to meet you at your coming. It stirs up the dead for you, even all the rulers of the earth. It has raised up from their thrones all the kings of the nations.

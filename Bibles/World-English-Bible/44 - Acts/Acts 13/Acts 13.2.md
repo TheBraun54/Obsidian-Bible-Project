@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they ministered to the Lord, and fasted, the Holy Spirit said, Separate me Barnabas and Saul for the work whereunto I have called them.
+As they served the Lord and fasted, the Holy Spirit said, "Separate Barnabas and Saul for me, for the work to which I have called them."

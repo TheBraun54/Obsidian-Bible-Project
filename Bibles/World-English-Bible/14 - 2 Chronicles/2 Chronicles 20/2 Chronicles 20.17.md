@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not need to fight in this [battle] : set yourselves, stand ye still, and see the salvation of Jehovah with you, O Judah and Jerusalem; fear not, nor be dismayed: to-morrow go out against them: for Jehovah is with you.
+You will not need to fight this battle. Set yourselves, stand still, and see the salvation of Yahweh with you, O Judah and Jerusalem. Don't be afraid, nor be dismayed. Go out against them tomorrow, for Yahweh is with you.'"

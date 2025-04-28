@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the sons of Reuben the first-born of Israel: Hanoch, and Pallu, Hezron, and Carmi.
+the sons of Reuben the firstborn of Israel: Hanoch, and Pallu, Hezron, and Carmi.

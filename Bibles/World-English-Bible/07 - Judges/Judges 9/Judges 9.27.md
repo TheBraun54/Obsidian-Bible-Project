@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went out into the field, and gathered their vineyards, and trod [the grapes], and held festival, and went into the house of their god, and did eat and drink, and cursed Abimelech.
+They went out into the field, and gathered their vineyards, and trod [the grapes], and held festival, and went into the house of their god, and did eat and drink, and cursed Abimelech.

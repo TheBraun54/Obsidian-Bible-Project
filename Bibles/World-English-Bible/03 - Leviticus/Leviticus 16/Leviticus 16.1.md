@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses, after the death of the two sons of Aaron, when they drew near before Jehovah, and died;
+Yahweh spoke to Moses, after the death of the two sons of Aaron, when they drew near before Yahweh, and died;

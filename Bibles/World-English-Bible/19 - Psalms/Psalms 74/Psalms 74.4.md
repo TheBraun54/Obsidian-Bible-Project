@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine adversaries have roared in the midst of thine assembly; They have set up their ensigns for signs.
+Your adversaries have roared in the midst of your assembly. They have set up their standards as signs.

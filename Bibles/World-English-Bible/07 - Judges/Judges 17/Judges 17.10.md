@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Micah said unto him, Dwell with me, and be unto me a father and a priest, and I will give thee ten [pieces] of silver by the year, and a suit of apparel, and thy victuals. So the Levite went in.
+Micah said to him, "Dwell with me, and be to me a father and a priest, and I will give you ten [pieces] of silver per year, a suit of clothing, and your food." So the Levite went in.

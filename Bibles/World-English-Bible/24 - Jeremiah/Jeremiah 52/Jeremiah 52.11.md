@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put out the eyes of Zedekiah; and the king of Babylon bound him in fetters, and carried him to Babylon, and put him in prison till the day of his death.
+He put out the eyes of Zedekiah; and the king of Babylon bound him in fetters, and carried him to Babylon, and put him in prison until the day of his death.

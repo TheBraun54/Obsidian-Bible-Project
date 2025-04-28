@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye blow an alarm the second time, the camps that lie on the south side shall take their journey: they shall blow an alarm for their journeys.
+When you blow an alarm the second time, the camps that lie on the south side shall go forward. They shall blow an alarm for their journeys.

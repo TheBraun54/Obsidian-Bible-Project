@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from Miletus he sent to Ephesus, and called to him the elders of the church.
+From Miletus he sent to Ephesus, and called to himself the elders of the assembly.

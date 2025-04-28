@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall his brother's wife come unto him in the presence of the elders, and loose his shoe from off his foot, and spit in his face; and she shall answer and say, So shall it be done unto the man that doth not build up his brother's house.
+then his brother's wife shall come to him in the presence of the elders, and loose his shoe from off his foot, and spit in his face; and she shall answer and say, "So shall it be done to the man who does not build up his brother's house."

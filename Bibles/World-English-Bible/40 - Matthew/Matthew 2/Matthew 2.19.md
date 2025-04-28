@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Herod was dead, behold, an angel of the Lord appeareth in a dream to Joseph in Egypt, saying,
+But when Herod was dead, behold, an angel of the Lord appeared in a dream to Joseph in Egypt, saying,

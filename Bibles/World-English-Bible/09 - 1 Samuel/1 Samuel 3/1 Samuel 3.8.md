@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah called Samuel again the third time. And he arose and went to Eli, and said, Here am I; for thou calledst me. And Eli perceived that Jehovah had called the child.
+Yahweh called Samuel again the third time. He arose and went to Eli, and said, "Here I am; for you called me." Eli perceived that Yahweh had called the child.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make haste to help me, O Lord, my salvation.
+Hurry to help me, Lord, my salvation. For the Chief Musician. For Jeduthun. A Psalm by David.

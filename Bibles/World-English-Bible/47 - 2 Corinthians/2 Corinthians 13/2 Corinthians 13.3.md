@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-seeing that ye seek a proof of Christ that speaketh in me; who to you-ward is not weak, but is powerful in you:
+seeing that you seek a proof of Christ who speaks in me; who toward you is not weak, but is powerful in you.

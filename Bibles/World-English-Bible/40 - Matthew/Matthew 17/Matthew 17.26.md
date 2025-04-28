@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he said, From strangers, Jesus said unto him, Therefore the sons are free.
+Peter said to him, "From strangers." Jesus said to him, "Therefore the children are exempt.

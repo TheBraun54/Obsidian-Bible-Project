@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that smiteth his neighbor in secret. And all the people shall say, Amen.
+'Cursed is he who strikes his neighbor in secret.' All the people shall say, 'Amen.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, a day of Jehovah cometh, when thy spoil shall be divided in the midst of thee.
+Behold, a day of Yahweh comes, when your spoil will be divided in your midst.

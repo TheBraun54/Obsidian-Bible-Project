@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come to the house of the ruler of the synagogue; and he beholdeth a tumult, and [many] weeping and wailing greatly.
+He came to the synagogue ruler's house, and he saw an uproar, weeping, and great wailing.

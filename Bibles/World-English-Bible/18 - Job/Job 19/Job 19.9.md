@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath stripped me of my glory, And taken the crown from my head.
+He has stripped me of my glory, and taken the crown from my head.

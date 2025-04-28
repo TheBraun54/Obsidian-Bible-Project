@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, Let me go, I pray thee; for our family hath a sacrifice in the city; and my brother, he hath commanded me [to be there] : and now, if I have found favor in thine eyes, let me get away, I pray thee, and see my brethren. Therefore he is not come unto the king's table.
+He said, 'Please let me go, for our family has a sacrifice in the city. My brother has commanded me to be there. Now, if I have found favor in your eyes, please let me go away and see my brothers.' Therefore he has not come to the king's table."

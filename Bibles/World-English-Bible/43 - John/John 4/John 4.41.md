@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many more believed because of his word;
+Many more believed because of his word.

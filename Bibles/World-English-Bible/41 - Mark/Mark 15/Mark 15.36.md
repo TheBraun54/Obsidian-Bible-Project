@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one ran, and filling a sponge full of vinegar, put it on a reed, and gave him to drink, saying, Let be; let us see whether Elijah cometh to take him down.
+One ran, and filling a sponge full of vinegar, put it on a reed, and gave it to him to drink, saying, "Let him be. Let's see whether Elijah comes to take him down."

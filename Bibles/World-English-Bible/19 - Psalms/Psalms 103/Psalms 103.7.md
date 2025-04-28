@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made known his ways unto Moses, His doings unto the children of Israel.
+He made known his ways to Moses, his deeds to the children of Israel.

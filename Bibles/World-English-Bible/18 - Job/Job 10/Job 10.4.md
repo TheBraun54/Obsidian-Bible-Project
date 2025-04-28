@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou eyes of flesh? Or seest thou as man seeth?
+Do you have eyes of flesh? Or do you see as man sees?

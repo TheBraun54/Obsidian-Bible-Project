@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy servant David's sake Turn not away the face of thine anointed.
+For your servant David's sake, don't turn away the face of your anointed one.

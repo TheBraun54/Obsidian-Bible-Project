@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was called, Tertullus began to accuse him, saying, Seeing that by thee we enjoy much peace, and that by the providence evils are corrected for this nation,
+When he was called, Tertullus began to accuse him, saying, "Seeing that by you we enjoy much peace, and that excellent measures are coming to this nation,

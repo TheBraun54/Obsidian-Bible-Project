@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had accomplished all things that were according to the law of the Lord, they returned into Galilee, to their own city Nazareth.
+When they had accomplished all things that were according to the law of the Lord, they returned into Galilee, to their own city, Nazareth.

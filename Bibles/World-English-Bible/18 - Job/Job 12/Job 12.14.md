@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he breaketh down, and it cannot be built again; He shutteth up a man, and there can be no opening.
+Behold, he breaks down, and it can't be built again. He imprisons a man, and there can be no release.

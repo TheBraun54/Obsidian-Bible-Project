@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I rose up to open to my beloved; And my hands dropped with myrrh, And my fingers with liquid myrrh, Upon the handles of the bolt.
+I rose up to open for my beloved. My hands dripped with myrrh, my fingers with liquid myrrh, on the handles of the lock.

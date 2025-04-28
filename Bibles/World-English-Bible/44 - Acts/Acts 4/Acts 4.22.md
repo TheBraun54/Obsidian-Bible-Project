@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the man was more than forty years old, on whom this miracle of healing was wrought.
+For the man on whom this miracle of healing was performed was more than forty years old.

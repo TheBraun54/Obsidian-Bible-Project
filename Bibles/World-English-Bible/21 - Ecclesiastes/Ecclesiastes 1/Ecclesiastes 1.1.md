@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of the Preacher, the son of David, king in Jerusalem.
+The words of the Preacher, the son of David, king in Jerusalem:

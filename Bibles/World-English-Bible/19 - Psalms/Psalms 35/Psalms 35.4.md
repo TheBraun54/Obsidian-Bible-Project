@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be put to shame and brought to dishonor that seek after my soul: Let them be turned back and confounded that devise my hurt.
+Let those who seek after my soul be disappointed and brought to dishonor. Let those who plot my ruin be turned back and confounded.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And mount Sinai, the whole of it, smoked, because Jehovah descended upon it in fire; and the smoke thereof ascended as the smoke of a furnace, and the whole mount quaked greatly.
+Mount Sinai, all it, smoked, because Yahweh descended on it in fire; and its smoke ascended like the smoke of a furnace, and the whole mountain quaked greatly.

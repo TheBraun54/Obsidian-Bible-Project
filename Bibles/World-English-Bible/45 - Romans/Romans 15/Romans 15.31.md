@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I may be delivered from them that are disobedient in Judaea, and [that] my ministration which [I have] for Jerusalem may be acceptable to the saints;
+that I may be delivered from those who are disobedient in Judea, and that my service which I have for Jerusalem may be acceptable to the saints;

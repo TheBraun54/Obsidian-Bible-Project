@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I answered and said unto the angel that talked with me, What are these, my lord?
+Then I asked the angel who talked with me, "What are these, my lord?"

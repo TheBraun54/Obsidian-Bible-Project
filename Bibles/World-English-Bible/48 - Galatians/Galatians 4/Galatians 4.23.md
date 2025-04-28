@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit the [son] by the handmaid is born after the flesh; but the [son] by the freewoman [is born] through promise.
+However, the son by the handmaid was born according to the flesh, but the son by the free woman was born through promise.

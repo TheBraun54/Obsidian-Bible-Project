@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This day will I begin to put the dread of thee and the fear of thee upon the peoples that are under the whole heaven, who shall hear the report of thee, and shall tremble, and be in anguish because of thee.
+This day will I begin to put the dread of you and the fear of you on the peoples who are under the whole sky, who shall hear the report of you, and shall tremble, and be in anguish because of you."

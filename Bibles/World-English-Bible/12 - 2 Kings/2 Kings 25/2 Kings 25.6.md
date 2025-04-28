@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they took the king, and carried him up unto the king of Babylon to Riblah; and they gave judgment upon him.
+Then they took the king, and carried him up to the king of Babylon to Riblah; and they gave judgment on him.

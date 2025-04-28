@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I testify unto you this day, that I am pure from the blood of all men.
+Therefore I testify to you this day that I am clean from the blood of all men,

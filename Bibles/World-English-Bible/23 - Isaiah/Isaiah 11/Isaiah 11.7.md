@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cow and the bear shall feed; their young ones shall lie down together; and the lion shall eat straw like the ox.
+The cow and the bear will graze. Their young ones will lie down together. The lion will eat straw like the ox.

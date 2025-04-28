@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord, open thou my lips; And my mouth shall show forth thy praise.
+Lord, open my lips. My mouth shall declare your praise.

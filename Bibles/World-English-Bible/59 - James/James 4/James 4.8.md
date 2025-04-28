@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Draw nigh to God, and he will draw nigh to you. Cleanse your hands, ye sinners; and purify your hearts, ye doubleminded.
+Draw near to God, and he will draw near to you. Cleanse your hands, you sinners; and purify your hearts, you double-minded.

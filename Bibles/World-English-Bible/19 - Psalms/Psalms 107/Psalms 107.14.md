@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He brought them out of darkness and the shadow of death, And brake their bonds in sunder.
+He brought them out of darkness and the shadow of death, and broke their bonds in sunder.

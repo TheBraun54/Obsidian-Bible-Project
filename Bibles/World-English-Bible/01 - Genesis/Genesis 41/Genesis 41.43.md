@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he made him to ride in the second chariot which he had: and they cried before him, Bow the knee: and he set him over all the land of Egypt.
+and he made him to ride in the second chariot which he had. They cried before him, "Bow the knee!" He set him over all the land of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he was entering into the boat, he that had been possessed with demons besought him that he might be with him.
+As he was entering into the boat, he who had been possessed by demons begged him that he might be with him.

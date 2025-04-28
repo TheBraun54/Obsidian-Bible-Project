@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph knew his brethren, but they knew not him.
+Joseph recognized his brothers, but they didn't recognize him.

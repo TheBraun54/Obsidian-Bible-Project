@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered Jesus and say, We know not. And Jesus saith unto them, Neither tell I you by what authority I do these things.
+They answered Jesus, "We don't know." Jesus said to them, "Neither do I tell you by what authority I do these things."

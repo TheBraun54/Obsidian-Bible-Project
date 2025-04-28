@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain one of them smote the servant of the high priest, and struck off his right ear.
+A certain one of them struck the servant of the high priest, and cut off his right ear.

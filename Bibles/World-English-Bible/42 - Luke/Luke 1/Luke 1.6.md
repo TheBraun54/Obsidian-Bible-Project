@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were both righteous before God, walking in all the commandments and ordinances of the Lord blameless.
+They were both righteous before God, walking blamelessly in all the commandments and ordinances of the Lord.

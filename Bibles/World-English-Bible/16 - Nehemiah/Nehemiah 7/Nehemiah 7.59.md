@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the children of Shephatiah, the children of Hattil, the children of Pochereth-hazzebaim, the children of Amon.
+the children of Shephatiah, the children of Hattil, the children of Pochereth Hazzebaim, the children of Amon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, an apostle of Christ Jesus according to the commandment of God our Saviour, and Christ Jesus our hope;
+Paul, an apostle of Christ Jesus according to the commandment of God our Savior, and Christ Jesus our hope;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah was with him; whithersoever he went forth he prospered: and he rebelled against the king of Assyria, and served him not.
+Yahweh was with him; wherever he went forth he prospered: and he rebelled against the king of Assyria, and didn't serve him.

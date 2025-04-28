@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he that planteth and he that watereth are one: but each shall receive his own reward according to his own labor.
+Now he who plants and he who waters are the same, but each will receive his own reward according to his own labor.

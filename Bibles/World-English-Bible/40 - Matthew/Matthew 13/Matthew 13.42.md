@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall cast them into the furnace of fire: there shall be the weeping and the gnashing of teeth.
+and will cast them into the furnace of fire. There will be weeping and the gnashing of teeth.

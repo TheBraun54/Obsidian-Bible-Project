@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how he met thee by the way, and smote the hindmost of thee, all that were feeble behind thee, when thou wast faint and weary; and he feared not God.
+how he met you by the way, and struck the hindmost of you, all who were feeble behind you, when you were faint and weary; and he didn't fear God.

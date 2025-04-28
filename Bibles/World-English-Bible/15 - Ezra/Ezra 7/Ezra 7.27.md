@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah, the God of our fathers, who hath put such a thing as this in the king's heart, to beautify the house of Jehovah which is in Jerusalem;
+Blessed be Yahweh, the God of our fathers, who has put such a thing as this in the king's heart, to beautify the house of Yahweh which is in Jerusalem;

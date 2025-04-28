@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he arose and took the young child and his mother by night, and departed into Egypt;
+He arose and took the young child and his mother by night, and departed into Egypt,

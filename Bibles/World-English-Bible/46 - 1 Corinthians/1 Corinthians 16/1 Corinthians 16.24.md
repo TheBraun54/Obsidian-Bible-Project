@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My love be with you all in Christ Jesus. Amen.
+My love to all of you in Christ Jesus. Amen.

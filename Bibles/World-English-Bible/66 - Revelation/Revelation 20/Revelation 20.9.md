@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went up over the breadth of the earth, and compassed the camp of the saints about, and the beloved city: and fire came down out of heaven, and devoured them.
+They went up over the breadth of the earth, and surrounded the camp of the saints, and the beloved city. Fire came down out of heaven from God, and devoured them.

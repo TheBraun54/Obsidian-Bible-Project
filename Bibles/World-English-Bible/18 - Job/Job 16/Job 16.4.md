@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I also could speak as ye do; If your soul were in my soul's stead, I could join words together against you, And shake my head at you.
+I also could speak as you do. If your soul were in my soul's place, I could join words together against you, and shake my head at you,

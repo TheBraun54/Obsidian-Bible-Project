@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I cut asunder mine other staff, even Bands, that I might break the brotherhood between Judah and Israel.
+Then I cut apart my other staff, even Union, that I might break the brotherhood between Judah and Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou drawest nigh unto a city to fight against it, then proclaim peace unto it.
+When you draw near to a city to fight against it, then proclaim peace to it.

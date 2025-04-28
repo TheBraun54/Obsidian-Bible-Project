@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Strive not with a man without cause, If he have done thee no harm.
+Don't strive with a man without cause, if he has done you no harm.

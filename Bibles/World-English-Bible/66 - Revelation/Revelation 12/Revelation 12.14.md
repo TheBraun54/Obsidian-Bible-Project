@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were given to the woman the two wings of the great eagle, that she might fly into the wilderness unto her place, where she is nourished for a time, and times, and half a time, from the face of the serpent.
+Two wings of the great eagle were given to the woman, that she might fly into the wilderness to her place, so that she might be nourished for a time, and times, and half a time, from the face of the serpent.

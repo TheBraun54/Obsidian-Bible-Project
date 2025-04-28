@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul, having tarried after this yet many days, took his leave of the brethren, and sailed thence for Syria, and with him Priscilla and Aquila: having shorn his head in Cenchreae; for he had a vow.
+Paul, having stayed after this many more days, took his leave of the brothers, and sailed from there for Syria, together with Priscilla and Aquila. He shaved his head in Cenchreae, for he had a vow.

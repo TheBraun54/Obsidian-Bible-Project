@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But these things have I spoken unto you, that when their hour is come, ye may remember them, how that I told you. And these things I said not unto you from the beginning, because I was with you.
+But I have told you these things, so that when the time comes, you may remember that I told you about them. I didn't tell you these things from the beginning, because I was with you.

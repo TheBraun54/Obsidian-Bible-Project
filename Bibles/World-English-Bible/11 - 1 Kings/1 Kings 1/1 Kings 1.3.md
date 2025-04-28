@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they sought for a fair damsel throughout all the borders of Israel, and found Abishag the Shunammite, and brought her to the king.
+So they sought for a beautiful young lady throughout all the borders of Israel, and found Abishag the Shunammite, and brought her to the king.

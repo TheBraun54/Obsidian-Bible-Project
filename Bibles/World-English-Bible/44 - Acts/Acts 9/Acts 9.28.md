@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was with them going in and going out at Jerusalem,
+He was with them entering into Jerusalem,

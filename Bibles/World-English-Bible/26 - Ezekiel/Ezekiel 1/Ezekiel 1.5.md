@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the midst thereof came the likeness of four living creatures. And this was their appearance: they had the likeness of a man.
+Out of its midst came the likeness of four living creatures. This was their appearance: they had the likeness of a man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the spirits of the prophets are subject to the prophets;
+The spirits of the prophets are subject to the prophets,

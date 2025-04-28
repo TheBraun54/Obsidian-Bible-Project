@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, when Solomon had made an end of praying all this prayer and supplication unto Jehovah, he arose from before the altar of Jehovah, from kneeling on his knees with his hands spread forth toward heaven.
+It was so, that when Solomon had made an end of praying all this prayer and supplication to Yahweh, he arose from before the altar of Yahweh, from kneeling on his knees with his hands spread forth toward heaven.

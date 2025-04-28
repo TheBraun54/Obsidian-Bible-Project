@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, Thou hast spoken well; I will see thy face again no more.
+Moses said, "You have spoken well. I will see your face again no more."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when in their distress they turned unto Jehovah, the God of Israel, and sought him, he was found of them.
+But when in their distress they turned to Yahweh, the God of Israel, and sought him, he was found by them.

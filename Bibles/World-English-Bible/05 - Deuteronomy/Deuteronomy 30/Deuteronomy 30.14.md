@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the word is very nigh unto thee, in thy mouth, and in thy heart, that thou mayest do it.
+But the word is very near to you, in your mouth, and in your heart, that you may do it.

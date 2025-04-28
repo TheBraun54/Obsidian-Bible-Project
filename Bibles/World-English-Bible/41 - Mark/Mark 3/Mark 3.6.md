@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Pharisees went out, and straightway with the Herodians took counsel against him, how they might destroy him.
+The Pharisees went out, and immediately conspired with the Herodians against him, how they might destroy him.

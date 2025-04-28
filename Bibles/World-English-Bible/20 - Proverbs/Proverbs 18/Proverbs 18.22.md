@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso findeth a wife findeth a good thing, And obtaineth favor of Jehovah.
+Whoever finds a wife finds a good thing, and obtains favor of Yahweh.

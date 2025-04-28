@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is he that will contend with me? For then would I hold my peace and give up the ghost.
+Who is he who will contend with me? For then would I hold my peace and give up the spirit.

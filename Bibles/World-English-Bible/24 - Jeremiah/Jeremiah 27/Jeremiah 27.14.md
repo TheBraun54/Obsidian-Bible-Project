@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And hearken not unto the words of the prophets that speak unto you, saying, Ye shall not serve the king of Babylon; for they prophesy a lie unto you.
+Don't listen to the words of the prophets who speak to you, saying, You shall not serve the king of Babylon; for they prophesy a lie to you.

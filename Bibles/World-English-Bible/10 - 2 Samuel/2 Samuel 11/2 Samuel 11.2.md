@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at eventide, that David arose from off his bed, and walked upon the roof of the king's house: and from the roof he saw a woman bathing; and the woman was very beautiful to look upon.
+It happened at evening, that David arose from off his bed, and walked on the roof of the king's house: and from the roof he saw a woman bathing; and the woman was very beautiful to look on.

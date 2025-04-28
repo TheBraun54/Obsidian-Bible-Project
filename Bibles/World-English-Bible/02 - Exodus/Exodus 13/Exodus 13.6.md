@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seven days thou shalt eat unleavened bread, and in the seventh day shall be a feast to Jehovah.
+Seven days you shall eat unleavened bread, and in the seventh day shall be a feast to Yahweh.

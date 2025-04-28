@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much less man, that is a worm! And the son of man, that is a worm!
+How much less man, who is a worm, the son of man, who is a worm!"

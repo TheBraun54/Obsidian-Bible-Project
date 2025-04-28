@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will send a fire on Magog, and on them that dwell securely in the isles; and they shall know that I am Jehovah.
+I will send a fire on Magog, and on those who dwell securely in the islands; and they shall know that I am Yahweh.

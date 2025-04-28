@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine, O Jehovah, is the greatness, and the power, and the glory, and the victory, and the majesty: for all that is in the heavens and in the earth [is thine] ; thine is the kingdom, O Jehovah, and thou art exalted as head above all.
+Yours, Yahweh, is the greatness, the power, the glory, the victory, and the majesty! For all that is in the heavens and in the earth is yours. Yours is the kingdom, Yahweh, and you are exalted as head above all.

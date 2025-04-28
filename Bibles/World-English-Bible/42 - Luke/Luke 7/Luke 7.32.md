@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are like unto children that sit in the marketplace, and call one to another; who say, We piped unto you, and ye did not dance; we wailed, and ye did not weep.
+They are like children who sit in the marketplace, and call one to another, saying, 'We piped to you, and you didn't dance. We mourned, and you didn't weep.'

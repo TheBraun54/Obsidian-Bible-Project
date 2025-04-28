@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when David had made an end of speaking these words unto Saul, that Saul said, Is this thy voice, my son David? And Saul lifted up his voice, and wept.
+It came to pass, when David had made an end of speaking these words to Saul, that Saul said, "Is this your voice, my son David?" Saul lifted up his voice, and wept.

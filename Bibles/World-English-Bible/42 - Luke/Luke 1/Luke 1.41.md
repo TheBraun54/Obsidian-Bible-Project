@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Elisabeth heard the salutation of Mary, the babe leaped in her womb; and Elisabeth was filled with the Holy Spirit;
+It happened, when Elizabeth heard Mary's greeting, that the baby leaped in her womb, and Elizabeth was filled with the Holy Spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and keep the charge of Jehovah thy God, to walk in his ways, to keep his statutes, [and] his commandments, and his ordinances, and his testimonies, according to that which is written in the law of Moses, that thou mayest prosper in all that thou doest, and whithersoever thou turnest thyself.
+and keep the instruction of Yahweh your God, to walk in his ways, to keep his statutes, his commandments, his ordinances, and his testimonies, according to that which is written in the law of Moses, that you may prosper in all that you do, and wherever you turn yourself.

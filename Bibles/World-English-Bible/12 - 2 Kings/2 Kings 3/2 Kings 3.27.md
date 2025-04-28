@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he took his eldest son that should have reigned in his stead, and offered him for a burnt-offering upon the wall. And there was great wrath against Israel: and they departed from him, and returned to their own land.
+Then he took his eldest son who would have reigned in his place, and offered him for a burnt offering on the wall. There was great wrath against Israel: and they departed from him, and returned to their own land.

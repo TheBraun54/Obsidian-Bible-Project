@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of the Pharisees from the multitude said unto him, Teacher, rebuke thy disciples.
+Some of the Pharisees from the multitude said to him, "Teacher, rebuke your disciples!"

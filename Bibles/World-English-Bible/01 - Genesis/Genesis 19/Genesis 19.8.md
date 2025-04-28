@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold now, I have two daughters that have not known man; let me, I pray you, bring them out unto you, and do ye to them as is good in your eyes: only unto these men do nothing, forasmuch as they are come under the shadow of my roof.
+See now, I have two virgin daughters. Please let me bring them out to you, and you may do to them what seems good to you. Only don't do anything to these men, because they have come under the shadow of my roof."

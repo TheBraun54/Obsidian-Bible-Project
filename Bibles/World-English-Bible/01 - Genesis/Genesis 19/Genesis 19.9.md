@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Stand back. And they said, This one fellow came in to sojourn, and he will needs be a judge: now will we deal worse with thee, than with them. And they pressed sore upon the man, even Lot, and drew near to break the door.
+They said, "Stand back!" Then they said, "This one fellow came in to live as a foreigner, and he appoints himself a judge. Now will we deal worse with you, than with them!" They pressed hard on the man Lot, and drew near to break the door.

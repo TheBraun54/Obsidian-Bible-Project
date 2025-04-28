@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they buried him in his own sepulchres, which he had hewn out for himself in the city of David, and laid him in the bed which was filled with sweet odors and divers kinds [of spices] prepared by the perfumers' art: and they made a very great burning for him.
+They buried him in his own tombs, which he had dug out for himself in the city of David, and laid him in the bed which was filled with sweet odors and various kinds [of spices] prepared by the perfumers' art: and they made a very great burning for him.

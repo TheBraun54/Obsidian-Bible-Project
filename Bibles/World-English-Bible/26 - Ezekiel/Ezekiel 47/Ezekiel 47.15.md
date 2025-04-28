@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be the border of the land: On the north side, from the great sea, by the way of Hethlon, unto the entrance of Zedad;
+This shall be the border of the land: On the north side, from the great sea, by the way of Hethlon, to the entrance of Zedad;

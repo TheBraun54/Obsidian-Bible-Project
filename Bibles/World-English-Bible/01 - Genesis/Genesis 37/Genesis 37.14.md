@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said to him, Go now, see whether it is well with thy brethren, and well with the flock; and bring me word again. So he sent him out of the vale of Hebron, and he came to Shechem.
+He said to him, "Go now, see whether it is well with your brothers, and well with the flock; and bring me word again." So he sent him out of the valley of Hebron, and he came to Shechem.

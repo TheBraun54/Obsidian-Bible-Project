@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy shoots are an orchard of pomegranates, with precious fruits; Henna with spikenard plants,
+Your shoots are an orchard of pomegranates, with precious fruits: henna with spikenard plants,

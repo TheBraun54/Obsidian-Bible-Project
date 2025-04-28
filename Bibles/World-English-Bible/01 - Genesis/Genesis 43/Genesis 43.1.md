@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the famine was sore in the land.
+The famine was severe in the land.

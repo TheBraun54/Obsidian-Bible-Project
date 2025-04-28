@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus speaketh Jehovah, the God of Israel, saying, Write thee all the words that I have spoken unto thee in a book.
+Thus speaks Yahweh, the God of Israel, saying, Write all the words that I have spoken to you in a book.

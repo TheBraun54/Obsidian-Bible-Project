@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Daniel returned answer with counsel and prudence to Arioch the captain of the king's guard, who was gone forth to slay the wise men of Babylon;
+Then Daniel returned answer with counsel and prudence to Arioch the captain of the king's guard, who was gone forth to kill the wise men of Babylon;

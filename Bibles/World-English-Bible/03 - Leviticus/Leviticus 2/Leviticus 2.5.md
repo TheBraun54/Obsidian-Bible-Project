@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy oblation be a meal-offering of the baking-pan, it shall be of fine flour unleavened, mingled with oil.
+If your offering is a meal offering of the griddle, it shall be of unleavened fine flour, mixed with oil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, darkness shall cover the earth, and gross darkness the peoples; but Jehovah will arise upon thee, and his glory shall be seen upon thee.
+For, behold, darkness shall cover the earth, and gross darkness the peoples; but Yahweh will arise on you, and his glory shall be seen on you.

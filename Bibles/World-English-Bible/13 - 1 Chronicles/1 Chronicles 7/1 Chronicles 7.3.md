@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Uzzi: Izrahiah. And the sons of Izrahiah: Michael, and Obadiah, and Joel, Isshiah, five; all of them chief men.
+The sons of Uzzi: Izrahiah. The sons of Izrahiah: Michael, and Obadiah, and Joel, Isshiah, five; all of them chief men.

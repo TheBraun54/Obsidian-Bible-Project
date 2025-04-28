@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answering them said, Have ye not read even this, what David did, when he was hungry, he, and they that were with him;
+Jesus, answering them, said, "Haven't you read what David did when he was hungry, he, and those who were with him;

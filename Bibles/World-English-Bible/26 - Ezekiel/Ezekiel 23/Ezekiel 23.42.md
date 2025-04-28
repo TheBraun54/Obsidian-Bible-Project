@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the voice of a multitude being at ease was with her: and with men of the common sort were brought drunkards from the wilderness; and they put bracelets upon the hands of them [twain], and beautiful crowns upon their heads.
+The voice of a multitude being at ease was with her: and with men of the common sort were brought drunkards from the wilderness; and they put bracelets on the hands of them [twain], and beautiful crowns on their heads.

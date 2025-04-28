@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Babylon slew the sons of Zedekiah before his eyes: he slew also all the princes of Judah in Riblah.
+The king of Babylon killed the sons of Zedekiah before his eyes: he killed also all the princes of Judah in Riblah.

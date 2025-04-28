@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob took him rods of fresh poplar, and of the almond and of the plane-tree; and peeled white streaks in them, and made the white appear which was in the rods.
+Jacob took to himself rods of fresh poplar, almond, plane tree, peeled white streaks in them, and made the white appear which was in the rods.

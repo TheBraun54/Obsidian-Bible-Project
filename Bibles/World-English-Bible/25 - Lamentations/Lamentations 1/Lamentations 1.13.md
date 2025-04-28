@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From on high hath he sent fire into my bones, and it prevaileth against them; He hath spread a net for my feet, he hath turned me back: He hath made me desolate and faint all the day.
+From on high has he sent fire into my bones, and it prevails against them; He has spread a net for my feet, he has turned me back: He has made me desolate and faint all the day.

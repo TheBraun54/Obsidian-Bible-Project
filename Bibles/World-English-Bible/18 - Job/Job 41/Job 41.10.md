@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None is so fierce that he dare stir him up; Who then is he that can stand before me?
+None is so fierce that he dare stir him up. Who then is he who can stand before me?

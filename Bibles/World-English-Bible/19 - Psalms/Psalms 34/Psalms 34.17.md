@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ The righteous] cried, and Jehovah heard, And delivered them out of all their troubles.
+The righteous cry, and Yahweh hears, and delivers them out of all their troubles.

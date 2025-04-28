@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth not he see my ways, And number all my steps?
+Doesn't he see my ways, and number all my steps?

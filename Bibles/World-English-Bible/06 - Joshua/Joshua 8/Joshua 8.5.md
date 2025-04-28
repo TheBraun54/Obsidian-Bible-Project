@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I, and all the people that are with me, will approach unto the city. And it shall come to pass, when they come out against us, as at the first, that we will flee before them;
+I, and all the people who are with me, will approach to the city. It shall happen, when they come out against us, as at the first, that we will flee before them.

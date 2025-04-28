@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Rise up early in the morning, and stand before Pharaoh; lo, he cometh forth to the water; and say unto him, Thus saith Jehovah, Let my people go, that they may serve me.
+Yahweh said to Moses, "Rise up early in the morning, and stand before Pharaoh; behold, he comes forth to the water; and tell him, 'This is what Yahweh says, "Let my people go, that they may serve me.

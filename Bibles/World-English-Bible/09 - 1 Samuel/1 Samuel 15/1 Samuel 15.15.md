@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, They have brought them from the Amalekites: for the people spared the best of the sheep and of the oxen, to sacrifice unto Jehovah thy God; and the rest we have utterly destroyed.
+Saul said, "They have brought them from the Amalekites; for the people spared the best of the sheep and of the cattle, to sacrifice to Yahweh your God. We have utterly destroyed the rest."

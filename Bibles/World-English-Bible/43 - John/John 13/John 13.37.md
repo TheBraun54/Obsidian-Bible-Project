@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter saith unto him, Lord, why cannot I follow thee even now? I will lay down my life for thee.
+Peter said to him, "Lord, why can't I follow you now? I will lay down my life for you."

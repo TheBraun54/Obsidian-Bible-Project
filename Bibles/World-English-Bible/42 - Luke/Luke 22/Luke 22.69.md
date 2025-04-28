@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But from henceforth shall the Son of man be seated at the right hand of the power of God.
+From now on, the Son of Man will be seated at the right hand of the power of God."

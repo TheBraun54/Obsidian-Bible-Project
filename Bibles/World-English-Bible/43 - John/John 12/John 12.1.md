@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore six days before the passover came to Bethany, where Lazarus was, whom Jesus raised from the dead.
+Then six days before the Passover, Jesus came to Bethany, where Lazarus was, who had been dead, whom he raised from the dead.

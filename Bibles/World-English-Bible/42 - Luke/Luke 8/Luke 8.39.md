@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return to thy house, and declare how great things God hath done for thee. And he went his way, publishing throughout the whole city how great things Jesus had done for him.
+"Return to your house, and declare what great things God has done for you." He went his way, proclaiming throughout the whole city what great things Jesus had done for him.

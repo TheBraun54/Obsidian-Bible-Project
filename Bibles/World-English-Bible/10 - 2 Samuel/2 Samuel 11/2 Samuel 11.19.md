@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he charged the messenger, saying, When thou hast made an end of telling all the things concerning the war unto the king,
+and he commanded the messenger, saying, "When you have finished telling all the things concerning the war to the king,

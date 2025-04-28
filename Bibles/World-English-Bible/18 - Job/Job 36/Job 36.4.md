@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For truly my words are not false: One that is perfect in knowledge is with thee.
+For truly my words are not false. One who is perfect in knowledge is with you.

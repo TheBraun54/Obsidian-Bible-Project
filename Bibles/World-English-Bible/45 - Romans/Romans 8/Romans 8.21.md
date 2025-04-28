@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the creation itself also shall be delivered from the bondage of corruption into the liberty of the glory of the children of God.
+that the creation itself also will be delivered from the bondage of decay into the liberty of the glory of the children of God.

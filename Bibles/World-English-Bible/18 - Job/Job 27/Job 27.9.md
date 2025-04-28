@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will God hear his cry, When trouble cometh upon him?
+Will God hear his cry when trouble comes on him?

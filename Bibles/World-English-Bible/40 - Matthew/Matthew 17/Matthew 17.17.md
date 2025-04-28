@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said, O faithless and perverse generation, how long shall I be with you? how long shall I bear with you? bring him hither to me.
+Jesus answered, "Faithless and perverse generation! How long will I be with you? How long will I bear with you? Bring him here to me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus did not trust himself unto them, for that he knew all men,
+But Jesus didn't trust himself to them, because he knew everyone,

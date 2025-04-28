@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus all the work that king Solomon wrought in the house of Jehovah was finished. And Solomon brought in the things which David his father had dedicated, [even] the silver, and the gold, and the vessels, and put them in the treasuries of the house of Jehovah.
+Thus all the work that king Solomon worked in the house of Yahweh was finished. Solomon brought in the things which David his father had dedicated, [even] the silver, and the gold, and the vessels, and put them in the treasuries of the house of Yahweh.

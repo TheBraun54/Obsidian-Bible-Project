@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was right in the eyes of Jehovah, according to all that David his father had done.
+He did that which was right in the eyes of Yahweh, according to all that David his father had done.

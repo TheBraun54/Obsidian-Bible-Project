@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye are not come unto [a mount] that might be touched, and that burned with fire, and unto blackness, and darkness, and tempest,
+For you have not come to a mountain that might be touched, and that burned with fire, and to blackness, darkness, storm,

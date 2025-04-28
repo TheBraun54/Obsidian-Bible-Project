@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy words were found, and I did eat them; and thy words were unto me a joy and the rejoicing of my heart: for I am called by thy name, O Jehovah, God of hosts.
+Your words were found, and I ate them; and your words were to me a joy and the rejoicing of my heart: for I am called by your name, Yahweh, God of Armies.

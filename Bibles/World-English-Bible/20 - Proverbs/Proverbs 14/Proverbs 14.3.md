@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the mouth of the foolish is a rod for [his] pride; But the lips of the wise shall preserve them.
+The fool's talk brings a rod to his back, but the lips of the wise protect them.

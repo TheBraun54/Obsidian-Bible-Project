@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And make ye marriages with us; give your daughters unto us, and take our daughters unto you.
+Make marriages with us. Give your daughters to us, and take our daughters for yourselves.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their land is full of silver and gold, neither is there any end of their treasures; their land also is full of horses, neither is there any end of their chariots.
+Their land is full of silver and gold, neither is there any end of their treasures. Their land also is full of horses, neither is there any end of their chariots.

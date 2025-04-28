@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt be profaned in thyself, in the sight of the nations; and thou shalt know that I am Jehovah.
+You shall be profaned in yourself, in the sight of the nations; and you shall know that I am Yahweh.

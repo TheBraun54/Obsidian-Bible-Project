@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but its inwards and its legs shall he wash with water. And the priest shall burn the whole on the altar, for a burnt-offering, an offering made by fire, of a sweet savor unto Jehovah.
+but its innards and its legs he shall wash with water. The priest shall burn the whole on the altar, for a burnt offering, an offering made by fire, of a pleasant aroma to Yahweh.

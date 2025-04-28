@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seven years of famine began to come, according as Joseph had said: and there was famine in all lands; but in all the land of Egypt there was bread.
+The seven years of famine began to come, just as Joseph had said. There was famine in all lands, but in all the land of Egypt there was bread.

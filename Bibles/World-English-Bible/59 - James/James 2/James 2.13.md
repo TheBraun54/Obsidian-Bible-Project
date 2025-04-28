@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For judgment [is] without mercy to him that hath showed no mercy: mercy glorieth against judgment.
+For judgment is without mercy to him who has shown no mercy. Mercy triumphs over judgment.

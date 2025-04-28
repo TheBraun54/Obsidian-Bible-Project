@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gathered men unto him, and became captain over a troop, when David slew them [of Zobah] : and they went to Damascus, and dwelt therein, and reigned in Damascus.
+He gathered men to him, and became captain over a troop, when David killed them [of Zobah]: and they went to Damascus, and lived therein, and reigned in Damascus.

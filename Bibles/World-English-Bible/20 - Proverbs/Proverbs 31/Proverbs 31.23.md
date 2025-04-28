@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her husband is known in the gates, When he sitteth among the elders of the land.
+Her husband is respected in the gates, when he sits among the elders of the land.

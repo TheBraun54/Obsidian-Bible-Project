@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the days that Adam lived were nine hundred and thirty years: and he died.
+All the days that Adam lived were nine hundred thirty years, then he died.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For out of Jerusalem shall go forth a remnant, and out of mount Zion they that shall escape: the zeal of Jehovah shall perform this.
+For out of Jerusalem a remnant will go out, and out of Mount Zion those who shall escape. The zeal of Yahweh will perform this.'

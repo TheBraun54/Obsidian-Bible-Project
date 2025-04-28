@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy riches, and thy wares, thy merchandise, thy mariners, and thy pilots, thy calkers, and the dealers in thy merchandise, and all thy men of war, that are in thee, with all thy company which is in the midst of thee, shall fall into the heart of the seas in the day of thy ruin.
+Your riches, and your wares, your merchandise, your mariners, and your pilots, your repairers of ship seams, and the dealers in your merchandise, and all your men of war, who are in you, with all your company which is in the midst of you, shall fall into the heart of the seas in the day of your ruin.

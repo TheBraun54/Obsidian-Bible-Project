@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Shallum begat Hilkiah, and Hilkiah begat Azariah,
+and Shallum became the father of Hilkiah, and Hilkiah became the father of Azariah,

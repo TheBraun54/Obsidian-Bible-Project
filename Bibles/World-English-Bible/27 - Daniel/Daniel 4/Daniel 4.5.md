@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw a dream which made me afraid; and the thoughts upon my bed and the visions of my head troubled me.
+I saw a dream which made me afraid; and the thoughts on my bed and the visions of my head troubled me.

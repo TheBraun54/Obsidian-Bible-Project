@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the mountains shall be melted under him, and the valleys shall be cleft, as wax before the fire, as waters that are poured down a steep place.
+The mountains melt under him, and the valleys split apart, like wax before the fire, like waters that are poured down a steep place.

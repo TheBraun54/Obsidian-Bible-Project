@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Saul unto the people that were with him, Number now, and see who is gone from us. And when they had numbered, behold, Jonathan and his armorbearer were not there.
+Then Saul said to the people who were with him, "Count now, and see who is missing from us." When they had counted, behold, Jonathan and his armor bearer were not there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the dove found no rest for the sole of her foot, and she returned unto him to the ark; for the waters were on the face of the whole earth: and he put forth his hand, and took her, and brought her in unto him into the ark.
+but the dove found no place to rest her foot, and she returned to him into the ship; for the waters were on the surface of the whole earth. He put forth his hand, and took her, and brought her to him into the ship.

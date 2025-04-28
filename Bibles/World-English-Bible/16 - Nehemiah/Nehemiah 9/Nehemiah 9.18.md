@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, when they had made them a molten calf, and said, This is thy God that brought thee up out of Egypt, and had wrought great provocations;
+Yes, when they had made them a molten calf, and said, 'This is your God who brought you up out of Egypt,' and had committed awful blasphemies;

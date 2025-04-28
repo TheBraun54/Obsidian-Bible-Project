@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all that heard him were amazed at his understanding and his answers.
+All who heard him were amazed at his understanding and his answers.

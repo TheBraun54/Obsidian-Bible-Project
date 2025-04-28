@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But my lovingkindness will I not utterly take from him, Nor suffer my faithfulness to fail.
+But I will not completely take my loving kindness from him, nor allow my faithfulness to fail.

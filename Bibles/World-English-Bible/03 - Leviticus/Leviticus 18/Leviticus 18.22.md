@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not lie with mankind, as with womankind: it is abomination.
+"'You shall not lie with a man, as with a woman. That is detestable.

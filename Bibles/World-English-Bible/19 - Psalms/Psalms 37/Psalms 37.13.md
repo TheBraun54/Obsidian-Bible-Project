@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord will laugh at him; For he seeth that his day is coming.
+The Lord will laugh at him, for he sees that his day is coming.

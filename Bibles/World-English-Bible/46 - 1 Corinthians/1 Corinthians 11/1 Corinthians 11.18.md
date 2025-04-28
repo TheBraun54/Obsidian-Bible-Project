@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For first of all, when ye come together in the church, I hear that divisions exist among you; and I partly believe it.
+For first of all, when you come together in the assembly, I hear that divisions exist among you, and I partly believe it.

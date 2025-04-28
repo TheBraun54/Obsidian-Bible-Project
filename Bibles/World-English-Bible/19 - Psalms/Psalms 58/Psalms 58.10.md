@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous shall rejoice when he seeth the vengeance: He shall wash his feet in the blood of the wicked;
+The righteous shall rejoice when he sees the vengeance. He shall wash his feet in the blood of the wicked;

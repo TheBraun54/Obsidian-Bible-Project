@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus thou calledst to remembrance the lewdness of thy youth, in the handling of thy bosom by the Egyptians for the breasts of thy youth.
+Thus you called to memory the lewdness of your youth, in the handling of your bosom by the Egyptians for the breasts of your youth.

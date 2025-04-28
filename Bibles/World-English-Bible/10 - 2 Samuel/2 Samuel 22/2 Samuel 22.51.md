@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Great deliverance giveth he to his king, And showeth lovingkindness to his anointed, To David and to his seed, for evermore.
+He gives great deliverance to his king, and shows loving kindness to his anointed, to David and to his seed, forevermore."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto them is fulfilled the prophecy of Isaiah, which saith, By hearing ye shall hear, and shall in no wise understand; And seeing ye shall see, and shall in no wise perceive:
+In them the prophecy of Isaiah is fulfilled, which says, 'By hearing you will hear, and will in no way understand; Seeing you will see, and will in no way perceive:

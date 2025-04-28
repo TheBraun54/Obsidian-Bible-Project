@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus said the Lord Jehovah, the Holy One of Israel, In returning and rest shall ye be saved; in quietness and in confidence shall be your strength. And ye would not:
+For thus said the Lord Yahweh, the Holy One of Israel, "You will be saved in returning and rest. Your strength will be in quietness and in confidence." You refused,

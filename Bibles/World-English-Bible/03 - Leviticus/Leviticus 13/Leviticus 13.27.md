@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look upon him the seventh day: if it spread abroad in the skin, then the priest shall pronounce him unclean: it is the plague of leprosy.
+The priest shall examine him on the seventh day. If it has spread in the skin, then the priest shall pronounce him unclean. It is the plague of leprosy.

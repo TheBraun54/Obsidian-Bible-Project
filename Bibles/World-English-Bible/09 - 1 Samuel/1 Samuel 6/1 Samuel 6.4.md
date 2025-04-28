@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said they, What shall be the trespass-offering which we shall return to him? And they said, Five golden tumors, and five golden mice, [according to] the number of the lords of the Philistines; for one plague was on you all, and on your lords.
+Then they said, "What shall be the trespass offering which we shall return to him?" They said, "Five golden tumors, and five golden mice, [according to] the number of the lords of the Philistines; for one plague was on you all, and on your lords.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David recovered all that the Amalekites had taken; and David rescued his two wives.
+David recovered all that the Amalekites had taken; and David rescued his two wives.

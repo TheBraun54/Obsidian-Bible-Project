@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it is come to pass after all thy wickedness, (woe, woe unto thee! saith the Lord Jehovah,)
+It has happened after all your wickedness, (woe, woe to you! says the Lord Yahweh),

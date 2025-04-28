@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jarmuth, and Adullam, Socoh, and Azekah,
+Jarmuth, Adullam, Socoh, Azekah,

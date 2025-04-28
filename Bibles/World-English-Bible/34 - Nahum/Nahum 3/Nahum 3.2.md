@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The noise of the whip, and the noise of the rattling of wheels, and prancing horses, and bounding chariots,
+The noise of the whip, the noise of the rattling of wheels, prancing horses, and bounding chariots,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for we are sold, I and my people, to be destroyed, to be slain, and to perish. But if we had been sold for bondmen and bondwomen, I had held my peace, although the adversary could not have compensated for the king's damage.
+For we are sold, I and my people, to be destroyed, to be slain, and to perish. But if we had been sold for bondservants and bondmaids, I would have held my peace, although the adversary could not have compensated for the king's loss."

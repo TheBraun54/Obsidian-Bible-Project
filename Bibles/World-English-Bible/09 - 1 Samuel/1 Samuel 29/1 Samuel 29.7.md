@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore now return, and go in peace, that thou displease not the lords of the Philistines.
+Therefore now return, and go in peace, that you not displease the lords of the Philistines."

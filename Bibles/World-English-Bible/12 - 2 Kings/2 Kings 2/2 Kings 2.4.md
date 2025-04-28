@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah said unto him, Elisha, tarry here, I pray thee; for Jehovah hath sent me to Jericho. And he said, As Jehovah liveth, and as thy soul liveth, I will not leave thee. So they came to Jericho.
+Elijah said to him, "Elisha, please wait here, for Yahweh has sent me to Jericho." He said, "As Yahweh lives, and as your soul lives, I will not leave you." So they came to Jericho.

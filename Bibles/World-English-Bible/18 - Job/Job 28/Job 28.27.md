@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then did he see it, and declare it; He established it, yea, and searched it out.
+then he saw it, and declared it. He established it, yes, and searched it out.

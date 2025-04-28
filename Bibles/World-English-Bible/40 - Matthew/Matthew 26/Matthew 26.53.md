@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or thinkest thou that I cannot beseech my Father, and he shall even now send me more than twelve legions of angels?
+Or do you think that I couldn't ask my Father, and he would even now send me more than twelve legions of angels?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the disciples heard it, they were astonished exceedingly, saying, Who then can be saved?
+When the disciples heard it, they were exceedingly astonished, saying, "Who then can be saved?"

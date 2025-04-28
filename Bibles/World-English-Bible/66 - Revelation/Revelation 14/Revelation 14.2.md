@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard a voice from heaven, as the voice of many waters, and as the voice of a great thunder: and the voice which I heard [was] as [the voice] of harpers harping with their harps:
+I heard a sound from heaven, like the sound of many waters, and like the sound of a great thunder. The sound which I heard was like that of harpists playing on their harps.

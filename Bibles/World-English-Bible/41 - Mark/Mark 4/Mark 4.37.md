@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there ariseth a great storm of wind, and the waves beat into the boat, insomuch that the boat was now filling.
+A big wind storm arose, and the waves beat into the boat, so much that the boat was already filled.

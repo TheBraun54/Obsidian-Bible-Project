@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hold your peace, let me alone, that I may speak; And let come on me what will.
+"Be silent, leave me alone, that I may speak. Let come on me what will.

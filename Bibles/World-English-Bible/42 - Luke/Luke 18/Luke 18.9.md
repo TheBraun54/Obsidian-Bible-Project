@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake also this parable unto certain who trusted in themselves that they were righteous, and set all others at nought:
+He spoke also this parable to certain people who were convinced of their own righteousness, and who despised all others.

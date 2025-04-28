@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when we heard these things, both we and they of that place besought him not to go up to Jerusalem.
+When we heard these things, both we and they of that place begged him not to go up to Jerusalem.

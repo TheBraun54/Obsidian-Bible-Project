@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now concerning the collection for the saints, as I gave order to the churches of Galatia, so also do ye.
+Now concerning the collection for the saints, as I commanded the assemblies of Galatia, you do likewise.

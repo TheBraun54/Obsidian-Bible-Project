@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Watch ye, stand fast in the faith, quit you like men, be strong.
+Watch! Stand firm in the faith! Be courageous! Be strong!

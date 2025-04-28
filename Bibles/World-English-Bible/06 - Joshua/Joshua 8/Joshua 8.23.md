@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Ai they took alive, and brought him to Joshua.
+They captured the king of Ai alive, and brought him to Joshua.

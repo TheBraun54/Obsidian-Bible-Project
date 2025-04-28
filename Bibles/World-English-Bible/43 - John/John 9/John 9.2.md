@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his disciples asked him, saying, Rabbi, who sinned, this man, or his parents, that he should be born blind?
+His disciples asked him, "Rabbi, who sinned, this man or his parents, that he was born blind?"

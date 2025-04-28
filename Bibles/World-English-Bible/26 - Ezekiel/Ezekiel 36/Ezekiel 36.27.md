@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will put my Spirit within you, and cause you to walk in my statutes, and ye shall keep mine ordinances, and do them.
+I will put my Spirit within you, and cause you to walk in my statutes, and you shall keep my ordinances, and do them.

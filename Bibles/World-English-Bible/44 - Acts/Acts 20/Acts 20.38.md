@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-sorrowing most of all for the word which he had spoken, that they should behold his face no more. And they brought him on his way unto the ship.
+sorrowing most of all because of the word which he had spoken, that they should see his face no more. And they accompanied him to the ship.

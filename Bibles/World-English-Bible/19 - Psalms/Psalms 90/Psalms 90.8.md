@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast set our iniquities before thee, Our secret sins in the light of thy countenance.
+You have set our iniquities before you, our secret sins in the light of your presence.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In his neck abideth strength, And terror danceth before him.
+There is strength in his neck. Terror dances before him.

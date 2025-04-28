@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, my servants shall sing for joy of heart, but ye shall cry for sorrow of heart, and shall wail for vexation of spirit.
+behold, my servants shall sing for joy of heart, but you shall cry for sorrow of heart, and shall wail for anguish of spirit.

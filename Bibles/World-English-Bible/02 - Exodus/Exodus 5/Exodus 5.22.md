@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses returned unto Jehovah, and said, Lord, wherefore hast thou dealt ill with this people? why is it that thou hast sent me?
+Moses returned to Yahweh, and said, "Lord, why have you brought trouble on this people? Why is it that you have sent me?

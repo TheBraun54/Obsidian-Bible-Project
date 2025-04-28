@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And be not drunken with wine, wherein is riot, but be filled with the Spirit;
+Don't be drunken with wine, in which is dissipation, but be filled with the Spirit,

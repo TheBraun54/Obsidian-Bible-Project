@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, lo, it was all grown over with thorns, The face thereof was covered with nettles, And the stone wall thereof was broken down.
+Behold, it was all grown over with thorns. Its surface was covered with nettles, and its stone wall was broken down.

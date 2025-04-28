@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of them were persuaded, and consorted with Paul and Silas, and of the devout Greeks a great multitude, and of the chief women not a few.
+Some of them were persuaded, and joined Paul and Silas, of the devout Greeks a great multitude, and not a few of the chief women.

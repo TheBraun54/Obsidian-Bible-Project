@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Zedekiah king of Judah had shut him up, saying, Wherefore dost thou prophesy, and say, Thus saith Jehovah, Behold, I will give this city into the hand of the king of Babylon, and he shall take it;
+For Zedekiah king of Judah had shut him up, saying, Why do you prophesy, and say, Thus says Yahweh, Behold, I will give this city into the hand of the king of Babylon, and he shall take it;

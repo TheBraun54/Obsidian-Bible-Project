@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore fear Jehovah, and serve him in sincerity and in truth; and put away the gods which your fathers served beyond the River, and in Egypt; and serve ye Jehovah.
+"Now therefore fear Yahweh, and serve him in sincerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve Yahweh.

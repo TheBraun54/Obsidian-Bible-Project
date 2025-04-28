@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah also shall fight at Jerusalem; and the wealth of all the nations round about shall be gathered together, gold, and silver, and apparel, in great abundance.
+Judah also will fight at Jerusalem; and the wealth of all the surrounding nations will be gathered together: gold, and silver, and clothing, in great abundance.

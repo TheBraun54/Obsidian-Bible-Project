@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall dash thee to the ground, and thy children within thee; and they shall not leave in thee one stone upon another; because thou knewest not the time of thy visitation.
+and will dash you and your children within you to the ground. They will not leave in you one stone on another, because you didn't know the time of your visitation."

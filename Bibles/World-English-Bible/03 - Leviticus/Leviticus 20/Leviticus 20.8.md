@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall keep my statutes, and do them: I am Jehovah who sanctifieth you.
+You shall keep my statutes, and do them. I am Yahweh who sanctifies you.

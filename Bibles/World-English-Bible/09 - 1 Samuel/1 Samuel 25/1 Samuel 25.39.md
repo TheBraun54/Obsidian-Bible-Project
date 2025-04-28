@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when David heard that Nabal was dead, he said, Blessed be Jehovah, that hath pleaded the cause of my reproach from the hand of Nabal, and hath kept back his servant from evil: and the evil-doing of Nabal hath Jehovah returned upon his own head. And David sent and spake concerning Abigail, to take her to him to wife.
+When David heard that Nabal was dead, he said, "Blessed is Yahweh, who has pleaded the cause of my reproach from the hand of Nabal, and has kept back his servant from evil. Yahweh has returned the evildoing of Nabal on his own head." David sent and spoke concerning Abigail, to take her to him as wife.

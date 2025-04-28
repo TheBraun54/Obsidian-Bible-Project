@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but glory and honor and peace to every man that worketh good, to the Jew first, and also to the Greek:
+But glory, honor, and peace go to every man who works good, to the Jew first, and also to the Greek.

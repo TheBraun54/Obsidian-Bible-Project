@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the three days and a half the breath of life from God entered into them, and they stood upon their feet; and great fear fell upon them that beheld them.
+After the three and a half days, the breath of life from God entered into them, and they stood on their feet. Great fear fell on those who saw them.

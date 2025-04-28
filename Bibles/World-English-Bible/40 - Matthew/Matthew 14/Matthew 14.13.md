@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Jesus heard [it], he withdrew from thence in a boat, to a desert place apart: and when the multitudes heard [thereof], they followed him on foot from the cities.
+Now when Jesus heard this, he withdrew from there in a boat, to a deserted place apart. When the multitudes heard it, they followed him on foot from the cities.

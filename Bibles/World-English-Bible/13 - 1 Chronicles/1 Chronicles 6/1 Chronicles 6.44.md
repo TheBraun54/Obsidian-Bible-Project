@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the left hand their brethren the sons of Merari: Ethan the son of Kishi, the son of Abdi, the son of Malluch,
+On the left hand their brothers the sons of Merari: Ethan the son of Kishi, the son of Abdi, the son of Malluch,

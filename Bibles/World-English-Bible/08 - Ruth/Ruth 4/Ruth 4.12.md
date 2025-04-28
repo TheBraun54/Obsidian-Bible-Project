@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let thy house be like the house of Perez, whom Tamar bare unto Judah, of the seed which Jehovah shall give thee of this young woman.
+Let your house be like the house of Perez, whom Tamar bore to Judah, of the seed which Yahweh shall give you of this young woman."

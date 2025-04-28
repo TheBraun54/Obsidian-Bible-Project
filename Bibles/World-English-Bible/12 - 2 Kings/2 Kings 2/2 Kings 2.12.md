@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha saw it, and he cried, My father, my father, the chariots of Israel and the horsemen thereof! And he saw him no more: and he took hold of his own clothes, and rent them in two pieces. [
+Elisha saw it, and he cried, "My father, my father, the chariots of Israel and its horsemen!" He saw him no more: and he took hold of his own clothes, and tore them in two pieces.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the inhabitant of Maroth waiteth anxiously for good, because evil is come down from Jehovah unto the gate of Jerusalem.
+For the inhabitant of Maroth waits anxiously for good, because evil has come down from Yahweh to the gate of Jerusalem.

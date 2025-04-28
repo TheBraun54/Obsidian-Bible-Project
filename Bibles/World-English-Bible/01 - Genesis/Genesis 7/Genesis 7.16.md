@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that went in, went in male and female of all flesh, as God commanded him: and Jehovah shut him in.
+Those who went in, went in male and female of all flesh, as God commanded him; and Yahweh shut him in.

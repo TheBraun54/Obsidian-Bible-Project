@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whether it be good, or whether it be evil, we will obey the voice of Jehovah our God, to whom we send thee; that it may be well with us, when we obey the voice of Jehovah our God.
+Whether it be good, or whether it be evil, we will obey the voice of Yahweh our God, to whom we send you; that it may be well with us, when we obey the voice of Yahweh our God.

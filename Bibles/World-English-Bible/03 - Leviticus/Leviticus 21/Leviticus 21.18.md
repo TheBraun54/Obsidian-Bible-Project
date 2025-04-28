@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whatsoever man he be that hath a blemish, he shall not approach: a blind man, or a lame, or he that hath a flat nose, or anything superfluous,
+For whatever man he is that has a blemish, he shall not draw near: a blind man, or a lame, or he who has a flat nose, or any deformity,

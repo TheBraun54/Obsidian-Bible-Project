@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thine eye cause thee to stumble, cast it out: it is good for thee to enter into the kingdom of God with one eye, rather than having two eyes to be cast into hell;
+If your eye causes you to stumble, cast it out. It is better for you to enter into the Kingdom of God with one eye, rather than having two eyes to be cast into the Gehenna of fire,

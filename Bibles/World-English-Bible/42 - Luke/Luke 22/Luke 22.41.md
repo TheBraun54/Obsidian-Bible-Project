@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was parted from them about a stone's cast; and he kneeled down and prayed,
+He was withdrawn from them about a stone's throw, and he knelt down and prayed,

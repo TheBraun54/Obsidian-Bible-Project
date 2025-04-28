@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if I build up again those things which I destroyed, I prove myself a transgressor.
+For if I build up again those things which I destroyed, I prove myself a law-breaker.

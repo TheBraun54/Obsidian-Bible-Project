@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, This gate shall be shut; it shall not be opened, neither shall any man enter in by it; for Jehovah, the God of Israel, hath entered in by it; therefore it shall be shut.
+Yahweh said to me, This gate shall be shut; it shall not be opened, neither shall any man enter in by it; for Yahweh, the God of Israel, has entered in by it; therefore it shall be shut.

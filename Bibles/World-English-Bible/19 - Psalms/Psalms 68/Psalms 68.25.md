@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The singers went before, the minstrels followed after, In the midst of the damsels playing with timbrels.
+The singers went before, the minstrels followed after, in the midst of the ladies playing with tambourines,

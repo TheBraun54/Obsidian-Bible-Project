@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it for thy fear [of him] that he reproveth thee, That he entereth with thee into judgment?
+Is it for your piety that he reproves you, that he enters with you into judgment?

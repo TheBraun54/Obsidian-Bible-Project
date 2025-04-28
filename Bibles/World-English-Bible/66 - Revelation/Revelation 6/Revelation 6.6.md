@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard as it were a voice in the midst of the four living creatures saying, A measure of wheat for a shilling, and three measures of barley for a shilling; and the oil and the wine hurt thou not.
+I heard a voice in the midst of the four living creatures saying, "A choenix of wheat for a denarius, and three choenix of barley for a denarius! Don't damage the oil and the wine!"

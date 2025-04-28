@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they did so; and Aaron stretched out his hand with his rod, and smote the dust of the earth, and there were lice upon man, and upon beast; all the dust of the earth became lice throughout all the land of Egypt.
+They did so; and Aaron stretched out his hand with his rod, and struck the dust of the earth, and there were lice on man, and on animal; all the dust of the earth became lice throughout all the land of Egypt.

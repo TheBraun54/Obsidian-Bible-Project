@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forasmuch as many have taken in hand to draw up a narrative concerning those matters which have been fulfilled among us,
+Since many have undertaken to set in order a narrative concerning those matters which have been fulfilled among us,

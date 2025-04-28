@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah's anger was kindled in that day, and he sware, saying,
+Yahweh's anger was kindled in that day, and he swore, saying,

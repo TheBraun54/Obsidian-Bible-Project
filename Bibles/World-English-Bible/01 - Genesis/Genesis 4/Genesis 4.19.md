@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lamech took unto him two wives: the name of the one was Adah, and the name of the other Zillah.
+Lamech took two wives: the name of the one was Adah, and the name of the other Zillah.

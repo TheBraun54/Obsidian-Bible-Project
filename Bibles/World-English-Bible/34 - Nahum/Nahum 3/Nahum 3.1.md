@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to the bloody city! it is all full of lies and rapine; the prey departeth not.
+Woe to the bloody city! It is all full of lies and robbery. The prey doesn't depart.

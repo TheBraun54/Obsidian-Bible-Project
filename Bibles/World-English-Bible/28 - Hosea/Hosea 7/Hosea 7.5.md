@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the day of our king the princes made themselves sick with the heat of wine; he stretched out his hand with scoffers.
+On the day of our king, the princes made themselves sick with the heat of wine. He joined his hand with mockers.

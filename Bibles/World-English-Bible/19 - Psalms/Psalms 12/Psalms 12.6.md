@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of Jehovah are pure words; As silver tried in a furnace on the earth, Purified seven times.
+The words of Yahweh are flawless words, as silver refined in a clay furnace, purified seven times.

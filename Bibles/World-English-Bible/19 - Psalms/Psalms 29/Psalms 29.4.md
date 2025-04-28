@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of Jehovah is powerful; The voice of Jehovah is full of majesty.
+Yahweh's voice is powerful. Yahweh's voice is full of majesty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now thou sayest, Go, tell thy lord, Behold, Elijah [is here] ; and he will slay me.
+Now you say, 'Go, tell your lord, "Behold, Elijah is here;"' and he will kill me."

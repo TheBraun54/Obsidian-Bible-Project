@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abijah pursued after Jeroboam, and took cities from him, Beth-el with the towns thereof, and Jeshanah with the towns thereof, and Ephron with the towns thereof.
+Abijah pursued after Jeroboam, and took cities from him, Bethel with its towns, and Jeshanah with its towns, and Ephron with its towns.

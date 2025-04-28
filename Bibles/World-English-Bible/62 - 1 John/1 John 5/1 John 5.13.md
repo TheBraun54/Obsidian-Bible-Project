@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things have I written unto you, that ye may know that ye have eternal life, [even] unto you that believe on the name of the Son of God.
+These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may continue to believe in the name of the Son of God.

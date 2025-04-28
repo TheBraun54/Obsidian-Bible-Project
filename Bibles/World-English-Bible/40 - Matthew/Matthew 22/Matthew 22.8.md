@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith he to his servants, The wedding is ready, but they that were bidden were not worthy.
+"Then he said to his servants, 'The wedding is ready, but those who were invited weren't worthy.

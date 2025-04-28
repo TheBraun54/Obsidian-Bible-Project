@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have heard the murmurings of the children of Israel: speak unto them, saying, At even ye shall eat flesh, and in the morning ye shall be filled with bread; and ye shall know that I am Jehovah your God.
+"I have heard the murmurings of the children of Israel. Speak to them, saying, 'At evening you shall eat meat, and in the morning you shall be filled with bread: and you shall know that I am Yahweh your God.'"

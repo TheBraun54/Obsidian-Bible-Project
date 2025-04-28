@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt rejoice in thy feast, thou, and thy son, and thy daughter, and thy man-servant, and thy maid-servant, and the Levite, and the sojourner, and the fatherless, and the widow, that are within thy gates.
+and you shall rejoice in your feast, you, and your son, and your daughter, and your male servant, and your female servant, and the Levite, and the foreigner, and the fatherless, and the widow, who are within your gates.

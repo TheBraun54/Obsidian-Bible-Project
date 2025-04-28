@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I pray for them: I pray not for the world, but for those whom thou hast given me; for they are thine:
+I pray for them. I don't pray for the world, but for those whom you have given me, for they are yours.

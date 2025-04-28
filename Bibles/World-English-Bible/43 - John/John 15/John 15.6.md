@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man abide not in me, he is cast forth as a branch, and is withered; and they gather them, and cast them into the fire, and they are burned.
+If a man doesn't remain in me, he is thrown out as a branch, and is withered; and they gather them, throw them into the fire, and they are burned.

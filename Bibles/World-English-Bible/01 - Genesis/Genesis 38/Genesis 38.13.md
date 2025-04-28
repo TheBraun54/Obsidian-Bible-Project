@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Tamar, saying, Behold, thy father-in-law goeth up to Timnah to shear his sheep.
+It was told Tamar, saying, "Behold, your father-in-law is going up to Timnah to shear his sheep."

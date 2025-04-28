@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will not punish your daughters when they play the harlot, nor your brides when they commit adultery; for [the men] themselves go apart with harlots, and they sacrifice with the prostitutes; and the people that doth not understand shall be overthrown.
+I will not punish your daughters when they play the prostitute, nor your brides when they commit adultery; because the men consort with prostitutes, and they sacrifice with the shrine prostitutes; so the people without understanding will come to ruin.

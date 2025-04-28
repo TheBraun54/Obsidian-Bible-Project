@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Son of man, these are the men that devise iniquity, and that give wicked counsel in this city;
+He said to me, Son of man, these are the men who devise iniquity, and who give wicked counsel in this city;

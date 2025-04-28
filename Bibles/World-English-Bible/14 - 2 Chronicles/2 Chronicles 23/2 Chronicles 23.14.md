@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoiada the priest brought out the captains of hundreds that were set over the host, and said unto them, Have her forth between the ranks; and whoso followeth her, let him be slain with the sword: for the priest said, Slay her not in the house of Jehovah.
+Jehoiada the priest brought out the captains of hundreds who were set over the army, and said to them, "Bring her out between the ranks; and whoever follows her, let him be slain with the sword." For the priest said, "Don't kill her in the Yahweh's house."

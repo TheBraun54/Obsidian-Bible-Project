@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All flesh is not the same flesh: but there is one [flesh] of men, and another flesh of beasts, and another flesh of birds, and another of fishes.
+All flesh is not the same flesh, but there is one flesh of men, another flesh of animals, another of fish, and another of birds.

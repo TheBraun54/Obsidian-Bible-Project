@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore thus shalt thou say unto my servant David, Thus saith Jehovah of hosts, I took thee from the sheepcote, from following the sheep, that thou shouldest be prince over my people, over Israel;
+Now therefore you shall tell my servant David this, 'Thus says Yahweh of Armies, "I took you from the sheep pen, from following the sheep, that you should be prince over my people, over Israel.

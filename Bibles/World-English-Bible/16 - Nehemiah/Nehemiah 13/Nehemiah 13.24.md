@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their children spake half in the speech of Ashdod, and could not speak in the Jews' language, but according to the language of each people.
+and their children spoke half in the speech of Ashdod, and could not speak in the Jews' language, but according to the language of each people.

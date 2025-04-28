@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A certain lender had two debtors: the one owed five hundred shillings, and the other fifty.
+"A certain lender had two debtors. The one owed five hundred denarii, and the other fifty.

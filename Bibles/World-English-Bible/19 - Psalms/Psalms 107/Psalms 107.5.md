@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hungry and thirsty, Their soul fainted in them.
+Hungry and thirsty, their soul fainted in them.

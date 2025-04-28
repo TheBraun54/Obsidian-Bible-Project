@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our fathers had the tabernacle of the testimony in the wilderness, even as he appointed who spake unto Moses, that he should make it according to the figure that he had seen.
+"Our fathers had the tabernacle of the testimony in the wilderness, even as he who spoke to Moses commanded him to make it according to the pattern that he had seen;

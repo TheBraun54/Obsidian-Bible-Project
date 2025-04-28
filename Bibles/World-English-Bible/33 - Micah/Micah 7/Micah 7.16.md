@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nations shall see and be ashamed of all their might; they shall lay their hand upon their mouth; their ears shall be deaf.
+The nations will see and be ashamed of all their might. They will lay their hand on their mouth. Their ears will be deaf.

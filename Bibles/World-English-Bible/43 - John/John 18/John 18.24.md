@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Annas therefore sent him bound unto Caiaphas the high priest.
+Annas sent him bound to Caiaphas, the high priest.

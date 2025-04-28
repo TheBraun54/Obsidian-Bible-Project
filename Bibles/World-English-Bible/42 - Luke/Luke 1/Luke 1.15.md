@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he shall be great in the sight of the Lord, and he shall drink no wine nor strong drink; and he shall be filled with the Holy Spirit, even from his mother's womb.
+For he will be great in the sight of the Lord, and he will drink no wine nor strong drink. He will be filled with the Holy Spirit, even from his mother's womb.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah knoweth the thoughts of man, That they are vanity.
+Yahweh knows the thoughts of man, that they are futile.

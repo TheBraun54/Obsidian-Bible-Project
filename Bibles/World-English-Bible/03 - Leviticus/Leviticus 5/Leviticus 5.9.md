@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall sprinkle of the blood of the sin-offering upon the side of the altar; and the rest of the blood shall be drained out at the base of the altar: it is a sin-offering.
+He shall sprinkle some of the blood of the sin offering on the side of the altar; and the rest of the blood shall be drained out at the base of the altar. It is a sin offering.

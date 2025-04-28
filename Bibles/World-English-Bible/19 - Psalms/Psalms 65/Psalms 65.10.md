@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou waterest its furrows abundantly; Thou settlest the ridges thereof: Thou makest it soft with showers; Thou blessest the springing thereof.
+You drench its furrows. You level its ridges. You soften it with showers. You bless it with a crop.

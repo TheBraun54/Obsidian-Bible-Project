@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: For three transgressions of Israel, yea, for four, I will not turn away the punishment thereof; because they have sold the righteous for silver, and the needy for a pair of shoes--
+Thus says Yahweh: "For three transgressions of Israel, yes, for four, I will not turn away its punishment; because they have sold the righteous for silver, and the needy for a pair of shoes;

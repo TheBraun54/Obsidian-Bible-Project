@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We see not our signs: There is no more any prophet; Neither is there among us any that knoweth how long.
+We see no miraculous signs. There is no longer any prophet, neither is there among us anyone who knows how long.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they came up with their cattle and their tents; they came in as locusts for multitude; both they and their camels were without number: and they came into the land to destroy it.
+For they came up with their livestock and their tents; they came in as locusts for multitude; both they and their camels were without number: and they came into the land to destroy it.

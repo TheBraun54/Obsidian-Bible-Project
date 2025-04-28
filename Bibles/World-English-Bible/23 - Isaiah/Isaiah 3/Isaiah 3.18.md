@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day the Lord will take away the beauty of their anklets, and the cauls, and the crescents;
+In that day the Lord will take away the beauty of their anklets, the headbands, the crescent necklaces,

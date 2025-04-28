@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake up, my glory; Awake, psaltery and harp: I myself will awake right early.
+Wake up, my glory! Wake up, psaltery and harp! I will wake up the dawn.

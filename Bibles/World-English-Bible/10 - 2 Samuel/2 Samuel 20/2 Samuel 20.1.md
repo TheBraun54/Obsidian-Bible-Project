@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there happened to be there a base fellow, whose name was Sheba, the son of Bichri, a Benjamite: and he blew the trumpet, and said, We have no portion in David, neither have we inheritance in the son of Jesse: every man to his tents, O Israel.
+There happened to be there a base fellow, whose name was Sheba, the son of Bichri, a Benjamite: and he blew the trumpet, and said, "We have no portion in David, neither have we inheritance in the son of Jesse. Every man to his tents, Israel!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter arose, and ran unto the tomb; and stooping and looking in, he seeth the linen cloths by themselves; and he departed to his home, wondering at that which was come to pass.
+But Peter got up and ran to the tomb. Stooping and looking in, he saw the strips of linen lying by themselves, and he departed to his home, wondering what had happened.

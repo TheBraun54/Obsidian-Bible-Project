@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What, my son? and what, O son of my womb? And what, O son of my vows?
+"Oh, my son! Oh, son of my womb! Oh, son of my vows!

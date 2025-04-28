@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who shall fashion anew the body of our humiliation, [that it may be] conformed to the body of his glory, according to the working whereby he is able even to subject all things unto himself.
+who will change the body of our humiliation to be conformed to the body of his glory, according to the working by which he is able even to subject all things to himself.

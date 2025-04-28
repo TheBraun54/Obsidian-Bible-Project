@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-looking carefully lest [there be] any man that falleth short of the grace of God; lest any root of bitterness springing up trouble [you], and thereby the many be defiled;
+looking carefully lest there be any man who falls short of the grace of God; lest any root of bitterness springing up trouble you, and many be defiled by it;

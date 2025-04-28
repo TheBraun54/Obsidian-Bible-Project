@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Israel, and their elders and officers, and their judges, stood on this side of the ark and on that side before the priests the Levites, that bare the ark of the covenant of Jehovah, as well the sojourner as the homeborn; half of them in front of mount Gerizim, and half of them in front of mount Ebal; as Moses the servant of Jehovah had commanded at the first, that they should bless the people of Israel.
+All Israel, and their elders and officers, and their judges, stood on this side of the ark and on that side before the priests the Levites, who carried the ark of Yahweh's covenant, the foreigner as well as the native; half of them in front of Mount Gerizim, and half of them in front of Mount Ebal, as Moses the servant of Yahweh had commanded at the first, that they should bless the people of Israel.

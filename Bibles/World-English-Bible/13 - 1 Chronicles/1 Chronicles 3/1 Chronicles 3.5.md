@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and these were born unto him in Jerusalem: Shimea, and Shobab, and Nathan, and Solomon, four, of Bath-shua the daughter of Ammiel;
+and these were born to him in Jerusalem: Shimea, and Shobab, and Nathan, and Solomon, four, of Bathshua the daughter of Ammiel;

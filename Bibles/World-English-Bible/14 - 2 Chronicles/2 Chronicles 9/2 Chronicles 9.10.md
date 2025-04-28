@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servants also of Huram, and the servants of Solomon, that brought gold from Ophir, brought algum-trees and precious stones.
+The servants also of Huram, and the servants of Solomon, who brought gold from Ophir, brought algum trees and precious stones.

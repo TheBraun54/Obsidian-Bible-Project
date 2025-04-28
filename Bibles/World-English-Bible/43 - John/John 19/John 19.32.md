@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The soldiers therefore came, and brake the legs of the first, and of the other that was crucified with him:
+Therefore the soldiers came, and broke the legs of the first, and of the other who was crucified with him;

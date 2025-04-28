@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Open ye the gates, that the righteous nation which keepeth faith may enter in.
+Open the gates, that the righteous nation may enter: the one which keeps faith.

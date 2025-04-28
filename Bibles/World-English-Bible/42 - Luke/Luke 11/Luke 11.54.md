@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-laying wait for him, to catch something out of his mouth.
+lying in wait for him, and seeking to catch him in something he might say, that they might accuse him.

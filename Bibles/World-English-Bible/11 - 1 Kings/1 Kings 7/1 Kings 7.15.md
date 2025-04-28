@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he fashioned the two pillars of brass, eighteen cubits high apiece: and a line of twelve cubits compassed either of them about.
+For he fashioned the two pillars of brass, eighteen cubits high apiece: and a line of twelve cubits encircled either of them about.

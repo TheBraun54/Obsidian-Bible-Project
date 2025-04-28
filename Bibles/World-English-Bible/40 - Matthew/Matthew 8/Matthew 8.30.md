@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there was afar off from them a herd of many swine feeding.
+Now there was a herd of many pigs feeding far away from them.

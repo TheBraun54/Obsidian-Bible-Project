@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have called upon thee, for thou wilt answer me, O God: Incline thine ear unto me, [and] hear my speech.
+I have called on you, for you will answer me, God. Turn your ear to me. Hear my speech.

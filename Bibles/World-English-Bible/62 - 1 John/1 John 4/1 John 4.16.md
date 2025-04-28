@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we know and have believed the love which God hath in us. God is love; and he that abideth in love abideth in God, and God abideth in him.
+We know and have believed the love which God has for us. God is love, and he who remains in love remains in God, and God remains in him.

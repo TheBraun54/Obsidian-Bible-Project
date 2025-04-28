@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That shaketh the earth out of its place, And the pillars thereof tremble;
+He shakes the earth out of its place. Its pillars tremble.

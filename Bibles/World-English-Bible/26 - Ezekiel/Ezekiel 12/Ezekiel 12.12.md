@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince that is among them shall bear upon his shoulder in the dark, and shall go forth: they shall dig through the wall to carry out thereby: he shall cover his face, because he shall not see the land with his eyes.
+The prince who is among them shall bear on his shoulder in the dark, and shall go forth: they shall dig through the wall to carry out thereby: he shall cover his face, because he shall not see the land with his eyes.

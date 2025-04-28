@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the sea on the right side [of the house] eastward, toward the south.
+He set the sea on the right side [of the house] eastward, toward the south.

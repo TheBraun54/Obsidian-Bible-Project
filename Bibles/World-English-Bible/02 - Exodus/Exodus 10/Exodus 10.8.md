@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron were brought again unto Pharaoh: and he said unto them, Go, serve Jehovah your God; but who are they that shall go?
+Moses and Aaron were brought again to Pharaoh, and he said to them, "Go, serve Yahweh your God; but who are those who will go?"

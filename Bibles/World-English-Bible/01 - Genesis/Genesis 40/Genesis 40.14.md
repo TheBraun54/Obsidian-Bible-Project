@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But have me in thy remembrance when it shall be well with thee, and show kindness, I pray thee, unto me, and make mention of me unto Pharaoh, and bring me out of this house:
+But remember me when it will be well with you, and please show kindness to me, and make mention of me to Pharaoh, and bring me out of this house.

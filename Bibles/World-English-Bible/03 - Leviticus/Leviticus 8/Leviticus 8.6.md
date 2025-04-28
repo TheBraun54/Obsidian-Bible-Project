@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses brought Aaron and his sons, and washed them with water.
+Moses brought Aaron and his sons, and washed them with water.

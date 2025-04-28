@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that he was buried; and that he hath been raised on the third day according to the scriptures;
+that he was buried, that he was raised on the third day according to the Scriptures,

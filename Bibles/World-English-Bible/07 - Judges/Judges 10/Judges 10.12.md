@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Sidonians also, and the Amalekites, and the Maonites, did oppress you; and ye cried unto me, and I saved you out of their hand.
+The Sidonians also, and the Amalekites, and the Maonites, did oppress you; and you cried to me, and I saved you out of their hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be said in that day, Lo, this is our God; we have waited for him, and he will save us: this is Jehovah; we have waited for him, we will be glad and rejoice in his salvation.
+It shall be said in that day, "Behold, this is our God! We have waited for him, and he will save us! This is Yahweh! We have waited for him. We will be glad and rejoice in his salvation!"

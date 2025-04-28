@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That be far from thee to do after this manner, to slay the righteous with the wicked, that so the righteous should be as the wicked; that be far from thee: shall not the Judge of all the earth do right?
+Be it far from you to do things like that, to kill the righteous with the wicked, so that the righteous should be like the wicked. May that be far from you. Shouldn't the Judge of all the earth do right?"

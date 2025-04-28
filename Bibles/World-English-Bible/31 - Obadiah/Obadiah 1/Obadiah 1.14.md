@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And stand thou not in the crossway, to cut off those of his that escape; and deliver not up those of his that remain in the day of distress.
+Don't stand in the crossroads to cut off those of his who escape. Don't deliver up those of his who remain in the day of distress.

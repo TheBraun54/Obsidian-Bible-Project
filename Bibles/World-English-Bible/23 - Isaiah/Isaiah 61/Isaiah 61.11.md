@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the earth bringeth forth its bud, and as the garden causeth the things that are sown in it to spring forth; so the Lord Jehovah will cause righteousness and praise to spring forth before all the nations.
+For as the earth brings forth its bud, and as the garden causes the things that are sown in it to spring forth; so the Lord Yahweh will cause righteousness and praise to spring forth before all the nations.

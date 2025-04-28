@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast exalted the right hand of his adversaries; Thou hast made all his enemies to rejoice.
+You have exalted the right hand of his adversaries. You have made all of his enemies rejoice.

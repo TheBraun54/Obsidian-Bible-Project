@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All this have I seen, and applied my heart unto every work that is done under the sun: [there is] a time wherein one man hath power over another to his hurt.
+All this have I seen, and applied my mind to every work that is done under the sun. There is a time in which one man has power over another to his hurt.

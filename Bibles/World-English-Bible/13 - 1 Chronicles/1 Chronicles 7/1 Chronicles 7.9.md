@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were reckoned by genealogy, after their generations, heads of their fathers' houses, mighty men of valor, twenty thousand and two hundred.
+They were reckoned by genealogy, after their generations, heads of their fathers' houses, mighty men of valor, twenty thousand two hundred.

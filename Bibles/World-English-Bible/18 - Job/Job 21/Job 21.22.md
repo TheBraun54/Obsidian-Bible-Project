@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall any teach God knowledge, Seeing he judgeth those that are high?
+"Shall any teach God knowledge, since he judges those who are high?

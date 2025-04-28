@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And lo, he speaketh openly, and they say nothing unto him. Can it be that the rulers indeed know that this is the Christ?
+Behold, he speaks openly, and they say nothing to him. Can it be that the rulers indeed know that this is truly the Christ?

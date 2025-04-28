@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can count the dust of Jacob, Or number the fourth part of Israel? Let me die the death of the righteous, And let my last end be like his!
+Who can count the dust of Jacob, or number the fourth part of Israel? Let me die the death of the righteous! Let my last end be like his!"

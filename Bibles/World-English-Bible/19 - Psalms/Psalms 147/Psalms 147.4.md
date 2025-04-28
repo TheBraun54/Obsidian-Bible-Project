@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He counteth the number of the stars; He calleth them all by [their] names.
+He counts the number of the stars. He calls them all by their names.

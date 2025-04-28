@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lover and friend hast thou put far from me, And mine acquaintance into darkness.
+You have put lover and friend far from me, and my friends into darkness. A contemplation by Ethan, the Ezrahite.

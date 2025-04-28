@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hope of the righteous [shall be] gladness; But the expectation of the wicked shall perish.
+The prospect of the righteous is joy, but the hope of the wicked will perish.

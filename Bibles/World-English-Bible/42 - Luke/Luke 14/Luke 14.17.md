@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he sent forth his servant at supper time to say to them that were bidden, Come; for [all] things are now ready.
+He sent out his servant at supper time to tell those who were invited, 'Come, for everything is ready now.'

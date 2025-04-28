@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that ye will save alive my father, and my mother, and my brethren, and my sisters, and all that they have, and will deliver our lives from death.
+and that you will save alive my father, my mother, my brothers, and my sisters, and all that they have, and will deliver our lives from death."

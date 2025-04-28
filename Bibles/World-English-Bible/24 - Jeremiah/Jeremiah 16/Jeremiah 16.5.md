@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Enter not into the house of mourning, neither go to lament, neither bemoan them; for I have taken away my peace from this people, saith Jehovah, even lovingkindness and tender mercies.
+For thus says Yahweh, Don't enter into the house of mourning, neither go to lament, neither bemoan them; for I have taken away my peace from this people, says Yahweh, even loving kindness and tender mercies.

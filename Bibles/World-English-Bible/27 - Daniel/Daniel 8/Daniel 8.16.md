@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard a man's voice between [the banks of] the Ulai, which called, and said, Gabriel, make this man to understand the vision.
+I heard a man's voice between [the banks of] the Ulai, which called, and said, Gabriel, make this man to understand the vision.

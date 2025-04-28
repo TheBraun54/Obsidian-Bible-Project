@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my brethren and companions' sakes, I will now say, Peace be within thee.
+For my brothers' and companions' sakes, I will now say, "Peace be within you."

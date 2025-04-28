@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron did so; he lighted the lamps thereof [so as to give light] in front of the candlestick, as Jehovah commanded Moses.
+Aaron did so. He lit its lamps to light the area in front of the lampstand, as Yahweh commanded Moses.

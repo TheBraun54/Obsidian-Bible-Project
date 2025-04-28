@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moab shall be ashamed of Chemosh, as the house of Israel was ashamed of Beth-el their confidence.
+Moab shall be ashamed of Chemosh, as the house of Israel was ashamed of Bethel their confidence.

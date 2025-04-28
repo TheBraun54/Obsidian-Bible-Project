@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But wherefore went ye out? to see a prophet? Yea, I say unto you, and much more than a prophet.
+But why did you go out? To see a prophet? Yes, I tell you, and much more than a prophet.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that rideth upon the heaven of heavens, which are of old; Lo, he uttereth his voice, a mighty voice.
+To him who rides on the heaven of heavens, which are of old; behold, he utters his voice, a mighty voice.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, also I continued in the work of this wall, neither bought we any land: and all my servants were gathered thither unto the work.
+Yes, also I continued in the work of this wall, neither bought we any land: and all my servants were gathered there to the work.

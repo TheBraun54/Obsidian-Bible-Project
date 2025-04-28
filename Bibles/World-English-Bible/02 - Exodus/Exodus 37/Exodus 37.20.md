@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the candlestick were four cups made like almond-blossoms, the knops thereof, and the flowers thereof;
+In the lampstand were four cups made like almond blossoms, its buds and its flowers;

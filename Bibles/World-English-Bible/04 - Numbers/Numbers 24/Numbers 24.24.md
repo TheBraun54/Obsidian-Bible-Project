@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ships [shall come] from the coast of Kittim, And they shall afflict Asshur, and shall afflict Eber; And he also shall come to destruction.
+But ships [shall come] from the coast of Kittim. They shall afflict Asshur, and shall afflict Eber. He also shall come to destruction."

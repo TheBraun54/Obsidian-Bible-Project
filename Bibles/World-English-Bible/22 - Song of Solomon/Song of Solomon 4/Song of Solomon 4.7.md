@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art all fair, my love; And there is no spot in thee.
+You are all beautiful, my love. There is no spot in you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereas our comely [parts] have no need: but God tempered the body together, giving more abundant honor to that [part] which lacked;
+whereas our presentable parts have no such need. But God composed the body together, giving more abundant honor to the inferior part,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not see thy brother's ox or his sheep go astray, and hide thyself from them: thou shalt surely bring them again unto thy brother.
+You shall not see your brother's ox or his sheep go astray, and hide yourself from them: you shall surely bring them again to your brother.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Asher: Imnah, and Ishvah, and Ishvi, and Beriah, and Serah their sister; and the sons of Beriah: Heber, and Malchiel.
+The sons of Asher: Imnah, Ishvah, Ishvi, Beriah, and Serah their sister. The sons of Beriah: Heber and Malchiel.

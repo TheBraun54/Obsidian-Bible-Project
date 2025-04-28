@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob lived in the land of Egypt seventeen years: so the days of Jacob, the years of his life, were a hundred forty and seven years.
+Jacob lived in the land of Egypt seventeen years. So the days of Jacob, the years of his life, were one hundred forty-seven years.

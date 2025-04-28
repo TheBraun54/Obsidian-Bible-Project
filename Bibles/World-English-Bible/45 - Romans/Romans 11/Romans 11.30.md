@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as ye in time past were disobedient to God, but now have obtained mercy by their disobedience,
+For as you in time past were disobedient to God, but now have obtained mercy by their disobedience,

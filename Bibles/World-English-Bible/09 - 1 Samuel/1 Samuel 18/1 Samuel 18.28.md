@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul saw and knew that Jehovah was with David; and Michal, Saul's daughter, loved him.
+Saul saw and knew that Yahweh was with David; and Michal, Saul's daughter, loved him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though he cause grief, yet will he have compassion according to the multitude of his lovingkindnesses.
+For though he cause grief, yet he will have compassion according to the multitude of his loving kindnesses.

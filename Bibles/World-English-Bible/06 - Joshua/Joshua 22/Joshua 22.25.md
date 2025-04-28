@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Jehovah hath made the Jordan a border between us and you, ye children of Reuben and children of Gad; ye have no portion in Jehovah: so might your children make our children cease from fearing Jehovah.
+For Yahweh has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in Yahweh."' So your children might make our children cease from fearing Yahweh.

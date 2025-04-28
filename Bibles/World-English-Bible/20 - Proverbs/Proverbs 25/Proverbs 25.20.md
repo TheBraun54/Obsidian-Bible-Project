@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] one that taketh off a garment in cold weather, [and as] vinegar upon soda, So is he that singeth songs to a heavy heart.
+As one who takes away a garment in cold weather, or vinegar on soda, so is one who sings songs to a heavy heart.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can a fig tree, my brethren, yield olives, or a vine figs? Neither [can] salt water yield sweet.
+Can a fig tree, my brothers, yield olives, or a vine figs? Thus no spring yields both salt water and fresh water.

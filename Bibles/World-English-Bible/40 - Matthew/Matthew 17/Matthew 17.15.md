@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lord, have mercy on my son: for he is epileptic, and suffereth grievously; for oft-times he falleth into the fire, and oft-times into the water.
+"Lord, have mercy on my son, for he is epileptic, and suffers grievously; for he often falls into the fire, and often into the water.

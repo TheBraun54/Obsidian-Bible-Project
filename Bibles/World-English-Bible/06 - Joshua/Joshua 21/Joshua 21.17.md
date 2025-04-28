@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the tribe of Benjamin, Gibeon with its suburbs, Geba with its suburbs,
+Out of the tribe of Benjamin, Gibeon with its suburbs, Geba with its suburbs,

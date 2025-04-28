@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall be mine, saith Jehovah of hosts, [even] mine own possession, in the day that I make; and I will spare them, as a man spareth his own son that serveth him.
+They shall be mine," says Yahweh of Armies, "my own possession in the day that I make, and I will spare them, as a man spares his own son who serves him.

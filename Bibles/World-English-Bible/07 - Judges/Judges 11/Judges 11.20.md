@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Sihon trusted not Israel to pass through his border; but Sihon gathered all his people together, and encamped in Jahaz, and fought against Israel.
+But Sihon didn't trust Israel to pass through his border; but Sihon gathered all his people together, and encamped in Jahaz, and fought against Israel.

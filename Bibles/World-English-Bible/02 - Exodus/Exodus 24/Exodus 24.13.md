@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses rose up, and Joshua his minister: and Moses went up into the mount of God.
+Moses rose up with Joshua, his servant, and Moses went up onto God's Mountain.

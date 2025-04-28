@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; on stringed instruments. A Psalm of Asaph, a Song]. In Judah is God known: His name is great in Israel.
+In Judah, God is known. His name is great in Israel.

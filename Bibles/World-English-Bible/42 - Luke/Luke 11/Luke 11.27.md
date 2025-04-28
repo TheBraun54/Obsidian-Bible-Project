@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as he said these things, a certain woman out of the multitude lifted up her voice, and said unto him, Blessed is the womb that bare thee, and the breasts which thou didst suck.
+It came to pass, as he said these things, a certain woman out of the multitude lifted up her voice, and said to him, "Blessed is the womb that bore you, and the breasts which nursed you!"

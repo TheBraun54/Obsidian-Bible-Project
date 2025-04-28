@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou therefore, son of man, prophesy, and smite thy hands together; and let the sword be doubled the third time, the sword of the deadly wounded: it is the sword of the great one that is deadly wounded, which entereth into their chambers.
+You therefore, son of man, prophesy, and strike your hands together; and let the sword be doubled the third time, the sword of the deadly wounded: it is the sword of the great one who is deadly wounded, which enters into their rooms.

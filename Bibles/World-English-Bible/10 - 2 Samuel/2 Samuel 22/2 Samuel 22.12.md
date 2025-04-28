@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made darkness pavilions round about him, Gathering of waters, thick clouds of the skies.
+He made darkness pavilions around himself: gathering of waters, and thick clouds of the skies.

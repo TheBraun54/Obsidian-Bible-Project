@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was again war at Gath, where was a man of great stature, that had on every hand six fingers, and on every foot six toes, four and twenty in number; and he also was born to the giant. [
+There was again war at Gath, where there was a man of great stature, who had on every hand six fingers, and on every foot six toes, four and twenty in number; and he also was born to the giant.

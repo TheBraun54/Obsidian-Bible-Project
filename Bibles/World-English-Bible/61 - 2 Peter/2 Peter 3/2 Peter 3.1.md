@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is now, beloved, the second epistle that I write unto you; and in both of them I stir up your sincere mind by putting you in remembrance;
+This is now, beloved, the second letter that I have written to you; and in both of them I stir up your sincere mind by reminding you;

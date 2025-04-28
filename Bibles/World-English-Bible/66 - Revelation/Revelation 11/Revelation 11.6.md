@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These have the power to shut the heaven, that it rain not during the days of their prophecy: and they have power over the waters to turn them into blood, and to smite the earth with every plague, as often as they shall desire.
+These have the power to shut up the sky, that it may not rain during the days of their prophecy. They have power over the waters, to turn them into blood, and to strike the earth with every plague, as often as they desire.

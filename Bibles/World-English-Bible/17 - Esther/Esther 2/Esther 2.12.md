@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when the turn of every maiden was come to go in to king Ahasuerus, after that it had been done to her according to the law for the women twelve months (for so were the days of their purifications accomplished, [to wit], six months with oil of myrrh, and six months with sweet odors and with the things for the purifying of the women),
+Each young woman's turn came to go in to King Ahasuerus after her purification for twelve months (for so were the days of their purification accomplished, six months with oil of myrrh, and six months with sweet fragrances and with preparations for beautifying women).

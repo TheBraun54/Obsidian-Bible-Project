@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said unto his servants, Provide me now a man that can play well, and bring him to me.
+Saul said to his servants, "Provide me now a man who can play well, and bring him to me."

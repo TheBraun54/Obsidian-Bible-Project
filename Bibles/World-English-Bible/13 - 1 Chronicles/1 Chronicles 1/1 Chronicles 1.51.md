@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hadad died. And the chiefs of Edom were: chief Timna, chief Aliah, chief Jetheth,
+Hadad died. The chiefs of Edom were: chief Timna, chief Aliah, chief Jetheth,

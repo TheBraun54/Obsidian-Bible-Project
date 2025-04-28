@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this manner therefore pray ye. Our Father who art in heaven, Hallowed be thy name.
+Pray like this: 'Our Father in heaven, may your name be kept holy.

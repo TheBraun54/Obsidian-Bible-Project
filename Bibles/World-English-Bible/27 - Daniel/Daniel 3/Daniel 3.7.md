@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore at that time, when all the peoples heard the sound of the cornet, flute, harp, sackbut, psaltery, and all kinds of music, all the peoples, the nations, and the languages, fell down and worshipped the golden image that Nebuchadnezzar the king had set up.
+Therefore at that time, when all the peoples heard the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, all the peoples, the nations, and the languages, fell down and worshiped the golden image that Nebuchadnezzar the king had set up.

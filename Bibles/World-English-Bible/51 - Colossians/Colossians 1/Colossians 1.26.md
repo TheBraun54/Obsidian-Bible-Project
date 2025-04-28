@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ even] the mystery which hath been hid for ages and generations: but now hath it been manifested to his saints,
+the mystery which has been hidden for ages and generations. But now it has been revealed to his saints,

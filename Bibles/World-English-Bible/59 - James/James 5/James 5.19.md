@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My brethren, if any among you err from the truth, and one convert him;
+Brothers, if any among you wanders from the truth, and someone turns him back,

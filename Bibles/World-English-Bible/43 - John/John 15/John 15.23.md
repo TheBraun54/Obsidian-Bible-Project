@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hateth me hateth my Father also.
+He who hates me, hates my Father also.

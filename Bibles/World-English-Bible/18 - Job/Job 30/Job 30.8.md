@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ They are] children of fools, yea, children of base men; They were scourged out of the land.
+They are children of fools, yes, children of base men. They were flogged out of the land.

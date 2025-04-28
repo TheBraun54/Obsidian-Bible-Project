@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I have stretched out my hand upon thee, and will deliver thee for a spoil to the nations; and I will cut thee off from the peoples, and I will cause thee to perish out of the countries: I will destroy thee; and thou shalt know that I am Jehovah.
+therefore, behold, I have stretched out my hand on you, and will deliver you for a spoil to the nations; and I will cut you off from the peoples, and I will cause you to perish out of the countries: I will destroy you; and you shall know that I am Yahweh.

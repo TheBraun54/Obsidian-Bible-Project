@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the light of Israel will be for a fire, and his Holy One for a flame; and it will burn and devour his thorns and his briers in one day.
+The light of Israel will be for a fire, and his Holy One for a flame; and it will burn and devour his thorns and his briers in one day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Pharaoh, Have thou this glory over me: against what time shall I entreat for thee, and for thy servants, and for thy people, that the frogs be destroyed from thee and thy houses, and remain in the river only?
+Moses said to Pharaoh, "I give you the honor of setting the time that I should pray for you, and for your servants, and for your people, that the frogs be destroyed from you and your houses, and remain in the river only."

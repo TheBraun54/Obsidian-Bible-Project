@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A worthless person, a man of iniquity, Is he that walketh with a perverse mouth;
+A worthless person, a man of iniquity, is he who walks with a perverse mouth;

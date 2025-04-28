@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Abraham, Wherefore did Sarah laugh, saying, Shall I of a surety bear a child, who am old?
+Yahweh said to Abraham, "Why did Sarah laugh, saying, 'Will I really bear a child, yet I am old?'

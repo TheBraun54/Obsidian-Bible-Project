@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy God hath commanded thy strength: Strengthen, O God, that which thou hast wrought for us.
+Your God has commanded your strength. Strengthen, God, that which you have done for us.

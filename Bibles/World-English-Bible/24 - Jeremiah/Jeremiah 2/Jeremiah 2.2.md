@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go, and cry in the ears of Jerusalem, saying, Thus saith Jehovah, I remember for thee the kindness of thy youth, the love of thine espousals; how thou wentest after me in the wilderness, in a land that was not sown.
+"Go, and cry in the ears of Jerusalem, saying, 'Thus says Yahweh, "I remember for you the kindness of your youth, the love of your weddings; how you went after me in the wilderness, in a land that was not sown.

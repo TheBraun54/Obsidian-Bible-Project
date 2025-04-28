@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy shepherds slumber, O king of Assyria; thy nobles are at rest; thy people are scattered upon the mountains, and there is none to gather them.
+Your shepherds slumber, king of Assyria. Your nobles lie down. Your people are scattered on the mountains, and there is no one to gather them.

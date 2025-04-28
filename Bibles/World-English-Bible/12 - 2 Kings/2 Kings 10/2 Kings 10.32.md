@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days Jehovah began to cut off from Israel: and Hazael smote them in all the borders of Israel;
+In those days Yahweh began to cut off from Israel; and Hazael struck them in all the borders of Israel;

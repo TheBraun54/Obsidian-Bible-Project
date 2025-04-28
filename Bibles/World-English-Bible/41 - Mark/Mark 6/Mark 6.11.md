@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever place shall not receive you, and they hear you not, as ye go forth thence, shake off the dust that is under your feet for a testimony unto them.
+Whoever will not receive you nor hear you, as you depart from there, shake off the dust that is under your feet for a testimony against them. Assuredly, I tell you, it will be more tolerable for Sodom and Gomorrah in the day of judgment than for that city!"

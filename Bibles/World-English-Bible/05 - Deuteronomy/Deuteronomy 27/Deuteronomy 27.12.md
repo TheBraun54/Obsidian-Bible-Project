@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These shall stand upon mount Gerizim to bless the people, when ye are passed over the Jordan: Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin.
+"These shall stand on Mount Gerizim to bless the people, when you have passed over the Jordan: Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon, whom he also named Peter, and Andrew his brother, and James and John, and Philip and Bartholomew,
+Simon, whom he also named Peter; Andrew, his brother; James; John; Philip; Bartholomew;

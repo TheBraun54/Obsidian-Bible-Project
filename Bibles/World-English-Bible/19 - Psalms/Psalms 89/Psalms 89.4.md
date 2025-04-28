@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy seed will I establish for ever, And build up thy throne to all generations. {{Selah
+'I will establish your seed forever, and build up your throne to all generations.'" Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jehovah unto me, Thou hast well seen: for I watch over my word to perform it.
+Then Yahweh said to me, "You have seen well; for I watch over my word to perform it."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso keepeth the commandment shall know no evil thing; and a wise man's heart discerneth time and judgment:
+Whoever keeps the commandment shall not come to harm, and his wise heart will know the time and procedure.

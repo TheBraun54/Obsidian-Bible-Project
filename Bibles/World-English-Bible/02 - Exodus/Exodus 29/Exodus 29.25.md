@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take them from their hands, and burn them on the altar upon the burnt-offering, for a sweet savor before Jehovah: it is an offering made by fire unto Jehovah.
+You shall take them from their hands, and burn them on the altar on the burnt offering, for a pleasant aroma before Yahweh: it is an offering made by fire to Yahweh.

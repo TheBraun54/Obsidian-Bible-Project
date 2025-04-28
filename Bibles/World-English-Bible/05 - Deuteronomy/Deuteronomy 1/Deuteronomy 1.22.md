@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye came near unto me every one of you, and said, Let us send men before us, that they may search the land for us, and bring us word again of the way by which we must go up, and the cities unto which we shall come.
+You came near to me everyone of you, and said, "Let us send men before us, that they may search the land for us, and bring us word again of the way by which we must go up, and the cities to which we shall come."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this God is our God for ever and ever: He will be our guide [even] unto death.
+For this God is our God forever and ever. He will be our guide even to death. For the Chief Musician. A Psalm by the sons of Korah.

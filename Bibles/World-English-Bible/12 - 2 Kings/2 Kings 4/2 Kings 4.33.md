@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He went in therefore, and shut the door upon them twain, and prayed unto Jehovah.
+He went in therefore, and shut the door on them both, and prayed to Yahweh.

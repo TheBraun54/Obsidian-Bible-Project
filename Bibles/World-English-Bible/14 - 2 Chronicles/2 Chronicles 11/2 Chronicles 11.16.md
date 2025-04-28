@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after them, out of all the tribes of Israel, such as set their hearts to seek Jehovah, the God of Israel, came to Jerusalem to sacrifice unto Jehovah, the God of their fathers.
+After them, out of all the tribes of Israel, such as set their hearts to seek Yahweh, the God of Israel, came to Jerusalem to sacrifice to Yahweh, the God of their fathers.

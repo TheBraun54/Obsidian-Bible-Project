@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Manasseh seduced Judah and the inhabitants of Jerusalem, so that they did evil more than did the nations whom Jehovah destroyed before the children of Israel.
+Manasseh seduced Judah and the inhabitants of Jerusalem, so that they did evil more than did the nations whom Yahweh destroyed before the children of Israel.

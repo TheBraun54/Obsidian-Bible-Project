@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall kill it on the side of the altar northward before Jehovah: and Aaron's sons, the priests, shall sprinkle its blood upon the altar round about.
+He shall kill it on the north side of the altar before Yahweh. Aaron's sons, the priests, shall sprinkle its blood around on the altar.

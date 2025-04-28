@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have seen all the works that are done under the sun; and, behold, all is vanity and a striving after wind.
+I have seen all the works that are done under the sun; and behold, all is vanity and a chasing after wind.

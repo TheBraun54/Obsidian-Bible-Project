@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto me yet again, saying,
+Yahweh spoke to me yet again, saying,

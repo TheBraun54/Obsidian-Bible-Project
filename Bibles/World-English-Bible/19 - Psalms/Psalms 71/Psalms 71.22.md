@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also praise thee with the psaltery, [Even] thy truth, O my God: Unto thee will I sing praises with the harp, O thou Holy One of Israel.
+I will also praise you with the harp for your faithfulness, my God. I sing praises to you with the lyre, Holy One of Israel.

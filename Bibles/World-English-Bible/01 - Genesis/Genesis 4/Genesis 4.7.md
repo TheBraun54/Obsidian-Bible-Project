@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou doest well, shall it not be lifted up? and if thou doest not well, sin coucheth at the door; and unto thee shall be its desire; but do thou rule over it.
+If you do well, will it not be lifted up? If you don't do well, sin crouches at the door. Its desire is for you, but you are to rule over it."

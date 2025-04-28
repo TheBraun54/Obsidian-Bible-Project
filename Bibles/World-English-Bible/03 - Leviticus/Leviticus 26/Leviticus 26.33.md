@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And you will I scatter among the nations, and I will draw out the sword after you: and your land shall be a desolation, and your cities shall be a waste.
+I will scatter you among the nations, and I will draw out the sword after you: and your land will be a desolation, and your cities shall be a waste.

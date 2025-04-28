@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did I say, Give unto me? Or, Offer a present for me of your substance?
+Did I say, 'Give to me?' or, 'Offer a present for me from your substance?'

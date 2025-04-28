@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses did as Jehovah commanded: and they went up into mount Hor in the sight of all the congregation.
+Moses did as Yahweh commanded: and they went up into Mount Hor in the sight of all the congregation.

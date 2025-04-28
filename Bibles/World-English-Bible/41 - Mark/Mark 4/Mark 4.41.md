@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they feared exceedingly, and said one to another, Who then is this, that even the wind and the sea obey him?
+They were greatly afraid, and said to one another, "Who then is this, that even the wind and the sea obey him?"

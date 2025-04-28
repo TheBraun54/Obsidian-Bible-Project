@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then it shall be, in the day that he causeth his sons to inherit that which he hath, that he may not make the son of the beloved the first-born before the son of the hated, who is the first-born:
+then it shall be, in the day that he causes his sons to inherit that which he has, that he may not make the son of the beloved the firstborn before the son of the hated, who is the firstborn:

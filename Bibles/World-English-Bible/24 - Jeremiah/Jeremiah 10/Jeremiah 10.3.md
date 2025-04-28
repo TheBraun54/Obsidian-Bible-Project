@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the customs of the peoples are vanity; for one cutteth a tree out of the forest, the work of the hands of the workman with the axe.
+For the customs of the peoples are vanity; for one cuts a tree out of the forest, the work of the hands of the workman with the axe.

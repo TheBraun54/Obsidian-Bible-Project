@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when the ship was caught, and could not face the wind, we gave way [to it], and were driven.
+When the ship was caught, and couldn't face the wind, we gave way to it, and were driven along.

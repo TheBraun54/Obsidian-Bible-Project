@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt overlay it with pure gold, the top thereof, and the sides thereof round about, and the horns thereof; and thou shalt make unto it a crown of gold round about.
+You shall overlay it with pure gold, its top, its sides around it, and its horns; and you shall make a gold molding around it.

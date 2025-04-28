@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have heard many such things: Miserable comforters are ye all.
+"I have heard many such things. You are all miserable comforters!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall keep in order the lamps upon the pure candlestick before Jehovah continually.
+He shall keep in order the lamps on the pure gold lampstand before Yahweh continually.

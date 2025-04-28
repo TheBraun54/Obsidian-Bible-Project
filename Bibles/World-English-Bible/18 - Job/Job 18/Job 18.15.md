@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall dwell in his tent that which is none of his: Brimstone shall be scattered upon his habitation.
+There shall dwell in his tent that which is none of his. Sulfur shall be scattered on his habitation.

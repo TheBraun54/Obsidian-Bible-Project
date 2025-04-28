@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jesse made Shammah to pass by. And he said, Neither hath Jehovah chosen this.
+Then Jesse made Shammah to pass by. He said, "Neither has Yahweh chosen this one."

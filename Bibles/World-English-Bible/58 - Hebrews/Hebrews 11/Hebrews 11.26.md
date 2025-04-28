@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-accounting the reproach of Christ greater riches than the treasures of Egypt: for he looked unto the recompense of reward.
+accounting the reproach of Christ greater riches than the treasures of Egypt; for he looked to the reward.

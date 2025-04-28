@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Slander not a servant unto his master, Lest he curse thee, and thou be held guilty.
+"Don't slander a servant to his master, lest he curse you, and you be held guilty.

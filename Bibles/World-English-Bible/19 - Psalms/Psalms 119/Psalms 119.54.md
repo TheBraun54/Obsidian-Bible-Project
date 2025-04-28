@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy statutes have been my songs In the house of my pilgrimage.
+Your statutes have been my songs, in the house where I live.

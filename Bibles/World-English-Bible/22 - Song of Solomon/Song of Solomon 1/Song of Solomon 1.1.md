@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Song of songs, which is Solomon's.
+The Song of songs, which is Solomon's. Beloved

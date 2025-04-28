@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A glad heart maketh a cheerful countenance; But by sorrow of heart the spirit is broken.
+A glad heart makes a cheerful face; but an aching heart breaks the spirit.

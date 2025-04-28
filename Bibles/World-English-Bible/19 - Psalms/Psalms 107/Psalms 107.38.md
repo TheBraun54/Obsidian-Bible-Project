@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He blesseth them also, so that they are multiplied greatly; And he suffereth not their cattle to decrease.
+He blesses them also, so that they are multiplied greatly. He doesn't allow their livestock to decrease.

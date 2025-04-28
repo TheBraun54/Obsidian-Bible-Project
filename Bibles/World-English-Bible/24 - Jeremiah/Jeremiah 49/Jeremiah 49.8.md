@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Flee ye, turn back, dwell in the depths, O inhabitants of Dedan; for I will bring the calamity of Esau upon him, the time that I shall visit him.
+Flee, turn back, dwell in the depths, inhabitants of Dedan; for I will bring the calamity of Esau on him, the time that I shall visit him.

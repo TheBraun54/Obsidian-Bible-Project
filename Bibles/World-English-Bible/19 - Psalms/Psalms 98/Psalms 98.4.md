@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make a joyful noise unto Jehovah, all the earth: Break forth and sing for joy, yea, sing praises.
+Make a joyful noise to Yahweh, all the earth! Burst out and sing for joy, yes, sing praises!

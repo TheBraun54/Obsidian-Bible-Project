@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Some] of the multitude therefore, when they heard these words, said, This is of a truth the prophet.
+Many of the multitude therefore, when they heard these words, said, "This is truly the prophet."

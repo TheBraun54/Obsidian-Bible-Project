@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore should the nations say, Where is now their God?
+Why should the nations say, "Where is their God, now?"

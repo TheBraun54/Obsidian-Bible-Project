@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the people heard these evil tidings, they mourned: and no man did put on him his ornaments.
+When the people heard this evil news, they mourned: and no one put on his jewelry.

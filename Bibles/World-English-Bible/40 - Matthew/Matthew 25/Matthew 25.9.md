@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the wise answered, saying, Peradventure there will not be enough for us and you: go ye rather to them that sell, and buy for yourselves.
+But the wise answered, saying, 'What if there isn't enough for us and you? You go rather to those who sell, and buy for yourselves.'

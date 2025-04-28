@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah raised up an adversary unto Solomon, Hadad the Edomite: he was of the king's seed in Edom.
+Yahweh raised up an adversary to Solomon, Hadad the Edomite: he was of the king's seed in Edom.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto Jehovah with thanksgiving; Sing praises upon the harp unto our God,
+Sing to Yahweh with thanksgiving. Sing praises on the harp to our God,

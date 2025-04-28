@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou refuse to let them go, behold, I will smite all thy borders with frogs:
+If you refuse to let them go, behold, I will plague all your borders with frogs:

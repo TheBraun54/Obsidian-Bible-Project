@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From beyond the rivers of Ethiopia my suppliants, even the daughter of my dispersed, shall bring mine offering.
+From beyond the rivers of Cush, my worshipers, even the daughter of my dispersed people, will bring my offering.

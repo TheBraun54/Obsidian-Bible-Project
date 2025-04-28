@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye shall break down their altars, and dash in pieces their pillars, and ye shall cut down their Asherim
+but you shall break down their altars, and dash in pieces their pillars, and you shall cut down their Asherim;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit lifted me up, and brought me in the vision by the Spirit of God into Chaldea, to them of the captivity. So the vision that I had seen went up from me.
+The Spirit lifted me up, and brought me in the vision by the Spirit of God into Chaldea, to them of the captivity. So the vision that I had seen went up from me.

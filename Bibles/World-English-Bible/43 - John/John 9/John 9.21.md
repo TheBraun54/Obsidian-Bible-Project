@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but how he now seeth, we know not; or who opened his eyes, we know not: ask him; he is of age; he shall speak for himself.
+but how he now sees, we don't know; or who opened his eyes, we don't know. He is of age. Ask him. He will speak for himself."

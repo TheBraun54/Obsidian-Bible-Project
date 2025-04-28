@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say, Thus saith the Lord Jehovah: A city that sheddeth blood in the midst of her, that her time may come, and that maketh idols against herself to defile her!
+You shall say, Thus says the Lord Yahweh: A city that sheds blood in the midst of her, that her time may come, and that makes idols against herself to defile her!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these written by name came in the days of Hezekiah king of Judah, and smote their tents, and the Meunim that were found there, and destroyed them utterly unto this day, and dwelt in their stead; because there was pasture there for their flocks.
+These written by name came in the days of Hezekiah king of Judah, and struck their tents, and the Meunim who were found there, and destroyed them utterly to this day, and lived in their place; because there was pasture there for their flocks.

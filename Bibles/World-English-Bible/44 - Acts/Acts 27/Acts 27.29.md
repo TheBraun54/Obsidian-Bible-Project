@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fearing lest haply we should be cast ashore on rocky ground, they let go four anchors from the stern, and wished for the day.
+Fearing that we would run aground on rocky ground, they let go four anchors from the stern, and wished for daylight.

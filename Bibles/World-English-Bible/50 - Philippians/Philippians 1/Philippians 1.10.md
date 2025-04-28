@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that ye may approve the things that are excellent; that ye may be sincere and void of offence unto the day of Christ;
+so that you may approve the things that are excellent; that you may be sincere and without offense to the day of Christ;

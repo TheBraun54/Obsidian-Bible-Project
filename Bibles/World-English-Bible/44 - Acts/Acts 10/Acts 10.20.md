@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But arise, and get thee down, and go with them, nothing doubting: for I have sent them.
+But arise, get down, and go with them, doubting nothing; for I have sent them."

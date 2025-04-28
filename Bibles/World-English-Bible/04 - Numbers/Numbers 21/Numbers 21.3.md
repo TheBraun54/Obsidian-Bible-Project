@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hearkened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities: and the name of the place was called Hormah.
+Yahweh listened to the voice of Israel, and delivered up the Canaanites; and they utterly destroyed them and their cities: and the name of the place was called Hormah.

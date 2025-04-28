@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, I will destroy man whom I have created from the face of the ground; both man, and beast, and creeping things, and birds of the heavens; for it repenteth me that I have made them.
+Yahweh said, "I will destroy man whom I have created from the surface of the ground; man, along with animals, creeping things, and birds of the sky; for I am sorry that I have made them."

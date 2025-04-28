@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the angel of Jehovah spake these words unto all the children of Israel, that the people lifted up their voice, and wept.
+It happened, when the angel of Yahweh spoke these words to all the children of Israel, that the people lifted up their voice, and wept.

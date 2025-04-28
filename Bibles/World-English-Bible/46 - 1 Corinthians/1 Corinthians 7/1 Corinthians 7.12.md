@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to the rest say I, not the Lord: If any brother hath an unbelieving wife, and she is content to dwell with him, let him not leave her.
+But to the rest I--not the Lord--say, if any brother has an unbelieving wife, and she is content to live with him, let him not leave her.

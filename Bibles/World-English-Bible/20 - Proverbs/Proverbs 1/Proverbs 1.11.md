@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If they say, Come with us, Let us lay wait for blood; Let us lurk privily for the innocent without cause;
+If they say, "Come with us, Let's lay in wait for blood; let's lurk secretly for the innocent without cause;

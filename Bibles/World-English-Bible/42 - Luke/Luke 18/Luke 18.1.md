@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake a parable unto them to the end that they ought always to pray, and not to faint;
+He also spoke a parable to them that they must always pray, and not give up,

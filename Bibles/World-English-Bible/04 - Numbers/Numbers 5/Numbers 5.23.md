@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall write these curses in a book, and he shall blot them out into the water of bitterness:
+"'The priest shall write these curses in a book, and he shall blot them out into the water of bitterness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though there be that are called gods, whether in heaven or on earth; as there are gods many, and lords many;
+For though there are things that are called "gods," whether in the heavens or on earth; as there are many "gods" and many "lords;"

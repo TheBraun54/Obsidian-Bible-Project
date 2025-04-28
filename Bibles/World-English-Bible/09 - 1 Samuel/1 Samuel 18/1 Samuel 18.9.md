@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul eyed David from that day and forward.
+Saul eyed David from that day and forward.

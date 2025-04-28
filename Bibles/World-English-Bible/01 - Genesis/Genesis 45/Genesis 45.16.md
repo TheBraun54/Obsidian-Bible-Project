@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the report thereof was heard in Pharaoh's house, saying, Joseph's brethren are come: and it pleased Pharaoh well, and his servants.
+The report of it was heard in Pharaoh's house, saying, "Joseph's brothers have come." It pleased Pharaoh well, and his servants.

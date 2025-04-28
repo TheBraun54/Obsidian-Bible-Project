@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came of all peoples to hear the wisdom of Solomon, from all kings of the earth, who had heard of his wisdom.
+There came of all peoples to hear the wisdom of Solomon, from all kings of the earth, who had heard of his wisdom.

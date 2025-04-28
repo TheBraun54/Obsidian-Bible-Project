@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God sent me before you to preserve you a remnant in the earth, and to save you alive by a great deliverance.
+God sent me before you to preserve for you a remnant in the earth, and to save you alive by a great deliverance.

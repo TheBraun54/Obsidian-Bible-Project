@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and wheresoever the children of men dwell, the beasts of the field and the birds of the heavens hath he given into thy hand, and hath made thee to rule over them all: thou art the head of gold.
+and wherever the children of men dwell, the animals of the field and the birds of the sky has he given into your hand, and has made you to rule over them all: you are the head of gold.

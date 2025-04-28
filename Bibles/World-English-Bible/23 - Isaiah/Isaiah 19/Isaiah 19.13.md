@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The princes of Zoan are become fools, the princes of Memphis are deceived; they have caused Egypt to go astray, that are the corner-stone of her tribes.
+The princes of Zoan have become fools. The princes of Memphis are deceived. They have caused Egypt to go astray, who are the cornerstone of her tribes.

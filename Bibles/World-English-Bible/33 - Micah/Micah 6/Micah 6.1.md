@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye now what Jehovah saith: Arise, contend thou before the mountains, and let the hills hear thy voice.
+Listen now to what Yahweh says: "Arise, plead your case before the mountains, and let the hills hear what you have to say.

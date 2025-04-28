@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No lion shall be there, nor shall any ravenous beast go up thereon; they shall not be found there; but the redeemed shall walk [there] :
+No lion will be there, nor will any ravenous animal go up on it. They will not be found there; but the redeemed will walk there.

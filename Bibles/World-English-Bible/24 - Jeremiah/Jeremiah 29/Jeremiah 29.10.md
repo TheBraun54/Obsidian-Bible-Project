@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, After seventy years are accomplished for Babylon, I will visit you, and perform my good word toward you, in causing you to return to this place.
+For thus says Yahweh, After seventy years are accomplished for Babylon, I will visit you, and perform my good word toward you, in causing you to return to this place.

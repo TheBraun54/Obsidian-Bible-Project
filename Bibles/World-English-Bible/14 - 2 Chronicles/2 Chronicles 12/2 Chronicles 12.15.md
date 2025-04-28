@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the acts of Rehoboam, first and last, are they not written in the histories of Shemaiah the prophet and of Iddo the seer, after the manner of genealogies? And there were wars between Rehoboam and Jeroboam continually.
+Now the acts of Rehoboam, first and last, aren't they written in the histories of Shemaiah the prophet and of Iddo the seer, after the way of genealogies? There were wars between Rehoboam and Jeroboam continually.

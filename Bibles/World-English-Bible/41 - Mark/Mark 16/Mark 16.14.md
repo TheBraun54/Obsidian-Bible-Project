@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward he was manifested unto the eleven themselves as they sat at meat; and he upbraided them with their unbelief and hardness of heart, because they believed not them that had seen him after he was risen.
+Afterward he was revealed to the eleven themselves as they sat at the table, and he rebuked them for their unbelief and hardness of heart, because they didn't believe those who had seen him after he had risen.

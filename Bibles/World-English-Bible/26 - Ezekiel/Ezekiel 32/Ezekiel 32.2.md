@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, take up a lamentation over Pharaoh king of Egypt, and say unto him, Thou wast likened unto a young lion of the nations: yet art thou as a monster in the seas; and thou didst break forth with thy rivers, and troubledst the waters with thy feet, and fouledst their rivers.
+Son of man, take up a lamentation over Pharaoh king of Egypt, and tell him, You were likened to a young lion of the nations: yet you are as a monster in the seas; and you did break forth with your rivers, and troubled the waters with your feet, and fouled their rivers.

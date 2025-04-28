@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall spread them before the sun, and the moon, and all the host of heaven, which they have loved, and which they have served, and after which they have walked, and which they have sought, and which they have worshipped: they shall not be gathered, nor be buried, they shall be for dung upon the face of the earth.
+and they shall spread them before the sun, and the moon, and all the army of the sky, which they have loved, and which they have served, and after which they have walked, and which they have sought, and which they have worshiped: they shall not be gathered, nor be buried, they shall be for dung on the surface of the earth.

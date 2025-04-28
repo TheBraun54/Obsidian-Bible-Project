@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the uncircumcised male who is not circumcised in the flesh of his foreskin, that soul shall be cut off from his people; he hath broken my covenant.
+The uncircumcised male who is not circumcised in the flesh of his foreskin, that soul shall be cut off from his people. He has broken my covenant."

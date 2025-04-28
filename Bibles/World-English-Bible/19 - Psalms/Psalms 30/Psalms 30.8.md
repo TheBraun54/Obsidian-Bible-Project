@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I cried to thee, O Jehovah; And unto Jehovah I made supplication:
+I cried to you, Yahweh. To Yahweh I made supplication:

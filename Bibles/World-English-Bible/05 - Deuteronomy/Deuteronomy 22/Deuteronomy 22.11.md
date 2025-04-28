@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not wear a mingled stuff, wool and linen together.
+You shall not wear a mixed stuff, wool and linen together.

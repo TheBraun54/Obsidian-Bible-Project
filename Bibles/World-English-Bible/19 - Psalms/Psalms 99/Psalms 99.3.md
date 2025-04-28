@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them praise thy great and terrible name: Holy is he.
+Let them praise your great and awesome name. He is Holy!

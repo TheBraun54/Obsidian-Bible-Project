@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because I delivered the poor that cried, The fatherless also, that had none to help him.
+Because I delivered the poor who cried, and the fatherless also, who had none to help him,

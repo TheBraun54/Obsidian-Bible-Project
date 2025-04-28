@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us go up against Judah, and vex it, and let us make a breach therein for us, and set up a king in the midst of it, even the son of Tabeel;
+"Let's go up against Judah, and tear it apart, and let's divide it among ourselves, and set up a king in its midst, even the son of Tabeel."

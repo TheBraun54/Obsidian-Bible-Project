@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they, when they were dismissed, came down to Antioch; and having gathered the multitude together, they delivered the epistle.
+So, when they were sent off, they came to Antioch. Having gathered the multitude together, they delivered the letter.

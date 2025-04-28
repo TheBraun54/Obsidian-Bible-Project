@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who knoweth what is good for man in [his] life, all the days of his vain life which he spendeth as a shadow? for who can tell a man what shall be after him under the sun?
+For who knows what is good for man in life, all the days of his vain life which he spends like a shadow? For who can tell a man what will be after him under the sun?

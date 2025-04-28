@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return, O Jehovah, deliver my soul: Save me for thy lovingkindness' sake.
+Return, Yahweh. Deliver my soul, and save me for your loving kindness' sake.

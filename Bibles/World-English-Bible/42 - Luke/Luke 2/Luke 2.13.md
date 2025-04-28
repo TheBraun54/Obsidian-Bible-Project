@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And suddenly there was with the angel a multitude of the heavenly host praising God, and saying,
+Suddenly, there was with the angel a multitude of the heavenly army praising God, and saying,

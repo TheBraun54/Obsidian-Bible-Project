@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye may walk becomingly toward them that are without, and may have need of nothing.
+that you may walk properly toward those who are outside, and may have need of nothing.

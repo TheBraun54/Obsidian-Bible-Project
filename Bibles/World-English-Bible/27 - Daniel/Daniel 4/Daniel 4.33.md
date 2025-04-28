@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The same hour was the thing fulfilled upon Nebuchadnezzar: and he was driven from men, and did eat grass as oxen, and his body was wet with the dew of heaven, till his hair was grown like eagles' [feathers], and his nails like birds' [claws] .
+The same hour was the thing fulfilled on Nebuchadnezzar: and he was driven from men, and ate grass as oxen, and his body was wet with the dew of the sky, until his hair was grown like eagles' [feathers], and his nails like birds' [claws].

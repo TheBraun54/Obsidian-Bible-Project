@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he spake unto Korah and unto all his company, saying, In the morning Jehovah will show who are his, and who is holy, and will cause him to come near unto him: even him whom he shall choose will he cause to come near unto him.
+and he spoke to Korah and to all his company, saying, "In the morning Yahweh will show who are his, and who is holy, and will cause him to come near to him: even him whom he shall choose he will cause to come near to him.

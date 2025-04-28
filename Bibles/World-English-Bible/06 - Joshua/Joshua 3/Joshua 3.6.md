@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua spake unto the priests, saying, Take up the ark of the covenant, and pass over before the people. And they took up the ark of the covenant, and went before the people.
+Joshua spoke to the priests, saying, "Take up the ark of the covenant, and pass over before the people." They took up the ark of the covenant, and went before the people.

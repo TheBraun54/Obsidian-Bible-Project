@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for you, the anointing which ye received of him abideth in you, and ye need not that any one teach you; but as his anointing teacheth you; concerning all things, and is true, and is no lie, and even as it taught you, ye abide in him.
+As for you, the anointing which you received from him remains in you, and you don't need for anyone to teach you. But as his anointing teaches you concerning all things, and is true, and is no lie, and even as it taught you, you will remain in him.

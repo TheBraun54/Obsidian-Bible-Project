@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehu smote all that remained of the house of Ahab in Jezreel, and all his great men, and his familiar friends, and his priests, until he left him none remaining.
+So Jehu struck all that remained of the house of Ahab in Jezreel, with all his great men, his familiar friends, and his priests, until he left him none remaining.

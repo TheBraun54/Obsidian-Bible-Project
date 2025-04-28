@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and many of the Jews had come to Martha and Mary, to console them concerning their brother.
+Many of the Jews had joined the women around Martha and Mary, to console them concerning their brother.

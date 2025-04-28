@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now even a first [covenant] had ordinances of divine service, and its sanctuary, [a sanctuary] of this world.
+Now indeed even the first covenant had ordinances of divine service, and an earthly sanctuary.

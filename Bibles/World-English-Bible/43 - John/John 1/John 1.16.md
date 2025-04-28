@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For of his fulness we all received, and grace for grace.
+From his fullness we all received grace upon grace.

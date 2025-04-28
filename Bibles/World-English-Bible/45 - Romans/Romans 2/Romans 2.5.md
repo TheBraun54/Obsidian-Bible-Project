@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but after thy hardness and impenitent heart treasurest up for thyself wrath in the day of wrath and revelation of the righteous judgment of God;
+But according to your hardness and unrepentant heart you are treasuring up for yourself wrath in the day of wrath, revelation, and of the righteous judgment of God;

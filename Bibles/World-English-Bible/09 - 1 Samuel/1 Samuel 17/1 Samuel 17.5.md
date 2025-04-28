@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had a helmet of brass upon his head, and he was clad with a coat of mail; and the weight of the coat was five thousand shekels of brass.
+He had a helmet of brass on his head, and he was clad with a coat of mail; and the weight of the coat was five thousand shekels of brass.

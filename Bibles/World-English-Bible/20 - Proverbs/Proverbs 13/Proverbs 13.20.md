@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Walk with wise men, and thou shalt be wise; But the companion of fools shall smart for it.
+One who walks with wise men grows wise, but a companion of fools suffers harm.

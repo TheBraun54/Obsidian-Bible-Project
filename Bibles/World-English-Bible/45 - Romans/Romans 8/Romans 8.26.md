@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in like manner the Spirit also helpeth our infirmity: for we know not how to pray as we ought; but the Spirit himself maketh intercession for [us] with groanings which cannot be uttered;
+In the same way, the Spirit also helps our weaknesses, for we don't know how to pray as we ought. But the Spirit himself makes intercession for us with groanings which can't be uttered.

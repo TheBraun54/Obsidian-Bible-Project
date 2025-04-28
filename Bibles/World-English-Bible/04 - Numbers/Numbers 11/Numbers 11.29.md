@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto him, Art thou jealous for my sake? would that all Jehovah's people were prophets, that Jehovah would put his Spirit upon them!
+Moses said to him, "Are you jealous for my sake? I wish that all Yahweh's people were prophets, that Yahweh would put his Spirit on them!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because Jehovah was not able to bring this people into the land which he sware unto them, therefore he hath slain them in the wilderness.
+'Because Yahweh was not able to bring this people into the land which he swore to them, therefore he has slain them in the wilderness.'

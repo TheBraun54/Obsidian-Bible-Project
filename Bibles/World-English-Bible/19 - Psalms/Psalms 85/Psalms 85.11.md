@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Truth springeth out of the earth; And righteousness hath looked down from heaven.
+Truth springs out of the earth. Righteousness has looked down from heaven.

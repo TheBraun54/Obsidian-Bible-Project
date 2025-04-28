@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mephibosheth said unto the king, yea, let him take all, forasmuch as my lord the king is come in peace unto his own house.
+Mephibosheth said to the king, "Yes, let him take all, because my lord the king has come in peace to his own house."

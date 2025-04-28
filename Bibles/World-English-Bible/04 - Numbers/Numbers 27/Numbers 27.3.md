@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our father died in the wilderness, and he was not among the company of them that gathered themselves together against Jehovah in the company of Korah: but he died in his own sin; and he had no sons.
+"Our father died in the wilderness, and he was not among the company of those who gathered themselves together against Yahweh in the company of Korah: but he died in his own sin; and he had no sons.

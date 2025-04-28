@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and we dreamed a dream in one night, I and he; we dreamed each man according to the interpretation of his dream.
+We dreamed a dream in one night, I and he. We dreamed each man according to the interpretation of his dream.

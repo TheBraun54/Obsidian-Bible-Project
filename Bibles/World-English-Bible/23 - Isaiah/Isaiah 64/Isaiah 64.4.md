@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For from of old men have not heard, nor perceived by the ear, neither hath the eye seen a God besides thee, who worketh for him that waiteth for him.
+For from of old men have not heard, nor perceived by the ear, neither has the eye seen a God besides you, who works for him who waits for him.

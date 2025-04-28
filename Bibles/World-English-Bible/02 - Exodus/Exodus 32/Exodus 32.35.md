@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah smote the people, because they made the calf, which Aaron made.
+Yahweh struck the people, because they made the calf, which Aaron made.

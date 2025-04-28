@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their meal-offering, fine flour mingled with oil: three tenth parts shall ye offer for a bullock, and two tenth parts for the ram;
+and their meal offering, fine flour mixed with oil: you shall offer three tenth parts for a bull, and two tenth parts for the ram.

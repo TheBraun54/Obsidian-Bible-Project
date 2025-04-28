@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days the house of Judah shall walk with the house of Israel, and they shall come together out of the land of the north to the land that I gave for an inheritance unto your fathers.
+In those days the house of Judah shall walk with the house of Israel, and they shall come together out of the land of the north to the land that I gave for an inheritance to your fathers.

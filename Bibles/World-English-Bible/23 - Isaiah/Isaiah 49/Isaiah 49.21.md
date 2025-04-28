@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou say in thy heart, Who hath begotten me these, seeing I have been bereaved of my children, and am solitary, an exile, and wandering to and fro? and who hath brought up these? Behold, I was left alone; these, where were they?
+Then you will say in your heart, 'Who has conceived these for me, since I have been bereaved of my children, and am solitary, an exile, and wandering back and forth? Who has brought up these? Behold, I was left alone; these, where were they?'"

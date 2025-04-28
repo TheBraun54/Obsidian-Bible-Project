@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and spake unto them, saying, Return with much wealth unto your tents, and with very much cattle, with silver, and with gold, and with brass, and with iron, and with very much raiment: divide the spoil of your enemies with your brethren.
+and spoke to them, saying, "Return with much wealth to your tents, with very much livestock, with silver, with gold, with brass, with iron, and with very much clothing. Divide the spoil of your enemies with your brothers."

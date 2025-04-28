@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. In my distress I cried unto Jehovah, And he answered me.
+In my distress, I cried to Yahweh. He answered me.

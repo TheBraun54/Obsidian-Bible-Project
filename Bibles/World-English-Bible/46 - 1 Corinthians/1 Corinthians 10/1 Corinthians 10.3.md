@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and did all eat the same spiritual food;
+and all ate the same spiritual food;

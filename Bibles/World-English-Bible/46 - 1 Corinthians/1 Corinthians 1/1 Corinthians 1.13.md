@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is Christ divided? was Paul crucified for you? or were ye baptized into the name of Paul?
+Is Christ divided? Was Paul crucified for you? Or were you baptized into the name of Paul?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitudes that went before him, and that followed, cried, saying, Hosanna to the son of David: Blessed [is] he that cometh in the name of the Lord; Hosanna in the highest.
+The multitudes who went before him, and who followed kept shouting, "Hosanna to the son of David! Blessed is he who comes in the name of the Lord! Hosanna in the highest!"

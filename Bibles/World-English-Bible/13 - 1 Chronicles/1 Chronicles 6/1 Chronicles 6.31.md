@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are they whom David set over the service of song in the house of Jehovah, after that the ark had rest.
+These are they whom David set over the service of song in the house of Yahweh, after that the ark had rest.

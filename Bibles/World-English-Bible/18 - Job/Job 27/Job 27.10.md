@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will he delight himself in the Almighty, And call upon God at all times?
+Will he delight himself in the Almighty, and call on God at all times?

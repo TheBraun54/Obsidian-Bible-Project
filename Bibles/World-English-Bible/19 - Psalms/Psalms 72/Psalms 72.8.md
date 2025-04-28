@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall have dominion also from sea to sea, And from the River unto the ends of the earth.
+He shall have dominion also from sea to sea, from the River to the ends of the earth.

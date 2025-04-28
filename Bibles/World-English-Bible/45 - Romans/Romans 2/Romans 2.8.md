@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but unto them that are factious, and obey not the truth, but obey unrighteousness, [shall be] wrath and indignation,
+but to those who are self-seeking, and don't obey the truth, but obey unrighteousness, will be wrath and indignation,

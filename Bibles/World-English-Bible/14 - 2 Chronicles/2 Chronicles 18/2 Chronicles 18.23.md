@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Zedekiah the son of Chenaanah came near, and smote Micaiah upon the cheek, and said, Which way went the Spirit of Jehovah from me to speak unto thee?
+Then Zedekiah the son of Chenaanah came near, and struck Micaiah on the cheek, and said, "Which way did the Spirit of Yahweh go from me to speak to you?"

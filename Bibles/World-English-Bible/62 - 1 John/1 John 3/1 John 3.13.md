@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Marvel not, brethren, if the world hateth you.
+Don't be surprised, my brothers, if the world hates you.

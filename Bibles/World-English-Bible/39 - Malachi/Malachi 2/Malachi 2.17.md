@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have wearied Jehovah with your words. Yet ye say, Wherein have we wearied him? In that ye say, Every one that doeth evil is good in the sight of Jehovah, and he delighteth in them; or where is the God of justice?
+You have wearied Yahweh with your words. Yet you say, 'How have we wearied him?' In that you say, 'Everyone who does evil is good in the sight of Yahweh, and he delights in them;' or 'Where is the God of justice?'

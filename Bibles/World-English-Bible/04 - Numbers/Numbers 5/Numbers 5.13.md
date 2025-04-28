@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a man lie with her carnally, and it be hid from the eyes of her husband, and be kept close, and she be defiled, and there be no witness against her, and she be not taken in the act;
+and a man lies with her carnally, and it is hidden from the eyes of her husband, and is kept close, and she is defiled, and there is no witness against her, and she isn't taken in the act;

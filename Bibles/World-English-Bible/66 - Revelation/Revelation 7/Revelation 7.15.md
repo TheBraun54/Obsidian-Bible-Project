@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore are they before the throne of God; and they serve him day and night in his temple: and he that sitteth on the throne shall spread his tabernacle over them.
+Therefore they are before the throne of God, they serve him day and night in his temple. He who sits on the throne will spread his tabernacle over them.

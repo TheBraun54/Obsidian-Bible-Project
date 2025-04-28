@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And though the Lord give you the bread of adversity and the water of affliction, yet shall not thy teachers be hidden anymore, but thine eyes shall see thy teachers;
+Though the Lord may give you the bread of adversity and the water of affliction, yet your teachers won't be hidden anymore, but your eyes will see your teachers;

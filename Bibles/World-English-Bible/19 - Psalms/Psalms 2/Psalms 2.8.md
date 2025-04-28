@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ask of me, and I will give [thee] the nations for thine inheritance, And the uttermost parts of the earth for thy possession.
+Ask of me, and I will give the nations for your inheritance, the uttermost parts of the earth for your possession.

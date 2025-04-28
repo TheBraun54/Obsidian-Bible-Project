@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But before faith came, we were kept in ward under the law, shut up unto the faith which should afterwards be revealed.
+But before faith came, we were kept in custody under the law, confined for the faith which should afterwards be revealed.

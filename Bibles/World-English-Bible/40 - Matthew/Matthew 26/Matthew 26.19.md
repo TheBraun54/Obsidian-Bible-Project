@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples did as Jesus appointed them; and they made ready the passover.
+The disciples did as Jesus commanded them, and they prepared the Passover.

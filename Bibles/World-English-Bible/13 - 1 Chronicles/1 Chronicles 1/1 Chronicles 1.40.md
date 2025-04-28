@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Shobal: Alian, and Manahath, and Ebal, Shephi, and Onam. And the sons of Zibeon: Aiah, and Anah.
+The sons of Shobal: Alian, and Manahath, and Ebal, Shephi, and Onam. The sons of Zibeon: Aiah, and Anah.

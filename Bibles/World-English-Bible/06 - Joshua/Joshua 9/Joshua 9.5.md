@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and old and patched shoes upon their feet, and old garments upon them; and all the bread of their provision was dry and was become mouldy.
+and old and patched shoes on their feet, and wore old garments. All the bread of their provision was dry and moldy.

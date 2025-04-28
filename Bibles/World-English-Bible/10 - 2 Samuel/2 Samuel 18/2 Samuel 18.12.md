@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man said unto Joab, Though I should receive a thousand [pieces of] silver in my hand, yet would I not put forth my hand against the king's son; for in our hearing the king charged thee and Abishai and Ittai, saying, Beware that none touch the young man Absalom.
+The man said to Joab, "Though I should receive a thousand pieces of silver in my hand, I still wouldn't put forth my hand against the king's son; for in our hearing the king commanded you and Abishai and Ittai, saying, 'Beware that none touch the young man Absalom.'

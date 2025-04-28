@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there arose also a contention among them, which of them was accounted to be greatest.
+There arose also a contention among them, which of them was considered to be greatest.

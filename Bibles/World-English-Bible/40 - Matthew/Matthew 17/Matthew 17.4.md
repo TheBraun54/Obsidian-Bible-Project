@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter answered, and said unto Jesus, Lord, it is good for us to be here: if thou wilt, I will make here three tabernacles; one for thee, and one for Moses, and one for Elijah.
+Peter answered, and said to Jesus, "Lord, it is good for us to be here. If you want, let's make three tents here: one for you, one for Moses, and one for Elijah."

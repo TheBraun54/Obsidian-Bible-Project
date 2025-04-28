@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from mount Halak, that goeth up to Seir, even unto Baal-gad in the valley of Lebanon under mount Hermon: and all their kings he took, and smote them, and put them to death.
+from Mount Halak, that goes up to Seir, even to Baal Gad in the valley of Lebanon under Mount Hermon. He took all their kings, struck them, and put them to death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I would haste me to a shelter From the stormy wind and tempest.
+"I would hurry to a shelter from the stormy wind and storm."

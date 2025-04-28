@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not abhor an Edomite; for he is thy brother: thou shalt not abhor an Egyptian, because thou wast a sojourner in his land.
+You shall not abhor an Edomite; for he is your brother: you shall not abhor an Egyptian, because you lived as a foreigner in his land.

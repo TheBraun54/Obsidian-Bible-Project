@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that with good courage we say, The Lord is my helper; I will not fear: What shall man do unto me?
+So that with good courage we say, "The Lord is my helper. I will not fear. What can man do to me?"

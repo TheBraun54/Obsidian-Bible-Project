@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore as Jehovah liveth, who hath established me, and set me on the throne of David my father, and who hath made me a house, as he promised, surely Adonijah shall be put to death this day.
+Now therefore as Yahweh lives, who has established me, and set me on the throne of David my father, and who has made me a house, as he promised, surely Adonijah shall be put to death this day."

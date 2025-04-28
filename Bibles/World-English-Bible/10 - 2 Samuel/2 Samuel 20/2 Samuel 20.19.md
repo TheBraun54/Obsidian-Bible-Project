@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am of them that are peaceable and faithful in Israel: thou seekest to destroy a city and a mother in Israel: why wilt thou swallow up the inheritance of Jehovah?
+I am among those who are peaceable and faithful in Israel. You seek to destroy a city and a mother in Israel. Why will you swallow up the inheritance of Yahweh?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall hallow the fiftieth year, and proclaim liberty throughout the land unto all the inhabitants thereof: it shall be a jubilee unto you; and ye shall return every man unto his possession, and ye shall return every man unto his family.
+You shall make the fiftieth year holy, and proclaim liberty throughout the land to all its inhabitants. It shall be a jubilee to you; and each of you shall return to his own property, and each of you shall return to his family.

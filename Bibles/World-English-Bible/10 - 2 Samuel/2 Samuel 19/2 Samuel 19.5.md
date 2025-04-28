@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab came into the house to the king, and said, Thou hast shamed this day the faces of all thy servants, who this day have saved thy life, and the lives of thy sons and of thy daughters, and the lives of thy wives, and the lives of thy concubines;
+Joab came into the house to the king, and said, "You have shamed this day the faces of all your servants, who this day have saved your life, and the lives of your sons and of your daughters, and the lives of your wives, and the lives of your concubines;

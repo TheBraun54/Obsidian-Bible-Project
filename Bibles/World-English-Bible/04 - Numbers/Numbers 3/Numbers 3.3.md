@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the names of the sons of Aaron, the priests that were anointed, whom he consecrated to minister in the priest's office.
+These are the names of the sons of Aaron, the priests who were anointed, whom he consecrated to minister in the priest's office.

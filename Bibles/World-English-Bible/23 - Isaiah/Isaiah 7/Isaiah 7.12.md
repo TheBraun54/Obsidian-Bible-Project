@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Ahaz said, I will not ask, neither will I tempt Jehovah.
+But Ahaz said, "I will not ask, neither will I tempt Yahweh."

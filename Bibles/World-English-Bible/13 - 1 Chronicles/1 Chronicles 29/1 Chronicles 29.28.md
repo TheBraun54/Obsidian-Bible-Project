@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he died in a good old age, full of days, riches, and honor: and Solomon his son reigned in his stead.
+He died in a good old age, full of days, riches, and honor: and Solomon his son reigned in his place.

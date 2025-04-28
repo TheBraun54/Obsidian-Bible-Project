@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it went out southward of the ascent of Akrabbim, and passed along to Zin, and went up by the south of Kadesh-barnea, and passed along by Hezron, and went up to Addar, and turned about to Karka;
+and it went out southward of the ascent of Akrabbim, and passed along to Zin, and went up by the south of Kadesh Barnea, and passed along by Hezron, went up to Addar, and turned about to Karka;

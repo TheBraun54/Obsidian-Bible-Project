@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sin of the young men was very great before Jehovah; for the men despised the offering of Jehovah.
+The sin of the young men was very great before Yahweh; for the men despised the offering of Yahweh.

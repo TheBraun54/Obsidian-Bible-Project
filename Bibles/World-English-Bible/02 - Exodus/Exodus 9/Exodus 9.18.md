@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, to-morrow about this time I will cause it to rain a very grievous hail, such as hath not been in Egypt since the day it was founded even until now.
+Behold, tomorrow about this time I will cause it to rain a very grievous hail, such as has not been in Egypt since the day it was founded even until now.

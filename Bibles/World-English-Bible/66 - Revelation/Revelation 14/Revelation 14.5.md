@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in their mouth was found no lie: they are without blemish.
+In their mouth was found no lie, for they are blameless.

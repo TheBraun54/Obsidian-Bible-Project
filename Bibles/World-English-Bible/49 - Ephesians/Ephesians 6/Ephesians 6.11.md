@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put on the whole armor of God, that ye may be able to stand against the wiles of the devil.
+Put on the whole armor of God, that you may be able to stand against the wiles of the devil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah. Praise ye Jehovah from the heavens: Praise him in the heights.
+Praise Yah! Praise Yahweh from the heavens! Praise him in the heights!

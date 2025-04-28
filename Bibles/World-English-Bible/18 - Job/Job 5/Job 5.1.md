@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Call now; is there any that will answer thee? And to which of the holy ones wilt thou turn?
+"Call now; is there any who will answer you? To which of the holy ones will you turn?

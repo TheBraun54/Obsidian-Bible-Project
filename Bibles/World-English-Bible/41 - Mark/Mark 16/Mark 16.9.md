@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when he was risen early on the first day of the week, he appeared first to Mary Magdalene, from whom he had cast out seven demons.
+Now when he had risen early on the first day of the week, he appeared first to Mary Magdalene, from whom he had cast out seven demons.

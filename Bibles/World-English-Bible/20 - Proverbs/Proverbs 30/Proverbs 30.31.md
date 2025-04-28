@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The greyhound; The he-goat also; And the king against whom there is no rising up.
+the greyhound, the male goat also; and the king against whom there is no rising up.

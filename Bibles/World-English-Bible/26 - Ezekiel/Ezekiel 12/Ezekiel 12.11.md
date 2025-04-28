@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say, I am your sign: like as I have done, so shall it be done unto them; they shall go into exile, into captivity.
+Say, I am your sign: like as I have done, so shall it be done to them; they shall go into exile, into captivity.

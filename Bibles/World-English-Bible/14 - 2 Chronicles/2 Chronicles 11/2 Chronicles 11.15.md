@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he appointed him priests for the high places, and for the he-goats, and for the calves which he had made.
+and he appointed him priests for the high places, and for the male goats, and for the calves which he had made.

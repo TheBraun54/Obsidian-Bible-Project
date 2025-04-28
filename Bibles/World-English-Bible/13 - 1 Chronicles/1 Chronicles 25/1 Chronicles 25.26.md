@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the nineteenth to Mallothi, his sons and his brethren, twelve:
+for the nineteenth to Mallothi, his sons and his brothers, twelve:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I counsel thee to buy of me gold refined by fire, that thou mayest become rich; and white garments, that thou mayest clothe thyself, and [that] the shame of thy nakedness be not made manifest; and eyesalve to anoint thine eyes, that thou mayest see.
+I counsel you to buy from me gold refined by fire, that you may become rich; and white garments, that you may clothe yourself, and that the shame of your nakedness may not be revealed; and eye salve to anoint your eyes, that you may see.

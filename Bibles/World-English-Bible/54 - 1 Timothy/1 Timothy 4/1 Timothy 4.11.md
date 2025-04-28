@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things command and teach.
+Command and teach these things.

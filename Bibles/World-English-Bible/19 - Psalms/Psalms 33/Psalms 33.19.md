@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To deliver their soul from death, And to keep them alive in famine.
+to deliver their soul from death, to keep them alive in famine.

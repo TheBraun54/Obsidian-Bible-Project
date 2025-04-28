@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who are these that fly as a cloud, and as the doves to their windows?
+"Who are these who fly as a cloud, and as the doves to their windows?

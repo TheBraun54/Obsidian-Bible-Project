@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He gave them hail for rain, [And] flaming fire in their land.
+He gave them hail for rain, with lightning in their land.

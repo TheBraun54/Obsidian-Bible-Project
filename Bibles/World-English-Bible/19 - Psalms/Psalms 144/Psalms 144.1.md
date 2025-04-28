@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Blessed be Jehovah my rock, Who teacheth my hands to war, [And] my fingers to fight:
+Blessed be Yahweh, my rock, who teaches my hands to war, and my fingers to battle:

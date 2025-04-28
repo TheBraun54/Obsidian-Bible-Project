@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Christ also glorified not himself to be made a high priest, but he that spake unto him, Thou art my Son, This day have I begotten thee:
+So also Christ didn't glorify himself to be made a high priest, but it was he who said to him, "You are my Son. Today I have become your father."

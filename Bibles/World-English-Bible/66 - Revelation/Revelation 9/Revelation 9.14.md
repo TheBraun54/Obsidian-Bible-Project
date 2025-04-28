@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one saying to the sixth angel that had one trumpet, Loose the four angels that are bound at the great river Euphrates.
+saying to the sixth angel who had one trumpet, "Free the four angels who are bound at the great river Euphrates!"

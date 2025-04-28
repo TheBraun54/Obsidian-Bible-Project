@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the God of patience and of comfort grant you to be of the same mind one with another according to Christ Jesus:
+Now the God of patience and of encouragement grant you to be of the same mind one with another according to Christ Jesus,

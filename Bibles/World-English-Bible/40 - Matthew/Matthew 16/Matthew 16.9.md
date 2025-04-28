@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do ye not yet perceive, neither remember the five loaves of the five thousand, and how many baskets ye took up?
+Don't you yet perceive, neither remember the five loaves for the five thousand, and how many baskets you took up?

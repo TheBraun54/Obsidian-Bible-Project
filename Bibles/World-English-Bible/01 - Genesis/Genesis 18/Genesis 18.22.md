@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men turned from thence, and went toward Sodom: but Abraham stood yet before Jehovah.
+The men turned from there, and went toward Sodom, but Abraham stood yet before Yahweh.

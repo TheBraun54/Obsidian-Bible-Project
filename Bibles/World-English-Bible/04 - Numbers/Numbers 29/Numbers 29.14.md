@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their meal-offering, fine flour mingled with oil, three tenth parts for every bullock of the thirteen bullocks, two tenth parts for each ram of the two rams,
+and their meal offering, fine flour mixed with oil, three tenth parts for every bull of the thirteen bulls, two tenth parts for each ram of the two rams,

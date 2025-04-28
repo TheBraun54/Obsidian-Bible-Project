@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who is on the right hand of God, having gone into heaven; angels and authorities and powers being made subject unto him.
+who is at the right hand of God, having gone into heaven, angels and authorities and powers being made subject to him.

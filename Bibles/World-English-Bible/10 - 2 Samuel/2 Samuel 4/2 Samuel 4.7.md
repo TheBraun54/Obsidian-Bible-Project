@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when they came into the house, as he lay on his bed in his bedchamber, they smote him, and slew him, and beheaded him, and took his head, and went by the way of the Arabah all night.
+Now when they came into the house, as he lay on his bed in his bedroom, they struck him, and killed him, and beheaded him, and took his head, and went by the way of the Arabah all night.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and your strength shall be spent in vain; for your land shall not yield its increase, neither shall the trees of the land yield their fruit.
+and your strength will be spent in vain; for your land won't yield its increase, neither will the trees of the land yield their fruit.

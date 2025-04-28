@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make thee a bare rock; thou shalt be a place for the spreading of nets; thou shalt be built no more: for I Jehovah have spoken it, saith the Lord Jehovah.
+I will make you a bare rock; you shall be a place for the spreading of nets; you shall be built no more: for I Yahweh have spoken it, says the Lord Yahweh.

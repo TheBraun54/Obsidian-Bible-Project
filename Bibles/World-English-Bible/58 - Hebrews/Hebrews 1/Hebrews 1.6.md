@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he again bringeth in the firstborn into the world he saith, And let all the angels of God worship him.
+Again, when he brings in the firstborn into the world he says, "Let all the angels of God worship him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt be driven from men; and thy dwelling shall be with the beasts of the field; thou shalt be made to eat grass as oxen; and seven times shall pass over thee; until thou know that the Most High ruleth in the kingdom of men, and giveth it to whomsoever he will.
+and you shall be driven from men; and your dwelling shall be with the animals of the field; you shall be made to eat grass as oxen; and seven times shall pass over you; until you know that the Most High rules in the kingdom of men, and gives it to whomever he will.

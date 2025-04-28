@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, Jesus met them, saying, All hail. And they came and took hold of his feet, and worshipped him.
+As they went to tell his disciples, behold, Jesus met them, saying, "Rejoice!" They came and took hold of his feet, and worshiped him.

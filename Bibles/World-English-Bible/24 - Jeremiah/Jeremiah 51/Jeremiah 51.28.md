@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Prepare against her the nations, the kings of the Medes, the governors thereof, and all the deputies thereof, and all the land of their dominion.
+Prepare against her the nations, the kings of the Medes, its governors, and all its deputies, and all the land of their dominion.

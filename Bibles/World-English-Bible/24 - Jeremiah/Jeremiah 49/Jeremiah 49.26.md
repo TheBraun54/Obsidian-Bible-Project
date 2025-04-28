@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore her young men shall fall in her streets, and all the men of war shall be brought to silence in that day, saith Jehovah of hosts.
+Therefore her young men shall fall in her streets, and all the men of war shall be brought to silence in that day, says Yahweh of Armies.

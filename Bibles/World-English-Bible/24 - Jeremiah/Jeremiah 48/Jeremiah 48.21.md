@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And judgment is come upon the plain country, upon Holon, and upon Jahzah, and upon Mephaath,
+Judgment is come on the plain country, on Holon, and on Jahzah, and on Mephaath,

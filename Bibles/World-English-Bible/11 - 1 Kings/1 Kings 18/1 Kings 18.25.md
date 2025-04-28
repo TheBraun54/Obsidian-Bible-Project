@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah said unto the prophets of Baal, Choose you one bullock for yourselves, and dress it first; for ye are many; and call on the name of your god, but put no fire under.
+Elijah said to the prophets of Baal, "Choose one bull for yourselves, and dress it first; for you are many; and call on the name of your god, but put no fire under it."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter answered and said unto him, Declare unto us the parable.
+Peter answered him, "Explain the parable to us."

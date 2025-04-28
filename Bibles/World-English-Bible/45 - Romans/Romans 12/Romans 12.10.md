@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In love of the brethren be tenderly affectioned one to another; in honor preferring one another;
+In love of the brothers be tenderly affectionate one to another; in honor preferring one another;

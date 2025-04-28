@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Tychicus I sent to Ephesus.
+But I sent Tychicus to Ephesus.

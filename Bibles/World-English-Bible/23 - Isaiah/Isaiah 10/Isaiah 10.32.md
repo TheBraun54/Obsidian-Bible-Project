@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This very day shall he halt at Nob: he shaketh his hand at the mount of the daughter of Zion, the hill of Jerusalem.
+This very day he will halt at Nob. He shakes his hand at the mountain of the daughter of Zion, the hill of Jerusalem.

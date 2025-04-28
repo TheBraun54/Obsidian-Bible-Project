@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O daughter of Babylon, that art to be destroyed, Happy shall he be, that rewardeth thee As thou hast served us.
+Daughter of Babylon, doomed to destruction, he will be happy who rewards you, as you have served us.

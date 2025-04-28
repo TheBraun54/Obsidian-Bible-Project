@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the redemption of the two hundred and threescore and thirteen of the first-born of the children of Israel, that are over and above [the number of] the Levites,
+For the redemption of the two hundred seventy-three of the firstborn of the children of Israel, who exceed the number of the Levites,

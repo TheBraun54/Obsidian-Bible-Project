@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but this is that which hath been spoken through the prophet Joel:
+But this is what has been spoken through the prophet Joel:

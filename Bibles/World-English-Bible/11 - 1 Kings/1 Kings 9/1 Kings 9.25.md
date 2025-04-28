@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And three times a year did Solomon offer burnt-offerings and peace-offerings upon the altar which he built unto Jehovah, burning incense therewith, [upon the altar] that was before Jehovah. So he finished the house.
+Three times a year did Solomon offer burnt offerings and peace offerings on the altar which he built to Yahweh, burning incense therewith, [on the altar] that was before Yahweh. So he finished the house.

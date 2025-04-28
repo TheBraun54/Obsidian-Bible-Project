@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that which the Father giveth me shall come unto me; and him that cometh to me I will in no wise cast out.
+All those who the Father gives me will come to me. Him who comes to me I will in no way throw out.

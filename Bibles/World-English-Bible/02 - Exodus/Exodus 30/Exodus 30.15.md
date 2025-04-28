@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rich shall not give more, and the poor shall not give less, than the half shekel, when they give the offering of Jehovah, to make atonement for your souls.
+The rich shall not give more, and the poor shall not give less, than the half shekel, when they give the offering of Yahweh, to make atonement for your souls.

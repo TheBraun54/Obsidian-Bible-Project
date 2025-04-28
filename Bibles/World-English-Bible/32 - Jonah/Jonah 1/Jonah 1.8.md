@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said they unto him, Tell us, we pray thee, for whose cause this evil is upon us; what is thine occupation? and whence comest thou? what is thy country? and of what people art thou?
+Then they asked him, "Tell us, please, for whose cause this evil is on us. What is your occupation? Where do you come from? What is your country? Of what people are you?"

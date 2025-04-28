@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the residue thereof he maketh a god, even his graven image; he falleth down unto it and worshippeth, and prayeth unto it, and saith, Deliver me; for thou art my god.
+The rest of it he makes into a god, even his engraved image. He bows down to it and worships, and prays to it, and says, "Deliver me; for you are my god!"

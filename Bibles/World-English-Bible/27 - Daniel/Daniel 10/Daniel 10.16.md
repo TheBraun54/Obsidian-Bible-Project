@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, one in the likeness of the sons of men touched my lips: then I opened my mouth, and spake and said unto him that stood before me, O my lord, by reason of the vision my sorrows are turned upon me, and I retain no strength.
+Behold, one in the likeness of the sons of men touched my lips: then I opened my mouth, and spoke and said to him who stood before me, my lord, by reason of the vision my sorrows are turned on me, and I retain no strength.

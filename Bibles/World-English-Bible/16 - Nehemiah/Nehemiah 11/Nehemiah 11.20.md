@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the residue of Israel, of the priests, the Levites, were in all the cities of Judah, every one in his inheritance.
+The residue of Israel, of the priests, the Levites, were in all the cities of Judah, everyone in his inheritance.

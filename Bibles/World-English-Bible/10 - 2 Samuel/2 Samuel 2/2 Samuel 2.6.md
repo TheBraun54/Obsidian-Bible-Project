@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now Jehovah show lovingkindness and truth unto you: and I also will requite you this kindness, because ye have done this thing.
+Now may Yahweh show loving kindness and truth to you. I also will reward you for this kindness, because you have done this thing.

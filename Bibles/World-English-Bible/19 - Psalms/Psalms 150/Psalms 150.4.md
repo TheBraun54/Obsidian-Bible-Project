@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise him with timbrel and dance: Praise him with stringed instruments and pipe.
+Praise him with tambourine and dancing! Praise him with stringed instruments and flute!

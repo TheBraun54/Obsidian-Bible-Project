@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take away from me reproach and contempt; For I have kept thy testimonies.
+Take reproach and contempt away from me, for I have kept your statutes.

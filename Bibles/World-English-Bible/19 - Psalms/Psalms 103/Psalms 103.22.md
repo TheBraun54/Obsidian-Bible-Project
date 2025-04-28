@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bless Jehovah, all ye his works, In all places of his dominion: Bless Jehovah, O my soul.
+Praise Yahweh, all you works of his, in all places of his dominion. Praise Yahweh, my soul!

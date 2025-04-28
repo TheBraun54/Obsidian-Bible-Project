@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the generations of the heavens and of the earth when they were created, in the day that Jehovah God made earth and heaven.
+This is the history of the generations of the heavens and of the earth when they were created, in the day that Yahweh God made the earth and the heavens.

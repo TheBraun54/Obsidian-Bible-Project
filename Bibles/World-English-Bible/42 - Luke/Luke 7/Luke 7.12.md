@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when he drew near to the gate of the city, behold, there was carried out one that was dead, the only son of his mother, and she was a widow: and much people of the city was with her.
+Now when he drew near to the gate of the city, behold, one who was dead was carried out, the only son of his mother, and she was a widow. Many people of the city were with her.

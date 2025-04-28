@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he that knew not, and did things worthy of stripes, shall be beaten with few [stripes] . And to whomsoever much is given, of him shall much be required: and to whom they commit much, of him will they ask the more.
+but he who didn't know, and did things worthy of stripes, will be beaten with few stripes. To whoever much is given, of him will much be required; and to whom much was entrusted, of him more will be asked.

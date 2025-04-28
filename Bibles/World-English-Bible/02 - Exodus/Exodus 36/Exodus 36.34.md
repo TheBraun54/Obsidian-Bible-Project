@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he overlaid the boards with gold, and made their rings of gold for places for the bars, and overlaid the bars with gold.
+He overlaid the boards with gold, and made their rings of gold for places for the bars, and overlaid the bars with gold.

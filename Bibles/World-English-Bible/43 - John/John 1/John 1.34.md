@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have seen, and have borne witness that this is the Son of God.
+I have seen, and have testified that this is the Son of God."

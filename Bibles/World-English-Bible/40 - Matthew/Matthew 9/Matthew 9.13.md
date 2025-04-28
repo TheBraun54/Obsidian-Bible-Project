@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But go ye and learn what [this] meaneth, I desire mercy, and not sacrifice, for I came not to call the righteous, but sinners.
+But you go and learn what this means: 'I desire mercy, and not sacrifice,' for I came not to call the righteous, but sinners to repentance."

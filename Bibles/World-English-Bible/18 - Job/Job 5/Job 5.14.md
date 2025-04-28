@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They meet with darkness in the day-time, And grope at noonday as in the night.
+They meet with darkness in the day time, and grope at noonday as in the night.

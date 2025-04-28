@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob went down into Egypt; and he died, himself and our fathers;
+Jacob went down into Egypt, and he died, himself and our fathers,

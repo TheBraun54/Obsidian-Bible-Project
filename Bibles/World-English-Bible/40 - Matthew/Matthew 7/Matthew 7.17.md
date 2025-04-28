@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so every good tree bringeth forth good fruit; but the corrupt tree bringeth forth evil fruit.
+Even so, every good tree produces good fruit; but the corrupt tree produces evil fruit.

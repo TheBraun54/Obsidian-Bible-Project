@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come into Jerusalem, all the city was stirred, saying, Who is this?
+When he had come into Jerusalem, all the city was stirred up, saying, "Who is this?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The new wine mourneth, the vine languisheth, all the merry-hearted do sigh.
+The new wine mourns. The vine languishes. All the merry-hearted sigh.

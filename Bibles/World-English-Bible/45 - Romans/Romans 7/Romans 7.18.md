@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know that in me, that is, in my flesh, dwelleth no good thing: for to will is present with me, but to do that which is good [is] not.
+For I know that in me, that is, in my flesh, dwells no good thing. For desire is present with me, but I don't find it doing that which is good.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there came Jews thither from Antioch and Iconium: and having persuaded the multitudes, they stoned Paul, and dragged him out of the city, supposing that he was dead.
+But some Jews from Antioch and Iconium came there, and having persuaded the multitudes, they stoned Paul, and dragged him out of the city, supposing that he was dead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will yet fill thy mouth with laughter, And thy lips with shouting.
+He will still fill your mouth with laughter, your lips with shouting.

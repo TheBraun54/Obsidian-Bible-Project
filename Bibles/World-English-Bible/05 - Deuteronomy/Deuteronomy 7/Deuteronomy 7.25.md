@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The graven images of their gods shall ye burn with fire: thou shalt not covet the silver or the gold that is on them, nor take it unto thee, lest thou be snared therein; for it is an abomination to Jehovah thy God.
+You shall burn the engraved images of their gods with fire. You shall not covet the silver or the gold that is on them, nor take it for yourself, lest you be snared in it; for it is an abomination to Yahweh your God.

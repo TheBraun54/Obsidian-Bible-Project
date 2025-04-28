@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we are not bold to number or compare ourselves with certain of them that commend themselves: but they themselves, measuring themselves by themselves, and comparing themselves with themselves, are without understanding.
+For we are not bold to number or compare ourselves with some of those who commend themselves. But they themselves, measuring themselves by themselves, and comparing themselves with themselves, are without understanding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God spake all these words, saying,
+God spoke all these words, saying,

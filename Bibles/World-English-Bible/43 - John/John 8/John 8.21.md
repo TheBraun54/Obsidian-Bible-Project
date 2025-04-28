@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He said therefore again unto them, I go away, and ye shall seek me, and shall die in your sin: whither I go, ye cannot come.
+Jesus said therefore again to them, "I am going away, and you will seek me, and you will die in your sins. Where I go, you can't come."

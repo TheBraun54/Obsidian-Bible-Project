@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy doom is come unto thee, O inhabitant of the land: the time is come, the day is near, [a day of] tumult, and not [of] joyful shouting, upon the mountains.
+Your doom has come to you, inhabitant of the land: the time has come, the day is near, [a day of] tumult, and not [of] joyful shouting, on the mountains.

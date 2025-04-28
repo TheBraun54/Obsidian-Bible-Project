@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a wise man hath a controversy with a foolish man, Whether he be angry or laugh, there will be no rest.
+If a wise man goes to court with a foolish man, the fool rages or scoffs, and there is no peace.

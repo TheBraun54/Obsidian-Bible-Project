@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He breaketh in pieces mighty men [in ways] past finding out, And setteth others in their stead.
+He breaks in pieces mighty men in ways past finding out, and sets others in their place.

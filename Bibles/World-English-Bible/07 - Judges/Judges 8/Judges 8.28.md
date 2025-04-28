@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Midian was subdued before the children of Israel, and they lifted up their heads no more. And the land had rest forty years in the days of Gideon.
+So Midian was subdued before the children of Israel, and they lifted up their heads no more. The land had rest forty years in the days of Gideon.

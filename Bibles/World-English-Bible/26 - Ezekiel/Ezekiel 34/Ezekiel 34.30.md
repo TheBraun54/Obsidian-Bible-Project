@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall know that I, Jehovah, their God am with them, and that they, the house of Israel, are my people, saith the Lord Jehovah.
+They shall know that I, Yahweh, their God am with them, and that they, the house of Israel, are my people, says the Lord Yahweh.

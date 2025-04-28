@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The crown is fallen from our head: Woe unto us! for we have sinned.
+The crown is fallen from our head: Woe to us! for we have sinned.

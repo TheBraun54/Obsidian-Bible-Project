@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they sent to Jezebel, saying, Naboth is stoned, and is dead.
+Then they sent to Jezebel, saying, "Naboth has been stoned, and is dead."

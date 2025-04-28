@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Gomer: Ashkenaz, and Diphath, and Togarmah.
+The sons of Gomer: Ashkenaz, and Diphath, and Togarmah.

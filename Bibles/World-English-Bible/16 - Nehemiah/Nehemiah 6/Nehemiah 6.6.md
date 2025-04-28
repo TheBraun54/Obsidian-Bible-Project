@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherein was written, It is reported among the nations, and Gashmu saith it, that thou and the Jews think to rebel; for which cause thou art building the wall: and thou wouldest be their king, according to these words.
+in which was written, "It is reported among the nations, and Gashmu says it, that you and the Jews intend to rebel. Because of that, you are building the wall. You would be their king, according to these words.

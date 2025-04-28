@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they drove not out the Canaanites that dwelt in Gezer: but the Canaanites dwell in the midst of Ephraim unto this day, and are become servants to do taskwork.
+They didn't drive out the Canaanites who lived in Gezer; but the Canaanites dwell in the midst of Ephraim to this day, and have become servants to do forced labor.

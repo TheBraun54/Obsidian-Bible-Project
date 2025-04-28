@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These shall lift up their voice, they shall shout; for the majesty of Jehovah they cry aloud from the sea.
+These shall lift up their voice. They will shout for the majesty of Yahweh. They cry aloud from the sea.

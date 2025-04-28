@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that believeth and is baptized shall be saved; but he that disbelieveth shall be condemned.
+He who believes and is baptized will be saved; but he who disbelieves will be condemned.

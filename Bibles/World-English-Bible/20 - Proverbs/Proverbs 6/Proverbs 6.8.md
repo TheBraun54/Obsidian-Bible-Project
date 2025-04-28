@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Provideth her bread in the summer, And gathereth her food in the harvest.
+provides her bread in the summer, and gathers her food in the harvest.

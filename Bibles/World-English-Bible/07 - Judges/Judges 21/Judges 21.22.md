@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when their fathers or their brethren come to complain unto us, that we will say unto them, Grant them graciously unto us, because we took not for each man [of them] his wife in battle, neither did ye give them unto them, else would ye now be guilty.
+It shall be, when their fathers or their brothers come to complain to us, that we will say to them, 'Grant them graciously to us, because we didn't take for each man his wife in battle, neither did you give them to them, otherwise you would now be guilty.'"

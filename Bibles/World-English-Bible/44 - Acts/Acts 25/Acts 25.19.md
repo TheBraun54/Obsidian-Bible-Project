@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but had certain questions against him of their own religion, and of one Jesus, who was dead, whom Paul affirmed to be alive.
+but had certain questions against him about their own religion, and about one Jesus, who was dead, whom Paul affirmed to be alive.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Perceive ye not, that whatsoever goeth into the mouth passeth into the belly, and is cast out into the draught?
+Don't you understand that whatever goes into the mouth passes into the belly, and then out of the body?

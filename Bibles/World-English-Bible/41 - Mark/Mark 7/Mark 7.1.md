@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there are gathered together unto him the Pharisees, and certain of the scribes, who had come from Jerusalem,
+Then the Pharisees, and some of the scribes gathered together to him, having come from Jerusalem.

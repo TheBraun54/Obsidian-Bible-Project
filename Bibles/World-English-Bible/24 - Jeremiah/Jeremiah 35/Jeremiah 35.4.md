@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I brought them into the house of Jehovah, into the chamber of the sons of Hanan the son of Igdaliah, the man of God, which was by the chamber of the princes, which was above the chamber of Maaseiah the son of Shallum, the keeper of the threshold.
+and I brought them into the house of Yahweh, into the room of the sons of Hanan the son of Igdaliah, the man of God, which was by the room of the princes, which was above the room of Maaseiah the son of Shallum, the keeper of the threshold.

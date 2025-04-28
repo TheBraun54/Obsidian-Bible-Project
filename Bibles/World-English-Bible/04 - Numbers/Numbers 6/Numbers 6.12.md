@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall separate unto Jehovah the days of his separation, and shall bring a he-lamb a year old for a trespass-offering; but the former days shall be void, because his separation was defiled.
+He shall separate to Yahweh the days of his separation, and shall bring a male lamb a year old for a trespass offering; but the former days shall be void, because his separation was defiled.

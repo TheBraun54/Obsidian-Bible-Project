@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his disciples, It is impossible but that occasions of stumbling should come; but woe unto him, through whom they come!
+He said to the disciples, "It is impossible that no occasions of stumbling should come, but woe to him through whom they come!

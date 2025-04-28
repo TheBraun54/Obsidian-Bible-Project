@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for me, this is my covenant with them, saith Jehovah: my Spirit that is upon thee, and my words which I have put in thy mouth, shall not depart out of thy mouth, nor out of the mouth of thy seed, nor out of the mouth of thy seed's seed, saith Jehovah, from henceforth and for ever.
+"As for me, this is my covenant with them," says Yahweh. "My Spirit who is on you, and my words which I have put in your mouth, shall not depart out of your mouth, nor out of the mouth of your seed, nor out of the mouth of your seed's seed," says Yahweh, "from henceforth and forever."

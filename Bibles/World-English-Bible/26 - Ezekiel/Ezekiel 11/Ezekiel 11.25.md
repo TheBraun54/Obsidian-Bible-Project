@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I spake unto them of the captivity all the things that Jehovah had showed me.
+Then I spoke to them of the captivity all the things that Yahweh had shown me.

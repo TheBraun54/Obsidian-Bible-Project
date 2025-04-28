@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou sawest a thief, thou consentedst with him, And hast been partaker with adulterers.
+When you saw a thief, you consented with him, and have participated with adulterers.

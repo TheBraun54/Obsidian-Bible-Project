@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but is under guardians and stewards until the day appointed of the father.
+but is under guardians and stewards until the day appointed by the father.

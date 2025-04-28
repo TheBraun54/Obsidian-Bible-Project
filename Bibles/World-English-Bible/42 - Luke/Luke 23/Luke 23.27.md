@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there followed him a great multitude of the people, and of women who bewailed and lamented him.
+A great multitude of the people followed him, including women who also mourned and lamented him.

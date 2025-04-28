@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah helpeth them, and rescueth them; He rescueth them from the wicked, and saveth them, Because they have taken refuge in him.
+Yahweh helps them, and rescues them. He rescues them from the wicked, and saves them, Because they have taken refuge in him. A Psalm by David, for a memorial.

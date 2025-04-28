@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the staves of acacia wood, and overlaid them with brass.
+He made the poles of acacia wood, and overlaid them with brass.

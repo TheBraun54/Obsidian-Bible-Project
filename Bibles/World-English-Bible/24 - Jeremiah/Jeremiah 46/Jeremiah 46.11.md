@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go up into Gilead, and take balm, O virgin daughter of Egypt: in vain dost thou use many medicines; there is no healing for thee.
+Go up into Gilead, and take balm, virgin daughter of Egypt: in vain do you use many medicines; there is no healing for you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their pillars were four, and their sockets four, of brass; their hooks of silver, and the overlaying of their capitals, and their fillets, of silver.
+Their pillars were four, and their sockets four, of brass; their hooks of silver, and the overlaying of their capitals, and their fillets, of silver.

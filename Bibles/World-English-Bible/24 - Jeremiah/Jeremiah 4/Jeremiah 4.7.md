@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A lion is gone up from his thicket, and a destroyer of nations; he is on his way, he is gone forth from his place, to make thy land desolate, that thy cities be laid waste, without inhabitant.
+A lion is gone up from his thicket, and a destroyer of nations; he is on his way, he is gone forth from his place, to make your land desolate, that your cities be laid waste, without inhabitant.

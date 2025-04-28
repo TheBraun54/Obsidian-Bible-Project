@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not delay to offer of thy harvest, and of the outflow of thy presses. The first-born of thy sons shalt thou give unto me.
+"You shall not delay to offer from your harvest and from the outflow of your presses. "You shall give the firstborn of your sons to me.

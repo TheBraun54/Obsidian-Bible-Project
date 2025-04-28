@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sheol and Abaddon are never satisfied; And the eyes of man are never satisfied.
+Sheol and Abaddon are never satisfied; and a man's eyes are never satisfied.

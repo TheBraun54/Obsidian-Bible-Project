@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the girdle that thou hast bought, which is upon thy loins, and arise, go to the Euphrates, and hide it there in a cleft of the rock.
+Take the belt that you have bought, which is on your waist, and arise, go to the Euphrates, and hide it there in a cleft of the rock.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall all hands be feeble, and every heart of man shall melt:
+Therefore all hands will be feeble, and everyone's heart will melt.

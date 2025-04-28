@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Gideon, The people that are with thee are too many for me to give the Midianites into their hand, lest Israel vaunt themselves against me, saying, Mine own hand hath saved me.
+Yahweh said to Gideon, "The people who are with you are too many for me to give the Midianites into their hand, lest Israel vaunt themselves against me, saying, 'My own hand has saved me.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went through all the tribes of Israel unto Abel, and to Beth-maacah, and all the Berites: and they were gathered together, and went also after him.
+He went through all the tribes of Israel to Abel, and to Beth Maacah, and all the Berites: and they were gathered together, and went also after him.

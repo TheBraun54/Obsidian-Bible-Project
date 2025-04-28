@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the head of those that compass me about, Let the mischief of their own lips cover them.
+As for the head of those who surround me, let the mischief of their own lips cover them.

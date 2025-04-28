@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So ye shall not pollute the land wherein ye are: for blood, it polluteth the land; and no expiation can be made for the land for the blood that is shed therein, but by the blood of him that shed it.
+"'So you shall not pollute the land in which you are: for blood, it pollutes the land; and no expiation can be made for the land for the blood that is shed therein, but by the blood of him who shed it.

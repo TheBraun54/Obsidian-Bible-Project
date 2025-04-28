@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jeroboam caused an ambushment to come about behind them: so they were before Judah, and the ambushment was behind them.
+But Jeroboam caused an ambush to come about behind them: so they were before Judah, and the ambush was behind them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and with all deceit of unrighteousness for them that perish; because they received not the love of the truth, that they might be saved.
+and with all deception of wickedness for those who are being lost, because they didn't receive the love of the truth, that they might be saved.

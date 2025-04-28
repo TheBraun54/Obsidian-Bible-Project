@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as the people were in expectation, and all men reasoned in their hearts concerning John, whether haply he were the Christ;
+As the people were in expectation, and all men reasoned in their hearts concerning John, whether perhaps he was the Christ,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In his days did Hiel the Beth-elite build Jericho: he laid the foundation thereof with the loss of Abiram his first-born, and set up the gates thereof with the loss of his youngest son Segub, according to the word of Jehovah, which he spake by Joshua the son of Nun.
+In his days did Hiel the Bethelite build Jericho: he laid its foundation with the loss of Abiram his firstborn, and set up its gates with the loss of his youngest son Segub, according to the word of Yahweh, which he spoke by Joshua the son of Nun.

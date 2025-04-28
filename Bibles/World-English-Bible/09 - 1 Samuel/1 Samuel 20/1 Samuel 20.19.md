@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when thou hast stayed three days, thou shalt go down quickly, and come to the place where thou didst hide thyself when the business was in hand, and shalt remain by the stone Ezel.
+When you have stayed three days, you shall go down quickly, and come to the place where you did hide yourself when the business was in hand, and shall remain by the stone Ezel.

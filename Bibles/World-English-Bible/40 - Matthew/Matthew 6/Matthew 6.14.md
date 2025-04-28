@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if ye forgive men their trespasses, your heavenly Father will also forgive you.
+"For if you forgive men their trespasses, your heavenly Father will also forgive you.

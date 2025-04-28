@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah your God who goeth before you, he will fight for you, according to all that he did for you in Egypt before your eyes,
+Yahweh your God who goes before you, he will fight for you, according to all that he did for you in Egypt before your eyes,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take the ram of consecration, and boil its flesh in a holy place.
+"You shall take the ram of consecration, and boil its flesh in a holy place.

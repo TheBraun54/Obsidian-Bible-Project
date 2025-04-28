@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in his own seasons manifested his word in the message, wherewith I was intrusted according to the commandment of God our Saviour;
+but in his own time revealed his word in the message with which I was entrusted according to the commandment of God our Savior;

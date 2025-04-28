@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonah began to enter into the city a day's journey, and he cried, and said, Yet forty days, and Nineveh shall be overthrown.
+Jonah began to enter into the city a day's journey, and he cried out, and said, "In forty days, Nineveh will be overthrown!"

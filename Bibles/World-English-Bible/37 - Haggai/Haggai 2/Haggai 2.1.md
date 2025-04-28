@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the seventh [month], in the one and twentieth [day] of the month, came the word of Jehovah by Haggai the prophet, saying,
+In the seventh month, in the twenty-first day of the month, the Word of Yahweh came by Haggai the prophet, saying,

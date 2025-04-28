@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the saints salute you.
+All the saints greet you.

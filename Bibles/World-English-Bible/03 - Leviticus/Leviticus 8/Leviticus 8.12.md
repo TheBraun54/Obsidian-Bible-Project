@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he poured of the anointing oil upon Aaron's head, and anointed him, to sanctify him.
+He poured some of the anointing oil on Aaron's head, and anointed him, to sanctify him.

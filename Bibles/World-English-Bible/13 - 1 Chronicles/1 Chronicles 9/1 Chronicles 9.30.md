@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of the sons of the priests prepared the confection of the spices.
+Some of the sons of the priests prepared the confection of the spices.

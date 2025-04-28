@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw the heaven opened; and behold, a white horse, and he that sat thereon called Faithful and True; and in righteousness he doth judge and make war.
+I saw the heaven opened, and behold, a white horse, and he who sat on it is called Faithful and True. In righteousness he judges and makes war.

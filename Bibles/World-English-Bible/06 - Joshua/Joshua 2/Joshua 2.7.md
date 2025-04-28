@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men pursued after them the way to the Jordan unto the fords: and as soon as they that pursued after them were gone out, they shut the gate.
+The men pursued them the way to the Jordan to the fords: and as soon as those who pursued them had gone out, they shut the gate.

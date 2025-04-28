@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but cleave unto Jehovah your God, as ye have done unto this day.
+but hold fast to Yahweh your God, as you have done to this day.

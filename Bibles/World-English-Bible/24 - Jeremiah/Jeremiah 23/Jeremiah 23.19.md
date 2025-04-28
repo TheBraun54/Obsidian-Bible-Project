@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the tempest of Jehovah, [even his] wrath, is gone forth, yea, a whirling tempest: it shall burst upon the head of the wicked.
+Behold, the storm of Yahweh, [even his] wrath, is gone forth, yes, a whirling storm: it shall burst on the head of the wicked.

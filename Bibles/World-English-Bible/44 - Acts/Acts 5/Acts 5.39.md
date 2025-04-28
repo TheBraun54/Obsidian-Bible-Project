@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if it is of God, ye will not be able to overthrow them; lest haply ye be found even to be fighting against God.
+But if it is of God, you will not be able to overthrow it, and you would be found even to be fighting against God!"

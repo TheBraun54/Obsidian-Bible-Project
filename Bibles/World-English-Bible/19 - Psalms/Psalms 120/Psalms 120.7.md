@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am [for] peace: But when I speak, they are for war.
+I am for peace, but when I speak, they are for war. A Song of Ascents.

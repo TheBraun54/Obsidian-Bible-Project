@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ho Zion, escape, thou that dwellest with the daughter of Babylon.
+'Come, Zion! Escape, you who dwell with the daughter of Babylon.'

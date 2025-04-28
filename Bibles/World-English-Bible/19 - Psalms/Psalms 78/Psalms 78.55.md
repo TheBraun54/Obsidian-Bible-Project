@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He drove out the nations also before them, And allotted them for an inheritance by line, And made the tribes of Israel to dwell in their tents.
+He also drove out the nations before them, allotted them for an inheritance by line, and made the tribes of Israel to dwell in their tents.

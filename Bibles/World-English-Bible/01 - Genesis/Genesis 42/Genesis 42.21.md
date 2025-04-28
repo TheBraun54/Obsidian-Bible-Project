@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said one to another, We are verily guilty concerning our brother, in that we saw the distress of his soul, when he besought us, and we would not hear; therefore is this distress come upon us.
+They said one to another, "We are certainly guilty concerning our brother, in that we saw the distress of his soul, when he begged us, and we wouldn't listen. Therefore this distress has come upon us."

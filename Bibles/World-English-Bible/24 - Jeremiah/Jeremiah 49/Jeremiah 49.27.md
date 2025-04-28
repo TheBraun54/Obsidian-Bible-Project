@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will kindle a fire in the wall of Damascus, and it shall devour the palaces of Ben-hadad.
+I will kindle a fire in the wall of Damascus, and it shall devour the palaces of Ben Hadad.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wind hath wrapped her up in its wings; and they shall be put to shame because of their sacrifices.
+The wind has wrapped her up in its wings; and they shall be disappointed because of their sacrifices.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore it is said in the book of the Wars of Jehovah, Vaheb in Suphah, And the valleys of the Arnon,
+Therefore it is said in the book of the Wars of Yahweh, "Vaheb in Suphah, the valleys of the Arnon,

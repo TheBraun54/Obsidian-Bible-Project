@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rachel died, and was buried in the way to Ephrath (the same is Beth-lehem).
+Rachel died, and was buried in the way to Ephrath (the same is Bethlehem).

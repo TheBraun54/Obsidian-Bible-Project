@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in those days, when Moses was grown up, that he went out unto his brethren, and looked on their burdens: and he saw an Egyptian smiting a Hebrew, one of his brethren.
+It happened in those days, when Moses had grown up, that he went out to his brothers, and looked at their burdens. He saw an Egyptian striking a Hebrew, one of his brothers.

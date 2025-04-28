@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall therefore keep all my statutes, and all mine ordinances, and do them; that the land, whither I bring you to dwell therein, vomit you not out.
+"'You shall therefore keep all my statutes, and all my ordinances, and do them; that the land, where I am bringing you to dwell, may not vomit you out.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus came and touched them and said, Arise, and be not afraid.
+Jesus came and touched them and said, "Get up, and don't be afraid."

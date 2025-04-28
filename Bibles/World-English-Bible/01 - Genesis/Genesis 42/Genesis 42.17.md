@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put them all together into ward three days.
+He put them all together into custody for three days.

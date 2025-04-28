@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that trusteth in his own heart is a fool; But whoso walketh wisely, he shall be delivered.
+One who trusts in himself is a fool; but one who walks in wisdom is kept safe.

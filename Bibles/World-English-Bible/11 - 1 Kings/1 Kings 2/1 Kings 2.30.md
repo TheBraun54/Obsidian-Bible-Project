@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Benaiah came to the Tent of Jehovah, and said unto him, Thus saith the king, Come forth. And he said, Nay; but I will die here. And Benaiah brought the king word again, saying, Thus said Joab, and thus he answered me.
+Benaiah came to the Tent of Yahweh, and said to him, "Thus says the king, 'Come forth!'" He said, "No; but I will die here." Benaiah brought the king word again, saying, "Thus said Joab, and thus he answered me."

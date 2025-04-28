@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, is it not of Jehovah of hosts that the peoples labor for the fire, and the nations weary themselves for vanity?
+Behold, isn't it of Yahweh of Armies that the peoples labor for the fire, and the nations weary themselves for vanity?

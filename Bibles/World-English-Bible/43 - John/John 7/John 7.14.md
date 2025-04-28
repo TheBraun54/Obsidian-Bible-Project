@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when it was now the midst of the feast Jesus went up into the temple, and taught.
+But when it was now the midst of the feast, Jesus went up into the temple and taught.

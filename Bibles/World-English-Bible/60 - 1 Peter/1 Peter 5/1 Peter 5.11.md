@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him [be] the dominion for ever and ever. Amen.
+To him be the glory and the power forever and ever. Amen.

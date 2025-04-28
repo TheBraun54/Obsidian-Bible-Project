@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If therefore the Son shall make you free, ye shall be free indeed.
+If therefore the Son makes you free, you will be free indeed.

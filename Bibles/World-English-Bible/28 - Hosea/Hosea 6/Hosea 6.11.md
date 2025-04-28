@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also, O Judah, there is a harvest appointed for thee, when I bring back the captivity of my people.
+"Also, Judah, there is a harvest appointed for you, when I restore the fortunes of my people.

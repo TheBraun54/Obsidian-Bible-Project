@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said of laughter, It is mad; and of mirth, What doeth it?
+I said of laughter, "It is foolishness;" and of mirth, "What does it accomplish?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king appointed the captain on whose hand he leaned to have the charge of the gate: and the people trod upon him in the gate, and he died as the man of God had said, who spake when the king came down to him.
+The king appointed the captain on whose hand he leaned to be in charge of the gate: and the people trod on him in the gate, and he died as the man of God had said, who spoke when the king came down to him.

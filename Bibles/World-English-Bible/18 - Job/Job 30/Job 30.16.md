@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now my soul is poured out within me; Days of affliction have taken hold upon me.
+"Now my soul is poured out within me. Days of affliction have taken hold on me.

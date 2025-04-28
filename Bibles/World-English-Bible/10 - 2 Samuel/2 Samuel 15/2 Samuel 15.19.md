@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the king to Ittai the Gittite, Wherefore goest thou also with us? return, and abide with the king: for thou art a foreigner, and also an exile; [return] to thine own place.
+Then the king said to Ittai the Gittite, "Why do you also go with us? Return, and stay with the king; for you are a foreigner, and also an exile. Return to your own place.

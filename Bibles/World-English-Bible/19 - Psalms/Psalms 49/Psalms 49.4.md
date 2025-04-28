@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will incline mine ear to a parable: I will open my dark saying upon the harp.
+I will incline my ear to a proverb. I will open my riddle on the harp.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall take a handful of the meal-offering, as the memorial thereof, and burn it upon the altar, and afterward shall make the woman drink the water.
+The priest shall take a handful of the meal offering, as its memorial, and burn it on the altar, and afterward shall make the woman drink the water.

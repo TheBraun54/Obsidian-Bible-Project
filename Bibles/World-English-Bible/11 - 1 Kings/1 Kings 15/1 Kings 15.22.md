@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then king Asa made a proclamation unto all Judah; none was exempted: and they carried away the stones of Ramah, and the timber thereof, wherewith Baasha had builded; and king Asa built therewith Geba of Benjamin, and Mizpah.
+Then king Asa made a proclamation to all Judah; none was exempted: and they carried away the stones of Ramah, and its timber, with which Baasha had built; and king Asa built therewith Geba of Benjamin, and Mizpah.

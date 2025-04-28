@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An inheritance [may be] gotten hastily at the beginning; But the end thereof shall not be blessed.
+An inheritance quickly gained at the beginning, won't be blessed in the end.

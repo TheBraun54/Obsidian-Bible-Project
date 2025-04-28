@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God that made the world and all things therein, he, being Lord of heaven and earth, dwelleth not in temples made with hands;
+The God who made the world and all things in it, he, being Lord of heaven and earth, doesn't dwell in temples made with hands,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall not go out from the door of the tent of meeting, lest ye die; for the anointing oil of Jehovah is upon you. And they did according to the word of Moses.
+You shall not go out from the door of the Tent of Meeting, lest you die; for the anointing oil of Yahweh is on you." They did according to the word of Moses.

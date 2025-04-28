@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the voice of him that reproacheth and blasphemeth, By reason of the enemy and the avenger.
+At the taunt of one who reproaches and verbally abuses, because of the enemy and the avenger.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall they be life unto thy soul, And grace to thy neck.
+so they will be life to your soul, and grace for your neck.

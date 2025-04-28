@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king lamented for Abner, and said, Should Abner die as a fool dieth?
+The king lamented for Abner, and said, "Should Abner die as a fool dies?

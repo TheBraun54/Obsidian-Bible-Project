@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But she had brought them up to the roof, and hid them with the stalks of flax, which she had laid in order upon the roof.
+But she had brought them up to the roof, and hid them with the stalks of flax, which she had laid in order on the roof.

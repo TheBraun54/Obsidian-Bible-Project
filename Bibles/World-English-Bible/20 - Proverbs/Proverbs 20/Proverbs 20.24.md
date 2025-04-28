@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man's goings are of Jehovah; How then can man understand his way?
+A man's steps are from Yahweh; how then can man understand his way?

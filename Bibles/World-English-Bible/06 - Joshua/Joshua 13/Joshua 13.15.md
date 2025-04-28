@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses gave unto the tribe of the children of Reuben according to their families.
+Moses gave to the tribe of the children of Reuben according to their families.

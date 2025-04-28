@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will come into thy house with burnt-offerings; I will pay thee my vows,
+I will come into your temple with burnt offerings. I will pay my vows to you,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know how to be abased, and I know also how to abound: in everything and in all things have I learned the secret both to be filled and to be hungry, both to abound and to be in want.
+I know how to be humbled, and I know also how to abound. In everything and in all things I have learned the secret both to be filled and to be hungry, both to abound and to be in need.

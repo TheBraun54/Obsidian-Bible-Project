@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have seen thine abominations, even thine adulteries, and thy neighings, the lewdness of thy whoredom, on the hills in the field. Woe unto thee, O Jerusalem! thou wilt not be made clean; how long shall it yet be?
+I have seen your abominations, even your adulteries, and your neighing, the lewdness of your prostitution, on the hills in the field. Woe to you, Jerusalem! You will not be made clean; how long shall it yet be?

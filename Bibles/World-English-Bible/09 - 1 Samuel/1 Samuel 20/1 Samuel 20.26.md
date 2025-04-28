@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless Saul spake not anything that day: for he thought, Something hath befallen him, he is not clean; surely he is not clean.
+Nevertheless Saul didn't say anything that day: for he thought, "Something has happened to him. He is not clean. Surely he is not clean."

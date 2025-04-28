@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Take heed that ye be not led astray: for many shall come in my name, saying, I am [he] ; and, The time is at hand: go ye not after them.
+He said, "Watch out that you don't get led astray, for many will come in my name, saying, 'I am he,' and, 'The time is at hand.' Therefore don't follow them.

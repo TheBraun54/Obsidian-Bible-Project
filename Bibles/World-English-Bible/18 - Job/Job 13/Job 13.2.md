@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What ye know, [the same] do I know also: I am not inferior unto you.
+What you know, I know also. I am not inferior to you.

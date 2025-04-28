@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech came unto the tower, and fought against it, and drew near unto the door of the tower to burn it with fire.
+Abimelech came to the tower, and fought against it, and drew near to the door of the tower to burn it with fire.

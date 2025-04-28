@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ My] little children, let no man lead you astray: he that doeth righteousness is righteous, even as he is righteous:
+Little children, let no one lead you astray. He who does righteousness is righteous, even as he is righteous.

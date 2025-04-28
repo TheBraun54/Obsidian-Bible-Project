@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Almon-diblathaim, and encamped in the mountains of Abarim, before Nebo.
+They traveled from Almon Diblathaim, and encamped in the mountains of Abarim, before Nebo.

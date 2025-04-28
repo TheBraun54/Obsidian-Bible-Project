@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or [if] he shall ask an egg, will he give him a scorpion?
+Or if he asks for an egg, he won't give him a scorpion, will he?

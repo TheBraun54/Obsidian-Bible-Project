@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ibzan died, and was buried at Beth-lehem.
+Ibzan died, and was buried at Bethlehem.

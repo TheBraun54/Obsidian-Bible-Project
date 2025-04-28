@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but it shall not be well with the wicked, neither shall he prolong [his] days, [which are] as a shadow; because he feareth not before God.
+But it shall not be well with the wicked, neither shall he lengthen days like a shadow; because he doesn't fear God.

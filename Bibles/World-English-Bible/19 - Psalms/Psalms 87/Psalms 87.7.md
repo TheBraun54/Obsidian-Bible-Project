@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that sing as well as they that dance [shall say], All my fountains are in thee.
+Those who sing as well as those who dance say, "All my springs are in you." A Song. A Psalm by the sons of Korah. For the Chief Musician. To the tune of "The Suffering of Affliction." A contemplation by Heman, the Ezrahite.

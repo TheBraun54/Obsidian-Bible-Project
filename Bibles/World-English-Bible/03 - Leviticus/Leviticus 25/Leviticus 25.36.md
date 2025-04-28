@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take thou no interest of him or increase, but fear thy God; that thy brother may live with thee.
+Take no interest from him or profit, but fear your God; that your brother may live among you.

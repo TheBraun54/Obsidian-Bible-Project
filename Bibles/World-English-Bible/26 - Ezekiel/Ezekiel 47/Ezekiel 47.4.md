@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again he measured a thousand, and caused me to pass through the waters, waters that were to the knees. Again he measured a thousand, and caused me to pass through [the waters], waters that were to the loins.
+Again he measured one thousand, and caused me to pass through the waters, waters that were to the knees. Again he measured one thousand, and caused me to pass through [the waters], waters that were to the waist.

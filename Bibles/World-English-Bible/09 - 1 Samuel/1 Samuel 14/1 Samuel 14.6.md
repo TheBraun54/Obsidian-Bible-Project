@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan said to the young man that bare his armor, Come, and let us go over unto the garrison of these uncircumcised: it may be that Jehovah will work for us; for there is no restraint to Jehovah to save by many or by few.
+Jonathan said to the young man who bore his armor, "Come, and let us go over to the garrison of these uncircumcised. It may be that Yahweh will work for us; for there is no restraint on Yahweh to save by many or by few."

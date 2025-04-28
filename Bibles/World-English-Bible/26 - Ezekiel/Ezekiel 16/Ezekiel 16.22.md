@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in all thine abominations and thy whoredoms thou hast not remembered the days of thy youth, when thou wast naked and bare, and wast weltering in thy blood.
+In all your abominations and your prostitution you have not remembered the days of your youth, when you were naked and bare, and were wallowing in your blood.

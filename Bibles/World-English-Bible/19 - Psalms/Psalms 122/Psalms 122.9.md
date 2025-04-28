@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the sake of the house of Jehovah our God I will seek thy good.
+For the sake of the house of Yahweh our God, I will seek your good. A Song of Ascents.

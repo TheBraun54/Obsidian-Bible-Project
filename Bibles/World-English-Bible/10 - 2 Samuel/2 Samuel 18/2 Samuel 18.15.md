@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ten young men that bare Joab's armor compassed about and smote Absalom, and slew him.
+Ten young men who bore Joab's armor surrounded and struck Absalom, and killed him.

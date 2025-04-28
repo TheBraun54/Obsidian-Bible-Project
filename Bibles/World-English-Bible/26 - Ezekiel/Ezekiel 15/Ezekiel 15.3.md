@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall wood be taken thereof to make any work? or will men take a pin of it to hang any vessel thereon?
+Shall wood be taken of it to make any work? or will men take a pin of it to hang any vessel thereon?

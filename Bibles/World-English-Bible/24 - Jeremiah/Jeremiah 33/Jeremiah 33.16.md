@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days shall Judah be saved, and Jerusalem shall dwell safely; and this is [the name] whereby she shall be called: Jehovah our righteousness.
+In those days shall Judah be saved, and Jerusalem shall dwell safely; and this is [the name] by which she shall be called: Yahweh our righteousness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because it shut not up the doors of my [mother's] womb, Nor hid trouble from mine eyes.
+because it didn't shut up the doors of my mother's womb, nor did it hide trouble from my eyes.

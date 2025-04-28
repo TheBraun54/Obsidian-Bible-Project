@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonadab said unto the king, Behold, the king's sons are come: as thy servant said, so it is.
+Jonadab said to the king, "Behold, the king's sons are coming! It is as your servant said."

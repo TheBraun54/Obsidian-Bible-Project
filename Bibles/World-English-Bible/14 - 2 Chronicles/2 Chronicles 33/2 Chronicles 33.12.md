@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was in distress, he besought Jehovah his God, and humbled himself greatly before the God of his fathers.
+When he was in distress, he begged Yahweh his God, and humbled himself greatly before the God of his fathers.

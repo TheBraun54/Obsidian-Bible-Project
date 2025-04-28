@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hope deferred maketh the heart sick; But when the desire cometh, it is a tree of life.
+Hope deferred makes the heart sick, but when longing is fulfilled, it is a tree of life.

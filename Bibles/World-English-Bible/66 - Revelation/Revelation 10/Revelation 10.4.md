@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the seven thunders uttered [their voices], I was about to write: and I heard a voice from heaven saying, Seal up the things which the seven thunders uttered, and write them not.
+When the seven thunders sounded, I was about to write; but I heard a voice from the sky saying, "Seal up the things which the seven thunders said, and don't write them."

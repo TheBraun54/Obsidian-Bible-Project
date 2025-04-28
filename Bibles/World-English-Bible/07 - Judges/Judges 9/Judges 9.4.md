@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave him threescore and ten [pieces] of silver out of the house of Baal-berith, wherewith Abimelech hired vain and light fellows, who followed him.
+They gave him seventy [pieces] of silver out of the house of Baal Berith, with which Abimelech hired vain and light fellows, who followed him.

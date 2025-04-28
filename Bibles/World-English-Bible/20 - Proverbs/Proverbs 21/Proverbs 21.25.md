@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The desire of the sluggard killeth him; For his hands refuse to labor.
+The desire of the sluggard kills him, for his hands refuse to labor.

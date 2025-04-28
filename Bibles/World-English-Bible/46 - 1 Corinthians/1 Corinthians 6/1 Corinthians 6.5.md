@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say [this] to move you to shame. What, cannot there be [found] among you one wise man who shall be able to decide between his brethren,
+I say this to move you to shame. Isn't there even one wise man among you who would be able to decide between his brothers?

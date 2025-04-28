@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every soul that eateth that which dieth of itself, or that which is torn of beasts, whether he be home-born or a sojourner, he shall wash his clothes, and bathe himself in water, and be unclean until the even: then shall he be clean.
+"'Every person that eats what dies of itself, or that which is torn by animals, whether he is native-born or a foreigner, he shall wash his clothes, and bathe himself in water, and be unclean until the evening: then he shall be clean.

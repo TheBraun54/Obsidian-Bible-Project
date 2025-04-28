@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the hangings of the court, its pillars, and its sockets, and the screen for the gate of the court, the cords thereof, and the pins thereof, and all the instruments of the service of the tabernacle, for the tent of meeting;
+the hangings of the court, its pillars, its sockets, the screen for the gate of the court, its cords, its pins, all the instruments of the service of the tabernacle, for the Tent of Meeting,

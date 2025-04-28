@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he perceived their craftiness, and said unto them,
+But he perceived their craftiness, and said to them, "Why do you test me?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know thy works (behold, I have set before thee a door opened, which none can shut), that thou hast a little power, and didst keep my word, and didst not deny my name.
+"I know your works (behold, I have set before you an open door, which no one can shut), that you have a little power, and kept my word, and didn't deny my name.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with these sayings scarce restrained they the multitudes from doing sacrifice unto them.
+Even saying these things, they hardly stopped the multitudes from making a sacrifice to them.

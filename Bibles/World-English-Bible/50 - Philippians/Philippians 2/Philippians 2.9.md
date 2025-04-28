@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore also God highly exalted him, and gave unto him the name which is above every name;
+Therefore God also highly exalted him, and gave to him the name which is above every name;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto all the congregation of the children of Israel, and say unto them, Ye shall be holy; for I Jehovah your God am holy.
+"Speak to all the congregation of the children of Israel, and tell them, 'You shall be holy; for I Yahweh your God am holy.

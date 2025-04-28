@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Zebulun: Sered, and Elon, and Jahleel.
+The sons of Zebulun: Sered, Elon, and Jahleel.

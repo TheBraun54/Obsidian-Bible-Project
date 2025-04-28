@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the days of Enosh were nine hundred and five years: and he died.
+All the days of Enosh were nine hundred five years, then he died.

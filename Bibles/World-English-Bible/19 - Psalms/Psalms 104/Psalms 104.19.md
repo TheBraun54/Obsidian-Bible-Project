@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He appointed the moon for seasons: The sun knoweth his going down.
+He appointed the moon for seasons. The sun knows when to set.

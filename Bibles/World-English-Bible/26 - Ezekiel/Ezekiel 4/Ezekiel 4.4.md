@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover lie thou upon thy left side, and lay the iniquity of the house of Israel upon it; [according to] the number of the days that thou shalt lie upon it, thou shalt bear their iniquity.
+Moreover lie on your left side, and lay the iniquity of the house of Israel on it; [according to] the number of the days that you shall lie on it, you shall bear their iniquity.

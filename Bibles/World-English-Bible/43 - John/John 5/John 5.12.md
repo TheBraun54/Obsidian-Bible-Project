@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They asked him, Who is the man that said unto thee, Take up [thy bed], and walk?
+Then they asked him, "Who is the man who said to you, 'Take up your mat, and walk'?"

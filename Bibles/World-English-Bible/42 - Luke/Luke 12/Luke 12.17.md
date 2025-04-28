@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he reasoned within himself, saying, What shall I do, because I have not where to bestow my fruits?
+He reasoned within himself, saying, 'What will I do, because I don't have room to store my crops?'

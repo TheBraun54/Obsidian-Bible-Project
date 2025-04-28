@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at Lystra there sat a certain man, impotent in his feet, a cripple from his mother's womb, who never had walked.
+At Lystra a certain man sat, impotent in his feet, a cripple from his mother's womb, who never had walked.

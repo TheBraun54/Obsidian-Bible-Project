@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto them, Stay ye, that I may hear what Jehovah will command concerning you.
+Moses answered them, "Wait, that I may hear what Yahweh will command concerning you."

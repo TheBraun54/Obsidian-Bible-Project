@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Kindness and truth preserve the king; And his throne is upholden by kindness.
+Love and faithfulness keep the king safe. His throne is sustained by love.

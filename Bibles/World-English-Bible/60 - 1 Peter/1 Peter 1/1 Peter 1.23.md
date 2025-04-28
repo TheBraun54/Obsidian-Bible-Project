@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having been begotten again, not of corruptible seed, but of incorruptible, through the word of God, which liveth and abideth.
+having been born again, not of corruptible seed, but of incorruptible, through the word of God, which lives and remains forever.

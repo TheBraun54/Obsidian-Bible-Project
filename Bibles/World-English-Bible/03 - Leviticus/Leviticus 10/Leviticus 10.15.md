@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heave-thigh and the wave-breast shall they bring with the offerings made by fire of the fat, to wave it for a wave-offering before Jehovah: and it shall be thine, and thy sons' with thee, as a portion for ever; as Jehovah hath commanded.
+The heaved thigh and the waved breast they shall bring with the offerings made by fire of the fat, to wave it for a wave offering before Yahweh: and it shall be yours, and your sons' with you, as a portion forever; as Yahweh has commanded."

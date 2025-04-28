@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Enter not into the gate of my people in the day of their calamity; yea, look not thou on their affliction in the day of their calamity, neither lay ye [hands] on their substance in the day of their calamity.
+Don't enter into the gate of my people in the day of their calamity. Don't look down on their affliction in the day of their calamity, neither seize their wealth on the day of their calamity.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at that time Hanani the seer came to Asa king of Judah, and said unto him, Because thou hast relied on the king of Syria, and hast not relied on Jehovah thy God, therefore is the host of the king of Syria escaped out of thy hand.
+At that time Hanani the seer came to Asa king of Judah, and said to him, "Because you have relied on the king of Syria, and have not relied on Yahweh your God, therefore is the army of the king of Syria escaped out of your hand.

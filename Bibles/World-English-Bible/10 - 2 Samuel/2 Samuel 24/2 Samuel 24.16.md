@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the angel stretched out his hand toward Jerusalem to destroy it, Jehovah repented him of the evil, and said to the angel that destroyed the people, It is enough; now stay thy hand. And the angel of Jehovah was by the threshing-floor of Araunah the Jebusite.
+When the angel stretched out his hand toward Jerusalem to destroy it, Yahweh relented of the disaster, and said to the angel who destroyed the people, "It is enough. Now stay your hand." The angel of Yahweh was by the threshing floor of Araunah the Jebusite.

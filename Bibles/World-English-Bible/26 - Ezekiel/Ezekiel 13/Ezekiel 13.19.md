@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye have profaned me among my people for handfuls of barley and for pieces of bread, to slay the souls that should not die, and to save the souls alive that should not live, by your lying to my people that hearken unto lies.
+You have profaned me among my people for handfuls of barley and for pieces of bread, to kill the souls who should not die, and to save the souls alive who should not live, by your lying to my people who listen to lies.

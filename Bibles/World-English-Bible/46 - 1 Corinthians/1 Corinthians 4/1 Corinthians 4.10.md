@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We are fools for Christ's sake, but ye are wise in Christ; we are weak, but ye are strong; ye have glory, but we have dishonor.
+We are fools for Christ's sake, but you are wise in Christ. We are weak, but you are strong. You have honor, but we have dishonor.

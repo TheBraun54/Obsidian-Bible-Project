@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely I have stilled and quieted my soul; Like a weaned child with his mother, Like a weaned child is my soul within me.
+Surely I have stilled and quieted my soul, like a weaned child with his mother, like a weaned child is my soul within me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when this cometh to pass, (behold, it cometh,) then shall they know that a prophet hath been among them.
+When this comes to pass, (behold, it comes), then shall they know that a prophet has been among them.

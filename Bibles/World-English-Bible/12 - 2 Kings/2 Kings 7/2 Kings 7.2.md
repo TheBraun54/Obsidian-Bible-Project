@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the captain on whose hand the king leaned answered the man of God, and said, Behold, if Jehovah should make windows in heaven, might this thing be? And he said, Behold, thou shalt see it with thine eyes, but shalt not eat thereof.
+Then the captain on whose hand the king leaned answered the man of God, and said, "Behold, if Yahweh made windows in heaven, could this thing be?" He said, "Behold, you shall see it with your eyes, but shall not eat of it."

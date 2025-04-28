@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I am with thee, and no man shall set on thee to harm thee: for I have much people in this city.
+for I am with you, and no one will attack you to harm you, for I have many people in this city."

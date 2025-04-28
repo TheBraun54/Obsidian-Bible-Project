@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they spake unto Moses, saying, The people bring much more than enough for the service of the work which Jehovah commanded to make.
+They spoke to Moses, saying, "The people bring much more than enough for the service of the work which Yahweh commanded to make."

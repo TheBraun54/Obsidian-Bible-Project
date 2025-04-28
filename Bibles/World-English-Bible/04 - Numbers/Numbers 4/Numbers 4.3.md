@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from thirty years old and upward even until fifty years old, all that enter upon the service, to do the work in the tent of meeting.
+from thirty years old and upward even until fifty years old, all who enter into the service, to do the work in the Tent of Meeting.

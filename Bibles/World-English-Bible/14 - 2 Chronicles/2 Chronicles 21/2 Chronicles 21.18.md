@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after all this Jehovah smote him in his bowels with an incurable disease.
+After all this Yahweh struck him in his bowels with an incurable disease.

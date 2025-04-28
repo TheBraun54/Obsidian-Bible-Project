@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that chastiseth the nations, shall not he correct, [Even] he that teacheth man knowledge?
+He who disciplines the nations, won't he punish? He who teaches man knows.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But what went ye out to see? a prophet? Yea, I say unto you, and much more than a prophet.
+But what did you go out to see? A prophet? Yes, I tell you, and much more than a prophet.

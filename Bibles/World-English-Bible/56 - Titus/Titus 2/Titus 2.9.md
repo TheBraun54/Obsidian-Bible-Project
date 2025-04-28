@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Exhort] servants to be in subjection to their own masters, [and] to be well-pleasing [to them] in all things; not gainsaying;
+Exhort servants to be in subjection to their own masters, and to be well-pleasing in all things; not contradicting;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the olive-tree said unto them, Should I leave my fatness, wherewith by me they honor God and man, and go to wave to and fro over the trees?
+"But the olive tree said to them, 'Should I leave my fatness, with which by me they honor God and man, and go to wave back and forth over the trees?'

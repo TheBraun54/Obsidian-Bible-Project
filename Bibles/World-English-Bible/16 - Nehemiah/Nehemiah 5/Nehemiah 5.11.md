@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Restore, I pray you, to them, even this day, their fields, their vineyards, their oliveyards, and their houses, also the hundredth part of the money, and of the grain, the new wine, and the oil, that ye exact of them.
+Please restore to them, even this day, their fields, their vineyards, their olive groves, and their houses, also the hundredth part of the money, and of the grain, the new wine, and the oil, that you are charging them."

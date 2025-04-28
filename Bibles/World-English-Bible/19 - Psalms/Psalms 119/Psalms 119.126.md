@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is time for Jehovah to work; [For] they have made void thy law.
+It is time to act, Yahweh, for they break your law.

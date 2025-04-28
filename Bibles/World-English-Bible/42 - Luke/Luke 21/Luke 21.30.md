@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when they now shoot forth, ye see it and know of your own selves that the summer is now nigh.
+When they are already budding, you see it and know by your own selves that the summer is already near.

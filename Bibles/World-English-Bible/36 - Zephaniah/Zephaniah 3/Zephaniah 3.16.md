@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day it shall be said to Jerusalem, Fear thou not; O Zion, let not thy hands be slack.
+In that day, it will be said to Jerusalem, "Don't be afraid, Zion. Don't let your hands be weak."

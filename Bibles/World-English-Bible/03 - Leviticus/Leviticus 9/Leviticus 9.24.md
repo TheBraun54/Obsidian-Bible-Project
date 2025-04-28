@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came forth fire from before Jehovah, and consumed upon the altar the burnt-offering and the fat: and when all the people saw it, they shouted, and fell on their faces.
+There came forth fire from before Yahweh, and consumed the burnt offering and the fat upon the altar: and when all the people saw it, they shouted, and fell on their faces.

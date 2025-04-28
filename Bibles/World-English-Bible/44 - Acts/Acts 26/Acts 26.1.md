@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Agrippa said unto Paul, Thou art permitted to speak for thyself. Then Paul stretched forth his hand, and made his defence:
+Agrippa said to Paul, "You may speak for yourself." Then Paul stretched out his hand, and made his defense.

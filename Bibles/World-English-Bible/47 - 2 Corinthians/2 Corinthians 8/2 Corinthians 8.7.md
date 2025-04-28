@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as ye abound in everything, [in] faith, and utterance, and knowledge, and [in] all earnestness, and [in] your love to us, [see] that ye abound in this grace also. [
+But as you abound in everything, in faith, utterance, knowledge, all earnestness, and in your love to us, see that you also abound in this grace.

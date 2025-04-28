@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses was instructed in all the wisdom of the Egyptians; and he was mighty in his words and works.
+Moses was instructed in all the wisdom of the Egyptians. He was mighty in his words and works.

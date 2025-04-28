@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Aaron, Take a pot, and put an omerful of manna therein, and lay it up before Jehovah, to be kept throughout your generations.
+Moses said to Aaron, "Take a pot, and put an omer-full of manna in it, and lay it up before Yahweh, to be kept throughout your generations."

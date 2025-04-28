@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the destroyer shall come upon every city, and no city shall escape; the valley also shall perish, and the plain shall be destroyed; as Jehovah hath spoken.
+The destroyer shall come on every city, and no city shall escape; the valley also shall perish, and the plain shall be destroyed; as Yahweh has spoken.

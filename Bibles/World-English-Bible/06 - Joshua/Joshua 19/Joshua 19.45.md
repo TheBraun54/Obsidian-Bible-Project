@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehud, and Bene-berak, and Gath-rimmon,
+Jehud, Bene Berak, Gath Rimmon,

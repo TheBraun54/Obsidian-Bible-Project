@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Zedekiah the king sware secretly unto Jeremiah, saying, As Jehovah liveth, that made us this soul, I will not put thee to death, neither will I give thee into the hand of these men that seek thy life.
+So Zedekiah the king swore secretly to Jeremiah, saying, As Yahweh lives, who made us this soul, I will not put you to death, neither will I give you into the hand of these men who seek your life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after a while, that the children of Ammon made war against Israel.
+It happened after a while, that the children of Ammon made war against Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto the cook, Bring the portion which I gave thee, of which I said unto thee, Set it by thee.
+Samuel said to the cook, "Bring the portion which I gave you, of which I said to you, 'Set it aside.'"

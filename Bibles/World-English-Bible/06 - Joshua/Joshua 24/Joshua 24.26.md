@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua wrote these words in the book of the law of God; and he took a great stone, and set it up there under the oak that was by the sanctuary of Jehovah.
+Joshua wrote these words in the book of the law of God; and he took a great stone, and set it up there under the oak that was by the sanctuary of Yahweh.

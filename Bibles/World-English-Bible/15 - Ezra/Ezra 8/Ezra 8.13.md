@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Adonikam, [that were] the last; and these are their names: Eliphelet, Jeuel, and Shemaiah; and with them threescore males.
+Of the sons of Adonikam, [who were] the last; and these are their names: Eliphelet, Jeuel, and Shemaiah; and with them sixty males.

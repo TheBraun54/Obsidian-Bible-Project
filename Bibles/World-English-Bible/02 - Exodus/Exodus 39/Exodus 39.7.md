@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put them on the shoulder-pieces of the ephod, to be stones of memorial for the children of Israel; as Jehovah commanded Moses.
+He put them on the shoulder straps of the ephod, to be stones of memorial for the children of Israel, as Yahweh commanded Moses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Asa the king took all Judah; and they carried away the stones of Ramah, and the timber thereof, wherewith Baasha had builded; and he built therewith Geba and Mizpah.
+Then Asa the king took all Judah; and they carried away the stones of Ramah, and its timber, with which Baasha had built; and he built therewith Geba and Mizpah.

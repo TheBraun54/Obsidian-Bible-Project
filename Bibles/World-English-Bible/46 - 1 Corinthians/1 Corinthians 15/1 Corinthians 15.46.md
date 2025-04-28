@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit that is not first which is spiritual, but that which is natural; then that which is spiritual.
+However that which is spiritual isn't first, but that which is natural, then that which is spiritual.

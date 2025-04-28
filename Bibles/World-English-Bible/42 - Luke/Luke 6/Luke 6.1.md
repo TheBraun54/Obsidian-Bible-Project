@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass on a sabbath, that he was going through the grainfields; and his disciples plucked the ears, and did eat, rubbing them in their hands.
+Now it happened on the second Sabbath after the first, that he was going through the grain fields. His disciples plucked the heads of grain, and ate, rubbing them in their hands.

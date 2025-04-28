@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made thereunto four pillars of acacia, and overlaid them with gold: their hooks were of gold: and he cast for them four sockets of silver.
+He made four pillars of acacia for it, and overlaid them with gold. Their hooks were of gold. He cast four sockets of silver for them.

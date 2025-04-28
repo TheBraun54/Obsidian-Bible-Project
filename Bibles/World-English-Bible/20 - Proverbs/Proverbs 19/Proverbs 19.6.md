@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many will entreat the favor of the liberal man; And every man is a friend to him that giveth gifts.
+Many will entreat the favor of a ruler, and everyone is a friend to a man who gives gifts.

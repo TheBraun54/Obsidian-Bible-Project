@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So all the service of Jehovah was prepared the same day, to keep the passover, and to offer burnt-offerings upon the altar of Jehovah, according to the commandment of king Josiah.
+So all the service of Yahweh was prepared the same day, to keep the Passover, and to offer burnt offerings on the altar of Yahweh, according to the commandment of king Josiah.

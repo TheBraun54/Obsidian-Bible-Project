@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the day of unleavened bread came, on which the passover must be sacrificed.
+The day of unleavened bread came, on which the Passover must be sacrificed.

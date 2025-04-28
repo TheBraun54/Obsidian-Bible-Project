@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things therefore whatsoever ye would that men should do unto you, even so do ye also unto them: for this is the law and the prophets.
+Therefore whatever you desire for men to do to you, you shall also do to them; for this is the law and the prophets.

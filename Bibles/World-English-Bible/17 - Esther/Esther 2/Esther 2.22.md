@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the thing became known to Mordecai, who showed it unto Esther the queen; and Esther told the king [thereof] in Mordecai's name.
+This thing became known to Mordecai, who informed Esther the queen; and Esther informed the king in Mordecai's name.

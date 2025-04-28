@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Whose is this image and superscription?
+He asked them, "Whose is this image and inscription?"

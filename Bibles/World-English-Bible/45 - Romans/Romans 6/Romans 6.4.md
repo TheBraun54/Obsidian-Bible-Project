@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We were buried therefore with him through baptism into death: that like as Christ was raised from the dead through the glory of the Father, so we also might walk in newness of life.
+We were buried therefore with him through baptism to death, that just like Christ was raised from the dead through the glory of the Father, so we also might walk in newness of life.

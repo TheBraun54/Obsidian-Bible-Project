@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered David and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother to Joab, saying, Who will go down with me to Saul to the camp? And Abishai said, I will go down with thee.
+Then answered David and said to Ahimelech the Hittite, and to Abishai the son of Zeruiah, brother to Joab, saying, "Who will go down with me to Saul to the camp?" Abishai said, "I will go down with you."

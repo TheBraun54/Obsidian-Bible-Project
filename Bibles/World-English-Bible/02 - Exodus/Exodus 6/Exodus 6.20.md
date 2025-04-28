@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Amram took him Jochebed his father's sister to wife; and she bare him Aaron and Moses: and the years of the life of Amram were a hundred and thirty and seven years.
+Amram took Jochebed his father's sister to himself as wife; and she bore him Aaron and Moses: and the years of the life of Amram were a hundred and thirty-seven years.

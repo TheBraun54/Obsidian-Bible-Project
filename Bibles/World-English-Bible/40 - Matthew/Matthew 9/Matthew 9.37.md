@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith he unto his disciples, The harvest indeed is plenteous, but the laborers are few.
+Then he said to his disciples, "The harvest indeed is plentiful, but the laborers are few.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From that time began Jesus to show unto his disciples, that he must go unto Jerusalem, and suffer many things of the elders and chief priests and scribes, and be killed, and the third day be raised up.
+From that time, Jesus began to show his disciples that he must go to Jerusalem and suffer many things from the elders, chief priests, and scribes, and be killed, and the third day be raised up.

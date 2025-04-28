@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say not thou, I will recompense evil: Wait for Jehovah, and he will save thee.
+Don't say, "I will pay back evil." Wait for Yahweh, and he will save you.

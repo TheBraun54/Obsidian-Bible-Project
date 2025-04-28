@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the floors shall be full of wheat, and the vats shall overflow with new wine and oil.
+The threshing floors will be full of wheat, and the vats will overflow with new wine and oil.

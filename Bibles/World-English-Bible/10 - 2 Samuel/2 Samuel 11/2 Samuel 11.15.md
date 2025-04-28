@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he wrote in the letter, saying, Set ye Uriah in the forefront of the hottest battle, and retire ye from him, that he may be smitten, and die.
+He wrote in the letter, saying, "Send Uriah to the forefront of the hottest battle, and retreat from him, that he may be struck, and die."

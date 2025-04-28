@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Manasseh, from the east side unto the west side, Ephraim, one [portion] .
+By the border of Manasseh, from the east side to the west side, Ephraim, one [portion].

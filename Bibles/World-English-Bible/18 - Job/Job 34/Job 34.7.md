@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What man is like Job, Who drinketh up scoffing like water,
+What man is like Job, who drinks scorn like water,

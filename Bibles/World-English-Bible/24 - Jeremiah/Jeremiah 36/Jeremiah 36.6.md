@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore go thou, and read in the roll, which thou hast written from my mouth, the words of Jehovah in the ears of the people in Jehovah's house upon the fast-day; and also thou shalt read them in the ears of all Judah that come out of their cities.
+therefore you go, and read in the scroll, which you have written from my mouth, the words of Yahweh in the ears of the people in Yahweh's house on the fast day; and also you shall read them in the ears of all Judah who come out of their cities.

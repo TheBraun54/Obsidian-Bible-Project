@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the scall spread abroad in the skin after his cleansing,
+But if the itch spreads in the skin after his cleansing,

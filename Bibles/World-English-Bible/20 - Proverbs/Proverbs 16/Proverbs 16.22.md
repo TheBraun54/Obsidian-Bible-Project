@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Understanding is a well-spring of life unto him that hath it; But the correction of fools is [their] folly.
+Understanding is a fountain of life to one who has it, but the punishment of fools is their folly.

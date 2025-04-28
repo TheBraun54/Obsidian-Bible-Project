@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not take a woman that is a harlot, or profane; neither shall they take a woman put away from her husband: for he is holy unto his God.
+"'They shall not marry a woman who is a prostitute, or profane; neither shall they marry a woman divorced from her husband: for he is holy to his God.

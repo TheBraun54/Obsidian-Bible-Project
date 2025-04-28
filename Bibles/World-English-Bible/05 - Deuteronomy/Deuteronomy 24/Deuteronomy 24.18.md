@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thou shalt remember that thou wast a bondman in Egypt, and Jehovah thy God redeemed thee thence: therefore I command thee to do this thing.
+but you shall remember that you were a bondservant in Egypt, and Yahweh your God redeemed you there: therefore I command you to do this thing.

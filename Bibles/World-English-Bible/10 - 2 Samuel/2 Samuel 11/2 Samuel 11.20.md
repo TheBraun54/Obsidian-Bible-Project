@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it shall be that, if the king's wrath arise, and he say unto thee, Wherefore went ye so nigh unto the city to fight? knew ye not that they would shoot from the wall?
+it shall be that, if the king's wrath arise, and he asks you, 'Why did you go so near to the city to fight? Didn't you know that they would shoot from the wall?

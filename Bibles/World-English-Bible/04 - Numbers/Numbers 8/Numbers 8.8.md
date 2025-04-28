@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then let them take a young bullock, and its meal-offering, fine flour mingled with oil; and another young bullock shalt thou take for a sin-offering.
+Then let them take a young bull, and its meal offering, fine flour mixed with oil; and another young bull you shall take for a sin offering.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all the land of Egypt was famished, the people cried to Pharaoh for bread: and Pharaoh said unto all the Egyptians, Go unto Joseph; what he saith to you, do.
+When all the land of Egypt was famished, the people cried to Pharaoh for bread, and Pharaoh said to all the Egyptians, "Go to Joseph. What he says to you, do."

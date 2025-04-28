@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Barzillai said unto the king, How many are the days of the years of my life, that I should go up with the king unto Jerusalem?
+Barzillai said to the king, "How many are the days of the years of my life, that I should go up with the king to Jerusalem?

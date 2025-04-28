@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, though he live a thousand years twice told, and yet enjoy no good, do not all go to one place?
+Yes, though he live a thousand years twice told, and yet fails to enjoy good, don't all go to one place?

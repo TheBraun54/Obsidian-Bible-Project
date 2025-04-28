@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Great peace have they that love thy law; And they have no occasion of stumbling.
+Those who love your law have great peace. Nothing causes them to stumble.

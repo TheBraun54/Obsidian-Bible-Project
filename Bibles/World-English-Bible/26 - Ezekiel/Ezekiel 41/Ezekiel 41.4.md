@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he measured the length thereof, twenty cubits, and the breadth, twenty cubits, before the temple: and he said unto me, This is the most holy place.
+He measured its length, twenty cubits, and the breadth, twenty cubits, before the temple: and he said to me, This is the most holy place.

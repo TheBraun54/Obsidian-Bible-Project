@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they that eat of his dainties shall destroy him, and his army shall overflow; and many shall fall down slain.
+Yes, they who eat of his dainties shall destroy him, and his army shall overflow; and many shall fall down slain.

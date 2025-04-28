@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Jehovah is my light and my salvation; Whom shall I fear? Jehovah is the strength of my life; Of whom shall I be afraid?
+Yahweh is my light and my salvation. Whom shall I fear? Yahweh is the strength of my life. Of whom shall I be afraid?

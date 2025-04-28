@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was right in the eyes of Jehovah, according to all that his father Uzziah had done: howbeit he entered not into the temple of Jehovah. And the people did yet corruptly.
+He did that which was right in the eyes of Yahweh, according to all that his father Uzziah had done: however he didn't enter into the temple of Yahweh. The people did yet corruptly.

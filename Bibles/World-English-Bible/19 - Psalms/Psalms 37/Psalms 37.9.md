@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For evil-doers shall be cut off; But those that wait for Jehovah, they shall inherit the land.
+For evildoers shall be cut off, but those who wait for Yahweh shall inherit the land.

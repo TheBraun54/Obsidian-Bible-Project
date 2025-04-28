@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, there came fire down from heaven, and consumed the two former captains of fifty with their fifties; but now let my life be precious in thy sight.
+Behold, fire came down from the sky, and consumed the two former captains of fifty with their fifties. But now let my life be precious in your sight."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the angel of the church in Smyrna write: These things saith the first and the last, who was dead, and lived [again] :
+"To the angel of the assembly in Smyrna write: "The first and the last, who was dead, and has come to life says these things:

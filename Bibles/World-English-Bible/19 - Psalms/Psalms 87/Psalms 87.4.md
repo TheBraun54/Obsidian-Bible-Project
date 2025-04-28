@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will make mention of Rahab and Babylon as among them that know me: Behold, Philistia, and Tyre, with Ethiopia: This one was born there.
+I will record Rahab and Babylon among those who acknowledge me. Behold, Philistia, Tyre, and also Ethiopia: "This one was born there."

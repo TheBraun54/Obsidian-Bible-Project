@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Satan, Jehovah rebuke thee, O Satan; yea, Jehovah that hath chosen Jerusalem rebuke thee: is not this a brand plucked out of the fire?
+Yahweh said to Satan, "Yahweh rebuke you, Satan! Yes, Yahweh who has chosen Jerusalem rebuke you! Isn't this a burning stick plucked out of the fire?"

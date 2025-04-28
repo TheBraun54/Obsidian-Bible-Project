@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But younger widows refuse: for when they have waxed wanton against Christ, they desire to marry;
+But refuse younger widows, for when they have grown wanton against Christ, they desire to marry;

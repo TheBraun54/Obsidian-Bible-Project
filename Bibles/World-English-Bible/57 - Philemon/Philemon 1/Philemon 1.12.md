@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom I have sent back to thee in his own person, that is, my very heart:
+I am sending him back. Therefore receive him, that is, my own heart,

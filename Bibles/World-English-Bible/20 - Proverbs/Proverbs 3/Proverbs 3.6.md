@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In all thy ways acknowledge him, And he will direct thy paths.
+In all your ways acknowledge him, and he will make your paths straight.

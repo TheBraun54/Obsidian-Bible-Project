@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will tell thee that which is inscribed in the writing of truth: and there is none that holdeth with me against these, but Michael your prince.
+But I will tell you that which is inscribed in the writing of truth: and there is none who holds with me against these, but Michael your prince."

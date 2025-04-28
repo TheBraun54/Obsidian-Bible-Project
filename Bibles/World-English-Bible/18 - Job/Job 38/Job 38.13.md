@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That it might take hold of the ends of the earth, And the wicked be shaken out of it?
+that it might take hold of the ends of the earth, and shake the wicked out of it?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, All is well. My master hath sent me, saying, Behold, even now there are come to me from the hill-country of Ephraim two young men of the sons of the prophets; give them, I pray thee, a talent of silver, and two changes of raiment.
+He said, "All is well. My master has sent me, saying, 'Behold, even now two young men of the sons of the prophets have come to me from the hill country of Ephraim. Please give them a talent of silver and two changes of clothing.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the priests, the ministers of Jehovah, weep between the porch and the altar, and let them say, Spare thy people, O Jehovah, and give not thy heritage to reproach, that the nations should rule over them: wherefore should they say among the peoples, Where is their God?
+Let the priests, the ministers of Yahweh, weep between the porch and the altar, and let them say, "Spare your people, Yahweh, and don't give your heritage to reproach, that the nations should rule over them. Why should they say among the peoples, 'Where is their God?'"

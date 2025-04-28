@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto all his servants that were with him at Jerusalem, Arise, and let us flee; for else none of us shall escape from Absalom: make speed to depart, lest he overtake us quickly, and bring down evil upon us, and smite the city with the edge of the sword.
+David said to all his servants who were with him at Jerusalem, "Arise, and let us flee; for else none of us shall escape from Absalom. Make speed to depart, lest he overtake us quickly, and bring down evil on us, and strike the city with the edge of the sword."

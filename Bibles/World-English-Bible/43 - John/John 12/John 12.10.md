@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the chief priests took counsel that they might put Lazarus also to death;
+But the chief priests conspired to put Lazarus to death also,

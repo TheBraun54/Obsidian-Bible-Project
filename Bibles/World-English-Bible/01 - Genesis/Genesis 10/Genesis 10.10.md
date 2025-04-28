@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the beginning of his kingdom was Babel, and Erech, and Accad, and Calneh, in the land of Shinar.
+The beginning of his kingdom was Babel, Erech, Accad, and Calneh, in the land of Shinar.

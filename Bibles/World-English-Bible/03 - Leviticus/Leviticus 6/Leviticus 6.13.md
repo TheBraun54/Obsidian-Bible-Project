@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fire shall be kept burning upon the altar continually; it shall not go out.
+Fire shall be kept burning on the altar continually; it shall not go out.

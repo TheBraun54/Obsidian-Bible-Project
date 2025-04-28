@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he that sanctified the field will indeed redeem it, then he shall add the fifth part of the money of thy estimation unto it, and it shall be assured to him.
+If he who dedicated the field will indeed redeem it, then he shall add the fifth part of the money of your valuation to it, and it shall remain his.

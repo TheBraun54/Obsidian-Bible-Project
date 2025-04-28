@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said to the multitudes also, When ye see a cloud rising in the west, straightway ye say, There cometh a shower; and so it cometh to pass.
+He said to the multitudes also, "When you see a cloud rising from the west, immediately you say, 'A shower is coming,' and so it happens.

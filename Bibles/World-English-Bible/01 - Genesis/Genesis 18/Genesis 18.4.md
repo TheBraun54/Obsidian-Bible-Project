@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let now a little water be fetched, and wash your feet, and rest yourselves under the tree:
+Now let a little water be fetched, wash your feet, and rest yourselves under the tree.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say, walk by the Spirit, and ye shall not fulfil the lust of the flesh.
+But I say, walk by the Spirit, and you won't fulfill the lust of the flesh.

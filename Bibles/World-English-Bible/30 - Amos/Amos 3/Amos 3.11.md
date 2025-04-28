@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: An adversary [there shall be], even round about the land; and he shall bring down thy strength from thee, and thy palaces shall be plundered.
+Therefore thus says the Lord Yahweh: "An adversary will overrun the land; and he will pull down your strongholds, and your fortresses will be plundered."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the third chariot white horses; and in the fourth chariot grizzled strong horses.
+in the third chariot white horses; and in the fourth chariot dappled horses, all of them powerful.

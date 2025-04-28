@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he judged Israel twenty and three years, and died, and was buried in Shamir.
+He judged Israel twenty-three years, and died, and was buried in Shamir.

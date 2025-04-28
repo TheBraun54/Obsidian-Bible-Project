@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which we have as an anchor of the soul, [a hope] both sure and stedfast and entering into that which is within the veil;
+This hope we have as an anchor of the soul, a hope both sure and steadfast and entering into that which is within the veil;

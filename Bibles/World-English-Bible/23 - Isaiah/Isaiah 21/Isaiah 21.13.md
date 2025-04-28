@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden upon Arabia. In the forest in Arabia shall ye lodge, O ye caravans of Dedanites.
+The burden on Arabia. In the forest in Arabia you will lodge, you caravans of Dedanites.

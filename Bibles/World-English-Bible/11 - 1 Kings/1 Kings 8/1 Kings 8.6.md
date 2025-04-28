@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests brought in the ark of the covenant of Jehovah unto its place, into the oracle of the house, to the most holy place, even under the wings of the cherubim.
+The priests brought in the ark of the covenant of Yahweh to its place, into the oracle of the house, to the most holy place, even under the wings of the cherubim.

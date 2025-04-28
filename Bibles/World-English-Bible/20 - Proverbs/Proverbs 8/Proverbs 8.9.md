@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are all plain to him that understandeth, And right to them that find knowledge.
+They are all plain to him who understands, right to those who find knowledge.

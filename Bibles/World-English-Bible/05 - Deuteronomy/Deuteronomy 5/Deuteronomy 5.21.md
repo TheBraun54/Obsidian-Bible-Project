@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shalt thou covet thy neighbor's wife; neither shalt thou desire thy neighbor's house, his field, or his man-servant, or his maid-servant, his ox, or his ass, or anything that is thy neighbor's.
+"Neither shall you covet your neighbor's wife; neither shall you desire your neighbor's house, his field, or his male servant, or his female servant, his ox, or his donkey, or anything that is your neighbor's."

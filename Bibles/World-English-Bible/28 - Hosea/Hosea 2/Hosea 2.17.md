@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will take away the names of the Baalim out of her mouth, and they shall no more be mentioned by their name.
+For I will take away the names of the Baals out of her mouth, and they will no longer be mentioned by name.

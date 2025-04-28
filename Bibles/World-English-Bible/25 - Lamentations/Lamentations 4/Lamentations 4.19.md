@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our pursuers were swifter than the eagles of the heavens: They chased us upon the mountains, they laid wait for us in the wilderness.
+Our pursuers were swifter than the eagles of the sky: They chased us on the mountains, they laid wait for us in the wilderness.

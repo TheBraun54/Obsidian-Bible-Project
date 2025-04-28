@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall have a song as in the night when a holy feast is kept; and gladness of heart, as when one goeth with a pipe to come unto the mountain of Jehovah, to the Rock of Israel.
+You will have a song, as in the night when a holy feast is kept; and gladness of heart, as when one goes with a flute to come to Yahweh's mountain, to Israel's Rock.

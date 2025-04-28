@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this ye know of a surety, that no fornicator, nor unclean person, nor covetous man, who is an idolater, hath any inheritance in the kingdom of Christ and God.
+Know this for sure, that no sexually immoral person, nor unclean person, nor covetous man, who is an idolater, has any inheritance in the Kingdom of Christ and God.

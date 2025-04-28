@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua discomfited Amalek and his people with the edge of the sword.
+Joshua defeated Amalek and his people with the edge of the sword.

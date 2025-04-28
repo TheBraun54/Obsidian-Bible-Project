@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that thou wouldest hide me in Sheol, That thou wouldest keep me secret, until thy wrath be past, That thou wouldest appoint me a set time, and remember me!
+"Oh that you would hide me in Sheol, that you would keep me secret, until your wrath is past, that you would appoint me a set time, and remember me!

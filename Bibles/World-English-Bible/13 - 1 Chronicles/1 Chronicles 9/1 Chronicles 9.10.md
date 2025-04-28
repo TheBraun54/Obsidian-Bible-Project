@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the priests: Jedaiah, and Jehoiarib, Jachin,
+Of the priests: Jedaiah, and Jehoiarib, Jachin,

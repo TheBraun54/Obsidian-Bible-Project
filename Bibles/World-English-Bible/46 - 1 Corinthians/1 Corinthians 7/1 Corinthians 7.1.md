@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now concerning the things whereof ye wrote: It is good for a man not to touch a woman.
+Now concerning the things about which you wrote to me: it is good for a man not to touch a woman.

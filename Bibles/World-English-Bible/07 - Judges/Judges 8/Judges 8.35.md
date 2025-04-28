@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither showed they kindness to the house of Jerubbaal, [who is] Gideon, according to all the goodness which he had showed unto Israel.
+neither did they show kindness to the house of Jerubbaal, [who is] Gideon, according to all the goodness which he had shown to Israel.

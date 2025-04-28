@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they carried the ark of God upon a new cart, [and brought it] out of the house of Abinadab: and Uzza and Ahio drove the cart.
+They carried the ark of God on a new cart, [and brought it] out of the house of Abinadab: and Uzza and Ahio drove the cart.

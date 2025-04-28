@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the kingdom of heaven be likened unto ten virgins, who took their lamps, and went forth to meet the bridegroom.
+"Then the Kingdom of Heaven will be like ten virgins, who took their lamps, and went out to meet the bridegroom.

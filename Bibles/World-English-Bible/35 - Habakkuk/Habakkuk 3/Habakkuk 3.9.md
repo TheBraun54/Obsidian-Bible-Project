@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy bow was made quite bare; The oaths to the tribes were a [sure] word. {{Selah. Thou didst cleave the earth with rivers.
+You uncovered your bow. You called for your sworn arrows. Selah. You split the earth with rivers.

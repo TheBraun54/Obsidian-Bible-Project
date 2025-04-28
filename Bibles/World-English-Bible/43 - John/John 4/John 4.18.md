@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for thou hast had five husbands; and he whom thou now hast is not thy husband: this hast thou said truly.
+for you have had five husbands; and he whom you now have is not your husband. This you have said truly."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I may know him, and the power of his resurrection, and the fellowship of his sufferings, becoming conformed unto his death;
+that I may know him, and the power of his resurrection, and the fellowship of his sufferings, becoming conformed to his death;

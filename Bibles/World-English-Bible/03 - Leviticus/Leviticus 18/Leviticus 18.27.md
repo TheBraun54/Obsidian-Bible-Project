@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for all these abominations have the men of the land done, that were before you, and the land is defiled);
+(for all these abominations have the men of the land done, that were before you, and the land became defiled);

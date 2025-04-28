@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt prolong the king's life; His years shall be as many generations.
+You will prolong the king's life; his years shall be for generations.

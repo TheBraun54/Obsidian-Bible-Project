@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the righteous turneth away from his righteousness, and committeth iniquity, and doeth according to all the abominations that the wicked man doeth, shall he live? None of his righteous deeds that he hath done shall be remembered: in his trespass that he hath trespassed, and in his sin that he hath sinned, in them shall he die.
+But when the righteous turns away from his righteousness, and commits iniquity, and does according to all the abominations that the wicked man does, shall he live? None of his righteous deeds that he has done shall be remembered: in his trespass that he has trespassed, and in his sin that he has sinned, in them shall he die.

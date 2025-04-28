@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remove thy stroke away from me: I am consumed by the blow of thy hand.
+Remove your scourge away from me. I am overcome by the blow of your hand.

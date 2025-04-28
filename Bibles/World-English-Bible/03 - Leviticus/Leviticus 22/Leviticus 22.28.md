@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whether it be cow or ewe, ye shall not kill it and its young both in one day.
+Whether it is a cow or ewe, you shall not kill it and its young both in one day.

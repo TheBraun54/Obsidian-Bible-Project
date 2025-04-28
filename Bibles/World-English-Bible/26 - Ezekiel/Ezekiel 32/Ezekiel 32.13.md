@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will destroy also all the beasts thereof from beside many waters; neither shall the foot of man trouble them any more, nor the hoofs of beasts trouble them.
+I will destroy also all its animals from beside many waters; neither shall the foot of man trouble them any more, nor the hoofs of animals trouble them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man said unto me, Son of man, behold with thine eyes, and hear with thine ears, and set thy heart upon all that I shall show thee; for, to the intent that I may show them unto thee, art thou brought hither: declare all that thou seest to the house of Israel.
+The man said to me, Son of man, see with your eyes, and hear with your ears, and set your heart on all that I shall show you; for, to the intent that I may show them to you, you are brought here: declare all that you see to the house of Israel.

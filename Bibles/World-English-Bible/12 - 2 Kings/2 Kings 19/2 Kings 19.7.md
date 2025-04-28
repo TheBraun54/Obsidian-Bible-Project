@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will put a spirit in him, and he shall hear tidings, and shall return to his own land; and I will cause him to fall by the sword in his own land.
+Behold, I will put a spirit in him, and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."'"

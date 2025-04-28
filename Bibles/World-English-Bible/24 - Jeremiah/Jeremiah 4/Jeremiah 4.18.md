@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy way and thy doings have procured these things unto thee; this is thy wickedness; for it is bitter, for it reacheth unto thy heart.
+"Your way and your doings have brought these things to you. This is your wickedness; for it is bitter, for it reaches to your heart."

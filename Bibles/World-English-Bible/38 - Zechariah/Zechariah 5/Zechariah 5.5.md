@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the angel that talked with me went forth, and said unto me, Lift up now thine eyes, and see what is this that goeth forth.
+Then the angel who talked with me came forward, and said to me, "Lift up now your eyes, and see what is this that is appearing."

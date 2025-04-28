@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Adah bare to Esau Eliphaz; and Basemath bare Reuel;
+Adah bore to Esau Eliphaz. Basemath bore Reuel.

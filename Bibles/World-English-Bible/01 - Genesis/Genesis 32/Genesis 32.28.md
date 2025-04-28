@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Thy name shall be called no more Jacob, but Israel: for thou hast striven with God and with men, and hast prevailed.
+He said, "Your name will no longer be called Jacob, but Israel; for you have fought with God and with men, and have prevailed."

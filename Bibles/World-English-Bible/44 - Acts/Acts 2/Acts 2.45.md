@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they sold their possessions and goods, and parted them to all, according as any man had need.
+They sold their possessions and goods, and distributed them to all, according as anyone had need.

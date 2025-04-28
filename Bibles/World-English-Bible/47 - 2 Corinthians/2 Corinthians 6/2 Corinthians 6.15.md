@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And what concord hath Christ with Belial? or what portion hath a believer with an unbeliever?
+What agreement has Christ with Belial? Or what portion has a believer with an unbeliever?

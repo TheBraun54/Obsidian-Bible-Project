@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Them that sin reprove in the sight of all, that the rest also may be in fear.
+Those who sin, reprove in the sight of all, that the rest also may be in fear.

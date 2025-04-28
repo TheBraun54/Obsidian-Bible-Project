@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now they that died by the plague were fourteen thousand and seven hundred, besides them that died about the matter of Korah.
+Now those who died by the plague were fourteen thousand and seven hundred, besides those who died about the matter of Korah.

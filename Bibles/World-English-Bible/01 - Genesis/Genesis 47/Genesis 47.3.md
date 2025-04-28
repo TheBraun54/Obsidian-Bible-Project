@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto his brethren, What is your occupation? And they said unto Pharaoh, Thy servants are shepherds, both we, and our fathers.
+Pharaoh said to his brothers, "What is your occupation?" They said to Pharaoh, "Your servants are shepherds, both we, and our fathers."

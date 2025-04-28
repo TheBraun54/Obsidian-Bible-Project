@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah turned the captivity of Job, when he prayed for his friends: and Jehovah gave Job twice as much as he had before.
+Yahweh turned the captivity of Job, when he prayed for his friends. Yahweh gave Job twice as much as he had before.

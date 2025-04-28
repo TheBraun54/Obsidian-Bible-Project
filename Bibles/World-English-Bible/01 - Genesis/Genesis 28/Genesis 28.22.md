@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then this stone, which I have set up for a pillar, shall be God's house: and of all that thou shalt give me I will surely give the tenth unto thee.
+then this stone, which I have set up for a pillar, will be God's house. Of all that you will give me I will surely give the tenth to you."

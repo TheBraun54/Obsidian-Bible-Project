@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Let] each man [do] according as he hath purposed in his heart: not grudgingly, or of necessity: for God loveth a cheerful giver.
+Let each man give according as he has determined in his heart; not grudgingly, or under compulsion; for God loves a cheerful giver.

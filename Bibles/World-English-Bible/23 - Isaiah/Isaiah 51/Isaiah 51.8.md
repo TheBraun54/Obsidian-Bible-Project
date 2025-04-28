@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the moth shall eat them up like a garment, and the worm shall eat them like wool; but my righteousness shall be for ever, and my salvation unto all generations.
+For the moth shall eat them up like a garment, and the worm shall eat them like wool; but my righteousness shall be forever, and my salvation to all generations."

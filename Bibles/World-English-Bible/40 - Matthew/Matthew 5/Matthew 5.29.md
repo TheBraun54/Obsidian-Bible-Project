@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy right eye causeth thee to stumble, pluck it out, and cast it from thee: for it is profitable for thee that one of thy members should perish, and not thy whole body be cast into hell. [
+If your right eye causes you to stumble, pluck it out and throw it away from you. For it is more profitable for you that one of your members should perish, than for your whole body to be cast into Gehenna.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief priests accused him of many things.
+The chief priests accused him of many things.

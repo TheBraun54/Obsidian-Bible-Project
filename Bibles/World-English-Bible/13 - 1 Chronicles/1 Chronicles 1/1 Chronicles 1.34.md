@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham begat Isaac. The sons of Isaac: Esau, and Israel.
+Abraham became the father of Isaac. The sons of Isaac: Esau, and Israel.

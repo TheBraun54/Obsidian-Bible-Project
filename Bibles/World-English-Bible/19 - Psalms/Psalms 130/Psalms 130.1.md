@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. Out of the depths have I cried unto thee, O Jehovah.
+Out of the depths I have cried to you, Yahweh.

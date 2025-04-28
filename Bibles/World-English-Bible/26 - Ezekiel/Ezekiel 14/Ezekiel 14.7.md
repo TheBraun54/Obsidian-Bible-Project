@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every one of the house of Israel, or of the strangers that sojourn in Israel, that separateth himself from me, and taketh his idols into his heart, and putteth the stumblingblock of his iniquity before his face, and cometh to the prophet to inquire for himself of me; I Jehovah will answer him by myself:
+For everyone of the house of Israel, or of the strangers who live in Israel, who separates himself from me, and takes his idols into his heart, and puts the stumbling block of his iniquity before his face, and comes to the prophet to inquire for himself of me; I Yahweh will answer him by myself:

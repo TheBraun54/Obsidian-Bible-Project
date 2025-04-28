@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but with precious blood, as of a lamb without spot, [even the blood] of Christ:
+but with precious blood, as of a faultless and pure lamb, the blood of Christ;

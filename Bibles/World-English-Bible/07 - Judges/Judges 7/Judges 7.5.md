@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he brought down the people unto the water: and Jehovah said unto Gideon, Every one that lappeth of the water with his tongue, as a dog lappeth, him shalt thou set by himself; likewise every one that boweth down upon his knees to drink.
+So he brought down the people to the water; and Yahweh said to Gideon, "Everyone who laps of the water with his tongue, like a dog laps, you shall set him by himself; likewise everyone who bows down on his knees to drink."

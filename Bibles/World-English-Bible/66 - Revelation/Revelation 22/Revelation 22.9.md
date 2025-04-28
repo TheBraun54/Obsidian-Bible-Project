@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto me, See thou do it not: I am a fellow-servant with thee and with thy brethren the prophets, and with them that keep the words of this book: worship God.
+He said to me, "See you don't do it! I am a fellow bondservant with you and with your brothers, the prophets, and with those who keep the words of this book. Worship God."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou hast built unto thee a vaulted place, and hast made thee a lofty place in every street.
+that you have built for yourselves a vaulted place, and have made yourselves a lofty place in every street.

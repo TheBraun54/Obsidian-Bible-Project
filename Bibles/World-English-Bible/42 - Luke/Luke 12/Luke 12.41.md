@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter said, Lord, speakest thou this parable unto us, or even unto all?
+Peter said to him, "Lord, are you telling this parable to us, or to everybody?"

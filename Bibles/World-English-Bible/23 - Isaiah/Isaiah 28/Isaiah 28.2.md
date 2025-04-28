@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the Lord hath a mighty and strong one; as a tempest of hail, a destroying storm, as a tempest of mighty waters overflowing, will he cast down to the earth with the hand.
+Behold, the Lord has a mighty and strong one. Like a storm of hail, a destroying storm, and like a storm of mighty waters overflowing, he will cast them down to the earth with his hand.

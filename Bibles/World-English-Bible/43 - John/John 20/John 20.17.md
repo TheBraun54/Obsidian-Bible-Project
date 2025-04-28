@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith to her, Touch me not; for I am not yet ascended unto the Father: but go unto my brethren, and say to them, I ascend unto my Father and your Father, and my God and your God.
+Jesus said to her, "Don't hold me, for I haven't yet ascended to my Father; but go to my brothers, and tell them, 'I am ascending to my Father and your Father, to my God and your God.'"

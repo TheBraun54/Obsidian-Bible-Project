@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, the glory of the God of Israel came from the way of the east: and his voice was like the sound of many waters; and the earth shined with his glory.
+Behold, the glory of the God of Israel came from the way of the east: and his voice was like the sound of many waters; and the earth shined with his glory.

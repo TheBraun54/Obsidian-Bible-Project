@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Joseph saw Benjamin with them, he said to the steward of his house, Bring the men into the house, and slay, and make ready; for the men shall dine with me at noon.
+When Joseph saw Benjamin with them, he said to the steward of his house, "Bring the men into the house, and butcher an animal, and prepare; for the men will dine with me at noon."

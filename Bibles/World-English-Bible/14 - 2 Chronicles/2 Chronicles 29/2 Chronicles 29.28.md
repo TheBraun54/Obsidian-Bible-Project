@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the assembly worshipped, and the singers sang, and the trumpeters sounded; all this [continued] until the burnt-offering was finished.
+All the assembly worshiped, and the singers sang, and the trumpeters sounded; all this [continued] until the burnt offering was finished.

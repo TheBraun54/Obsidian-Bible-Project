@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy nakedness shall be uncovered, yea, thy shame shall be seen: I will take vengeance, and will spare no man.
+Your nakedness shall be uncovered, yes, your shame shall be seen: I will take vengeance, and will spare no man."

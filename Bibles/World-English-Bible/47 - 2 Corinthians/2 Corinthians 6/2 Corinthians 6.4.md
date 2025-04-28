@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in everything commending ourselves, as ministers of God, in much patience, in afflictions, in necessities, in distresses,
+but in everything commending ourselves, as servants of God, in great endurance, in afflictions, in hardships, in distresses,

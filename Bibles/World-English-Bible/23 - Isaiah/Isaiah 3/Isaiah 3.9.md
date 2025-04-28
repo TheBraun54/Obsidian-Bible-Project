@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The show of their countenance doth witness against them; and they declare their sin as Sodom, they hide it not. Woe unto their soul! for they have done evil unto themselves.
+The look of their faces testify against them. They parade their sin like Sodom. They don't hide it. Woe to their soul! For they have brought disaster upon themselves.

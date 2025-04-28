@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway he constrained the disciples to enter into the boat, and to go before him unto the other side, till he should send the multitudes away.
+Immediately Jesus made the disciples get into the boat, and to go ahead of him to the other side, while he sent the multitudes away.

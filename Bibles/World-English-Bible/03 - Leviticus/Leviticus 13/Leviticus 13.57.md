@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if it appear still in the garment, either in the warp, or in the woof, or in anything of skin, it is breaking out: thou shalt burn that wherein the plague is with fire.
+and if it appears again in the garment, either in the warp, or in the woof, or in anything of skin, it is spreading. You shall burn with fire that in which the plague is.

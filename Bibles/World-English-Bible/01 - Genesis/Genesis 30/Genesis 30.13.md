@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah said, Happy am I! for the daughters will call me happy: and she called his name Asher.
+Leah said, "Happy am I, for the daughters will call me happy." She named him Asher.

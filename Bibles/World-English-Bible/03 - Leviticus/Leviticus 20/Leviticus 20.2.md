@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover, thou shalt say to the children of Israel, Whosoever he be of the children of Israel, or of the strangers that sojourn in Israel, that giveth of his seed unto Molech; he shall surely be put to death: the people of the land shall stone him with stones.
+"Moreover, you shall tell the children of Israel, 'Anyone of the children of Israel, or of the strangers who live as foreigners in Israel, who gives any of his seed to Molech; he shall surely be put to death. The people of the land shall stone him with stones.

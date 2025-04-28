@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-naked, and ye clothed me; I was sick, and ye visited me; I was in prison, and ye came unto me.
+I was naked, and you clothed me. I was sick, and you visited me. I was in prison, and you came to me.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith Jehovah of hosts, the God of Israel: Jonadab the son of Rechab shall not want a man to stand before me for ever.
+therefore thus says Yahweh of Armies, the God of Israel: Jonadab the son of Rechab shall not want a man to stand before me forever.

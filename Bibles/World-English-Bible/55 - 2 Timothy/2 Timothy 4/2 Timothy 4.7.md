@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have fought the good fight, I have finished the course, I have kept the faith:
+I have fought the good fight. I have finished the course. I have kept the faith.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And so it was, when Israel had sown, that the Midianites came up, and the Amalekites, and the children of the east; they came up against them;
+So it was, when Israel had sown, that the Midianites came up, and the Amalekites, and the children of the east; they came up against them;

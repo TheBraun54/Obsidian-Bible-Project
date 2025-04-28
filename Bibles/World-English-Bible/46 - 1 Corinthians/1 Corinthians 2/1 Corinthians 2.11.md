@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who among men knoweth the things of a man, save the spirit of the man, which is in him? even so the things of God none knoweth, save the Spirit of God.
+For who among men knows the things of a man, except the spirit of the man, which is in him? Even so, no one knows the things of God, except God's Spirit.

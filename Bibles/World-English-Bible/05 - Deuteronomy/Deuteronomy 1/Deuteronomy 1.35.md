@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely there shall not one of these men of this evil generation see the good land, which I sware to give unto your fathers,
+"Surely not one of these men of this evil generation shall see the good land, which I swore to give to your fathers,

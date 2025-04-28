@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt rear up the tabernacle according to the fashion thereof which hath been showed thee in the mount.
+You shall set up the tabernacle according to the way that it was shown to you on the mountain.

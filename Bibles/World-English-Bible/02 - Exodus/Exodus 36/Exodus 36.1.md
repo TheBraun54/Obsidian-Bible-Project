@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bezalel and Oholiab shall work, and every wise-hearted man, in whom Jehovah hath put wisdom and understanding to know how to work all the work for the service of the sanctuary, according to all that Jehovah hath commanded.
+"Bezalel and Oholiab shall work with every wise-hearted man, in whom Yahweh has put wisdom and understanding to know how to work all the work for the service of the sanctuary, according to all that Yahweh has commanded."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine eyes shall behold strange things, And thy heart shall utter perverse things.
+Your eyes will see strange things, and your mind will imagine confusing things.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Think ye that I am come to give peace in the earth? I tell you, Nay; but rather division:
+Do you think that I have come to give peace in the earth? I tell you, no, but rather division.

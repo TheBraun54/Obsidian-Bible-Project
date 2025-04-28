@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that saith to the deep, Be dry, and I will dry up thy rivers;
+who says to the deep, 'Be dry,' and 'I will dry up your rivers;'

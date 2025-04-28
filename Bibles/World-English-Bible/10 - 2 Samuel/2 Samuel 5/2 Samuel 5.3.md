@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So all the elders of Israel came to the king to Hebron; and king David made a covenant with them in Hebron before Jehovah: and they anointed David king over Israel.
+So all the elders of Israel came to the king to Hebron; and king David made a covenant with them in Hebron before Yahweh; and they anointed David king over Israel.

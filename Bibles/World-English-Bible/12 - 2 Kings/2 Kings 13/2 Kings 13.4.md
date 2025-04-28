@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoahaz besought Jehovah, and Jehovah hearkened unto him; for he saw the oppression of Israel, how that the king of Syria oppressed them.
+Jehoahaz begged Yahweh, and Yahweh listened to him; for he saw the oppression of Israel, how that the king of Syria oppressed them.

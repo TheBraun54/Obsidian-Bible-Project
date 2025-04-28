@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For then will I turn to the peoples of a pure language, that they may all call upon the name of Jehovah, to serve him with one consent.
+For then I will purify the lips of the peoples, that they may all call on the name of Yahweh, to serve him shoulder to shoulder.

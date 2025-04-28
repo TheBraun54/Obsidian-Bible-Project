@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So when they got out upon the land, they see a fire of coals there, and fish laid thereon, and bread.
+So when they got out on the land, they saw a fire of coals there, and fish laid on it, and bread.

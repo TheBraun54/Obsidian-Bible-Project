@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When it is my desire, I will chastise them; and the peoples shall be gathered against them, when they are bound to their two transgressions.
+When it is my desire, I will chastise them; and the nations will be gathered against them, when they are bound to their two transgressions.

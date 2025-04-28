@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now come, let us make a covenant, I and thou; and let it be for a witness between me and thee.
+Now come, let us make a covenant, you and I; and let it be for a witness between me and you."

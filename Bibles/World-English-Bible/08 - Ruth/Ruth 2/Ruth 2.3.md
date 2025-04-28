@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she went, and came and gleaned in the field after the reapers: and her hap was to light on the portion of the field belonging unto Boaz, who was of the family of Elimelech.
+She went, and came and gleaned in the field after the reapers: and she happened to come to the portion of the field belonging to Boaz, who was of the family of Elimelech.

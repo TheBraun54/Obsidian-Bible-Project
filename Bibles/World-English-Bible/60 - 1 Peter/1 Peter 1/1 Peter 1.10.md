@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Concerning which salvation the prophets sought and searched diligently, who prophesied of the grace that [should come] unto you:
+Concerning this salvation, the prophets sought and searched diligently, who prophesied of the grace that would come to you,

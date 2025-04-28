@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall be eaten the same day ye offer it, and on the morrow: and if aught remain until the third day, it shall be burnt with fire.
+It shall be eaten the same day you offer it, and on the next day: and if anything remains until the third day, it shall be burned with fire.

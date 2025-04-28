@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall kill the bullock before Jehovah: and Aaron's sons, the priests, shall present the blood, and sprinkle the blood round about upon the altar that is at the door of the tent of meeting.
+He shall kill the bull before Yahweh. Aaron's sons, the priests, shall present the blood and sprinkle the blood around on the altar that is at the door of the Tent of Meeting.

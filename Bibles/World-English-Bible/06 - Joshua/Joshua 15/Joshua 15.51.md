@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Goshen, and Holon, and Giloh; eleven cities with their villages.
+Goshen, Holon, and Giloh; eleven cities with their villages.

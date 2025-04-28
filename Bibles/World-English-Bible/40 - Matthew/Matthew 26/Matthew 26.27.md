@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took a cup, and gave thanks, and gave to them, saying, Drink ye all of it;
+He took the cup, gave thanks, and gave to them, saying, "All of you drink it,

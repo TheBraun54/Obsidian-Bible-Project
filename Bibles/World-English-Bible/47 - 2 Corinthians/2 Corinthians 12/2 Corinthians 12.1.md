@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I must needs glory, though it is not expedient; but I will come to visions and revelations of the Lord.
+It is doubtless not profitable for me to boast. For I will come to visions and revelations of the Lord.

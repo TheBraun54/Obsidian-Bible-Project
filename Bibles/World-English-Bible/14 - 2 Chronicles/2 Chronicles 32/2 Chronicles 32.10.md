@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Sennacherib king of Assyria, Whereon do ye trust, that ye abide the siege in Jerusalem?
+Thus says Sennacherib king of Assyria, "In whom do you trust, that you remain under siege in Jerusalem?

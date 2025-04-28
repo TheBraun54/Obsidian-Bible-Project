@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jephthah said unto the elders of Gilead, Did not ye hate me, and drive me out of my father's house? and why are ye come unto me now when ye are in distress?
+Jephthah said to the elders of Gilead, "Didn't you hate me, and drive me out of my father's house? Why have you come to me now when you are in distress?"

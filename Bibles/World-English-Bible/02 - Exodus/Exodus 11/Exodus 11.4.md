@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, Thus saith Jehovah, About midnight will I go out into the midst of Egypt:
+Moses said, "This is what Yahweh says: 'About midnight I will go out into the midst of Egypt,

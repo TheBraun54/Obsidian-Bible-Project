@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when they persecute you in this city, flee into the next: for verily I say unto you, Ye shall not have gone through the cities of Israel, till the Son of man be come.
+But when they persecute you in this city, flee into the next, for most certainly I tell you, you will not have gone through the cities of Israel, until the Son of Man has come.

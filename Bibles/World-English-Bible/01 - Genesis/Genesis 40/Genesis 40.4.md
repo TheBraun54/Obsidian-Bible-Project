@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the captain of the guard charged Joseph with them, and he ministered unto them: and they continued a season in ward.
+The captain of the guard assigned them to Joseph, and he took care of them. They stayed in prison many days.

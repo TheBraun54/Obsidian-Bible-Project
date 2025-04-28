@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] a thorn that goeth up into the hand of a drunkard, So is a parable in the mouth of fools.
+Like a thornbush that goes into the hand of a drunkard, so is a parable in the mouth of fools.

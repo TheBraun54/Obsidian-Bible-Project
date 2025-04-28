@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for there is born to you this day in the city of David a Saviour, who is Christ the Lord.
+For there is born to you, this day, in the city of David, a Savior, who is Christ the Lord.

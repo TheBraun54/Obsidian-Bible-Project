@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Go, get thee down; and thou shalt come up, thou, and Aaron with thee: but let not the priests and the people break through to come up unto Jehovah, lest he break forth upon them.
+Yahweh said to him, "Go down and you shall bring Aaron up with you, but don't let the priests and the people break through to come up to Yahweh, lest he break forth on them."

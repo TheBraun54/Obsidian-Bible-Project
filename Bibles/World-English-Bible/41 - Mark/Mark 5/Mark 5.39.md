@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was entered in, he saith unto them, Why make ye a tumult, and weep? the child is not dead, but sleepeth.
+When he had entered in, he said to them, "Why do you make an uproar and weep? The child is not dead, but is asleep."

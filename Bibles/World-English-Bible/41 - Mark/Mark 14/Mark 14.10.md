@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judas Iscariot, he that was one of the twelve, went away unto the chief priests, that he might deliver him unto them.
+Judas Iscariot, who was one of the twelve, went away to the chief priests, that he might deliver him to them.

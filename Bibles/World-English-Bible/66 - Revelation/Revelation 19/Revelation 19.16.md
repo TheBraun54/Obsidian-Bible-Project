@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath on his garment and on his thigh a name written, KINGS OF KINGS, AND LORD OF LORDS.
+He has on his garment and on his thigh a name written, "KING OF KINGS, AND LORD OF LORDS."

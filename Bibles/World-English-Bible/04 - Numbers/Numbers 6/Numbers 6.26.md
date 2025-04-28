@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah lift up his countenance upon thee, and give thee peace.
+Yahweh lift up his face toward you, and give you peace.'

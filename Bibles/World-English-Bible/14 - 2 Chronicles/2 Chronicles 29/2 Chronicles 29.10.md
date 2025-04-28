@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it is in my heart to make a covenant with Jehovah, the God of Israel, that his fierce anger may turn away from us.
+Now it is in my heart to make a covenant with Yahweh, the God of Israel, that his fierce anger may turn away from us.

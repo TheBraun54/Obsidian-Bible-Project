@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In their sight shalt thou bear it upon thy shoulder, and carry it forth in the dark; thou shalt cover thy face, that thou see not the land: for I have set thee for a sign unto the house of Israel.
+In their sight you shall bear it on your shoulder, and carry it forth in the dark; you shall cover your face, so that you don't see the land: for I have set you for a sign to the house of Israel.

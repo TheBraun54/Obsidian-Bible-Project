@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway the damsel rose up, and walked; for she was twelve years old. And they were amazed straightway with a great amazement.
+Immediately the girl rose up and walked, for she was twelve years old. They were amazed with great amazement.

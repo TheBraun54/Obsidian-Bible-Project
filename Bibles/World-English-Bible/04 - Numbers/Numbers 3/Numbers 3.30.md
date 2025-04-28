@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince of the fathers' house of the families of the Kohathites shall be Elizaphan the son of Uzziel.
+The prince of the fathers' house of the families of the Kohathites shall be Elizaphan the son of Uzziel.

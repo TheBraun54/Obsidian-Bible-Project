@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there was a tabernacle prepared, the first, wherein [were] the candlestick, and the table, and the showbread; which is called the Holy place.
+For a tabernacle was prepared. In the first part were the lampstand, the table, and the show bread; which is called the Holy Place.

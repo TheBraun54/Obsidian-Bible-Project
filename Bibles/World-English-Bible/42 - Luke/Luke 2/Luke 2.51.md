@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went down with them, and came to Nazareth; and he was subject unto them: and his mother kept all [these] sayings in her heart.
+And he went down with them, and came to Nazareth. He was subject to them, and his mother kept all these sayings in her heart.

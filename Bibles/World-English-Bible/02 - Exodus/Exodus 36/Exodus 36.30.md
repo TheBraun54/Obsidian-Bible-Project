@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were eight boards, and their sockets of silver, sixteen sockets; under every board two sockets.
+There were eight boards, and their sockets of silver, sixteen sockets; under every board two sockets.

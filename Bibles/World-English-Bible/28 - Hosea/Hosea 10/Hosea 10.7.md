@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[As for] Samaria, her king is cut off, as foam upon the water.
+Samaria and her king float away, like a twig on the water.

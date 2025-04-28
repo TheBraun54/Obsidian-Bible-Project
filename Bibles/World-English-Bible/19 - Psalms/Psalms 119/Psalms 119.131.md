@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I opened wide my mouth, and panted; For I longed for thy commandments.
+I opened my mouth wide and panted, for I longed for your commandments.

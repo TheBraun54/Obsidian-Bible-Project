@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have loved you, saith Jehovah. Yet ye say, Wherein hast thou loved us? Was not Esau Jacob's brother? saith Jehovah: yet I loved Jacob;
+"I have loved you," says Yahweh. Yet you say, "How have you loved us?" "Wasn't Esau Jacob's brother?" says Yahweh, "Yet I loved Jacob;

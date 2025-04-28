@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou send forth lightnings, that they may go, And say unto thee, Here we are?
+Can you send forth lightnings, that they may go? Do they report to you, 'Here we are?'

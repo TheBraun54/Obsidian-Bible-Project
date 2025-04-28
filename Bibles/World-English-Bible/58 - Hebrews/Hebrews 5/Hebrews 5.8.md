@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-though he was a Son, yet learned obedience by the things which he suffered;
+though he was a Son, yet learned obedience by the things which he suffered.

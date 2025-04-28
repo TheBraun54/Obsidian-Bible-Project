@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they found them not, they dragged Jason and certain brethren before the rulers of the city, crying, These that have turned the world upside down are come hither also;
+When they didn't find them, they dragged Jason and certain brothers before the rulers of the city, crying, "These who have turned the world upside down have come here also,

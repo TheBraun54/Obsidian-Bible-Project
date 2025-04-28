@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them give glory unto Jehovah, and declare his praise in the islands.
+Let them give glory to Yahweh, and declare his praise in the islands.

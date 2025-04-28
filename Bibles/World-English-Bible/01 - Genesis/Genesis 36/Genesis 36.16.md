@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-chief Korah, chief Gatam, chief Amalek: these are the chiefs that came of Eliphaz in the land of Edom; these are the sons of Adah.
+chief Korah, chief Gatam, chief Amalek: these are the chiefs who came of Eliphaz in the land of Edom; these are the sons of Adah.

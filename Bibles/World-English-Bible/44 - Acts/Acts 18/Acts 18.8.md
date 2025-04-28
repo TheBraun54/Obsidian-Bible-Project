@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Crispus, the ruler of the synagogue, believed in the Lord with all his house; and many of the Corinthians hearing believed, and were baptized.
+Crispus, the ruler of the synagogue, believed in the Lord with all his house. Many of the Corinthians, when they heard, believed and were baptized.

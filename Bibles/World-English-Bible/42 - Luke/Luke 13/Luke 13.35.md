@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, your house is left unto you [desolate] : and I say unto you, Ye shall not see me, until ye shall say, Blessed is he that cometh in the name of the Lord.
+Behold, your house is left to you desolate. I tell you, you will not see me, until you say, 'Blessed is he who comes in the name of the Lord!'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now he is dead, wherefore should I fast? can I bring him back again? I shall go to him, but he will not return to me.
+But now he is dead, why should I fast? Can I bring him back again? I shall go to him, but he will not return to me."

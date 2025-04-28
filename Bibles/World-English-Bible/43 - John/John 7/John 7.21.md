@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto them, I did one work, and ye all marvel because thereof.
+Jesus answered them, "I did one work, and you all marvel because of it.

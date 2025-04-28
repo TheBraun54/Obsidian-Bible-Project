@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway the Spirit driveth him forth into the wilderness.
+Immediately the Spirit drove him out into the wilderness.

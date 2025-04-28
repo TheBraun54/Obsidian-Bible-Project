@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Abishai to David, God hath delivered up thine enemy into thy hand this day: now therefore let me smite him, I pray thee, with the spear to the earth at one stroke, and I will not smite him the second time.
+Then Abishai said to David, "God has delivered up your enemy into your hand this day. Now therefore please let me strike him with the spear to the earth at one stroke, and I will not strike him the second time."

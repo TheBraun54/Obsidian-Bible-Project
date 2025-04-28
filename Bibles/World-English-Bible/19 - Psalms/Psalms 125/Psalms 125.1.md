@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. They that trust in Jehovah Are as mount Zion, which cannot be moved, but abideth for ever.
+Those who trust in Yahweh are as Mount Zion, which can't be moved, but remains forever.

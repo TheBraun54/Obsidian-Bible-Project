@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath bent his bow like an enemy, he hath stood with his right hand as an adversary, And hath slain all that were pleasant to the eye: In the tent of the daughter of Zion he hath poured out his wrath like fire.
+He has bent his bow like an enemy, he has stood with his right hand as an adversary, Has killed all that were pleasant to the eye: In the tent of the daughter of Zion he has poured out his wrath like fire.

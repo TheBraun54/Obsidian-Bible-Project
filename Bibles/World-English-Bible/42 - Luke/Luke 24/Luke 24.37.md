@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they were terrified and affrighted, and supposed that they beheld a spirit.
+But they were terrified and filled with fear, and supposed that they had seen a spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From him shall come forth the corner-stone, from him the nail, from him the battle bow, from him every ruler together.
+From him will come forth the cornerstone, from him the nail, from him the battle bow, from him every ruler together.

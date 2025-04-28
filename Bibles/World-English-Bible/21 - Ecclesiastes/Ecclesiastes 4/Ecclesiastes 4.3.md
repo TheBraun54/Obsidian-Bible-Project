@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, better than them both [did I esteem] him that hath not yet been, who hath not seen the evil work that is done under the sun.
+Yes, better than them both is him who has not yet been, who has not seen the evil work that is done under the sun.

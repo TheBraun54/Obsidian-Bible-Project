@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, Jehovah will smite with a great plague thy people, and thy children, and thy wives, and all thy substance;
+behold, Yahweh will strike with a great plague your people, and your children, and your wives, and all your substance;

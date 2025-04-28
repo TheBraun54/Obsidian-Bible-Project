@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not sow thy vineyard with two kinds of seed, lest the whole fruit be forfeited, the seed which thou hast sown, and the increase of the vineyard.
+You shall not sow your vineyard with two kinds of seed, lest the whole fruit be forfeited, the seed which you have sown, and the increase of the vineyard.

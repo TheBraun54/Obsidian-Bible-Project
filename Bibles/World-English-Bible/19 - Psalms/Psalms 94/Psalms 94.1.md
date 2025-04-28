@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, thou God to whom vengeance belongeth, Thou God to whom vengeance belongeth, shine forth.
+Yahweh, you God to whom vengeance belongs, you God to whom vengeance belongs, shine forth.

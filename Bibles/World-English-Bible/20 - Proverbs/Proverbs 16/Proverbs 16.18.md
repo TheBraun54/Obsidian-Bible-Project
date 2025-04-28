@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pride [goeth] before destruction, And a haughty spirit before a fall.
+Pride goes before destruction, and a haughty spirit before a fall.

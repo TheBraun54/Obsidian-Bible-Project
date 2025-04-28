@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and as they were affrighted and bowed down their faces to the earth, they said unto them, Why seek ye the living among the dead?
+Becoming terrified, they bowed their faces down to the earth. They said to them, "Why do you seek the living among the dead?

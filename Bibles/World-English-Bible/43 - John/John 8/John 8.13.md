@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Pharisees therefore said unto him, Thou bearest witness of thyself; thy witness is not true.
+The Pharisees therefore said to him, "You testify about yourself. Your testimony is not valid."

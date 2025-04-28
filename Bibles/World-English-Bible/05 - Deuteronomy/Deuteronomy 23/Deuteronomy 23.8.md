@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of the third generation that are born unto them shall enter into the assembly of Jehovah.
+The children of the third generation who are born to them shall enter into the assembly of Yahweh.

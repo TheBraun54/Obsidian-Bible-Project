@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for me, I will call upon God; And Jehovah will save me.
+As for me, I will call on God. Yahweh will save me.

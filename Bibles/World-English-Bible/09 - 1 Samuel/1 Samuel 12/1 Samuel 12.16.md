@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore stand still and see this great thing, which Jehovah will do before your eyes.
+"Now therefore stand still and see this great thing, which Yahweh will do before your eyes.

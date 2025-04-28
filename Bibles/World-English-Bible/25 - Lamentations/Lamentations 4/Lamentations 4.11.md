@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath accomplished his wrath, he hath poured out his fierce anger; And he hath kindled a fire in Zion, which hath devoured the foundations thereof.
+Yahweh has accomplished his wrath, he has poured out his fierce anger; He has kindled a fire in Zion, which has devoured its foundations.

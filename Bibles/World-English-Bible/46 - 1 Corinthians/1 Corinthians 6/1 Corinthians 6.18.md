@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Flee fornication. Every sin that a man doeth is without the body; but he that committeth fornication sinneth against his own body.
+Flee sexual immorality! "Every sin that a man does is outside the body," but he who commits sexual immorality sins against his own body.

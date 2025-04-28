@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But that the dead are raised, even Moses showed, in [the place concerning] the Bush, when he calleth the Lord the God of Abraham, and the God of Isaac, and the God of Jacob.
+But that the dead are raised, even Moses showed at the bush, when he called the Lord 'The God of Abraham, the God of Isaac, and the God of Jacob.'

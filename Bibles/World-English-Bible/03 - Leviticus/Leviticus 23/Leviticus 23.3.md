@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six days shall work be done: but on the seventh day is a sabbath of solemn rest, a holy convocation; ye shall do no manner of work: it is a sabbath unto Jehovah in all your dwellings.
+"'Six days shall work be done: but on the seventh day is a Sabbath of solemn rest, a holy convocation; you shall do no kind of work. It is a Sabbath to Yahweh in all your dwellings.

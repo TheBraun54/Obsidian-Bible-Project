@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul, and Jonathan his son, and the people that were present with them, abode in Geba of Benjamin: but the Philistines encamped in Michmash.
+Saul, and Jonathan his son, and the people who were present with them, stayed in Geba of Benjamin: but the Philistines encamped in Michmash.

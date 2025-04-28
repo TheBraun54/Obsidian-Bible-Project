@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses was wroth with the officers of the host, the captains of thousands and the captains of hundreds, who came from the service of the war.
+Moses was angry with the officers of the army, the captains of thousands and the captains of hundreds, who came from the service of the war.

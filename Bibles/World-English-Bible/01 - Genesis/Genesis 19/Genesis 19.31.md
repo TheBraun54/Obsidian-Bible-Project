@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the first-born said unto the younger, Our father is old, and there is not a man in the earth to come in unto us after the manner of all the earth:
+The firstborn said to the younger, "Our father is old, and there is not a man in the earth to come in to us in the way of all the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them that join house to house, that lay field to field, till there be no room, and ye be made to dwell alone in the midst of the land!
+Woe to those who join house to house, who lay field to field, until there is no room, and you are made to dwell alone in the midst of the land!

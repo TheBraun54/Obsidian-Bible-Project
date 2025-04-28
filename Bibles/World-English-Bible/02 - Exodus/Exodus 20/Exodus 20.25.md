@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou make me an altar of stone, thou shalt not build it of hewn stones; for if thou lift up thy tool upon it, thou hast polluted it.
+If you make me an altar of stone, you shall not build it of cut stones; for if you lift up your tool on it, you have polluted it.

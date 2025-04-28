@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus they provoked him to anger with their doings; And the plague brake in upon them.
+Thus they provoked him to anger with their deeds. The plague broke in on them.

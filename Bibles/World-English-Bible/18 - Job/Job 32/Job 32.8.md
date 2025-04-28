@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there is a spirit in man, And the breath of the Almighty giveth them understanding.
+But there is a spirit in man, and the breath of the Almighty gives them understanding.

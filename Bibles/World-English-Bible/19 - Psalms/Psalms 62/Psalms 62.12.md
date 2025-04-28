@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also unto thee, O Lord, belongeth lovingkindness; For thou renderest to every man according to his work.
+Also to you, Lord, belongs loving kindness, for you reward every man according to his work. A Psalm by David, when he was in the desert of Judah.

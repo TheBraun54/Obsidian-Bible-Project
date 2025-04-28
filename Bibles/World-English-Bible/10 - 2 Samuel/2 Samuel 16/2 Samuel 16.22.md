@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they spread Absalom a tent upon the top of the house; and Absalom went in unto his father's concubines in the sight of all Israel.
+So they spread Absalom a tent on the top of the house; and Absalom went in to his father's concubines in the sight of all Israel.

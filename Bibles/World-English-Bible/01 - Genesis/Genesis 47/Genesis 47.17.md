@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought their cattle unto Joseph; and Joseph gave them bread in exchange for the horses, and for the flocks, and for the herds, and for the asses: and he fed them with bread in exchange for all their cattle for that year.
+They brought their livestock to Joseph, and Joseph gave them bread in exchange for the horses, and for the flocks, and for the herds, and for the donkeys: and he fed them with bread in exchange for all their livestock for that year.

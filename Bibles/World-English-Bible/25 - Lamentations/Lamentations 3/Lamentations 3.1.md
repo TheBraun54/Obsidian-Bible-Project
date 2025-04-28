@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the man that hath seen affliction by the rod of his wrath.
+I am the man that has seen affliction by the rod of his wrath.

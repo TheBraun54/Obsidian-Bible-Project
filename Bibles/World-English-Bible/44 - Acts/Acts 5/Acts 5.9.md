@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter [said] unto her, How is it that ye have agreed together to try the Spirit of the Lord? behold, the feet of them that have buried thy husband are at the door, and they shall carry thee out.
+But Peter asked her, "How is it that you have agreed together to tempt the Spirit of the Lord? Behold, the feet of those who have buried your husband are at the door, and they will carry you out."

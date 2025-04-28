@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Keilah, and Achzib, and Mareshah; nine cities with their villages.
+Keilah, Achzib, and Mareshah; nine cities with their villages.

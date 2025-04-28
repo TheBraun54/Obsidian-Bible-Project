@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not rule over him with rigor, but shalt fear thy God.
+You shall not rule over him with harshness, but shall fear your God.

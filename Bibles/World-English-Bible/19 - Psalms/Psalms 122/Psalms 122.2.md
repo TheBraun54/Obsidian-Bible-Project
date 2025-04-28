@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our feet are standing Within thy gates, O Jerusalem,
+Our feet are standing within your gates, Jerusalem;

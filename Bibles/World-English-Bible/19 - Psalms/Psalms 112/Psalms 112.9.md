@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath dispersed, he hath given to the needy; His righteousness endureth for ever: His horn shall be exalted with honor.
+He has dispersed, he has given to the poor. His righteousness endures forever. His horn will be exalted with honor.

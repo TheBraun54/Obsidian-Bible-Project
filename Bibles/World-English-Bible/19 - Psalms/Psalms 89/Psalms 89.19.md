@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then thou spakest in vision to thy saints, And saidst, I have laid help upon one that is mighty; I have exalted one chosen out of the people.
+Then you spoke in vision to your saints, and said, "I have bestowed strength on the warrior. I have exalted a young man from the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set thee up waymarks, make thee guide-posts; set thy heart toward the highway, even the way by which thou wentest: turn again, O virgin of Israel, turn again to these thy cities.
+Set up road signs, make guideposts; set your heart toward the highway, even the way by which you went: turn again, virgin of Israel, turn again to these your cities.

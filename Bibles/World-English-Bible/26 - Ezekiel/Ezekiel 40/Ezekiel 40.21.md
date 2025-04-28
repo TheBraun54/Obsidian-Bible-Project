@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lodges thereof were three on this side and three on that side; and the posts thereof and the arches thereof were after the measure of the first gate: the length thereof was fifty cubits, and the breadth five and twenty cubits.
+The lodges of it were three on this side and three on that side; and its posts and its arches were after the measure of the first gate: its length was fifty cubits, and the breadth twenty-five cubits.

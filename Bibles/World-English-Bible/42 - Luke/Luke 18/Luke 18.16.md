@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus called them unto him, saying, Suffer the little children to come unto me, and forbid them not: for to such belongeth the kingdom of God.
+Jesus summoned them, saying, "Allow the little children to come to me, and don't hinder them, for the Kingdom of God belongs to such as these.

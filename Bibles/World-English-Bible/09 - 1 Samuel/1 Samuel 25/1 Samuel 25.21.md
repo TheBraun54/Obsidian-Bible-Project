@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now David had said, Surely in vain have I kept all that this fellow hath in the wilderness, so that nothing was missed of all that pertained unto him: and he hath returned me evil for good.
+Now David had said, "Surely in vain have I kept all that this fellow has in the wilderness, so that nothing was missed of all that pertained to him. He has returned me evil for good.

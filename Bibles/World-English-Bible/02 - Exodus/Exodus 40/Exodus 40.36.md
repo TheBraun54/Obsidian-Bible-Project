@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the cloud was taken up from over the tabernacle, the children of Israel went onward, throughout all their journeys:
+When the cloud was taken up from over the tabernacle, the children of Israel went onward, throughout all their journeys;

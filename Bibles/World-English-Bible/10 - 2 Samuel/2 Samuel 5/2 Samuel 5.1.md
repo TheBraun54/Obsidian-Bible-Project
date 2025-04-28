@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came all the tribes of Israel to David unto Hebron, and spake, saying, Behold, we are thy bone and thy flesh.
+Then came all the tribes of Israel to David to Hebron, and spoke, saying, "Behold, we are your bone and your flesh.

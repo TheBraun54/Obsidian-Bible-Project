@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember that thou magnify his work, Whereof men have sung.
+"Remember that you magnify his work, whereof men have sung.

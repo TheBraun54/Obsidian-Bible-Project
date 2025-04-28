@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will establish thee for a holy people unto himself, as he hath sworn unto thee; if thou shalt keep the commandments of Jehovah thy God, and walk in his ways.
+Yahweh will establish you for a holy people to himself, as he has sworn to you; if you shall keep the commandments of Yahweh your God, and walk in his ways.

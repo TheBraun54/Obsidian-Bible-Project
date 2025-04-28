@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, these shall come from far; and, lo, these from the north and from the west; and these from the land of Sinim.
+Behold, these shall come from far; and behold, these from the north and from the west; and these from the land of Sinim."

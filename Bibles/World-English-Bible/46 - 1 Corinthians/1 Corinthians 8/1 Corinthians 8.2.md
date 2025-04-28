@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man thinketh that he knoweth anything, he knoweth not yet as he ought to know;
+But if anyone thinks that he knows anything, he doesn't yet know as he ought to know.

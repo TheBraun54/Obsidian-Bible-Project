@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even the censers of these sinners against their own lives; and let them be made beaten plates for a covering of the altar: for they offered them before Jehovah; therefore they are holy; and they shall be a sign unto the children of Israel.
+even the censers of these sinners against their own lives; and let them be made beaten plates for a covering of the altar: for they offered them before Yahweh; therefore they are holy; and they shall be a sign to the children of Israel."

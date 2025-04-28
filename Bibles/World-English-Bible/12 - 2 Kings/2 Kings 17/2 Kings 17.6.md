@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the ninth year of Hoshea the king of Assyria took Samaria, and carried Israel away unto Assyria, and placed them in Halah, and on the Habor, the river of Gozan, and in the cities of the Medes.
+In the ninth year of Hoshea the king of Assyria took Samaria, and carried Israel away to Assyria, and placed them in Halah, and on the Habor, the river of Gozan, and in the cities of the Medes.

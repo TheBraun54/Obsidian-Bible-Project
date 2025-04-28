@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass about eight days after these sayings, that he took with him Peter and John and James, and went up into the mountain to pray.
+It happened about eight days after these sayings, that he took with him Peter, John, and James, and went up onto the mountain to pray.

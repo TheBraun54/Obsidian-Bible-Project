@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servants of the householder came and said unto him, Sir, didst thou not sow good seed in thy field? whence then hath it tares?
+The servants of the householder came and said to him, 'Sir, didn't you sow good seed in your field? Where did this darnel come from?'

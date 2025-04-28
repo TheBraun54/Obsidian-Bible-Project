@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the Reubenites, and to the Gadites, and to the half-tribe of Manasseh, spake Joshua, saying,
+Joshua spoke to the Reubenites, and to the Gadites, and to the half-tribe of Manasseh, saying,

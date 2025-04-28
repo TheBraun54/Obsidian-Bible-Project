@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are they that have been persecuted for righteousness' sake: for theirs is the kingdom of heaven.
+Blessed are those who have been persecuted for righteousness' sake, for theirs is the Kingdom of Heaven.

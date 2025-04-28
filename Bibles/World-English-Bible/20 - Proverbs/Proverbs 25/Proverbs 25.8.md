@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go not forth hastily to strive, Lest [thou know not] what to do in the end thereof, When thy neighbor hath put thee to shame.
+Don't be hasty in bringing charges to court. What will you do in the end when your neighbor shames you?

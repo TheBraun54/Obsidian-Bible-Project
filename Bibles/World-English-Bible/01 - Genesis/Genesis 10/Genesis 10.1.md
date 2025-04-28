@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the generations of the sons of Noah, [namely], of Shem, Ham, and Japheth: and unto them were sons born after the flood.
+Now this is the history of the generations of the sons of Noah and of Shem, Ham, and Japheth. Sons were born to them after the flood.

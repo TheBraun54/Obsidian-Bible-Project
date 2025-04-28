@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As many as desire to make a fair show in the flesh, they compel you to be circumcised; only that they may not be persecuted for the cross of Christ.
+As many as desire to look good in the flesh, they compel you to be circumcised; only that they may not be persecuted for the cross of Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Watch ye, and keep them, until ye weigh them before the chiefs of the priests and the Levites, and the princes of the fathers' [houses] of Israel, at Jerusalem, in the chambers of the house of Jehovah.
+Watch, and keep them, until you weigh them before the chiefs of the priests and the Levites, and the princes of the fathers' [houses] of Israel, at Jerusalem, in the rooms of the house of Yahweh."

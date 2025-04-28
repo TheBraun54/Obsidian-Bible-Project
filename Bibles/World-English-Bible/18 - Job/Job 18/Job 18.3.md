@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore are we counted as beasts, [And] are become unclean in your sight?
+Why are we counted as animals, which have become unclean in your sight?

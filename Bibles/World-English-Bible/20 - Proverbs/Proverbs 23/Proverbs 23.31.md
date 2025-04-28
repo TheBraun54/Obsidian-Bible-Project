@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look not thou upon the wine when it is red, When it sparkleth in the cup, When it goeth down smoothly:
+Don't look at the wine when it is red, when it sparkles in the cup, when it goes down smoothly.

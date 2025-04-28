@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my people have forgotten me, they have burned incense to false [gods] ; and they have been made to stumble in their ways, in the ancient paths, to walk in bypaths, in a way not cast up;
+For my people have forgotten me, they have burned incense to false [gods]; and they have been made to stumble in their ways, in the ancient paths, to walk in byways, in a way not built up;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is love, that we should walk after his commandments. This is the commandment, even as ye heard from the beginning, that ye should walk in it.
+This is love, that we should walk according to his commandments. This is the commandment, even as you heard from the beginning, that you should walk in it.

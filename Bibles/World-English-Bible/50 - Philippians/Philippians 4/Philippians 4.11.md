@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not that I speak in respect of want: for I have learned, in whatsoever state I am, therein to be content.
+Not that I speak in respect to lack, for I have learned in whatever state I am, to be content in it.

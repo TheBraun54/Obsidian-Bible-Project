@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Against [him that] bendeth let the archer bend his bow, and against [him that] lifteth himself up in his coat of mail: and spare ye not her young men; destroy ye utterly all her host.
+Against [him who] bends let the archer bend his bow, and against [him who] lifts himself up in his coat of mail: and don't spare her young men; utterly destroy all her army.

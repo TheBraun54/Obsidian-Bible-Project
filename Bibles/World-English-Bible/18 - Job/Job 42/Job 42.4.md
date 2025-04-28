@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, I beseech thee, and I will speak; I will demand of thee, and declare thou unto me.
+You said, 'Listen, now, and I will speak; I will question you, and you will answer me.'

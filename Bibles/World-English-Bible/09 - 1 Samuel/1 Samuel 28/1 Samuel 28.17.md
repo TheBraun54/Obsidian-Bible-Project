@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hath done unto thee, as he spake by me: and Jehovah hath rent the kingdom out of thy hand, and given it to thy neighbor, even to David.
+Yahweh has done to you as he spoke by me. Yahweh has torn the kingdom out of your hand, and given it to your neighbor, even to David.

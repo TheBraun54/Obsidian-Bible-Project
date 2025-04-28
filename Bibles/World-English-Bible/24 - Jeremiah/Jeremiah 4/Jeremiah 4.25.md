@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beheld, and, lo, there was no man, and all the birds of the heavens were fled.
+I saw, and behold, there was no man, and all the birds of the sky had fled.

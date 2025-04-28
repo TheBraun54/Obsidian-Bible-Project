@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall bring it unto the altar, and wring off its head, and burn it on the altar; and the blood thereof shall be drained out on the side of the altar;
+The priest shall bring it to the altar, and wring off its head, and burn it on the altar; and its blood shall be drained out on the side of the altar;

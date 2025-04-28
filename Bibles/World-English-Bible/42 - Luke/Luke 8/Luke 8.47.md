@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the woman saw that she was not hid, she came trembling, and falling down before him declared in the presence of all the people for what cause she touched him, and how she was healed immediately.
+When the woman saw that she was not hidden, she came trembling, and falling down before him declared to him in the presence of all the people the reason why she had touched him, and how she was healed immediately.

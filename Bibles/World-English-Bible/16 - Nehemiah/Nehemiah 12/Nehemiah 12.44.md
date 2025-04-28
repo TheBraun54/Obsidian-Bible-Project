@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on that day were men appointed over the chambers for the treasures, for the heave-offerings, for the first-fruits, and for the tithes, to gather into them, according to the fields of the cities, the portions appointed by the law for the priests and Levites: for Judah rejoiced for the priests and for the Levites that waited.
+On that day were men appointed over the rooms for the treasures, for the wave offerings, for the first fruits, and for the tithes, to gather into them, according to the fields of the cities, the portions appointed by the law for the priests and Levites: for Judah rejoiced for the priests and for the Levites who waited.

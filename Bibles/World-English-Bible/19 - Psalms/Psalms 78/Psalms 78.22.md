@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because they believed not in God, And trusted not in his salvation.
+because they didn't believe in God, and didn't trust in his salvation.

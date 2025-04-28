@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Should thy boastings make men hold their peace? And when thou mockest, shall no man make thee ashamed?
+Should your boastings make men hold their peace? When you mock, shall no man make you ashamed?

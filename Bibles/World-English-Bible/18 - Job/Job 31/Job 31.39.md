@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have eaten the fruits thereof without money, Or have caused the owners thereof to lose their life:
+if I have eaten its fruits without money, or have caused its owners to lose their life,

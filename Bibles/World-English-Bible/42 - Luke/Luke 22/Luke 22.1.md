@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the feast of unleavened bread drew nigh, which is called the Passover.
+Now the feast of unleavened bread, which is called the Passover, drew near.

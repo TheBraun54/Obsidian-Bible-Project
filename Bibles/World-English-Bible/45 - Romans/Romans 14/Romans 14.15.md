@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if because of meat thy brother is grieved, thou walkest no longer in love. Destroy not with thy meat him for whom Christ died.
+Yet if because of food your brother is grieved, you walk no longer in love. Don't destroy with your food him for whom Christ died.

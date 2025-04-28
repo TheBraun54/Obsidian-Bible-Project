@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Jehovah is witness against you, and his anointed is witness this day, that ye have not found aught in my hand. And they said, He is witness.
+He said to them, "Yahweh is witness against you, and his anointed is witness this day, that you have not found anything in my hand." They said, "He is witness."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel turned, and the men of Benjamin were dismayed; for they saw that evil was come upon them.
+The men of Israel turned, and the men of Benjamin were dismayed; for they saw that evil had come on them.

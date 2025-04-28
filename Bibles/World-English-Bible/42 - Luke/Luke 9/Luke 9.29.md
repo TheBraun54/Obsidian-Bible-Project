@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he was praying, the fashion of his countenance was altered, and his raiment [became] white [and] dazzling.
+As he was praying, the appearance of his face was altered, and his clothing became white and dazzling.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And five and twenty thousand in length, and ten thousand in breadth, shall be unto the Levites, the ministers of the house, for a possession unto themselves, [for] twenty chambers.
+Twenty-five thousand in length, and ten thousand in breadth, shall be to the Levites, the ministers of the house, for a possession to themselves, [for] twenty rooms.

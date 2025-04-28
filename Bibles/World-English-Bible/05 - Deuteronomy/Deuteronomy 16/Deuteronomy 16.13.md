@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt keep the feast of tabernacles seven days, after that thou hast gathered in from thy threshing-floor and from thy winepress:
+You shall keep the feast of tents seven days, after that you have gathered in from your threshing floor and from your winepress:

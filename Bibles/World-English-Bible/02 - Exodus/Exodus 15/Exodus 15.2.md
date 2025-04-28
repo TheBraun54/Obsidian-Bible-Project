@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is my strength and song, And he is become my salvation: This is my God, and I will praise him; My father's God, and I will exalt him.
+Yah is my strength and song. He has become my salvation. This is my God, and I will praise him; my father's God, and I will exalt him.

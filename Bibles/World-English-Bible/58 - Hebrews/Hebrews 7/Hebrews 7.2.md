@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to whom also Abraham divided a tenth part of all (being first, by interpretation, King of righteousness, and then also King of Salem, which is King of peace;
+to whom also Abraham divided a tenth part of all (being first, by interpretation, king of righteousness, and then also king of Salem, which is king of peace;

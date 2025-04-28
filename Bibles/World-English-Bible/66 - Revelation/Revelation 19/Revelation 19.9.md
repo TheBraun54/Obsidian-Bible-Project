@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto me, Write, Blessed are they that are bidden to the marriage supper of the Lamb. And he saith unto me, These are true words of God.
+He said to me, "Write, 'Blessed are those who are invited to the marriage supper of the Lamb.'" He said to me, "These are true words of God."

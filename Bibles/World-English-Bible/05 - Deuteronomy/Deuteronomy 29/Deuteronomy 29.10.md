@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye stand this day all of you before Jehovah your God; your heads, your tribes, your elders, and your officers, even all the men of Israel,
+You stand this day all of you before Yahweh your God; your heads, your tribes, your elders, and your officers, even all the men of Israel,

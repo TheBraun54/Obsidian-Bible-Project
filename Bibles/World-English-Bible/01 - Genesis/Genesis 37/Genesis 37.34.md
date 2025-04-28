@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob rent his garments, and put sackcloth upon his loins, and mourned for his son many days.
+Jacob tore his clothes, and put sackcloth on his waist, and mourned for his son many days.

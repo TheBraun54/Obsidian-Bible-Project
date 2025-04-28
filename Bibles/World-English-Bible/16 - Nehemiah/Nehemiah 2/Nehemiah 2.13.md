@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I went out by night by the valley gate, even toward the jackal's well, and to the dung gate, and viewed the walls of Jerusalem, which were broken down, and the gates thereof were consumed with fire.
+I went out by night by the valley gate, even toward the jackal's well, and to the dung gate, and viewed the walls of Jerusalem, which were broken down, and its gates were consumed with fire.

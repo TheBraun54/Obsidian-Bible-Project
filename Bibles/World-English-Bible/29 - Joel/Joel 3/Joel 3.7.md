@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, I will stir them up out of the place whither ye have sold them, and will return your recompense upon your own head;
+Behold, I will stir them up out of the place where you have sold them, and will return your repayment on your own head;

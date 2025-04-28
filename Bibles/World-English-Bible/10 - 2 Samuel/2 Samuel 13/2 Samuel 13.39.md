@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [the soul of] king David longed to go forth unto Absalom: for he was comforted concerning Amnon, seeing he was dead.
+[the soul of] king David longed to go forth to Absalom: for he was comforted concerning Amnon, since he was dead.

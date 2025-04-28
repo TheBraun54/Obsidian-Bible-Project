@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will root up the house of the proud; But he will establish the border of the widow.
+Yahweh will uproot the house of the proud, but he will keep the widow's borders intact.

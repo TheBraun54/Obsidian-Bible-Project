@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he saw Jesus from afar, he ran and worshipped him;
+When he saw Jesus from afar, he ran and bowed down to him,

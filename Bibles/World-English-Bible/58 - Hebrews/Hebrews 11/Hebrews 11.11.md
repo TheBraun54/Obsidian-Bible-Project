@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith even Sarah herself received power to conceive seed when she was past age, since she counted him faithful who had promised:
+By faith, even Sarah herself received power to conceive, and she bore a child when she was past age, since she counted him faithful who had promised.

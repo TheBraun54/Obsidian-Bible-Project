@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not make any cuttings in your flesh for the dead, nor print any marks upon you: I am Jehovah.
+"'You shall not make any cuttings in your flesh for the dead, nor tattoo any marks on you. I am Yahweh.

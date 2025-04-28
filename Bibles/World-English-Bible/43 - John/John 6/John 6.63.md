@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is the spirit that giveth life; the flesh profiteth nothing: the words that I have spoken unto you are spirit, and are life.
+It is the spirit who gives life. The flesh profits nothing. The words that I speak to you are spirit, and are life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as the church is subject to Christ, so [let] the wives also [be] to their husbands in everything.
+But as the assembly is subject to Christ, so let the wives also be to their own husbands in everything.

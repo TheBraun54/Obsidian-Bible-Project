@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If Balak would give me his house full of silver and gold, I cannot go beyond the word of Jehovah, to do either good or bad of mine own mind; what Jehovah speaketh, that will I speak?
+'If Balak would give me his house full of silver and gold, I can't go beyond the word of Yahweh, to do either good or bad of my own mind. I will say what Yahweh says'?

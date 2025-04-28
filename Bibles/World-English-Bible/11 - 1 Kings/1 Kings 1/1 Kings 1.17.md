@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto him, My lord, thou swarest by Jehovah thy God unto thy handmaid, [saying], Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne.
+She said to him, "My lord, you swore by Yahweh your God to your handmaid, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man will redeem aught of his tithe, he shall add unto it the fifth part thereof.
+If a man redeems anything of his tithe, he shall add a fifth part to it.

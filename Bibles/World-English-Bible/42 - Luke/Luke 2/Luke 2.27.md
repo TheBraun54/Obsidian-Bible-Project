@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came in the Spirit into the temple: and when the parents brought in the child Jesus, that they might do concerning him after the custom of the law,
+He came in the Spirit into the temple. When the parents brought in the child, Jesus, that they might do concerning him according to the custom of the law,

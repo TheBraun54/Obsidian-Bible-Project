@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with many other words he testified, and exhorted them, saying, Save yourselves from this crooked generation.
+With many other words he testified, and exhorted them, saying, "Save yourselves from this crooked generation!"

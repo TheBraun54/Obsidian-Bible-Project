@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jehovah unto Moses, Behold, I will rain bread from heaven for you; and the people shall go out and gather a day's portion every day, that I may prove them, whether they will walk in my law, or not.
+Then Yahweh said to Moses, "Behold, I will rain bread from the sky for you, and the people shall go out and gather a day's portion every day, that I may test them, whether they will walk in my law, or not.

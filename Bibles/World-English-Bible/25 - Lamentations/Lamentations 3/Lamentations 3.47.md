@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear and the pit are come upon us, devastation and destruction.
+Fear and the pit are come on us, devastation and destruction.

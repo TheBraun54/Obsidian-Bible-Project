@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the days come, saith Jehovah, that I will sow the house of Israel and the house of Judah with the seed of man, and with the seed of beast.
+Behold, the days come, says Yahweh, that I will sow the house of Israel and the house of Judah with the seed of man, and with the seed of animal.

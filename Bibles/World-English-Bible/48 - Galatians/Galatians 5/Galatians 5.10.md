@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have confidence to you-ward in the Lord, that ye will be none otherwise minded: but he that troubleth you shall bear his judgment, whosoever he be.
+I have confidence toward you in the Lord that you will think no other way. But he who troubles you will bear his judgment, whoever he is.

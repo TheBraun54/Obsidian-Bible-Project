@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Son of man is lord of the sabbath.
+For the Son of Man is Lord of the Sabbath."

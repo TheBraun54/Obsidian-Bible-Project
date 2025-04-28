@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I said unto you, I am Jehovah your God; ye shall not fear the gods of the Amorites, in whose land ye dwell. But ye have not hearkened unto my voice.
+and I said to you, "I am Yahweh your God; you shall not fear the gods of the Amorites, in whose land you dwell." But you have not listened to my voice.'"

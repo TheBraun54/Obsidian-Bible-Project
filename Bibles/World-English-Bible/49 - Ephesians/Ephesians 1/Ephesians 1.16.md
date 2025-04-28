@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-cease not to give thanks for you, making mention [of you] in my prayers;
+don't cease to give thanks for you, making mention of you in my prayers,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely such are the dwellings of the unrighteous, And this is the place of him that knoweth not God.
+Surely such are the dwellings of the unrighteous. This is the place of him who doesn't know God."

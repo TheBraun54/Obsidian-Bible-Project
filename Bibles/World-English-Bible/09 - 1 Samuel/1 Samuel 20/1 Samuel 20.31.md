@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as long as the son of Jesse liveth upon the ground, thou shalt not be established, nor thy kingdom. Wherefore now send and fetch him unto me, for he shall surely die.
+For as long as the son of Jesse lives on the earth, you shall not be established, nor your kingdom. Therefore now send and bring him to me, for he shall surely die!"

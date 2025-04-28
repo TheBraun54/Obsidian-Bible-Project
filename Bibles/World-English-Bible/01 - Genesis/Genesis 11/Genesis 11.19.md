@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Peleg lived after he begat Reu two hundred and nine years, and begat sons and daughters.
+Peleg lived two hundred nine years after he became the father of Reu, and became the father of sons and daughters.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel said unto Jehoshaphat, I will disguise myself, and go into the battle; but put thou on thy robes. So the king of Israel disguised himself; and they went into the battle.
+The king of Israel said to Jehoshaphat, "I will disguise myself, and go into the battle; but you put on your robes." So the king of Israel disguised himself; and they went into the battle.

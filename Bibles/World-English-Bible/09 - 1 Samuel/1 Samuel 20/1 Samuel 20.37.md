@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the lad was come to the place of the arrow which Jonathan had shot, Jonathan cried after the lad, and said, Is not the arrow beyond thee?
+When the boy was come to the place of the arrow which Jonathan had shot, Jonathan cried after the boy, and said, "Isn't the arrow beyond you?"

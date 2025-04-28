@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My times are in thy hand: Deliver me from the hand of mine enemies, and from them that persecute me.
+My times are in your hand. Deliver me from the hand of my enemies, and from those who persecute me.

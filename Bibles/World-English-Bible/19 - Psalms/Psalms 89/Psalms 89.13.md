@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast a mighty arm; Strong is thy hand, and high is thy right hand.
+You have a mighty arm. Your hand is strong, and your right hand is exalted.

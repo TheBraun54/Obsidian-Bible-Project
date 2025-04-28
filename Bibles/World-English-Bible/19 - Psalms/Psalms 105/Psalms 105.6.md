@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O ye seed of Abraham his servant, Ye children of Jacob, his chosen ones.
+you seed of Abraham, his servant, you children of Jacob, his chosen ones.

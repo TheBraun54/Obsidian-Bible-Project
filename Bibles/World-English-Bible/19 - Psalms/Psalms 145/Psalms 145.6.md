@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And men shall speak of the might of thy terrible acts; And I will declare thy greatness.
+Men will speak of the might of your awesome acts. I will declare your greatness.

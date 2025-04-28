@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king spake unto Ashpenaz the master of his eunuchs, that he should bring in [certain] of the children of Israel, even of the seed royal and of the nobles;
+The king spoke to Ashpenaz the master of his eunuchs, that he should bring in [certain] of the children of Israel, even of the seed royal and of the nobles;

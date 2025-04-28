@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he smote them from Aroer until thou come to Minnith, even twenty cities, and unto Abel-cheramim, with a very great slaughter. So the children of Ammon were subdued before the children of Israel.
+He struck them from Aroer until you come to Minnith, even twenty cities, and to Abelcheramim, with a very great slaughter. So the children of Ammon were subdued before the children of Israel.

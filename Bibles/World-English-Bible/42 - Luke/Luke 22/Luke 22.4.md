@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went away, and communed with the chief priests and captains, how he might deliver him unto them.
+He went away, and talked with the chief priests and captains about how he might deliver him to them.

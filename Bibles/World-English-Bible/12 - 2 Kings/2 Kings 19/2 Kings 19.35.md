@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass that night, that the angel of Jehovah went forth, and smote in the camp of the Assyrians a hundred fourscore and five thousand: and when men arose early in the morning, behold, these were all dead bodies.
+It happened that night, that the angel of Yahweh went out, and struck one hundred eighty-five thousand in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless Haman refrained himself, and went home; and he sent and fetched his friends and Zeresh his wife.
+Nevertheless Haman restrained himself, and went home. There, he sent and called for his friends and Zeresh his wife.

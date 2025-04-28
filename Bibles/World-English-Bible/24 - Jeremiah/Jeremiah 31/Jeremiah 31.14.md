@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will satiate the soul of the priests with fatness, and my people shall be satisfied with my goodness, saith Jehovah.
+I will satiate the soul of the priests with fatness, and my people shall be satisfied with my goodness, says Yahweh.

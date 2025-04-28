@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Haman said unto king Ahasuerus, There is a certain people scattered abroad and dispersed among the peoples in all the provinces of thy kingdom; and their laws are diverse from [those of] every people; neither keep they the king's laws: therefore it is not for the king's profit to suffer them.
+Haman said to King Ahasuerus, "There is a certain people scattered abroad and dispersed among the peoples in all the provinces of your kingdom, and their laws are different than other people's. They don't keep the king's laws. Therefore it is not for the king's profit to allow them to remain.

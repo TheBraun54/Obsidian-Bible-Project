@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Here is the mind that hath wisdom. The seven heads are seven mountains, on which the woman sitteth:
+Here is the mind that has wisdom. The seven heads are seven mountains, on which the woman sits.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God called the light Day, and the darkness he called Night. And there was evening and there was morning, one day.
+God called the light "day," and the darkness he called "night." There was evening and there was morning, one day.

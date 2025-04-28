@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pour out thy wrath upon the nations that know thee not, and upon the families that call not on thy name: for they have devoured Jacob, yea, they have devoured him and consumed him, and have laid waste his habitation.
+Pour out your wrath on the nations that don't know you, and on the families that don't call on your name: for they have devoured Jacob, yes, they have devoured him and consumed him, and have laid waste his habitation.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah God is a sun and a shield: Jehovah will give grace and glory; No good thing will he withhold from them that walk uprightly.
+For Yahweh God is a sun and a shield. Yahweh will give grace and glory. He withholds no good thing from those who walk blamelessly.

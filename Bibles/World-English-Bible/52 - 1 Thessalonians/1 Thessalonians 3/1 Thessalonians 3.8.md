@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for now we live, if ye stand fast in the Lord.
+For now we live, if you stand fast in the Lord.

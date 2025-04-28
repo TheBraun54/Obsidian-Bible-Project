@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Until the day be cool, and the shadows flee away, Turn, my beloved, and be thou like a roe or a young hart Upon the mountains of Bether.
+Until the day is cool, and the shadows flee away, turn, my beloved, and be like a roe or a young hart on the mountains of Bether.

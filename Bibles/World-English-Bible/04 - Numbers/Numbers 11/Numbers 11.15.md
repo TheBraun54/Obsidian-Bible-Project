@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou deal thus with me, kill me, I pray thee, out of hand, if I have found favor in thy sight; and let me not see my wretchedness.
+If you treat me this way, please kill me right now, if I have found favor in your sight; and don't let me see my wretchedness."

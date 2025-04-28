@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(and, behold, there was lifted up a talent of lead); and this is a woman sitting in the midst of the ephah.
+(and behold, a talent of lead was lifted up); and this is a woman sitting in the midst of the ephah basket."

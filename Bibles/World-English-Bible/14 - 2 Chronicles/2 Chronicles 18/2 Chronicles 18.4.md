@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat said unto the king of Israel, Inquire first, I pray thee, for the word of Jehovah.
+Jehoshaphat said to the king of Israel, "Please inquire first for the word of Yahweh."

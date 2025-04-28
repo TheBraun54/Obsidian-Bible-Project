@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David went up thither, and his two wives also, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite.
+So David went up there, and his two wives also, Ahinoam the Jezreelitess, and Abigail the wife of Nabal the Carmelite.

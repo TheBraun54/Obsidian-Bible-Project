@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews answered him, We have a law, and by that law he ought to die, because he made himself the Son of God.
+The Jews answered him, "We have a law, and by our law he ought to die, because he made himself the Son of God."

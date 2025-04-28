@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when he shall be guilty in one of these [things], that he shall confess that wherein he hath sinned:
+It shall be, when he is guilty of one of these, he shall confess that in which he has sinned:

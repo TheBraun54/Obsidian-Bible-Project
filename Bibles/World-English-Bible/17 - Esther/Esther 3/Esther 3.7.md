@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the first month, which is the month Nisan, in the twelfth year of king Ahasuerus, they cast Pur, that is, the lot, before Haman from day to day, and from month to month, [to] the twelfth [month], which is the month Adar.
+In the first month, which is the month Nisan, in the twelfth year of King Ahasuerus, they cast Pur, that is, the lot, before Haman from day to day, and from month to month, and chose the twelfth month, which is the month Adar.

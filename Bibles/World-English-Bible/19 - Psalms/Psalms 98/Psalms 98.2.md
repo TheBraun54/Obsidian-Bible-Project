@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath made known his salvation: His righteousness hath he openly showed in the sight of the nations.
+Yahweh has made known his salvation. He has openly shown his righteousness in the sight of the nations.

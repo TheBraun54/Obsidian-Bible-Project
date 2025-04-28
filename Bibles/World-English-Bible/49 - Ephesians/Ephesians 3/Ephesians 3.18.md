@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-may be strong to apprehend with all the saints what is the breadth and length and height and depth,
+may be strengthened to comprehend with all the saints what is the breadth and length and height and depth,

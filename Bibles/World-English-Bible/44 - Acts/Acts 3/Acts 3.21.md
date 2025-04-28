@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom the heaven must receive until the times of restoration of all things, whereof God spake by the mouth of His holy prophets that have been from of old.
+whom heaven must receive until the times of restoration of all things, which God spoke long ago by the mouth of his holy prophets.

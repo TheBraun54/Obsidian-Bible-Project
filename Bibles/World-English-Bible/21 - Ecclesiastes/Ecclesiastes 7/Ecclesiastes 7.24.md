@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which is, is far off and exceeding deep; who can find it out?
+That which is, is far off and exceedingly deep. Who can find it out?

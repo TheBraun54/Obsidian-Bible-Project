@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Hazeroth, and encamped in Rithmah.
+They traveled from Hazeroth, and encamped in Rithmah.

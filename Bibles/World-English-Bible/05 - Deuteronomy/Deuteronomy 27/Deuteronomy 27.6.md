@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt build the altar of Jehovah thy God of unhewn stones; and thou shalt offer burnt-offerings thereon unto Jehovah thy God:
+You shall build the altar of Yahweh your God of uncut stones; and you shall offer burnt offerings thereon to Yahweh your God:

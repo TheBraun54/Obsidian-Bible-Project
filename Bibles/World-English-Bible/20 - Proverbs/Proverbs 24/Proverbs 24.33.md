@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Yet] a little sleep, a little slumber, A little folding of the hands to sleep;
+a little sleep, a little slumber, a little folding of the hands to sleep;

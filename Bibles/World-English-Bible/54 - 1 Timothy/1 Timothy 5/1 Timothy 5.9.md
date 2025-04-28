@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let none be enrolled as a widow under threescore years old, [having been] the wife of one man,
+Let no one be enrolled as a widow under sixty years old, having been the wife of one man,

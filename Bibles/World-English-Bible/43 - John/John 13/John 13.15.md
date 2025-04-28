@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have given you an example, that ye also should do as I have done to you.
+For I have given you an example, that you also should do as I have done to you.

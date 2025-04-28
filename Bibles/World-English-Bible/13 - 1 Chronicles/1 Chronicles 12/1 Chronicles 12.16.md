@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came of the children of Benjamin and Judah to the stronghold unto David.
+There came of the children of Benjamin and Judah to the stronghold to David.

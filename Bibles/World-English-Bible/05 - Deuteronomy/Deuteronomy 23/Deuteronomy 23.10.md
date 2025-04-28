@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be among you any man, that is not clean by reason of that which chanceth him by night, then shall he go abroad out of the camp, he shall not come within the camp:
+If there is among you any man who is not clean by reason of that which happens him by night, then shall he go outside of the camp. He shall not come within the camp:

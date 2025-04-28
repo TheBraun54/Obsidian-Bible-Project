@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In whose eyes a reprobate is despised, But who honoreth them that fear Jehovah; He that sweareth to his own hurt, and changeth not;
+In whose eyes a vile man is despised, but who honors those who fear Yahweh; he who keeps an oath even when it hurts, and doesn't change;

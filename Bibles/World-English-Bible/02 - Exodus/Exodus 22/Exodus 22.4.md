@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the theft be found in his hand alive, whether it be ox, or ass, or sheep; he shall pay double.
+If the stolen property is found in his hand alive, whether it is ox, donkey, or sheep, he shall pay double.

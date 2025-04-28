@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the priests that bare the ark stood in the midst of the Jordan, until everything was finished that Jehovah commanded Joshua to speak unto the people, according to all that Moses commanded Joshua: and the people hasted and passed over.
+For the priests who bore the ark stood in the middle of the Jordan, until everything was finished that Yahweh commanded Joshua to speak to the people, according to all that Moses commanded Joshua; and the people hurried and passed over.

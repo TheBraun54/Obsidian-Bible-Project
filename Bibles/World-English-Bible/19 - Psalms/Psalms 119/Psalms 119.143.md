@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trouble and anguish have taken hold on me; [Yet] thy commandments are my delight.
+Trouble and anguish have taken hold of me. Your commandments are my delight.

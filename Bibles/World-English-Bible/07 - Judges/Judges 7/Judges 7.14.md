@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his fellow answered and said, This is nothing else save the sword of Gideon the son of Joash, a man of Israel: into his hand God hath delivered Midian, and all the host.
+His fellow answered, "This is nothing other than the sword of Gideon the son of Joash, a man of Israel. God has delivered Midian into his hand, with all the army."

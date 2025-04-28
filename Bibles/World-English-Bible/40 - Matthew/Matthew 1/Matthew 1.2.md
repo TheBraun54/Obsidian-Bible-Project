@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Abraham begat Isaac; and Isaac begat Jacob; and Jacob begat Judah and his brethren;
+Abraham became the father of Isaac. Isaac became the father of Jacob. Jacob became the father of Judah and his brothers.

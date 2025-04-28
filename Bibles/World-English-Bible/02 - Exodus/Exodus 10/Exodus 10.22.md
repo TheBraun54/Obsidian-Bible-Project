@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses stretched forth his hand toward heaven; and there was a thick darkness in all the land of Egypt three days;
+Moses stretched forth his hand toward the sky, and there was a thick darkness in all the land of Egypt three days.

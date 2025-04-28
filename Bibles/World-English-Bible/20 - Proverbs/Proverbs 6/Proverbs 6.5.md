@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver thyself as a roe from the hand [of the hunter], And as a bird from the hand of the fowler.
+Free yourself, like a gazelle from the hand of the hunter, like a bird from the snare of the fowler.

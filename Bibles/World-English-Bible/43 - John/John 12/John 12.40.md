@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath blinded their eyes, and he hardened their heart; Lest they should see with their eyes, and perceive with their heart, And should turn, And I should heal them.
+"He has blinded their eyes and he hardened their heart, lest they should see with their eyes, and perceive with their heart, and would turn, and I would heal them."

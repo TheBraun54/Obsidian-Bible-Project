@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am come in my Father's name, and ye receive me not: if another shall come in his own name, him ye will receive.
+I have come in my Father's name, and you don't receive me. If another comes in his own name, you will receive him.

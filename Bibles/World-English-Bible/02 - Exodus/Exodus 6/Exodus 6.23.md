@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron took him Elisheba, the daughter of Amminadab, the sister of Nahshon, to wife; and she bare him Nadab and Abihu, Eleazar and Ithamar.
+Aaron took Elisheba, the daughter of Amminadab, the sister of Nahshon, as his wife; and she bore him Nadab and Abihu, Eleazar and Ithamar.

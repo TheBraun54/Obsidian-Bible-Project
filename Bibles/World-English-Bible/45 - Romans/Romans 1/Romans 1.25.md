@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for that they exchanged the truth of God for a lie, and worshipped and served the creature rather than the Creator, who is blessed for ever. Amen.
+who exchanged the truth of God for a lie, and worshiped and served the creature rather than the Creator, who is blessed forever. Amen.

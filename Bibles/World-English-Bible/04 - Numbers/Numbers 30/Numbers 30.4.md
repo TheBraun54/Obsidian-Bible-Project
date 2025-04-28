@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and her father heareth her vow, and her bond wherewith she hath bound her soul, and her father holdeth his peace at her; then all her vows shall stand, and every bond wherewith she hath bound her soul shall stand.
+and her father hears her vow, and her bond with which she has bound her soul, and her father holds his peace at her; then all her vows shall stand, and every bond with which she has bound her soul shall stand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the manner of the release: every creditor shall release that which he hath lent unto his neighbor; he shall not exact it of his neighbor and his brother; because Jehovah's release hath been proclaimed.
+This is the way of the release: every creditor shall release that which he has lent to his neighbor; he shall not exact it of his neighbor and his brother; because Yahweh's release has been proclaimed.

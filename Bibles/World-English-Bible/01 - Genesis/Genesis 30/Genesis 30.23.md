@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she conceived, and bare a son: and said, God hath taken away my reproach:
+She conceived, bore a son, and said, "God has taken away my reproach."

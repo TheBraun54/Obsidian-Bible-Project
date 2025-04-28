@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have walked with falsehood, And my foot hath hasted to deceit
+"If I have walked with falsehood, and my foot has hurried to deceit

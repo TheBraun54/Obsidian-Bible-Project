@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And coming to us, and taking Paul's girdle, he bound his own feet and hands, and said, Thus saith the Holy Spirit, So shall the Jews at Jerusalem bind the man that owneth this girdle, and shall deliver him into the hands of the Gentiles.
+Coming to us, and taking Paul's belt, he bound his own feet and hands, and said, "Thus says the Holy Spirit: 'So will the Jews at Jerusalem bind the man who owns this belt, and will deliver him into the hands of the Gentiles.'"

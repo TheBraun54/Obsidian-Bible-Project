@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they saw it, they made known concerning the saying which was spoken to them about this child.
+When they saw it, they publicized widely the saying which was spoken to them about this child.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their camels shall be a booty, and the multitude of their cattle a spoil: and I will scatter unto all winds them that have the corners [of their hair] cut off; and I will bring their calamity from every side of them, saith Jehovah.
+Their camels shall be a booty, and the multitude of their livestock a spoil: and I will scatter to all winds those who have the corners [of their hair] cut off; and I will bring their calamity from every side of them, says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye, and give ear; be not proud; for Jehovah hath spoken.
+Hear, and give ear; don't be proud; for Yahweh has spoken.

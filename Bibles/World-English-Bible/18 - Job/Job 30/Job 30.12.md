@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon my right hand rise the rabble; They thrust aside my feet, And they cast up against me their ways of destruction.
+On my right hand rise the rabble. They thrust aside my feet, They cast up against me their ways of destruction.

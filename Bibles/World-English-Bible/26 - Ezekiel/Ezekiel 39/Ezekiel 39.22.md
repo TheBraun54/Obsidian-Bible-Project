@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the house of Israel shall know that I am Jehovah their God, from that day and forward.
+So the house of Israel shall know that I am Yahweh their God, from that day and forward.

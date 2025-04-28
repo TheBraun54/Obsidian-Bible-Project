@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nebuchadnezzar the king, unto all the peoples, nations, and languages, that dwell in all the earth: Peace be multiplied unto you.
+Nebuchadnezzar the king, to all the peoples, nations, and languages, who dwell in all the earth: Peace be multiplied to you.

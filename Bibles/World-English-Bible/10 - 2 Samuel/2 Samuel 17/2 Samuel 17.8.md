@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hushai said moreover, Thou knowest thy father and his men, that they are mighty men, and they are chafed in their minds, as a bear robbed of her whelps in the field; and thy father is a man of war, and will not lodge with the people.
+Hushai said moreover, "You know your father and his men, that they are mighty men, and they are fierce in their minds, like a bear robbed of her cubs in the field. Your father is a man of war, and will not lodge with the people.

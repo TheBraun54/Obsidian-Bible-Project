@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: I will also make the multitude of Egypt to cease, by the hand of Nebuchadrezzar king of Babylon.
+Thus says the Lord Yahweh: I will also make the multitude of Egypt to cease, by the hand of Nebuchadnezzar king of Babylon.

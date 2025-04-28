@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So she uncovered her whoredoms, and uncovered her nakedness: then my soul was alienated from her, like as my soul was alienated from her sister.
+So she uncovered her prostitution, and uncovered her nakedness: then my soul was alienated from her, like as my soul was alienated from her sister.

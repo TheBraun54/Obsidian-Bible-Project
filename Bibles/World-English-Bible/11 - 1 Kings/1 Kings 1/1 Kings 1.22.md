@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, lo, while she yet talked with the king, Nathan the prophet came in.
+Behold, while she yet talked with the king, Nathan the prophet came in.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, Ye mountains of Israel, hear the word of the Lord Jehovah: Thus saith the Lord Jehovah to the mountains and to the hills, to the watercourses and to the valleys: Behold, I, even I, will bring a sword upon you, and I will destroy your high places.
+and say, You mountains of Israel, hear the word of the Lord Yahweh: Thus says the Lord Yahweh to the mountains and to the hills, to the watercourses and to the valleys: Behold, I, even I, will bring a sword on you, and I will destroy your high places.

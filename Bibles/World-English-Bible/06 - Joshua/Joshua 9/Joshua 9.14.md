@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men took of their provision, and asked not counsel at the mouth of Jehovah.
+The men sampled their provisions, and didn't ask counsel from the mouth of Yahweh.

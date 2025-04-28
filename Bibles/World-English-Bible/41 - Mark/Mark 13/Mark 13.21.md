@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And then if any man shall say unto you, Lo, here is the Christ; or, Lo, there; believe [it] not:
+Then if anyone tells you, 'Look, here is the Christ!' or, 'Look, there!' don't believe it.

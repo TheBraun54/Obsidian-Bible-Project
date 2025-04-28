@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Achish unto his servants, Lo, ye see the man is mad; wherefore then have ye brought him to me?
+Then Achish said to his servants, "Look, you see the man is mad. Why then have you brought him to me?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the kings of the north, far and near, one with another; and all the kingdoms of the world, which are upon the face of the earth: and the king of Sheshach shall drink after them.
+and all the kings of the north, far and near, one with another; and all the kingdoms of the world, which are on the surface of the earth: and the king of Sheshach shall drink after them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they that devour widows' houses, and for a pretence make long prayers; these shall receive greater condemnation.
+those who devour widows' houses, and for a pretense make long prayers. These will receive greater condemnation."

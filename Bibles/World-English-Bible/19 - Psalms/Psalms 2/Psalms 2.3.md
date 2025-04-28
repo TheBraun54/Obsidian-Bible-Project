@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us break their bonds asunder, And cast away their cords from us.
+"Let's break their bonds apart, and cast their cords from us."

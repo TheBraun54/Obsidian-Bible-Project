@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the first [month], on the fourteenth day of the month at even, ye shall eat unleavened bread, until the one and twentieth day of the month at even.
+In the first month, on the fourteenth day of the month at evening, you shall eat unleavened bread, until the twenty first day of the month at evening.

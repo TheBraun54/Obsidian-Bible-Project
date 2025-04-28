@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There were nets of checker-work, and wreaths of chain-work, for the capitals which were upon the top of the pillars; seven for the one capital, and seven for the other capital.
+There were nets of checker work, and wreaths of chain work, for the capitals which were on the top of the pillars; seven for the one capital, and seven for the other capital.

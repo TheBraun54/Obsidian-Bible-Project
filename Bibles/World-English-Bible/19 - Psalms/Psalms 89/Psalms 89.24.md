@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But my faithfulness and my lovingkindness shall be with him; And in my name shall his horn be exalted.
+But my faithfulness and my loving kindness will be with him. In my name, his horn will be exalted.

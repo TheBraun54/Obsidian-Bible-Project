@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thinkest thou this to be [thy] right, [Or] sayest thou, My righteousness is more than God's,
+"Do you think this to be your right, or do you say, 'My righteousness is more than God's,'

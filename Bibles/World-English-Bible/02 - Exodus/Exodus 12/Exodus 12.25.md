@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when ye are come to the land which Jehovah will give you, according as he hath promised, that ye shall keep this service.
+It shall happen when you have come to the land which Yahweh will give you, according as he has promised, that you shall keep this service.

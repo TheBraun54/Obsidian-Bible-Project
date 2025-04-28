@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham reproved Abimelech because of the well of water, which Abimelech's servants had violently taken away.
+Abraham complained to Abimelech because of a water well, which Abimelech's servants had violently taken away.

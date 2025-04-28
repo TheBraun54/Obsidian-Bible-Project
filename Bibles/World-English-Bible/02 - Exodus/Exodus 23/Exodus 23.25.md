@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall serve Jehovah your God, and he will bless thy bread, and thy water; and I will take sickness away from the midst of thee.
+You shall serve Yahweh your God, and he will bless your bread and your water, and I will take sickness away from your midst.

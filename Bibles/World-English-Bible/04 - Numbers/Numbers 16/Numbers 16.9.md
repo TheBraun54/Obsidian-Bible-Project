@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ seemeth it but] a small thing unto you, that the God of Israel hath separated you from the congregation of Israel, to bring you near to himself, to do the service of the tabernacle of Jehovah, and to stand before the congregation to minister unto them;
+Is it a small thing to you, that the God of Israel has separated you from the congregation of Israel, to bring you near to himself, to do the service of the tabernacle of Yahweh, and to stand before the congregation to minister to them;

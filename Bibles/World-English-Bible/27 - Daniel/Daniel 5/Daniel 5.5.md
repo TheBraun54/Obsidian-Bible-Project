@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the same hour came forth the fingers of a man's hand, and wrote over against the candlestick upon the plaster of the wall of the king's palace: and the king saw the part of the hand that wrote.
+In the same hour came forth the fingers of a man's hand, and wrote over against the lampstand on the plaster of the wall of the king's palace: and the king saw the part of the hand that wrote.

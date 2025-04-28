@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forget not the voice of thine adversaries: The tumult of those that rise up against thee ascendeth continually.
+Don't forget the voice of your adversaries. The tumult of those who rise up against you ascends continually. For the Chief Musician. To the tune of "Do Not Destroy." A Psalm by Asaph. A song.

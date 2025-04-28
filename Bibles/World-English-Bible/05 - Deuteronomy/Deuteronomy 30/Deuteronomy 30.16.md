@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in that I command thee this day to love Jehovah thy God, to walk in his ways, and to keep his commandments and his statutes and his ordinances, that thou mayest live and multiply, and that Jehovah thy God may bless thee in the land whither thou goest in to possess it.
+in that I command you this day to love Yahweh your God, to walk in his ways, and to keep his commandments and his statutes and his ordinances, that you may live and multiply, and that Yahweh your God may bless you in the land where you go in to possess it.

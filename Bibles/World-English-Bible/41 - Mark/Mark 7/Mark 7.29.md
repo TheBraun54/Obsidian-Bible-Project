@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, For this saying go thy way; the demon is gone out of thy daughter.
+He said to her, "For this saying, go your way. The demon has gone out of your daughter."

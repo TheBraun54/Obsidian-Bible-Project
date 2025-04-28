@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My servants shall bring them down from Lebanon unto the sea; and I will make them into rafts to go by sea unto the place that thou shalt appoint me, and will cause them to be broken up there, and thou shalt receive them; and thou shalt accomplish my desire, in giving food for my household.
+My servants shall bring them down from Lebanon to the sea. I will make them into rafts to go by sea to the place that you shall appoint me, and will cause them to be broken up there, and you shall receive them. You shall accomplish my desire, in giving food for my household."

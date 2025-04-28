@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O ye simple, understand prudence; And, ye fools, be of an understanding heart.
+You simple, understand prudence. You fools, be of an understanding heart.

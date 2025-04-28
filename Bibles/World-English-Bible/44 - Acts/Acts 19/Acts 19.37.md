@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye have brought [hither] these men, who are neither robbers of temples nor blasphemers of our goddess.
+For you have brought these men here, who are neither robbers of temples nor blasphemers of your goddess.

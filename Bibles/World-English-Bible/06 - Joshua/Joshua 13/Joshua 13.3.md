@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from the Shihor, which is before Egypt, even unto the border of Ekron northward, [which] is reckoned to the Canaanites; the five lords of the Philistines; the Gazites, and the Ashdodites, the Ashkelonites, the Gittites, and the Ekronites; also the Avvim,
+from the Shihor, which is before Egypt, even to the border of Ekron northward, which is counted as Canaanite; the five lords of the Philistines; the Gazites, and the Ashdodites, the Ashkelonites, the Gittites, and the Ekronites; also the Avvim,

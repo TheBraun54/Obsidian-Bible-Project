@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, what things soever ye shall bind on earth shall be bound in heaven; and what things soever ye shall loose on earth shall be loosed in heaven.
+Most certainly I tell you, whatever things you bind on earth will have been bound in heaven, and whatever things you release on earth will have been released in heaven.

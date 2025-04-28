@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he rose up that night, and took his two wives, and his two handmaids, and his eleven children, and passed over the ford of the Jabbok.
+He rose up that night, and took his two wives, and his two handmaids, and his eleven sons, and passed over the ford of the Jabbok.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah said unto me, Say not, I am a child; for to whomsoever I shall send thee thou shalt go, and whatsoever I shall command thee thou shalt speak.
+But Yahweh said to me, "Don't say, 'I am a child;' for to whoever I shall send you, you shall go, and whatever I shall command you, you shall speak.

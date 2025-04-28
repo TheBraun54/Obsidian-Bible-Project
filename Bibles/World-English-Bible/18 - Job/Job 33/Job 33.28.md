@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath redeemed my soul from going into the pit, And my life shall behold the light.
+He has redeemed my soul from going into the pit. My life shall see the light.'

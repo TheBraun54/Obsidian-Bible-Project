@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto the guard that stood about him, Turn, and slay the priests of Jehovah; because their hand also is with David, and because they knew that he fled, and did not disclose it to me. But the servants of the king would not put forth their hand to fall upon the priests of Jehovah.
+The king said to the guard who stood about him, "Turn, and kill the priests of Yahweh; because their hand also is with David, and because they knew that he fled, and didn't disclose it to me." But the servants of the king wouldn't put forth their hand to fall on the priests of Yahweh.

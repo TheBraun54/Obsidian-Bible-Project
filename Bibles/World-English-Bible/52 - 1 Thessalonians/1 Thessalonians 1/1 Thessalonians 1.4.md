@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing, brethren beloved of God, your election,
+We know, brothers loved by God, that you are chosen,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who in time past were no people, but now are the people of God: who had not obtained mercy, but now have obtained mercy.
+who in time past were no people, but now are God's people, who had not obtained mercy, but now have obtained mercy.

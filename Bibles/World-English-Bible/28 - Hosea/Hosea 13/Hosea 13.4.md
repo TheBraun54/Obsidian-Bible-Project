@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet I am Jehovah thy God from the land of Egypt; and thou shalt know no god but me, and besides me there is no saviour.
+"Yet I am Yahweh your God from the land of Egypt; and you shall acknowledge no god but me, and besides me there is no savior.

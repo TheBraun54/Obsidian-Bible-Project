@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or think ye that the scripture speaketh in vain? Doth the spirit which he made to dwell in us long unto envying?
+Or do you think that the Scripture says in vain, "The Spirit who lives in us yearns jealously"?

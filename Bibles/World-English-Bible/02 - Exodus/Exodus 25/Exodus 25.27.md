@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Close by the border shall the rings be, for places for the staves to bear the table.
+the rings shall be close to the rim, for places for the poles to carry the table.

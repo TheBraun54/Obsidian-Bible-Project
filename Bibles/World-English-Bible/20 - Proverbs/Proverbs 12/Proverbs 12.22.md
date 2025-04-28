@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lying lips are an abomination to Jehovah; But they that deal truly are his delight.
+Lying lips are an abomination to Yahweh, but those who do the truth are his delight.

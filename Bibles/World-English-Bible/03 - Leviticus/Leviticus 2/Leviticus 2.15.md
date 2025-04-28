@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put oil upon it, and lay frankincense thereon: it is a meal-offering.
+You shall put oil on it, and lay frankincense on it: it is a meal offering.

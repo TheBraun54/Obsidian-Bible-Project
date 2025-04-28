@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things have I spoken unto you in dark sayings: the hour cometh, when I shall no more speak unto you in dark sayings, but shall tell you plainly of the Father.
+I have spoken these things to you in figures of speech. But the time is coming when I will no more speak to you in figures of speech, but will tell you plainly about the Father.

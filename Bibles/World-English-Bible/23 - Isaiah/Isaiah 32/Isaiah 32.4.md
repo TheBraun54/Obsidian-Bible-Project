@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the heart of the rash shall understand knowledge, and the tongue of the stammerers shall be ready to speak plainly.
+The heart of the rash will understand knowledge, and the tongue of the stammerers will be ready to speak plainly.

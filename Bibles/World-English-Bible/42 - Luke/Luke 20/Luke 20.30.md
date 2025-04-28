@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the second:
+The second took her as wife, and he died childless.

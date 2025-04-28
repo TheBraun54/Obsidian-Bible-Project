@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that encamp next unto him shall be the tribe of Issachar: and the prince of the children of Issachar shall be Nethanel the son of Zuar.
+Those who encamp next to him shall be the tribe of Issachar: and the prince of the children of Issachar shall be Nethanel the son of Zuar.

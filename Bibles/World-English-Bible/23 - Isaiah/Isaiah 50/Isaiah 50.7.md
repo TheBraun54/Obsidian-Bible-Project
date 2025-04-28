@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Lord Jehovah will help me; therefore have I not been confounded: therefore have I set my face like a flint, and I know that I shall not be put to shame.
+For the Lord Yahweh will help me; therefore I have not been confounded: therefore have I set my face like a flint, and I know that I shall not be disappointed.

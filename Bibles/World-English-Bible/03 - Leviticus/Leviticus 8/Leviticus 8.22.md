@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he presented the other ram, the ram of consecration: and Aaron and his sons laid their hands upon the head of the ram.
+He presented the other ram, the ram of consecration: and Aaron and his sons laid their hands on the head of the ram.

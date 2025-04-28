@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For yet a little while, and the wicked shall not be: Yea, thou shalt diligently consider his place, and he shall not be.
+For yet a little while, and the wicked will be no more. Yes, though you look for his place, he isn't there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he made of one every nation of men to dwell on all the face of the earth, having determined [their] appointed seasons, and the bounds of their habitation;
+He made from one blood every nation of men to dwell on all the surface of the earth, having determined appointed seasons, and the boundaries of their dwellings,

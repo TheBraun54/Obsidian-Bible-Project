@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we came to Jerusalem, and abode there three days.
+We came to Jerusalem, and stayed there three days.

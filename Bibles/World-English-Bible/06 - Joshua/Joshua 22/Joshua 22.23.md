@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that we have built us an altar to turn away from following Jehovah; or if to offer thereon burnt-offering or meal-offering, or if to offer sacrifices of peace-offerings thereon, let Jehovah himself require it;
+that we have built us an altar to turn away from following Yahweh; or if to offer burnt offering or meal offering, or if to offer sacrifices of peace offerings, let Yahweh himself require it.

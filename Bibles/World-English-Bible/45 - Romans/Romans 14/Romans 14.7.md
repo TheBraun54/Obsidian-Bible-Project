@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For none of us liveth to himself, and none dieth to himself.
+For none of us lives to himself, and none dies to himself.

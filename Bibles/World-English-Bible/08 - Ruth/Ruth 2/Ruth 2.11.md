@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Boaz answered and said unto her, It hath fully been showed me, all that thou hast done unto thy mother-in-law since the death of thy husband; and how thou hast left thy father and thy mother, and the land of thy nativity, and art come unto a people that thou knewest not heretofore.
+Boaz answered her, "It has fully been shown me, all that you have done to your mother-in-law since the death of your husband; and how you have left your father and your mother, and the land of your birth, and have come to a people that you didn't know before.

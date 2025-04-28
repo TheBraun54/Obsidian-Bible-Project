@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, a wall on the outside of the house round about, and in the man's hand a measuring reed six cubits long, of a cubit and a handbreadth each: so he measured the thickness of the building, one reed; and the height, one reed.
+Behold, a wall on the outside of the house all around, and in the man's hand a measuring reed six cubits long, of a cubit and a handbreadth each: so he measured the thickness of the building, one reed; and the height, one reed.

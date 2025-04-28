@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of the wicked are of lying in wait for blood; But the mouth of the upright shall deliver them.
+The words of the wicked are about lying in wait for blood, but the speech of the upright rescues them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will make the rain of thy land powder and dust: from heaven shall it come down upon thee, until thou be destroyed.
+Yahweh will make the rain of your land powder and dust: from the sky shall it come down on you, until you are destroyed.

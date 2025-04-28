@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there arose a great tempest in the sea, insomuch that the boat was covered with the waves: but he was asleep.
+Behold, a violent storm came up on the sea, so much that the boat was covered with the waves, but he was asleep.

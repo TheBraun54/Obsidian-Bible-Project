@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Gilead, and the border of the Geshurites and Maacathites, and all mount Hermon, and all Bashan unto Salecah;
+and Gilead, and the border of the Geshurites and Maacathites, and all Mount Hermon, and all Bashan to Salecah;

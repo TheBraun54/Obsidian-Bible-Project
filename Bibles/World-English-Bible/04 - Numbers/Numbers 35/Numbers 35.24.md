@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the congregation shall judge between the smiter and the avenger of blood according to these ordinances;
+then the congregation shall judge between the striker and the avenger of blood according to these ordinances;

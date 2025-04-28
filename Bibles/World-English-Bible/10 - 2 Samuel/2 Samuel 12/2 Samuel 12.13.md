@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Nathan, I have sinned against Jehovah. And Nathan said unto David, Jehovah also hath put away thy sin; thou shalt not die.
+David said to Nathan, "I have sinned against Yahweh." Nathan said to David, "Yahweh also has put away your sin. You will not die.

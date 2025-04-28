@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No weapon that is formed against thee shall prosper; and every tongue that shall rise against thee in judgment thou shalt condemn. This is the heritage of the servants of Jehovah, and their righteousness which is of me, saith Jehovah.
+No weapon that is formed against you will prevail; and you will condemn every tongue that rises against you in judgment. This is the heritage of the servants of Yahweh, and their righteousness which is of me," says Yahweh.

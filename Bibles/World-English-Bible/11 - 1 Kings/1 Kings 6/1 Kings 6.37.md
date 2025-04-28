@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the fourth year was the foundation of the house of Jehovah laid, in the month Ziv.
+In the fourth year was the foundation of the house of Yahweh laid, in the month Ziv.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of heaven he made thee to hear his voice, that he might instruct thee: and upon earth he made thee to see his great fire; and thou heardest his words out of the midst of the fire.
+Out of heaven he made you to hear his voice, that he might instruct you: and on earth he made you to see his great fire; and you heard his words out of the midst of the fire.

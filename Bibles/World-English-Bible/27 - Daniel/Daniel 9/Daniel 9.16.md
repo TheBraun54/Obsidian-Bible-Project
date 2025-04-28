@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord, according to all thy righteousness, let thine anger and thy wrath, I pray thee, be turned away from thy city Jerusalem, thy holy mountain; because for our sins, and for the iniquities of our fathers, Jerusalem and thy people are become a reproach to all that are round about us.
+Lord, according to all your righteousness, let your anger and please let your wrath be turned away from your city Jerusalem, your holy mountain; because for our sins, and for the iniquities of our fathers, Jerusalem and your people have become a reproach to all who are around us.

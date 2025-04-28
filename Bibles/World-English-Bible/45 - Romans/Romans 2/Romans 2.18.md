@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and knowest his will, and approvest the things that are excellent, being instructed out of the law,
+and know his will, and approve the things that are excellent, being instructed out of the law,

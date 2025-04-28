@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I, Jehovah, search the mind, I try the heart, even to give every man according to his ways, according to the fruit of his doings.
+I, Yahweh, search the mind, I try the heart, even to give every man according to his ways, according to the fruit of his doings.

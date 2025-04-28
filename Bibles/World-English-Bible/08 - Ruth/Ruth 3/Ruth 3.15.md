@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Bring the mantle that is upon thee, and hold it; and she held it; and he measured six [measures] of barley, and laid it on her: and he went into the city.
+He said, "Bring the mantle that is on you, and hold it." She held it; and he measured six [measures] of barley, and laid it on her; and he went into the city.

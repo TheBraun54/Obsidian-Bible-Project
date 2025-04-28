@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border went down to the uttermost part of the mountain that lieth before the valley of the son of Hinnom, which is in the vale of Rephaim northward; and it went down to the valley of Hinnom, to the side of the Jebusite southward, and went down to En-rogel;
+The border went down to the farthest part of the mountain that lies before the valley of the son of Hinnom, which is in the valley of Rephaim northward. It went down to the valley of Hinnom, to the side of the Jebusite southward, and went down to En Rogel.

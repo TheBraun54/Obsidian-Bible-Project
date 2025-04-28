@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came to him his mother and brethren, and they could not come at him for the crowd.
+His mother and brothers came to him, and they could not come near him for the crowd.

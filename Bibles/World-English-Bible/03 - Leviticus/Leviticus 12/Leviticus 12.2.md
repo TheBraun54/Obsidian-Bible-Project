@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, If a woman conceive seed, and bear a man-child, then she shall be unclean seven days; as in the days of the impurity of her sickness shall she be unclean.
+"Speak to the children of Israel, saying, 'If a woman conceives, and bears a male child, then she shall be unclean seven days; as in the days of her monthly period she shall be unclean.

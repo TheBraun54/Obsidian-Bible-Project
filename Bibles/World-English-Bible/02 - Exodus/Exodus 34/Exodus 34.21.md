@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six days thou shalt work, but on the seventh day thou shalt rest: in plowing time and in harvest thou shalt rest.
+"Six days you shall work, but on the seventh day you shall rest: in plowing time and in harvest you shall rest.

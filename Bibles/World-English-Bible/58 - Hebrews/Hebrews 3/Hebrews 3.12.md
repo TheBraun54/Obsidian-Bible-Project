@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed, brethren, lest haply there shall be in any one of you an evil heart of unbelief, in falling away from the living God:
+Beware, brothers, lest perhaps there be in any one of you an evil heart of unbelief, in falling away from the living God;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But where shall wisdom be found? And where is the place of understanding?
+"But where shall wisdom be found? Where is the place of understanding?

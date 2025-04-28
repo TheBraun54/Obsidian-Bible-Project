@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth hath yielded its increase: God, even our own God, will bless us.
+The earth has yielded its increase. God, even our own God, will bless us.

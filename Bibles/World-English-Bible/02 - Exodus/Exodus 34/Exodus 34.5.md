@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah descended in the cloud, and stood with him there, and proclaimed the name of Jehovah.
+Yahweh descended in the cloud, and stood with him there, and proclaimed the name of Yahweh.

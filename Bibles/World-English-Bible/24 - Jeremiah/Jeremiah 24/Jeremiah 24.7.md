@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give them a heart to know me, that I am Jehovah: and they shall be my people, and I will be their God; for they shall return unto me with their whole heart.
+I will give them a heart to know me, that I am Yahweh: and they shall be my people, and I will be their God; for they shall return to me with their whole heart.

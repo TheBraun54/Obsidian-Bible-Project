@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These shall war against the Lamb, and the Lamb shall overcome them, for he is Lord of lords, and King of kings; and they [also shall overcome] that are with him, called and chosen and faithful.
+These will war against the Lamb, and the Lamb will overcome them, for he is Lord of lords, and King of kings. They also will overcome who are with him, called and chosen and faithful."

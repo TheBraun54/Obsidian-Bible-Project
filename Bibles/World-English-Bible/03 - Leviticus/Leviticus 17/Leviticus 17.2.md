@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Aaron, and unto his sons, and unto all the children of Israel, and say unto them: This is the thing which Jehovah hath commanded, saying,
+"Speak to Aaron, and to his sons, and to all the children of Israel, and say to them: 'This is the thing which Yahweh has commanded,

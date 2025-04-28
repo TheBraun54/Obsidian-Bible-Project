@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they brought out the money that was brought into the house of Jehovah, Hilkiah the priest found the book of the law of Jehovah [given] by Moses.
+When they brought out the money that was brought into the house of Yahweh, Hilkiah the priest found the book of the law of Yahweh [given] by Moses.

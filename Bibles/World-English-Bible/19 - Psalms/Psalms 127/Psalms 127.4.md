@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As arrows in the hand of a mighty man, So are the children of youth.
+As arrows in the hand of a mighty man, so are the children of youth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whensoever I go unto Spain (for I hope to see you in my journey, and to be brought on my way thitherward by you, if first in some measure I shall have been satisfied with your company)--
+whenever I journey to Spain, I will come to you. For I hope to see you on my journey, and to be helped on my way there by you, if first I may enjoy your company for a while.

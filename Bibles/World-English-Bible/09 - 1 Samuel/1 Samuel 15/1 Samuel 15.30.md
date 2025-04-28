@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he said, I have sinned: yet honor me now, I pray thee, before the elders of my people, and before Israel, and turn again with me, that I may worship Jehovah thy God.
+Then he said, "I have sinned: yet please honor me now before the elders of my people, and before Israel, and come back with me, that I may worship Yahweh your God."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Joshua heard the noise of the people as they shouted, he said unto Moses, There is a noise of war in the camp.
+When Joshua heard the noise of the people as they shouted, he said to Moses, "There is the noise of war in the camp."

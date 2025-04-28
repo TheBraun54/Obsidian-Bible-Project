@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the table in the tent of meeting, upon the side of the tabernacle northward, without the veil.
+He put the table in the Tent of Meeting, on the side of the tabernacle northward, outside of the veil.

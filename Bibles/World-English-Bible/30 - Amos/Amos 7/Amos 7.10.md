@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Amaziah the priest of Beth-el sent to Jeroboam king of Israel, saying, Amos hath conspired against thee in the midst of the house of Israel: the land is not able to bear all his words.
+Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, "Amos has conspired against you in the midst of the house of Israel. The land is not able to bear all his words.

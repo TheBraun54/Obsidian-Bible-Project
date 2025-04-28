@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, ye peoples, all of you: hearken, O earth, and all that therein is: and let the Lord Jehovah be witness against you, the Lord from his holy temple.
+Hear, you peoples, all of you. Listen, O earth, and all that is therein: and let the Lord Yahweh be witness against you, the Lord from his holy temple.

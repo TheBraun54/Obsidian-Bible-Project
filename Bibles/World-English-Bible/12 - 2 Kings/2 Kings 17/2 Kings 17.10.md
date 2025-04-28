@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they set them up pillars and Asherim upon every high hill, and under every green tree;
+and they set them up pillars and Asherim on every high hill, and under every green tree;

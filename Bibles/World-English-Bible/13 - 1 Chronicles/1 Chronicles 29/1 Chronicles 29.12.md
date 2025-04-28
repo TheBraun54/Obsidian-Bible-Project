@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Both riches and honor come of thee, and thou rulest over all; and in thy hand is power and might; and in thy hand it is to make great, and to give strength unto all.
+Both riches and honor come from you, and you rule over all; and in your hand is power and might; and it is in your hand to make great, and to give strength to all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A voice of the wailing of the shepherds! for their glory is destroyed: a voice of the roaring of young lions! for the pride of the Jordan is laid waste.
+A voice of the wailing of the shepherds! For their glory is destroyed: a voice of the roaring of young lions! For the pride of the Jordan is ruined.

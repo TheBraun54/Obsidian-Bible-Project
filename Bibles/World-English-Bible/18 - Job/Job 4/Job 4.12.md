@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now a thing was secretly brought to me, And mine ear received a whisper thereof.
+"Now a thing was secretly brought to me. My ear received a whisper of it.

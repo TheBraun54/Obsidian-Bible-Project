@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that regardeth the day, regardeth it unto the Lord: and he that eateth, eateth unto the Lord, for he giveth God thanks; and he that eateth not, unto the Lord he eateth not, and giveth God thanks.
+He who observes the day, observes it to the Lord; and he who does not observe the day, to the Lord he does not observe it. He who eats, eats to the Lord, for he gives God thanks. He who doesn't eat, to the Lord he doesn't eat, and gives God thanks.

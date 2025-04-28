@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though the waters thereof roar and be troubled, Though the mountains tremble with the swelling thereof. {{Selah
+though its waters roar and are troubled, though the mountains tremble with their swelling. Selah.

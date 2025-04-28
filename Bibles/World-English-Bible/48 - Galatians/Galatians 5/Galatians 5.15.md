@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye bite and devour one another, take heed that ye be not consumed one of another.
+But if you bite and devour one another, be careful that you don't consume one another.

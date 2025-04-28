@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six days ye shall gather it; but on the seventh day is the sabbath, in it there shall be none.
+Six days you shall gather it, but on the seventh day is the Sabbath. In it there shall be none."

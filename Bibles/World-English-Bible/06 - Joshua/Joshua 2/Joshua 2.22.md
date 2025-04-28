@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went, and came unto the mountain, and abode there three days, until the pursuers were returned: and the pursuers sought them throughout all the way, but found them not.
+They went, and came to the mountain, and stayed there three days, until the pursuers had returned. The pursuers sought them throughout all the way, but didn't find them.

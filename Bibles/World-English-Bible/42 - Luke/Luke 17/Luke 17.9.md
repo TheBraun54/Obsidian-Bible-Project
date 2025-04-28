@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth he thank the servant because he did the things that were commanded?
+Does he thank that servant because he did the things that were commanded? I think not.

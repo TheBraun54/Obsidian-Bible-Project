@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye stiffnecked and uncircumcised in heart and ears, ye do always resist the Holy Spirit: as your fathers did, so do ye.
+"You stiff-necked and uncircumcised in heart and ears, you always resist the Holy Spirit! As your fathers did, so you do.

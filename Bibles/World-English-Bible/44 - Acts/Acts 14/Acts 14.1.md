@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in Iconium that they entered together into the synagogue of the Jews, and so spake that a great multitude both of Jews and of Greeks believed.
+It happened in Iconium that they entered together into the synagogue of the Jews, and so spoke that a great multitude both of Jews and of Greeks believed.

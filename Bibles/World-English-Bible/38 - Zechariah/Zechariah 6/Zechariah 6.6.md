@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ The chariot] wherein are the black horses goeth forth toward the north country; and the white went forth after them; and the grizzled went forth toward the south country.
+The one with the black horses goes out toward the north country; and the white went out after them; and the dappled went forth toward the south country."

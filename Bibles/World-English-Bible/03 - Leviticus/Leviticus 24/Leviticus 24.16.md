@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that blasphemeth the name of Jehovah, he shall surely be put to death; all the congregation shall certainly stone him: as well the sojourner, as the home-born, when he blasphemeth the name [of Jehovah], shall be put to death.
+He who blasphemes the name of Yahweh, he shall surely be put to death; all the congregation shall certainly stone him: the foreigner as well as the native-born, when he blasphemes the Name, shall be put to death.

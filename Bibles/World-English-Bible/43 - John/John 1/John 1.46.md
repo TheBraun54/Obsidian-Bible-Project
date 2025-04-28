@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nathanael said unto him, Can any good thing come out of Nazareth? Philip saith unto him, Come and see.
+Nathanael said to him, "Can any good thing come out of Nazareth?" Philip said to him, "Come and see."

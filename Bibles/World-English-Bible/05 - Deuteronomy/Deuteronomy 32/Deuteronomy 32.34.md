@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not this laid up in store with me, Sealed up among my treasures?
+"Isn't this laid up in store with me, sealed up among my treasures?

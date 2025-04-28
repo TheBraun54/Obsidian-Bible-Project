@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they tempted God in their heart By asking food according to their desire.
+They tempted God in their heart by asking food according to their desire.

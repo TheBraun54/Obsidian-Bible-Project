@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though I made you sorry with my epistle, I do not regret it: though I did regret [it] (for I see that that epistle made you sorry, though but for a season),
+For though I made you sorry with my letter, I do not regret it, though I did regret it. For I see that my letter made you sorry, though just for a while.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I verily, being absent in body but present in spirit, have already as though I were present judged him that hath so wrought this thing,
+For I most certainly, as being absent in body but present in spirit, have already, as though I were present, judged him who has done this thing.

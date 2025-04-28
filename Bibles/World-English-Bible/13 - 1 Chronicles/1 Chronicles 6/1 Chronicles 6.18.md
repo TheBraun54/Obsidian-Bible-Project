@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Kohath were Amram, and Izhar, and Hebron, and Uzziel.
+The sons of Kohath were Amram, and Izhar, and Hebron, and Uzziel.

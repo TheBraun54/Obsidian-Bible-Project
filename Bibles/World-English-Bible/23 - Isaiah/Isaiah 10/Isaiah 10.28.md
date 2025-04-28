@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is come to Aiath, he is passed through Migron; at Michmash he layeth up his baggage;
+He has come to Aiath. He has passed through Migron. At Michmash he stores his baggage.

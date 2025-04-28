@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Iron is taken out of the earth, And copper is molten out of the stone.
+Iron is taken out of the earth, and copper is smelted out of the ore.

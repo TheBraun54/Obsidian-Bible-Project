@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cities which ye shall give unto the Levites, they shall be the six cities of refuge, which ye shall give for the manslayer to flee unto: and besides them ye shall give forty and two cities.
+"The cities which you shall give to the Levites, they shall be the six cities of refuge, which you shall give for the manslayer to flee to: and besides them you shall give forty-two cities.

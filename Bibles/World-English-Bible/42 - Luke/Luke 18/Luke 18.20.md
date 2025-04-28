@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou knowest the commandments, Do not commit adultery, Do not kill, Do not steal, Do not bear false witness, Honor thy father and mother.
+You know the commandments: 'Don't commit adultery,' 'Don't murder,' 'Don't steal,' 'Don't give false testimony,' 'Honor your father and your mother.'"

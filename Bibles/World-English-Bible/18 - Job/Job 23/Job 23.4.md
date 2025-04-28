@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I would set my cause in order before him, And fill my mouth with arguments.
+I would set my cause in order before him, and fill my mouth with arguments.

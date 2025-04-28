@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Moses used to take the tent and to pitch it without the camp, afar off from the camp; and he called it, The tent of meeting. And it came to pass, that every one that sought Jehovah went out unto the tent of meeting, which was without the camp.
+Now Moses used to take the tent and to pitch it outside the camp, far away from the camp, and he called it "The Tent of Meeting." It happened that everyone who sought Yahweh went out to the Tent of Meeting, which was outside the camp.

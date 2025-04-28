@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any one say aught unto you, ye shall say, The Lord hath need of them; and straightway he will send them.
+If anyone says anything to you, you shall say, 'The Lord needs them,' and immediately he will send them."

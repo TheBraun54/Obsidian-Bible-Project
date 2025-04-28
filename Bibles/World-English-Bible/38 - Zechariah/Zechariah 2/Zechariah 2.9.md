@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, I will shake my hand over them, and they shall be a spoil to those that served them; and ye shall know that Jehovah of hosts hath sent me.
+For, behold, I will shake my hand over them, and they will be a spoil to those who served them; and you will know that Yahweh of Armies has sent me.

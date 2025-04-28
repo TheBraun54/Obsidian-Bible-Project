@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall cause her to swear, and shall say unto the woman, If no man have lain with thee, and if thou have not gone aside to uncleanness, being under thy husband, be thou free from this water of bitterness that causeth the curse.
+The priest shall cause her to swear, and shall tell the woman, "If no man has lain with you, and if you haven't gone aside to uncleanness, being under your husband, be free from this water of bitterness that brings a curse.

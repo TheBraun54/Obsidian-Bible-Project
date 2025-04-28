@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man destroyeth the temple of God, him shall God destroy; for the temple of God is holy, and such are ye.
+If anyone destroys the temple of God, God will destroy him; for God's temple is holy, which you are.

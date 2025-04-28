@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I also will do this unto you: I will appoint terror over you, even consumption and fever, that shall consume the eyes, and make the soul to pine away; and ye shall sow your seed in vain, for your enemies shall eat it.
+I also will do this to you: I will appoint terror over you, even consumption and fever, that shall consume the eyes, and make the soul to pine away; and you will sow your seed in vain, for your enemies will eat it.

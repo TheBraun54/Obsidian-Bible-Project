@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the thickness of the wall of the court toward the east, before the separate place, and before the building, there were chambers.
+In the thickness of the wall of the court toward the east, before the separate place, and before the building, there were rooms.

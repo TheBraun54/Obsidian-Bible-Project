@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye yourselves know that these hands ministered unto my necessities, and to them that were with me.
+You yourselves know that these hands served my necessities, and those who were with me.

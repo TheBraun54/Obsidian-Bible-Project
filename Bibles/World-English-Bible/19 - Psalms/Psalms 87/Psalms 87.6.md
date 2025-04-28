@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will count, when he writeth up the peoples, This one was born there. {{Selah
+Yahweh will count, when he writes up the peoples, "This one was born there." Selah.

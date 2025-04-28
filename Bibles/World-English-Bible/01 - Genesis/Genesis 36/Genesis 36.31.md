@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the kings that reigned in the land of Edom, before there reigned any king over the children of Israel.
+These are the kings who reigned in the land of Edom, before any king reigned over the children of Israel.

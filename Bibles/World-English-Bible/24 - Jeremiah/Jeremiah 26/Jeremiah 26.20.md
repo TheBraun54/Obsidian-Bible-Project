@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was also a man that prophesied in the name of Jehovah, Uriah the son of Shemaiah of Kiriath-jearim; and he prophesied against this city and against this land according to all the words of Jeremiah:
+There was also a man who prophesied in the name of Yahweh, Uriah the son of Shemaiah of Kiriath Jearim; and he prophesied against this city and against this land according to all the words of Jeremiah:

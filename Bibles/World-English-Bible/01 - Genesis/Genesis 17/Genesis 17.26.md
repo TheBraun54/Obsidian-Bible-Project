@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the selfsame day was Abraham circumcised, and Ishmael his son.
+In the same day both Abraham and Ishmael, his son, were circumcised.

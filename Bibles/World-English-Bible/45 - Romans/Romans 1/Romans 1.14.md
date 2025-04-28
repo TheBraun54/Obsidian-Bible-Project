@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am debtor both to Greeks and to Barbarians, both to the wise and to the foolish.
+I am debtor both to Greeks and to foreigners, both to the wise and to the foolish.

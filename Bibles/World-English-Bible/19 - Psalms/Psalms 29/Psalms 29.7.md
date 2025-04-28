@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of Jehovah cleaveth the flames of fire.
+Yahweh's voice strikes with flashes of lightning.

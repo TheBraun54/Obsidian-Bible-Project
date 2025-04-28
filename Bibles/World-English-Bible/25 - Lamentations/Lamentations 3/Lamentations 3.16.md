@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath also broken my teeth with gravel stones; he hath covered me with ashes.
+He has also broken my teeth with gravel stones; he has covered me with ashes.

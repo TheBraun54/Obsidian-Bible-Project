@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he made us [to be] a kingdom, [to be] priests unto his God and Father; to him [be] the glory and the dominion for ever and ever. Amen.
+and he made us to be a Kingdom, priests to his God and Father; to him be the glory and the dominion forever and ever. Amen.

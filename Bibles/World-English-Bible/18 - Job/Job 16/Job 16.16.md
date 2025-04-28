@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My face is red with weeping, And on my eyelids is the shadow of death;
+My face is red with weeping. Deep darkness is on my eyelids.

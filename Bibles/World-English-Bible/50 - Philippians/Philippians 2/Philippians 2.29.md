@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Receive him therefore in the Lord with all joy; and hold such in honor:
+Receive him therefore in the Lord with all joy, and hold such in honor,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, now are we children of God, and it is not yet made manifest what we shall be. We know that, if he shall be manifested, we shall be like him; for we shall see him even as he is.
+Beloved, now we are children of God, and it is not yet revealed what we will be. But we know that, when he is revealed, we will be like him; for we will see him just as he is.

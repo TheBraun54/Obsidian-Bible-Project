@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when David came to Ziklag, he sent of the spoil unto the elders of Judah, even to his friends, saying, Behold, a present for you of the spoil of the enemies of Jehovah:
+When David came to Ziklag, he sent of the spoil to the elders of Judah, even to his friends, saying, "Behold, a present for you of the spoil of the enemies of Yahweh."

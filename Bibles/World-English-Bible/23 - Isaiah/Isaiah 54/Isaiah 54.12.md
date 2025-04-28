@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make thy pinnacles of rubies, and thy gates of carbuncles, and all thy border of precious stones.
+I will make your pinnacles of rubies, and your gates of sparkling jewels, and all your walls of precious stones.

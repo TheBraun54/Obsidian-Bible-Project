@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he would not: but went and cast him into prison, till he should pay that which was due.
+He would not, but went and cast him into prison, until he should pay back that which was due.

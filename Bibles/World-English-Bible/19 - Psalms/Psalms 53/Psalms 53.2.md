@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God looked down from heaven upon the children of men, To see if there were any that did understand, That did seek after God.
+God looks down from heaven on the children of men, to see if there are any who understood, who seek after God.

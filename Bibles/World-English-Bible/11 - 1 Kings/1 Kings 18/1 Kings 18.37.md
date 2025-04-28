@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear me, O Jehovah, hear me, that this people may know that thou, Jehovah, art God, and [that] thou hast turned their heart back again.
+Hear me, Yahweh, hear me, that this people may know that you, Yahweh, are God, and that you have turned their heart back again."

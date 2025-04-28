@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he caused the ark of Jehovah to compass the city, going about it once: and they came into the camp, and lodged in the camp.
+So he caused the ark of Yahweh to go around the city, going about it once. Then they came into the camp, and lodged in the camp.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Johanan begat Azariah, (he it is that executed the priest's office in the house that Solomon built in Jerusalem),
+and Johanan became the father of Azariah, (he it is who executed the priest's office in the house that Solomon built in Jerusalem),

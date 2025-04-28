@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, An Egyptian delivered us out of the hand of the shepherds, and moreover he drew water for us, and watered the flock.
+They said, "An Egyptian delivered us out of the hand of the shepherds, and moreover he drew water for us, and watered the flock."

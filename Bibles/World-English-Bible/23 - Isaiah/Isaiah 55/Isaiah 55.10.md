@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the rain cometh down and the snow from heaven, and returneth not thither, but watereth the earth, and maketh it bring forth and bud, and giveth seed to the sower and bread to the eater;
+For as the rain comes down and the snow from the sky, and doesn't return there, but waters the earth, and makes it bring forth and bud, and gives seed to the sower and bread to the eater;

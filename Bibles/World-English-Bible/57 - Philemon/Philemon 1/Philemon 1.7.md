@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I had much joy and comfort in thy love, because the hearts of the saints have been refreshed through thee, brother.
+For we have much joy and comfort in your love, because the hearts of the saints have been refreshed through you, brother.

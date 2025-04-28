@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come into the house, his disciples asked him privately, [How is it] that we could not cast it out?
+When he had come into the house, his disciples asked him privately, "Why couldn't we cast it out?"

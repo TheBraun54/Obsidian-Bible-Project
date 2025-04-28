@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if the plague be greenish or reddish in the garment, or in the skin, or in the warp, or in the woof, or in anything of skin; it is the plague of leprosy, and shall be showed unto the priest.
+if the plague is greenish or reddish in the garment, or in the skin, or in the warp, or in the woof, or in anything made of skin; it is the plague of leprosy, and shall be shown to the priest.

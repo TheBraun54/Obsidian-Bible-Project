@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that speaketh from himself seeketh his own glory: but he that seeketh the glory of him that sent him, the same is true, and no unrighteousness is in him.
+He who speaks from himself seeks his own glory, but he who seeks the glory of him who sent him is true, and no unrighteousness is in him.

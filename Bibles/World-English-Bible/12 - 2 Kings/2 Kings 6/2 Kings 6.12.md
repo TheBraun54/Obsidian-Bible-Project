@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of his servants said, Nay, my lord, O king; but Elisha, the prophet that is in Israel, telleth the king of Israel the words that thou speakest in thy bedchamber.
+One of his servants said, "No, my lord, O king; but Elisha, the prophet who is in Israel, tells the king of Israel the words that you speak in your bedroom."

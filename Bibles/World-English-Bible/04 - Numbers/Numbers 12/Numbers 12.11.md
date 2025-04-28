@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron said unto Moses, Oh, my lord, lay not, I pray thee, sin upon us, for that we have done foolishly, and for that we have sinned.
+Aaron said to Moses, "Oh, my lord, please don't count this sin against us, in which we have done foolishly, and in which we have sinned.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall spread forth his hands in the midst thereof, as he that swimmeth spreadeth forth [his hands] to swim; but [Jehovah] will lay low his pride [ together with the craft of his hands.
+He will spread out his hands in its midst, like one who swims spreads out hands to swim, but his pride will be humbled together with the craft of his hands.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the name of Jehovah cometh from far, burning with his anger, and in thick rising smoke: his lips are full of indignation, and his tongue is as a devouring fire;
+Behold, the name of Yahweh comes from far away, burning with his anger, and in thick rising smoke. His lips are full of indignation, and his tongue is as a devouring fire.

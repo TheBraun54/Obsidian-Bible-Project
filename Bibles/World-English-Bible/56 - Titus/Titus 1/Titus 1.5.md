@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause left I thee in Crete, that thou shouldest set in order the things that were wanting, and appoint elders in every city, as I gave thee charge;
+I left you in Crete for this reason, that you would set in order the things that were lacking, and appoint elders in every city, as I directed you;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the pillars of the court round about, and their sockets, and their pins, and their cords, with all their instruments, and with all their service: and by name ye shall appoint the instruments of the charge of their burden.
+and the pillars of the court around it, and their sockets, and their pins, and their cords, with all their instruments, and with all their service: and by name you shall appoint the instruments of the duty of their burden.

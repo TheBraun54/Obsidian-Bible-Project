@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Laban on the third day that Jacob was fled.
+Laban was told on the third day that Jacob had fled.

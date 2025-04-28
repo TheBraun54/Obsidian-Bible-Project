@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Nay, father Abraham: but if one go to them from the dead, they will repent.
+"He said, 'No, father Abraham, but if one goes to them from the dead, they will repent.'

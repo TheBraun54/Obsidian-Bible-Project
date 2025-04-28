@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the consecrated things were six hundred oxen and three thousand sheep.
+The consecrated things were six hundred head of cattle and three thousand sheep.

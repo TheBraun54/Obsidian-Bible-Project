@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My Father, who hath given [them] unto me, is greater than all; and no one is able to snatch [them] out of the Father's hand.
+My Father, who has given them to me, is greater than all. No one is able to snatch them out of my Father's hand.

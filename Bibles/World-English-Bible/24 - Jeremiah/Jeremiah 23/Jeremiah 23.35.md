@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shall ye say every one to his neighbor, and every one to his brother, What hath Jehovah answered? and, What hath Jehovah spoken?
+You shall say everyone to his neighbor, and everyone to his brother, What has Yahweh answered? and, What has Yahweh spoken?

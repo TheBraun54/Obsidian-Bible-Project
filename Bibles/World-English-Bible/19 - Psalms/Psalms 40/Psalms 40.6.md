@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sacrifice and offering thou hast no delight in; Mine ears hast thou opened: Burnt-offering and sin-offering hast thou not required.
+Sacrifice and offering you didn't desire. You have opened my ears. You have not required burnt offering and sin offering.

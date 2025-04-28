@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the second time Joseph was made known to his brethren; and Joseph's race became manifest unto Pharaoh.
+On the second time Joseph was made known to his brothers, and Joseph's race was revealed to Pharaoh.

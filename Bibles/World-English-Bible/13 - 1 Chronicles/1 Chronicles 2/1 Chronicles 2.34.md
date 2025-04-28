@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Sheshan had no sons, but daughters. And Sheshan had a servant, an Egyptian, whose name was Jarha.
+Now Sheshan had no sons, but daughters. Sheshan had a servant, an Egyptian, whose name was Jarha.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this they willfully forget, that there were heavens from of old, and an earth compacted out of water and amidst water, by the word of God;
+For this they willfully forget, that there were heavens from of old, and an earth formed out of water and amid water, by the word of God;

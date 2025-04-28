@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore whosoever shall eat the bread or drink the cup of the Lord in an unworthy manner, shall be guilty of the body and the blood of the Lord.
+Therefore whoever eats this bread or drinks the Lord's cup in a way unworthy of the Lord will be guilty of the body and the blood of the Lord.

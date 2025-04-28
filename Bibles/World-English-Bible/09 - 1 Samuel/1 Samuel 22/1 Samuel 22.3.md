@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went thence to Mizpeh of Moab: and he said unto the king of Moab, Let my father and my mother, I pray thee, come forth, [and be] with you, till I know what God will do for me.
+David went there to Mizpeh of Moab, and he said to the king of Moab, "Please let my father and my mother come out with you, until I know what God will do for me."

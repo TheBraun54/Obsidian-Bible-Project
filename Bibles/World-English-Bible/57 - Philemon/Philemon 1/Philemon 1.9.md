@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet for love's sake I rather beseech, being such a one as Paul the aged, and now a prisoner also of Christ Jesus:
+yet for love's sake I rather beg, being such a one as Paul, the aged, but also a prisoner of Jesus Christ.

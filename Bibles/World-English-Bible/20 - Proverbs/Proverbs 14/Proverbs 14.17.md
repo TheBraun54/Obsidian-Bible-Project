@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is soon angry will deal foolishly; And a man of wicked devices is hated.
+He who is quick to become angry will commit folly, and a crafty man is hated.

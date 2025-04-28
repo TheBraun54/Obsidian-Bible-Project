@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with him they crucify two robbers; one on his right hand, and one on his left.
+With him they crucified two robbers; one on his right hand, and one on his left.

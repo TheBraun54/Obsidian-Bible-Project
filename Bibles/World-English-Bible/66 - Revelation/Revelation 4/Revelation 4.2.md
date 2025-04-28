@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Straightway I was in the Spirit: and behold, there was a throne set in heaven, and one sitting upon the throne;
+Immediately I was in the Spirit. Behold, there was a throne set in heaven, and one sitting on the throne

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have made thee [to be] a new sharp threshing instrument having teeth; thou shalt thresh the mountains, and beat them small, and shalt make the hills as chaff.
+Behold, I have made you into a new sharp threshing instrument with teeth. You will thresh the mountains, and beat them small, and will make the hills like chaff.

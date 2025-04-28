@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitude of them that believed were of one heart and soul: and not one [of them] said that aught of the things which he possessed was his own; but they had all things common.
+The multitude of those who believed were of one heart and soul. Not one of them claimed that anything of the things which he possessed was his own, but they had all things in common.

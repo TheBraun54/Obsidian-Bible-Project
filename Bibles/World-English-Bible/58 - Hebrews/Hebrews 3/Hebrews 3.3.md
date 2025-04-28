@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath been counted worthy of more glory than Moses, by so much as he that built the house hath more honor than the house.
+For he has been counted worthy of more glory than Moses, inasmuch as he who built the house has more honor than the house.

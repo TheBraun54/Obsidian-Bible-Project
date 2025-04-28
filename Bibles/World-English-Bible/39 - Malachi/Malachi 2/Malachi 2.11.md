@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judah hath dealt treacherously, and an abomination is committed in Israel and in Jerusalem; for Judah hath profaned the holiness of Jehovah which he loveth, and hath married the daughter of a foreign god.
+Judah has dealt treacherously, and an abomination is committed in Israel and in Jerusalem; for Judah has profaned the holiness of Yahweh which he loves, and has married the daughter of a foreign god.

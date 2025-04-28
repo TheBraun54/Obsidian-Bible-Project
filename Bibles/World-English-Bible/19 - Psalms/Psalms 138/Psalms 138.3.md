@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the day that I called thou answeredst me, Thou didst encourage me with strength in my soul.
+In the day that I called, you answered me. You encouraged me with strength in my soul.

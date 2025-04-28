@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the dark they dig through houses: They shut themselves up in the day-time; They know not the light.
+In the dark they dig through houses. They shut themselves up in the daytime. They don't know the light.

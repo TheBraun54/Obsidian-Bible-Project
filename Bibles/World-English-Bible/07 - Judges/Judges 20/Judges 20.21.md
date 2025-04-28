@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Benjamin came forth out of Gibeah, and destroyed down to the ground of the Israelites on that day twenty and two thousand men.
+The children of Benjamin came forth out of Gibeah, and destroyed down to the ground of the Israelites on that day Twenty-two thousand men.

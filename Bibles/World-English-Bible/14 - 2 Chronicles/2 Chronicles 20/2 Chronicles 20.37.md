@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Eliezer the son of Dodavahu of Mareshah prophesied against Jehoshaphat, saying, Because thou hast joined thyself with Ahaziah, Jehovah hath destroyed thy works. And the ships were broken, so that they were not able to go to Tarshish.
+Then Eliezer the son of Dodavahu of Mareshah prophesied against Jehoshaphat, saying, "Because you have joined yourself with Ahaziah, Yahweh has destroyed your works." The ships were broken, so that they were not able to go to Tarshish.

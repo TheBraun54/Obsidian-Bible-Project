@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took away the foreign gods, and the idol out of the house of Jehovah, and all the altars that he had built in the mount of the house of Jehovah, and in Jerusalem, and cast them out of the city.
+He took away the foreign gods, and the idol out of the house of Yahweh, and all the altars that he had built in the mountain of the house of Yahweh, and in Jerusalem, and cast them out of the city.

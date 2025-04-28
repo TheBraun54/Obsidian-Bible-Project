@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it was not written for his sake alone, that it was reckoned unto him;
+Now it was not written that it was accounted to him for his sake alone,

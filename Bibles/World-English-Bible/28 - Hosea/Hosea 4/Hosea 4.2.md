@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is nought but swearing and breaking faith, and killing, and stealing, and committing adultery; they break out, and blood toucheth blood.
+There is cursing, lying, murder, stealing, and committing adultery; they break boundaries, and bloodshed causes bloodshed.

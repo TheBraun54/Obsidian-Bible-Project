@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they laid hands on him, and took him.
+They laid their hands on him, and seized him.

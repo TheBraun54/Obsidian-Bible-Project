@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after a little while they that stood by came and said to Peter, Of a truth thou also art [one] of them; for thy speech maketh thee known.
+After a little while those who stood by came and said to Peter, "Surely you are also one of them, for your speech makes you known."

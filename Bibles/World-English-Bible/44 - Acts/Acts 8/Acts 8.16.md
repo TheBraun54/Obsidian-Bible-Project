@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for as yet it was fallen upon none of them: only they had been baptized into the name of the Lord Jesus.
+for as yet he had fallen on none of them. They had only been baptized in the name of Christ Jesus.

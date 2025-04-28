@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people took their dough before it was leavened, their kneading-troughs being bound up in their clothes upon their shoulders.
+The people took their dough before it was leavened, their kneading troughs being bound up in their clothes on their shoulders.

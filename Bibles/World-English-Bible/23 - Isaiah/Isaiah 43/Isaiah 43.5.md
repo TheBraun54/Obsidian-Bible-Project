@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not; for I am with thee: I will bring thy seed from the east, and gather thee from the west;
+Don't be afraid; for I am with you. I will bring your seed from the east, and gather you from the west.

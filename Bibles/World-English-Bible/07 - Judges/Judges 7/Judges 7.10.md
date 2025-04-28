@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou fear to go down, go thou with Purah thy servant down to the camp:
+But if you are afraid to go down, go with Purah your servant down to the camp:

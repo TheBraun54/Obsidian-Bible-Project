@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now Jehovah my God hath given me rest on every side; there is neither adversary, nor evil occurrence.
+But now Yahweh my God has given me rest on every side. There is neither adversary, nor evil occurrence.

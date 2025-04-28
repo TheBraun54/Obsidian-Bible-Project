@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah for evermore. Amen, and Amen.
+Blessed be Yahweh forevermore. Amen, and Amen. BOOK IV A Prayer by Moses, the man of God.

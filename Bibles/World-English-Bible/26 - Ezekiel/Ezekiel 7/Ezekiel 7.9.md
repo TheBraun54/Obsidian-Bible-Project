@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And mine eye shall not spare, neither will I have pity: I will bring upon thee according to thy ways; and thine abominations shall be in the midst of thee; and ye shall know that I, Jehovah, do smite.
+My eye shall not spare, neither will I have pity: I will bring on you according to your ways; and your abominations shall be in the midst of you; and you shall know that I, Yahweh, do strike.

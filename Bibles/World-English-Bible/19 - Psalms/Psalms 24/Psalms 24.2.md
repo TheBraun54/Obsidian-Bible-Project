@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath founded it upon the seas, And established it upon the floods.
+For he has founded it on the seas, and established it on the floods.

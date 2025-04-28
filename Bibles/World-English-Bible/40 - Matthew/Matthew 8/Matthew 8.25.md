@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to him, and awoke him, saying, Save, Lord; we perish.
+They came to him, and woke him up, saying, "Save us, Lord! We are dying!"

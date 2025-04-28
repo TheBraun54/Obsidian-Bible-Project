@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the young man heard the saying, he went away sorrowful; for he was one that had great possessions.
+But when the young man heard the saying, he went away sad, for he was one who had great possessions.

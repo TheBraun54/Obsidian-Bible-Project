@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Jezebel also spake Jehovah, saying, The dogs shall eat Jezebel by the rampart of Jezreel.
+Yahweh also spoke of Jezebel, saying, "The dogs shall eat Jezebel by the rampart of Jezreel.

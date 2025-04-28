@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when the blood of Stephen thy witness was shed, I also was standing by, and consenting, and keeping the garments of them that slew him.
+When the blood of Stephen, your witness, was shed, I also was standing by, and consenting to his death, and guarding the cloaks of those who killed him.'

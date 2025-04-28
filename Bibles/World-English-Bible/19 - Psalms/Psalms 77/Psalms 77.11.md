@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will make mention of the deeds of Jehovah; For I will remember thy wonders of old.
+I will remember Yah's deeds; for I will remember your wonders of old.

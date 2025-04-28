@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will answer thee, And thy companions with thee.
+I will answer you, and your companions with you.

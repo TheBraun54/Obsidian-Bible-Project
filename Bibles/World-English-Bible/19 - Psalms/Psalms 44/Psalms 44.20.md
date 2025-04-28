@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we have forgotten the name of our God, Or spread forth our hands to a strange god;
+If we have forgotten the name of our God, or spread forth our hands to a strange god;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made houses of high places, and made priests from among all the people, that were not of the sons of Levi.
+He made houses of high places, and made priests from among all the people, who were not of the sons of Levi.

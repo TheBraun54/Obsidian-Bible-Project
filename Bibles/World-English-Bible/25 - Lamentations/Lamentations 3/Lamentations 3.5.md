@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath builded against me, and compassed me with gall and travail.
+He has built against me, and surrounded me with gall and travail.

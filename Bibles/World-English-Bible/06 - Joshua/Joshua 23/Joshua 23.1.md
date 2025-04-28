@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after many days, when Jehovah had given rest unto Israel from all their enemies round about, and Joshua was old and well stricken in years;
+It happened after many days, when Yahweh had given rest to Israel from their enemies all around, and Joshua was old and well advanced in years,

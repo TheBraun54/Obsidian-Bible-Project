@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt eat it as barley cakes, and thou shalt bake it in their sight with dung that cometh out of man.
+You shall eat it as barley cakes, and you shall bake it in their sight with dung that comes out of man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who was faithful to him that appointed him, as also was Moses in all his house.
+who was faithful to him who appointed him, as also was Moses in all his house.

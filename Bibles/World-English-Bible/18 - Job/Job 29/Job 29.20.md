@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My glory is fresh in me, And my bow is renewed in my hand.
+My glory is fresh in me. My bow is renewed in my hand.'

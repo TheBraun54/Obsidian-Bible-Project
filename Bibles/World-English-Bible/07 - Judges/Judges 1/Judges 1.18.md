@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Judah took Gaza with the border thereof, and Ashkelon with the border thereof, and Ekron with the border thereof.
+Also Judah took Gaza with its border, and Ashkelon with its border, and Ekron with its border.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then on that day did David first ordain to give thanks unto Jehovah, by the hand of Asaph and his brethren.
+Then on that day David first ordained to give thanks to Yahweh, by the hand of Asaph and his brothers.

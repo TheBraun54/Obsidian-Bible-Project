@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which is an earnest of our inheritance, unto the redemption of [God's] own possession, unto the praise of his glory.
+who is a pledge of our inheritance, to the redemption of God's own possession, to the praise of his glory.

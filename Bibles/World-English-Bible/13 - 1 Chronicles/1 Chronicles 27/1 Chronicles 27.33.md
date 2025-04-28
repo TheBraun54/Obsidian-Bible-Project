@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahithophel was the king's counsellor: and Hushai the Archite was the king's friend:
+Ahithophel was the king's counselor: and Hushai the Archite was the king's friend:

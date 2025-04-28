@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are the sons of the prophets, and of the covenant which God made with your fathers, saying unto Abraham, And in thy seed shall all the families of the earth be blessed.
+You are the children of the prophets, and of the covenant which God made with our fathers, saying to Abraham, 'In your seed will all the families of the earth be blessed.'

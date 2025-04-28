@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he could not answer Abner another word, because he feared him.
+He could not answer Abner another word, because he feared him.

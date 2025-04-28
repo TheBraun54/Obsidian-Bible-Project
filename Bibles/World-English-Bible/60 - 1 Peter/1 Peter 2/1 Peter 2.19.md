@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is acceptable, if for conscience toward God a man endureth griefs, suffering wrongfully.
+For it is commendable if someone endures pain, suffering unjustly, because of conscience toward God.

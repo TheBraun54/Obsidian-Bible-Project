@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are the merciful: for they shall obtain mercy.
+Blessed are the merciful, for they shall obtain mercy.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth opened and swallowed up Dathan, And covered the company of Abiram.
+The earth opened and swallowed up Dathan, and covered the company of Abiram.

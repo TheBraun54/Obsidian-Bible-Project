@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the people that is come out of Egypt, it covereth the face of the earth: now, come curse me them; peradventure I shall be able to fight against them, and shall drive them out.
+'Behold, the people that is come out of Egypt, it covers the surface of the earth: now, come curse me them; perhaps I shall be able to fight against them, and shall drive them out.'"

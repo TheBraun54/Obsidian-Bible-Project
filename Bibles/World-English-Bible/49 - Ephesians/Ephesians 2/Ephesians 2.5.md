@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even when we were dead through our trespasses, made us alive together with Christ (by grace have ye been saved),
+even when we were dead through our trespasses, made us alive together with Christ (by grace you have been saved),

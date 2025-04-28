@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy holy people possessed [it] but a little while: our adversaries have trodden down thy sanctuary.
+Your holy people possessed [it] but a little while: our adversaries have trodden down your sanctuary.

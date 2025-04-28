@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Ai smote of them about thirty and six men; and they chased them [from] before the gate even unto Shebarim, and smote them at the descent; and the hearts of the people melted, and became as water.
+The men of Ai struck about thirty-six men of them, and they chased them from before the gate even to Shebarim, and struck them at the descent. The hearts of the people melted, and became like water.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lead me, O Jehovah, in thy righteousness because of mine enemies; Make thy way straight before my face.
+Lead me, Yahweh, in your righteousness because of my enemies. Make your way straight before my face.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is actually reported that there is fornication among you, and such fornication as is not even among the Gentiles, that one [of you] hath his father's wife.
+It is actually reported that there is sexual immorality among you, and such sexual immorality as is not even named among the Gentiles, that one has his father's wife.

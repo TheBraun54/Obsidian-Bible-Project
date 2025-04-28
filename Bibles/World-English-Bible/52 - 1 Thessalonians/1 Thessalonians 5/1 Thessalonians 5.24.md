@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Faithful is he that calleth you, who will also do it.
+He who calls you is faithful, who will also do it.

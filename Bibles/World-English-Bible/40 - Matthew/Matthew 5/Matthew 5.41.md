@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever shall compel thee to go one mile, go with him two.
+Whoever compels you to go one mile, go with him two.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the breath of God ice is given; And the breadth of the waters is straitened.
+By the breath of God, ice is given, and the breadth of the waters is frozen.

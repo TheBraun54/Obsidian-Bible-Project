@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave him no answer, not even to one word: insomuch that the governor marvelled greatly.
+He gave him no answer, not even one word, so that the governor marveled greatly.

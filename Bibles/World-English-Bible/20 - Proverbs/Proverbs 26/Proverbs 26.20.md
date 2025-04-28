@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For lack of wood the fire goeth out; And where there is no whisperer, contention ceaseth.
+For lack of wood a fire goes out. Without gossip, a quarrel dies down.

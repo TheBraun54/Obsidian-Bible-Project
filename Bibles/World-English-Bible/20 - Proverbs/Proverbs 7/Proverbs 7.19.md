@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the man is not at home; He is gone a long journey:
+For my husband isn't at home. He has gone on a long journey.

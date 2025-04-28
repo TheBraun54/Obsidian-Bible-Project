@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me from the workers of iniquity, And save me from the bloodthirsty men.
+Deliver me from the workers of iniquity. Save me from the bloodthirsty men.

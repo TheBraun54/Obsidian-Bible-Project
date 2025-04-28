@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samlah died, and Shaul of Rehoboth by the River reigned in his stead.
+Samlah died, and Shaul of Rehoboth by the river, reigned in his place.

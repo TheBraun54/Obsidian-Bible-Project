@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when thy son asketh thee in time to come, saying, What is this? that thou shalt say unto him, By strength of hand Jehovah brought us out from Egypt, from the house of bondage: [
+It shall be, when your son asks you in time to come, saying, 'What is this?' that you shall tell him, 'By strength of hand Yahweh brought us out from Egypt, from the house of bondage;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even a child maketh himself known by his doings, Whether his work be pure, and whether it be right.
+Even a child makes himself known by his doings, whether his work is pure, and whether it is right.

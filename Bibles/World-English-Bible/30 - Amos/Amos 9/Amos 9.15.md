@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will plant them upon their land, and they shall no more be plucked up out of their land which I have given them, saith Jehovah thy God.
+I will plant them on their land, and they will no more be plucked up out of their land which I have given them," says Yahweh your God.

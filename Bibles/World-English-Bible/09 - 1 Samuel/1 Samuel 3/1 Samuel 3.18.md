@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel told him every whit, and hid nothing from him. And he said, It is Jehovah: let him do what seemeth him good.
+Samuel told him every bit, and hid nothing from him. He said, "It is Yahweh. Let him do what seems good to him."

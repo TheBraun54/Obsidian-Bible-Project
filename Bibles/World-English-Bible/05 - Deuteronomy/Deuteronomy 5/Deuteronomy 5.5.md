@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(I stood between Jehovah and you at that time, to show you the word of Jehovah: for ye were afraid because of the fire, and went not up into the mount;) saying,
+(I stood between Yahweh and you at that time, to show you the word of Yahweh: for you were afraid because of the fire, and didn't go up onto the mountain;) saying,

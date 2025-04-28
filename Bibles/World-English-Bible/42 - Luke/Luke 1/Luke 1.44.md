@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For behold, when the voice of thy salutation came into mine ears, the babe leaped in my womb for joy.
+For behold, when the voice of your greeting came into my ears, the baby leaped in my womb for joy!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the saying pleased the king and the princes; and the king did according to the word of Memucan:
+This advice pleased the king and the princes, and the king did according to the word of Memucan:

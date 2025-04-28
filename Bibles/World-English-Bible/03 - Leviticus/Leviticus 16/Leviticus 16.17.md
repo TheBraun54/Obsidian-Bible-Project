@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be no man in the tent of meeting when he goeth in to make atonement in the holy place, until he come out, and have made atonement for himself, and for his household, and for all the assembly of Israel.
+No one shall be in the Tent of Meeting when he enters to make atonement in the Holy Place, until he comes out, and has made atonement for himself and for his household, and for all the assembly of Israel.

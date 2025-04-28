@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Eliakim and Shebna and Joah unto Rabshakeh, Speak, I pray thee, unto thy servants in the Syrian language; for we understand it: and speak not to us in the Jews' language, in the ears of the people that are on the wall.
+Then Eliakim, Shebna and Joah said to Rabshakeh, "Please speak to your servants in Aramaic, for we understand it; and don't speak to us in the Jews' language in the hearing of the people who are on the wall."

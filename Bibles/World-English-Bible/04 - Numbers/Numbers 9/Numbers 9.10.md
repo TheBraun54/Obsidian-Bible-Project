@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, If any man of you or of your generations shall be unclean by reason of a dead body, or be on a journey afar off, yet he shall keep the passover unto Jehovah.
+"Say to the children of Israel, 'If any man of you or of your generations is unclean by reason of a dead body, or is on a journey far away, he shall still keep the Passover to Yahweh.

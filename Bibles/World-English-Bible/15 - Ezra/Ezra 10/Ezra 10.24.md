@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the singers: Eliashib. And of the porters: Shallum, and Telem, and Uri.
+Of the singers: Eliashib. Of the porters: Shallum, and Telem, and Uri.

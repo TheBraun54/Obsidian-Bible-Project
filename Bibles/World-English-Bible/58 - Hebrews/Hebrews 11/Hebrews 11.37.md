@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they were stoned, they were sawn asunder, they were tempted, they were slain with the sword: they went about in sheepskins, in goatskins; being destitute, afflicted, ill-treated
+They were stoned. They were sawn apart. They were tempted. They were slain with the sword. They went around in sheep skins and in goat skins; being destitute, afflicted, ill-treated

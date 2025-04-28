@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had spoken the word in Perga, they went down to Attalia;
+When they had spoken the word in Perga, they went down to Attalia.

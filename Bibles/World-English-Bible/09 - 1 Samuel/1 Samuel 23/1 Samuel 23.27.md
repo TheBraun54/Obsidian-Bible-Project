@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there came a messenger unto Saul, saying, Haste thee, and come; for the Philistines have made a raid upon the land.
+But a messenger came to Saul, saying, "Hurry and come; for the Philistines have made a raid on the land!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shalt thou delight thyself in Jehovah; and I will make thee to ride upon the high places of the earth; and I will feed thee with the heritage of Jacob thy father: for the mouth of Jehovah hath spoken it.
+then you shall delight yourself in Yahweh; and I will make you to ride on the high places of the earth; and I will feed you with the heritage of Jacob your father:" for the mouth of Yahweh has spoken it.

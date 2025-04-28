@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from the wilderness of Sin, and encamped in Dophkah.
+They traveled from the wilderness of Sin, and encamped in Dophkah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-this is the interpretation, O king, and it is the decree of the Most High, which is come upon my lord the king:
+this is the interpretation, O king, and it is the decree of the Most High, which is come on my lord the king:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David put garrisons in Syria of Damascus; and the Syrians became servants to David, and brought tribute. And Jehovah gave victory to David whithersoever he went.
+Then David put garrisons in Syria of Damascus; and the Syrians became servants to David, and brought tribute. Yahweh gave victory to David wherever he went.

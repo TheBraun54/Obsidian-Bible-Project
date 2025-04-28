@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw as it were a sea of glass mingled with fire; and them that come off victorious from the beast, and from his image, and from the number of his name, standing by the sea of glass, having harps of God.
+I saw something like a sea of glass mixed with fire, and those who overcame the beast, his image, and the number of his name, standing on the sea of glass, having harps of God.

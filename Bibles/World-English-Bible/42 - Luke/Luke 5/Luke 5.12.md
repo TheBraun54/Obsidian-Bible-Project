@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while he was in one of the cities, behold, a man full of leprosy: and when he saw Jesus, he fell on his face, and besought him, saying, Lord, if thou wilt, thou canst make me clean.
+It happened, while he was in one of the cities, behold, there was a man full of leprosy. When he saw Jesus, he fell on his face, and begged him, saying, "Lord, if you want to, you can make me clean."

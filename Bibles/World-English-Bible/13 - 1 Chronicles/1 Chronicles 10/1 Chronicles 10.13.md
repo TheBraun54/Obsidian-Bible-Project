@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Saul died for his trespass which he committed against Jehovah, because of the word of Jehovah, which he kept not; and also for that he asked counsel of one that had a familiar spirit, to inquire [thereby] ,
+So Saul died for his trespass which he committed against Yahweh, because of the word of Yahweh, which he didn't keep; and also because he asked counsel of one who had a familiar spirit, to inquire [thereby],

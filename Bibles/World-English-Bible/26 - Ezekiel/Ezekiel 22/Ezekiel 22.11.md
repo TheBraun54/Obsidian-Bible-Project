@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one hath committed abomination with his neighbor's wife; and another hath lewdly defiled his daughter-in-law; and another in thee hath humbled his sister, his father's daughter.
+One has committed abomination with his neighbor's wife; and another has lewdly defiled his daughter-in-law; and another in you has humbled his sister, his father's daughter.

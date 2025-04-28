@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with whom was he displeased forty years? was it not with them that sinned, whose bodies fell in the wilderness?
+With whom was he displeased forty years? Wasn't it with those who sinned, whose bodies fell in the wilderness?

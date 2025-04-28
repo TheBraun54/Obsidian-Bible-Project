@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. O Jehovah, thou hast searched me, and known [me] .
+Yahweh, you have searched me, and you know me.

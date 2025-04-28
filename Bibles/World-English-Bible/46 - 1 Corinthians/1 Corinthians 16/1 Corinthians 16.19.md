@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The churches of Asia salute you. Aquila and Prisca salute you much in the Lord, with the church that is in their house.
+The assemblies of Asia greet you. Aquila and Priscilla greet you much in the Lord, together with the assembly that is in their house.

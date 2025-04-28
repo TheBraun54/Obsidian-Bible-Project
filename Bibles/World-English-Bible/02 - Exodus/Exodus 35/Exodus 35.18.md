@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the pins of the tabernacle, and the pins of the court, and their cords;
+the pins of the tabernacle, the pins of the court, and their cords;

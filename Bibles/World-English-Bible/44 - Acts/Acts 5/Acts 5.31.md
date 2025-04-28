@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Him did God exalt with his right hand [to be] a Prince and a Saviour, to give repentance to Israel, and remission of sins.
+God exalted him with his right hand to be a Prince and a Savior, to give repentance to Israel, and remission of sins.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the sole of the foot even unto the head there is no soundness in it; [but] wounds, and bruises, and fresh stripes: they have not been closed, neither bound up, neither mollified with oil.
+From the sole of the foot even to the head there is no soundness in it: wounds, welts, and open sores. They haven't been closed, neither bandaged, neither soothed with oil.

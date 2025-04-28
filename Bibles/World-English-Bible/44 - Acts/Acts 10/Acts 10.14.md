@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter said, Not so, Lord; for I have never eaten anything that is common and unclean.
+But Peter said, "Not so, Lord; for I have never eaten anything that is common or unclean."

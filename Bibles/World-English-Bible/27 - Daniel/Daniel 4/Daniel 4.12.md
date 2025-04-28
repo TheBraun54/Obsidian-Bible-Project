@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The leaves thereof were fair, and the fruit thereof much, and in it was food for all: the beasts of the field had shadow under it, and the birds of the heavens dwelt in the branches thereof, and all flesh was fed from it.
+The leaves of it were beautiful, and its fruit much, and in it was food for all: the animals of the field had shadow under it, and the birds of the sky lived in its branches, and all flesh was fed from it.

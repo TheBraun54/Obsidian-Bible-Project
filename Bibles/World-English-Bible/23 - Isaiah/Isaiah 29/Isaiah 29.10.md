@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath poured out upon you the spirit of deep sleep, and hath closed your eyes, the prophets; and your heads, the seers, hath he covered.
+For Yahweh has poured out on you a spirit of deep sleep, and has closed your eyes, the prophets; and he has covered your heads, the seers.

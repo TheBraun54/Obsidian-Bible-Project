@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when John had first preached before his coming the baptism of repentance to all the people of Israel.
+before his coming, when John had first preached the baptism of repentance to Israel.

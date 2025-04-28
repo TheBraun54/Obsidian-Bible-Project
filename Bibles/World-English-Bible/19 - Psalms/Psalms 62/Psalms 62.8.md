@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trust in him at all times, ye people; Pour out your heart before him: God is a refuge for us. {{Selah
+Trust in him at all times, you people. Pour out your heart before him. God is a refuge for us. Selah.

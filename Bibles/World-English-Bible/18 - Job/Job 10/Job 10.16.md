@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if [my head] exalt itself, thou huntest me as a lion; And again thou showest thyself marvellous upon me.
+If my head is held high, you hunt me like a lion. Again you show yourself powerful to me.

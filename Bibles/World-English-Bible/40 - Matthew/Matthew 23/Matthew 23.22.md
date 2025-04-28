@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that sweareth by the heaven, sweareth by the throne of God, and by him that sitteth thereon.
+He who swears by heaven, swears by the throne of God, and by him who sits on it.

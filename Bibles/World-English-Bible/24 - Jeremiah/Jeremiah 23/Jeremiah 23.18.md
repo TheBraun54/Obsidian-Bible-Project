@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who hath stood in the council of Jehovah, that he should perceive and hear his word? who hath marked my word, and heard it?
+For who has stood in the council of Yahweh, that he should perceive and hear his word? who has marked my word, and heard it?

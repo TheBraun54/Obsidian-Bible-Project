@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mandrakes give forth fragrance; And at our doors are all manner of precious fruits, new and old, Which I have laid up for thee, O my beloved.
+The mandrakes give forth fragrance. At our doors are all kinds of precious fruits, new and old, which I have stored up for you, my beloved.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Punon, and encamped in Oboth.
+They traveled from Punon, and encamped in Oboth.

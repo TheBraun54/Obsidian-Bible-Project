@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the cloud began to arise up out of the city in a pillar of smoke, the Benjamites looked behind them; and, behold, the whole of the city went up [in smoke] to heaven.
+But when the cloud began to arise up out of the city in a pillar of smoke, the Benjamites looked behind them; and behold, the whole of the city went up in smoke to the sky.

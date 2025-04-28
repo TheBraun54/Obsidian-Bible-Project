@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he reasoned of righteousness, and self-control, and the judgment to come, Felix was terrified, and answered, Go thy way for this time; and when I have a convenient season, I will call thee unto me.
+As he reasoned about righteousness, self-control, and the judgment to come, Felix was terrified, and answered, "Go your way for this time, and when it is convenient for me, I will summon you."

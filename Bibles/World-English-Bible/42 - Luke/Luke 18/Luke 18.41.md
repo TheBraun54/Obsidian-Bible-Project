@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What wilt thou that I should do unto thee? And he said, Lord, that I may receive my sight.
+"What do you want me to do?" He said, "Lord, that I may see again."

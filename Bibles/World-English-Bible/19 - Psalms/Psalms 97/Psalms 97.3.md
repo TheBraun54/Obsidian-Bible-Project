@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fire goeth before him, And burneth up his adversaries round about.
+A fire goes before him, and burns up his adversaries on every side.

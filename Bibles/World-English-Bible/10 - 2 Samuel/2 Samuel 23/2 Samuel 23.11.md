@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him was Shammah the son of Agee a Hararite. And the Philistines were gathered together into a troop, where was a plot of ground full of lentils; and the people fled from the Philistines.
+After him was Shammah the son of Agee a Hararite. The Philistines were gathered together into a troop, where there was a plot of ground full of lentils; and the people fled from the Philistines.

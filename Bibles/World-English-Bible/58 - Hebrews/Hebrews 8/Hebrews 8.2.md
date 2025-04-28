@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a minister of the sanctuary, and of the true tabernacle, which the Lord pitched, not man.
+a servant of the sanctuary, and of the true tabernacle, which the Lord pitched, not man.

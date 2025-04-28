@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give [instruction] to a wise man, and he will be yet wiser: Teach a righteous man, and he will increase in learning.
+Instruct a wise man, and he will be still wiser. Teach a righteous man, and he will increase in learning.

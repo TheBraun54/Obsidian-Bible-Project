@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Folly is joy to him that is void of wisdom; But a man of understanding maketh straight his going.
+Folly is joy to one who is void of wisdom, but a man of understanding keeps his way straight.

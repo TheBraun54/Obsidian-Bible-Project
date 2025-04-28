@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus rebuked him, saying, Hold thy peace, and come out of him.
+Jesus rebuked him, saying, "Be quiet, and come out of him!"

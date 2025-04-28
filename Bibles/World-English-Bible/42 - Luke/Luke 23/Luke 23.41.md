@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we indeed justly; for we receive the due reward of our deeds: but this man hath done nothing amiss.
+And we indeed justly, for we receive the due reward for our deeds, but this man has done nothing wrong."

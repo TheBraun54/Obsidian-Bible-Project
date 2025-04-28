@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did so, and put them out without the camp; as Jehovah spake unto Moses, so did the children of Israel.
+The children of Israel did so, and put them out outside of the camp; as Yahweh spoke to Moses, so did the children of Israel.

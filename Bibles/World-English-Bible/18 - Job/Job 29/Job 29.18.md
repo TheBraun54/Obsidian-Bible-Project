@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I said, I shall die in my nest, And I shall multiply my days as the sand:
+Then I said, 'I shall die in my own house, I shall number my days as the sand.

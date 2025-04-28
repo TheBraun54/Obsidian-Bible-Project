@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the chiefs that came of the Horites: chief Lotan, chief Shobal, chief Zibeon, chief Anah,
+These are the chiefs who came of the Horites: chief Lotan, chief Shobal, chief Zibeon, chief Anah,

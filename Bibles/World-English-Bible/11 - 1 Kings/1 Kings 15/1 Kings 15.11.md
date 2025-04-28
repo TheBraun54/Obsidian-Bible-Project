@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Asa did that which was right in the eyes of Jehovah, as did David his father.
+Asa did that which was right in the eyes of Yahweh, as did David his father.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With her much fair speech she causeth him to yield; With the flattering of her lips she forceth him along.
+With persuasive words, she led him astray. With the flattering of her lips, she seduced him.

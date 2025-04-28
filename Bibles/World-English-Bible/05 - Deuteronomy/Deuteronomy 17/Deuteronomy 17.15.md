@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt surely set him king over thee, whom Jehovah thy God shall choose: one from among thy brethren shalt thou set king over thee; thou mayest not put a foreigner over thee, who is not thy brother.
+you shall surely set him king over yourselves, whom Yahweh your God shall choose: one from among your brothers you shall set king over you; you may not put a foreigner over you, who is not your brother.

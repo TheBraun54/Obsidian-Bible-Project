@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, even thou, art to be feared; And who may stand in thy sight when once thou art angry?
+You, even you, are to be feared. Who can stand in your sight when you are angry?

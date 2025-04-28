@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man's pride shall bring him low; But he that is of a lowly spirit shall obtain honor.
+A man's pride brings him low, but one of lowly spirit gains honor.

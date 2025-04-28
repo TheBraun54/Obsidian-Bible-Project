@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there I will meet with the children of Israel; and [the Tent] shall be sanctified by my glory.
+There I will meet with the children of Israel; and the place shall be sanctified by my glory.

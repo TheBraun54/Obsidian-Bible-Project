@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Gibeon, ninety and five.
+The children of Gibeon, ninety-five.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But David took not the number of them from twenty years old and under, because Jehovah had said he would increase Israel like to the stars of heaven.
+But David didn't take the number of them from twenty years old and under, because Yahweh had said he would increase Israel like the stars of the sky.

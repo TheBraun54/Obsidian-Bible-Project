@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, We neither received letters from Judaea concerning thee, nor did any of the brethren come hither and report or speak any harm of thee.
+They said to him, "We neither received letters from Judea concerning you, nor did any of the brothers come here and report or speak any evil of you.

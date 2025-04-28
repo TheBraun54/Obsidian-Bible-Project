@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We give thanks to God always for you all, making mention [of you] in our prayers;
+We always give thanks to God for all of you, mentioning you in our prayers,

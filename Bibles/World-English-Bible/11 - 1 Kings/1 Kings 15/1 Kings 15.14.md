@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the high places were not taken away: nevertheless the heart of Asa was perfect with Jehovah all his days.
+But the high places were not taken away: nevertheless the heart of Asa was perfect with Yahweh all his days.

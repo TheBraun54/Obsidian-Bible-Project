@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob sent messengers before him to Esau his brother unto the land of Seir, the field of Edom.
+Jacob sent messengers in front of him to Esau, his brother, to the land of Seir, the field of Edom.

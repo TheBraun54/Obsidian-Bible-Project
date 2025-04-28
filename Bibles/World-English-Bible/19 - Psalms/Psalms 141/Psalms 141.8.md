@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For mine eyes are unto thee, O Jehovah the Lord: In thee do I take refuge; leave not my soul destitute.
+For my eyes are on you, Yahweh, the Lord. In you, I take refuge. Don't leave my soul destitute.

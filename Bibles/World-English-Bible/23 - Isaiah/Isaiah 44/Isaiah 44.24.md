@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, thy Redeemer, and he that formed thee from the womb: I am Jehovah, that maketh all things; that stretcheth forth the heavens alone; that spreadeth abroad the earth (who is with me?);
+Thus says Yahweh, your Redeemer, and he who formed you from the womb: "I am Yahweh, who makes all things; who alone stretches out the heavens; who spreads out the earth by myself;

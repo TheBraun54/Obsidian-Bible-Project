@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they troubled the multitude and the rulers of the city, when they heard these things.
+The multitude and the rulers of the city were troubled when they heard these things.

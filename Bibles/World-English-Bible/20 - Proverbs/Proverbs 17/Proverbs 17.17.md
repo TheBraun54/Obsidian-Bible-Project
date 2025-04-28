@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A friend loveth at all times; And a brother is born for adversity.
+A friend loves at all times; and a brother is born for adversity.

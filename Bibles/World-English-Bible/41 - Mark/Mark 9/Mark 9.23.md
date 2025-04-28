@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, If thou canst! All things are possible to him that believeth.
+Jesus said to him, "If you can believe, all things are possible to him who believes."

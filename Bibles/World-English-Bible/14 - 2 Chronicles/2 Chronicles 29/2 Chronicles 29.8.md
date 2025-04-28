@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore the wrath of Jehovah was upon Judah and Jerusalem, and he hath delivered them to be tossed to and fro, to be an astonishment, and a hissing, as ye see with your eyes.
+Therefore the wrath of Yahweh was on Judah and Jerusalem, and he has delivered them to be tossed back and forth, to be an astonishment, and a hissing, as you see with your eyes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came unto the region about the Jordan, that is in the land of Canaan, the children of Reuben and the children of Gad and the half-tribe of Manasseh built there an altar by the Jordan, a great altar to look upon.
+When they came to the region about the Jordan, that is in the land of Canaan, the children of Reuben and the children of Gad and the half-tribe of Manasseh built there an altar by the Jordan, a great altar to look at.

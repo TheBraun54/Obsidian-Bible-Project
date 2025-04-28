@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God saw the children of Israel, and God took knowledge [of them] .
+God saw the children of Israel, and God was concerned about them.

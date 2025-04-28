@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And account that the longsuffering of our Lord is salvation; even as our beloved brother Paul also, according to the wisdom given to him, wrote unto you;
+Regard the patience of our Lord as salvation; even as our beloved brother Paul also, according to the wisdom given to him, wrote to you;

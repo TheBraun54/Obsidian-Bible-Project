@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Aaron, saying, Whosoever he be of thy seed throughout their generations that hath a blemish, let him not approach to offer the bread of his God.
+"Say to Aaron, 'None of your seed throughout their generations who has a blemish, may approach to offer the bread of his God.

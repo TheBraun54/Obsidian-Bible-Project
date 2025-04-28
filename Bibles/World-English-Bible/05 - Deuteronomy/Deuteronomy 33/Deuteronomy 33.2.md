@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Jehovah came from Sinai, And rose from Seir unto them; He shined forth from mount Paran, And he came from the ten thousands of holy ones: At his right hand was a fiery law for them.
+He said, "Yahweh came from Sinai, And rose from Seir to them. He shone forth from Mount Paran. He came from the ten thousands of holy ones. At his right hand was a fiery law for them.

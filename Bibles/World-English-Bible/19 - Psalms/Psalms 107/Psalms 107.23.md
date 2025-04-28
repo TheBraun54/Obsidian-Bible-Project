@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that go down to the sea in ships, That do business in great waters;
+Those who go down to the sea in ships, who do business in great waters;

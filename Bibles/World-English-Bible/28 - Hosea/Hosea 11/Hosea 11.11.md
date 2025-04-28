@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall come trembling as a bird out of Egypt, and as a dove out of the land of Assyria; and I will make them to dwell in their houses, saith Jehovah.
+They will come trembling like a bird out of Egypt, and like a dove out of the land of Assyria; and I will settle them in their houses," says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Rehoboam made in their stead shields of brass, and committed them to the hands of the captains of the guard, that kept the door of the king's house.
+King Rehoboam made in their place shields of brass, and committed them to the hands of the captains of the guard, who kept the door of the king's house.

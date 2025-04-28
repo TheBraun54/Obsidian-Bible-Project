@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lot came out for the families of the Kohathites: and the children of Aaron the priest, who were of the Levites, had by lot out of the tribe of Judah, and out of the tribe of the Simeonites, and out of the tribe of Benjamin, thirteen cities.
+The lot came out for the families of the Kohathites. The children of Aaron the priest, who were of the Levites, had thirteen cities by lot out of the tribe of Judah, out of the tribe of the Simeonites, and out of the tribe of Benjamin.

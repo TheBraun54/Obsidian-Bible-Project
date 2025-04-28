@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Furthermore Jehovah spake unto me, saying, I have seen this people, and, behold, it is a stiffnecked people:
+Furthermore Yahweh spoke to me, saying, "I have seen this people, and behold, it is a stiff-necked people:

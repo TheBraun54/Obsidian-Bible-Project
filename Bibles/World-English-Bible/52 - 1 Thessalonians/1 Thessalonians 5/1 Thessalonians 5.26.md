@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute all the brethren with a holy kiss.
+Greet all the brothers with a holy kiss.

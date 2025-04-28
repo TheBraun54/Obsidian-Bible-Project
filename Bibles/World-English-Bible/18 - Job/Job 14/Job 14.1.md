@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Man, that is born of a woman, Is of few days, and full of trouble.
+"Man, who is born of a woman, is of few days, and full of trouble.

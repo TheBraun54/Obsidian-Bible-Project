@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How fair and how pleasant art thou, O love, for delights!
+How beautiful and how pleasant you are, love, for delights!

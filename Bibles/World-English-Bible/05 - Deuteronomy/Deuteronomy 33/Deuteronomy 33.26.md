@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is none like unto God, O Jeshurun, Who rideth upon the heavens for thy help, And in his excellency on the skies.
+"There is none like God, Jeshurun, who rides on the heavens for your help, In his excellency on the skies.

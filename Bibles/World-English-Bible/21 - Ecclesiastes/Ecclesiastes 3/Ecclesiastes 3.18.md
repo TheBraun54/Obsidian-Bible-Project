@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said in my heart, [It is] because of the sons of men, that God may prove them, and that they may see that they themselves are [but as] beasts.
+I said in my heart, "As for the sons of men, God tests them, so that they may see that they themselves are like animals.

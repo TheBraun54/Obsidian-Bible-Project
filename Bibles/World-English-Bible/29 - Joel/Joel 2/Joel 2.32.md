@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that whosoever shall call on the name of Jehovah shall be delivered; for in mount Zion and in Jerusalem there shall be those that escape, as Jehovah hath said, and among the remnant those whom Jehovah doth call.
+It will happen that whoever will call on the name of Yahweh shall be saved; for in Mount Zion and in Jerusalem there will be those who escape, as Yahweh has said, and among the remnant, those whom Yahweh calls.

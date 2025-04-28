@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the children of Ammon saw that they were become odious to David, the children of Ammon sent and hired the Syrians of Beth-rehob, and the Syrians of Zobah, twenty thousand footmen, and the king of Maacah with a thousand men, and the men of Tob twelve thousand men.
+When the children of Ammon saw that they were become odious to David, the children of Ammon sent and hired the Syrians of Beth Rehob, and the Syrians of Zobah, twenty thousand footmen, and the king of Maacah with one thousand men, and the men of Tob twelve thousand men.

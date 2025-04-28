@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Prophesy unto us, thou Christ: who is he that struck thee?
+saying, "Prophesy to us, you Christ! Who hit you?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was war between Rehoboam and Jeroboam continually.
+There was war between Rehoboam and Jeroboam continually.

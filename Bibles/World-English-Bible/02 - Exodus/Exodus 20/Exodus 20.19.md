@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto Moses, Speak thou with us, and we will hear; but let not God speak with us, lest we die.
+They said to Moses, "Speak with us yourself, and we will listen; but don't let God speak with us, lest we die."

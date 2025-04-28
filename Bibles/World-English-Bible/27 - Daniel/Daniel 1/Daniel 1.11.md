@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Daniel to the steward whom the prince of the eunuchs had appointed over Daniel, Hananiah, Mishael, and Azariah:
+Then Daniel said to the steward whom the prince of the eunuchs had appointed over Daniel, Hananiah, Mishael, and Azariah:

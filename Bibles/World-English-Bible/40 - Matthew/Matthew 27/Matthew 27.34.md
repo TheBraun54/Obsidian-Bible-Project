@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they gave him wine to drink mingled with gall: and when he had tasted it, he would not drink.
+They gave him sour wine to drink mixed with gall. When he had tasted it, he would not drink.

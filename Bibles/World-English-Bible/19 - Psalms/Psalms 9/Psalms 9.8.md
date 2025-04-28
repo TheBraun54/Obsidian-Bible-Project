@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will judge the world in righteousness, He will minister judgment to the peoples in uprightness.
+He will judge the world in righteousness. He will administer judgment to the peoples in uprightness.

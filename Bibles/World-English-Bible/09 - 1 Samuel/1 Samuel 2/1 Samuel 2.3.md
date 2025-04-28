@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Talk no more so exceeding proudly; Let not arrogancy come out of your mouth; For Jehovah is a God of knowledge, And by him actions are weighed.
+"Talk no more so exceeding proudly. Don't let arrogance come out of your mouth, For Yahweh is a God of knowledge. By him actions are weighed.

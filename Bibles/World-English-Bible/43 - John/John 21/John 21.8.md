@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the other disciples came in the little boat (for they were not far from the land, but about two hundred cubits off), dragging the net [full] of fishes.
+But the other disciples came in the little boat (for they were not far from the land, but about two hundred cubits away), dragging the net full of fish.

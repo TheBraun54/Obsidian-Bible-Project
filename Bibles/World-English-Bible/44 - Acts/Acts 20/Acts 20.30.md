@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and from among your own selves shall men arise, speaking perverse things, to draw away the disciples after them.
+Men will arise from among your own selves, speaking perverse things, to draw away the disciples after them.

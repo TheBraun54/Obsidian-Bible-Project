@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall eat up thy harvest, and thy bread, [which] thy sons and thy daughters should eat; they shall eat up thy flocks and thy herds; they shall eat up thy vines and thy fig-trees; they shall beat down thy fortified cities, wherein thou trustest, with the sword.
+They shall eat up your harvest, and your bread, [which] your sons and your daughters should eat. They shall eat up your flocks and your herds. They shall eat up your vines and your fig trees. They shall beat down your fortified cities, in which you trust, with the sword.

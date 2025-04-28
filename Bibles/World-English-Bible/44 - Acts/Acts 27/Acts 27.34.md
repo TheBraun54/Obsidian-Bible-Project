@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I beseech you to take some food: for this is for your safety: for there shall not a hair perish from the head of any of you.
+Therefore I beg you to take some food, for this is for your safety; for not a hair will perish from any of your heads."

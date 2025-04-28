@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Ebed-melech the Ethiopian, a eunuch, who was in the king's house, heard that they had put Jeremiah in the dungeon (the king then sitting in the gate of Benjamin,)
+Now when Ebedmelech the Ethiopian, a eunuch, who was in the king's house, heard that they had put Jeremiah in the dungeon (the king then sitting in the gate of Benjamin),

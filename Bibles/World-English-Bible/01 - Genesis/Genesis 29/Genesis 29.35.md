@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she conceived again, and bare a son: and she said, This time will I praise Jehovah: therefore she called his name Judah; and she left off bearing.
+She conceived again, and bore a son. She said, "This time will I praise Yahweh." Therefore she named him Judah. Then she stopped bearing.

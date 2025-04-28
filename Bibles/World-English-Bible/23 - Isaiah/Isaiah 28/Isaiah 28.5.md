@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day will Jehovah of hosts become a crown of glory, and a diadem of beauty, unto the residue of his people;
+In that day, Yahweh of Armies will become a crown of glory, and a diadem of beauty, to the residue of his people;

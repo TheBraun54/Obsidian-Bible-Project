@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bless Jehovah, ye his angels, That are mighty in strength, that fulfil his word, Hearkening unto the voice of his word.
+Praise Yahweh, you angels of his, who are mighty in strength, who fulfill his word, obeying the voice of his word.

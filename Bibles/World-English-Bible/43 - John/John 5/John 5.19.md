@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore answered and said unto them, Verily, verily, I say unto you, The Son can do nothing of himself, but what he seeth the Father doing: for what things soever he doeth, these the Son also doeth in like manner.
+Jesus therefore answered them, "Most certainly, I tell you, the Son can do nothing of himself, but what he sees the Father doing. For whatever things he does, these the Son also does likewise.

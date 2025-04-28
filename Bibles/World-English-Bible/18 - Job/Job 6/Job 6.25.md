@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How forcible are words of uprightness! But your reproof, what doth it reprove?
+How forcible are words of uprightness! But your reproof, what does it reprove?

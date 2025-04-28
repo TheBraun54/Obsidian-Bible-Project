@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell us therefore, What thinkest thou? Is it lawful to give tribute unto Caesar, or not?
+Tell us therefore, what do you think? Is it lawful to pay taxes to Caesar, or not?"

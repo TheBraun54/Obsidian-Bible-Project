@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Because ye are turbulent more than the nations that are round about you, and have not walked in my statutes, neither have kept mine ordinances, neither have done after the ordinances of the nations that are round about you;
+Therefore thus says the Lord Yahweh: Because you are turbulent more than the nations that are around you, and have not walked in my statutes, neither have kept my ordinances, neither have done after the ordinances of the nations that are around you;

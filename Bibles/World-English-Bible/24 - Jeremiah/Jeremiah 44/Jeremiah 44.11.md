@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah of hosts, the God of Israel: Behold, I will set my face against you for evil, even to cut off all Judah.
+Therefore thus says Yahweh of Armies, the God of Israel: Behold, I will set my face against you for evil, even to cut off all Judah.

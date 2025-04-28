@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then laid they their hands on them, and they received the Holy Spirit.
+Then they laid their hands on them, and they received the Holy Spirit.

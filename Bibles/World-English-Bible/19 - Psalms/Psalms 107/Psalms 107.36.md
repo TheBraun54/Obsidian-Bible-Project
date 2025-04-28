@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there he maketh the hungry to dwell, That they may prepare a city of habitation,
+There he makes the hungry live, that they may prepare a city to live in,

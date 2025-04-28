@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for Aaron's sons thou shalt make coats, and thou shalt make for them girdles, and head-tires shalt thou make for them, for glory and for beauty.
+"You shall make coats for Aaron's sons, and you shall make sashes for them and you shall make headbands for them, for glory and for beauty.

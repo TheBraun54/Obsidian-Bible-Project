@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom set Amasa over the host instead of Joab. Now Amasa was the son of a man, whose name was Ithra the Israelite, that went in to Abigal the daughter of Nahash, sister to Zeruiah, Joab's mother.
+Absalom set Amasa over the army instead of Joab. Now Amasa was the son of a man, whose name was Ithra the Israelite, who went in to Abigail the daughter of Nahash, sister to Zeruiah, Joab's mother.

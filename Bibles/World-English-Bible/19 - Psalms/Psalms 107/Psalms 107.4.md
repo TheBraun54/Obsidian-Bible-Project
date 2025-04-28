@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They wandered in the wilderness in a desert way; They found no city of habitation.
+They wandered in the wilderness in a desert way. They found no city to live in.

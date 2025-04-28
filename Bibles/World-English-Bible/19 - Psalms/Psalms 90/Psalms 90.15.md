@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make us glad according to the days wherein thou hast afflicted us, And the years wherein we have seen evil.
+Make us glad for as many days as you have afflicted us, for as many years as we have seen evil.

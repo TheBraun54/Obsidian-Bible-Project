@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt fall upon the mountains of Israel, thou, and all thy hordes, and the peoples that are with thee: I will give thee unto the ravenous birds of every sort, and to the beasts of the field to be devoured.
+You shall fall on the mountains of Israel, you, and all your hordes, and the peoples who are with you: I will give you to the ravenous birds of every sort, and to the animals of the field to be devoured.

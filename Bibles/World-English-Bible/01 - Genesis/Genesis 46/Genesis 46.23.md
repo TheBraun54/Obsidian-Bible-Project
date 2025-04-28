@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Dan: Hushim.
+The son of Dan: Hushim.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was cedar on the house within, carved with knops and open flowers: all was cedar; there was no stone seen.
+There was cedar on the house within, carved with buds and open flowers: all was cedar; there was no stone seen.

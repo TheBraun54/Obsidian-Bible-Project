@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the owner thereof be with it, he shall not make it good: if it be a hired thing, it came for its hire.
+If its owner is with it, he shall not make it good. If it is a leased thing, it came for its lease.

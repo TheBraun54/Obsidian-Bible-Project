@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate therefore said unto them, Take him yourselves, and judge him according to your law. The Jews said unto him, It is not lawful for us to put any man to death:
+Pilate therefore said to them, "Take him yourselves, and judge him according to your law." Therefore the Jews said to him, "It is not lawful for us to put anyone to death,"

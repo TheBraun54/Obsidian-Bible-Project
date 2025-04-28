@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were seven sons of one Sceva, a Jew, a chief priest, who did this.
+There were seven sons of one Sceva, a Jewish chief priest, who did this.

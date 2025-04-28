@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He cometh forth like a flower, and is cut down: He fleeth also as a shadow, and continueth not.
+He comes forth like a flower, and is cut down. He also flees like a shadow, and doesn't continue.

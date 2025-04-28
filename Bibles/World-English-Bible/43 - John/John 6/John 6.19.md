@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore they had rowed about five and twenty or thirty furlongs, they behold Jesus walking on the sea, and drawing nigh unto the boat: and they were afraid.
+When therefore they had rowed about twenty-five or thirty stadia, they saw Jesus walking on the sea, and drawing near to the boat; and they were afraid.

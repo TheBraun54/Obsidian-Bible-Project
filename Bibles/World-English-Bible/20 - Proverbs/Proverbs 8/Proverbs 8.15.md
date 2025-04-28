@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By me kings reign, And princes decree justice.
+By me kings reign, and princes decree justice.

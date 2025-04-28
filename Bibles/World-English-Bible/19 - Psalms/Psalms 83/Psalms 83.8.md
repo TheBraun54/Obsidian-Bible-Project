@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Assyria also is joined with them; They have helped the children of Lot. {{Selah
+Assyria also is joined with them. They have helped the children of Lot. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I hate the assembly of evil-doers, And will not sit with the wicked.
+I hate the assembly of evildoers, and will not sit with the wicked.

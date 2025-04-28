@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he that betrayed him gave them a sign, saying, Whomsoever I shall kiss, that is he: take him.
+Now he who betrayed him gave them a sign, saying, "Whoever I kiss, he is the one. Seize him."

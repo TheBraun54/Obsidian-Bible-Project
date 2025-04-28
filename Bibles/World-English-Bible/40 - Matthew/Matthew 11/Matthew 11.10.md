@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is he, of whom it is written, Behold, I send my messenger before thy face, Who shall prepare thy way before thee.
+For this is he, of whom it is written, 'Behold, I send my messenger before your face, who will prepare your way before you.'

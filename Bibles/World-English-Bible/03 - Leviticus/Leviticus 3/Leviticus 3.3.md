@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall offer of the sacrifice of peace-offerings an offering made by fire unto Jehovah; the fat that covereth the inwards, and all the fat that is upon the inwards,
+He shall offer of the sacrifice of peace offerings an offering made by fire to Yahweh; the fat that covers the innards, and all the fat that is on the innards,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover, when ye shall divide by lot the land for inheritance, ye shall offer an oblation unto Jehovah, a holy portion of the land; the length shall be the length of five and twenty thousand [reeds], and the breadth shall be ten thousand: it shall be holy in all the border thereof round about.
+Moreover, when you shall divide by lot the land for inheritance, you shall offer an offering to Yahweh, a holy portion of the land; the length shall be the length of twenty-five thousand [reeds], and the breadth shall be ten thousand: it shall be holy in all its border all around.

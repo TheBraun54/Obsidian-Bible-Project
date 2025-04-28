@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah thy God will bless thee, as he promised thee: and thou shalt lend unto many nations, but thou shalt not borrow; and thou shalt rule over many nations, but they shall not rule over thee.
+For Yahweh your God will bless you, as he promised you: and you shall lend to many nations, but you shall not borrow; and you shall rule over many nations, but they shall not rule over you.

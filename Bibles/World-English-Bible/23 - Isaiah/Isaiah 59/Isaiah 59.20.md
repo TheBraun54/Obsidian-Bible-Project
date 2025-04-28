@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a Redeemer will come to Zion, and unto them that turn from transgression in Jacob, saith Jehovah.
+"A Redeemer will come to Zion, and to those who turn from disobedience in Jacob," says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They answered unto him, We are Abraham's seed, and have never yet been in bondage to any man: how sayest thou, Ye shall be made free?
+They answered him, "We are Abraham's seed, and have never been in bondage to anyone. How do you say, 'You will be made free?'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Jews smote all their enemies with the stroke of the sword, and with slaughter and destruction, and did what they would unto them that hated them.
+The Jews struck all their enemies with the stroke of the sword, and with slaughter and destruction, and did what they wanted to those who hated them.

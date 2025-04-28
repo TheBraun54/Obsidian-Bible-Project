@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they shall be made to stumble, their own tongue being against them: All that see them shall wag the head.
+Their own tongues shall ruin them. All who see them will shake their heads.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He said therefore, A certain nobleman went into a far country, to receive for himself a kingdom, and to return.
+He said therefore, "A certain nobleman went into a far country to receive for himself a kingdom, and to return.

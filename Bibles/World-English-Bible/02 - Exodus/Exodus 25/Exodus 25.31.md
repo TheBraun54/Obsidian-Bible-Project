@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a candlestick of pure gold: of beaten work shall the candlestick be made, even its base, and its shaft; its cups, its knops, and its flowers, shall be of one piece with it:
+"You shall make a lampstand of pure gold. Of hammered work shall the lampstand be made, even its base, its shaft, its cups, its buds, and its flowers, shall be of one piece with it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These have one mind, and they give their power and authority unto the beast.
+These have one mind, and they give their power and authority to the beast.

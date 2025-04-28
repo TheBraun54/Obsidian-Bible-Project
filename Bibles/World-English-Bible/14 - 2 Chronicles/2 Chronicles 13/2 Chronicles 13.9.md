@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have ye not driven out the priests of Jehovah, the sons of Aaron, and the Levites, and made you priests after the manner of the peoples of [other] lands? so that whosoever cometh to consecrate himself with a young bullock and seven rams, the same may be a priest of [them that are] no gods.
+Haven't you driven out the priests of Yahweh, the sons of Aaron, and the Levites, and made priests for yourselves after the ways of the peoples of [other] lands? so that whoever comes to consecrate himself with a young bull and seven rams, the same may be a priest of [those who are] no gods.

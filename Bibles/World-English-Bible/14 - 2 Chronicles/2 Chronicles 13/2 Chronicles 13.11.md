@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they burn unto Jehovah every morning and every evening burnt-offerings and sweet incense: the showbread also [set they] in order upon the pure table; and the candlestick of gold with the lamps thereof, to burn every evening: for we keep the charge of Jehovah our God; but ye have forsaken him.
+and they burn to Yahweh every morning and every evening burnt offerings and sweet incense: the show bread also [set they] in order on the pure table; and the lampstand of gold with its lamps, to burn every evening: for we keep the instruction of Yahweh our God; but you have forsaken him.

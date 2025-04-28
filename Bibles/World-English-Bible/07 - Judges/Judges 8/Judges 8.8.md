@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went up thence to Penuel, and spake unto them in like manner; and the men of Penuel answered him as the men of Succoth had answered.
+He went up there to Penuel, and spoke to them in the same way; and the men of Penuel answered him as the men of Succoth had answered.

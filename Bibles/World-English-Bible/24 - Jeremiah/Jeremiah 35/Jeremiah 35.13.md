@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel: Go, and say to the men of Judah and the inhabitants of Jerusalem, Will ye not receive instruction to hearken to my words? saith Jehovah.
+Thus says Yahweh of Armies, the God of Israel: Go, and tell the men of Judah and the inhabitants of Jerusalem, Will you not receive instruction to listen to my words? says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Azariah begat Amariah, and Amariah begat Ahitub,
+and Azariah became the father of Amariah, and Amariah became the father of Ahitub,

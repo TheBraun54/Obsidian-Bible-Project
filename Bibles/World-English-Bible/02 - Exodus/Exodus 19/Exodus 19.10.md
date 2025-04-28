@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Go unto the people, and sanctify them to-day and to-morrow, and let them wash their garments,
+Yahweh said to Moses, "Go to the people, and sanctify them today and tomorrow, and let them wash their garments,

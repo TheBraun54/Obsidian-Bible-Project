@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel wept for Moses in the plains of Moab thirty days: so the days of weeping in the mourning for Moses were ended.
+The children of Israel wept for Moses in the plains of Moab thirty days: so the days of weeping in the mourning for Moses were ended.

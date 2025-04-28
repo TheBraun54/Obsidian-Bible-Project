@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this people hath a revolting and a rebellious heart; they are revolted and gone.
+"But this people has a revolting and a rebellious heart; they have revolted and gone.

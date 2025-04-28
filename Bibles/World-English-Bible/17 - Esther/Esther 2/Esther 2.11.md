@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mordecai walked every day before the court of the women's house, to know how Esther did, and what would become of her.
+Mordecai walked every day in front of the court of the women's house, to find out how Esther did, and what would become of her.

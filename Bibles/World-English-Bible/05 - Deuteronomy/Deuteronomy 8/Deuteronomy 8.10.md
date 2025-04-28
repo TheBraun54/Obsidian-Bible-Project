@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt eat and be full, and thou shalt bless Jehovah thy God for the good land which he hath given thee.
+You shall eat and be full, and you shall bless Yahweh your God for the good land which he has given you.

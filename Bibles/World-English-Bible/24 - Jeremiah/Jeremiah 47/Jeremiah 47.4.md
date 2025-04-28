@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because of the day that cometh to destroy all the Philistines, to cut off from Tyre and Sidon every helper that remaineth: for Jehovah will destroy the Philistines, the remnant of the isle of Caphtor.
+because of the day that comes to destroy all the Philistines, to cut off from Tyre and Sidon every helper who remains: for Yahweh will destroy the Philistines, the remnant of the isle of Caphtor.

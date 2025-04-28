@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto me, Behold, I will make thee fruitful, and multiply thee, and I will make of thee a company of peoples, and will give this land to thy seed after thee for an everlasting possession.
+and said to me, 'Behold, I will make you fruitful, and multiply you, and I will make of you a company of peoples, and will give this land to your seed after you for an everlasting possession.'

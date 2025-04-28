@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and is divided. [So] also the woman that is unmarried and the virgin is careful for the things of the Lord, that she may be holy both in body and in spirit: but she that is married is careful for the things of the world, how she may please her husband.
+There is also a difference between a wife and a virgin. The unmarried woman cares about the things of the Lord, that she may be holy both in body and in spirit. But she who is married cares about the things of the world--how she may please her husband.

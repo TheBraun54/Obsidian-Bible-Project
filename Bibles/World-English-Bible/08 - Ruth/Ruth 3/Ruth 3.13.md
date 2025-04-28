@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tarry this night, and it shall be in the morning, that if he will perform unto thee the part of a kinsman, well; let him do the kinsman's part: but if he will not do the part of a kinsman to thee, then will I do the part of a kinsman to thee, as Jehovah liveth: lie down until the morning.
+Stay this night, and it shall be in the morning, that if he will perform for you the part of a kinsman, well; let him do the kinsman's part. But if he will not do the part of a kinsman for you, then will I do the part of a kinsman for you, as Yahweh lives. Lie down until the morning."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he denied, saying, I neither know, nor understand what thou sayest: and he went out into the porch; and the cock crew.
+But he denied it, saying, "I neither know, nor understand what you are saying." He went out on the porch, and the rooster crowed.

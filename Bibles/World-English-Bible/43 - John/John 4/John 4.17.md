@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The woman answered and said unto him, I have no husband. Jesus saith unto her, Thou saidst well, I have no husband:
+The woman answered, "I have no husband." Jesus said to her, "You said well, 'I have no husband,'

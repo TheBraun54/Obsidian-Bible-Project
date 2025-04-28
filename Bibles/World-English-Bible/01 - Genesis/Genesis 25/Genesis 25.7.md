@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the days of the years of Abraham's life which he lived, a hundred threescore and fifteen years.
+These are the days of the years of Abraham's life which he lived: one hundred seventy-five years.

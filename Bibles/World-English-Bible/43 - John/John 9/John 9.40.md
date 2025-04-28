@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Those of the Pharisees who were with him heard these things, and said unto him, Are we also blind?
+Those of the Pharisees who were with him heard these things, and said to him, "Are we also blind?"

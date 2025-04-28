@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There can be neither Jew nor Greek, there can be neither bond nor free, there can be no male and female; for ye all are one [man] in Christ Jesus.
+There is neither Jew nor Greek, there is neither slave nor free man, there is neither male nor female; for you are all one in Christ Jesus.

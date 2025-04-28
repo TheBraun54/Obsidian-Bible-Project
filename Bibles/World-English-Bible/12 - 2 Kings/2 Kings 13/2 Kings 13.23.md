@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah was gracious unto them, and had compassion on them, and had respect unto them, because of his covenant with Abraham, Isaac, and Jacob, and would not destroy them, neither cast he them from his presence as yet.
+But Yahweh was gracious to them, and had compassion on them, and had respect to them, because of his covenant with Abraham, Isaac, and Jacob, and would not destroy them, neither cast he them from his presence as yet.

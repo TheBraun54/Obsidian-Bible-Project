@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall burn it upon the altar: it is the food of the offering made by fire unto Jehovah.
+The priest shall burn it on the altar: it is the food of the offering made by fire to Yahweh.

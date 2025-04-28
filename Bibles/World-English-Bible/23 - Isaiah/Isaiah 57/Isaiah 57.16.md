@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will not contend for ever, neither will I be always wroth; for the spirit would faint before me, and the souls that I have made.
+For I will not contend forever, neither will I be always angry; for the spirit would faint before me, and the souls who I have made.

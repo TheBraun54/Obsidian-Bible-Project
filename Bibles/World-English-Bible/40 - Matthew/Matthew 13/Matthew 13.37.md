@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, He that soweth the good seed is the Son of man;
+He answered them, "He who sows the good seed is the Son of Man,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hadad, and Tema, Jetur, Naphish, and Kedemah:
+Hadad, Tema, Jetur, Naphish, and Kedemah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom crieth aloud in the street; She uttereth her voice in the broad places;
+Wisdom calls aloud in the street. She utters her voice in the public squares.

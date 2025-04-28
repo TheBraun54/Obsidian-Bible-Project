@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ehud came unto him; and he was sitting by himself alone in the cool upper room. And Ehud said, I have a message from God unto thee. And he arose out of his seat.
+Ehud came to him; and he was sitting by himself alone in the cool upper room. Ehud said, "I have a message from God to you." He arose out of his seat.

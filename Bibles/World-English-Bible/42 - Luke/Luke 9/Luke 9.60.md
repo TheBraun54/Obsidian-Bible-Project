@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto him, Leave the dead to bury their own dead; but go thou and publish abroad the kingdom of God.
+But Jesus said to him, "Leave the dead to bury their own dead, but you go and announce the Kingdom of God."

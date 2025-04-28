@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that which was a temptation to you in my flesh ye despised not, nor rejected; but ye received me as an angel of God, [even] as Christ Jesus.
+That which was a temptation to you in my flesh, you didn't despise nor reject; but you received me as an angel of God, even as Christ Jesus.

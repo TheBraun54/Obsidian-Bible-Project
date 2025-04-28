@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wondrous works in the land of Ham, [And] terrible things by the Red Sea.
+Wondrous works in the land of Ham, and awesome things by the Red Sea.

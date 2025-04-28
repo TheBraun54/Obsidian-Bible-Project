@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-these therefore came to Philip, who was of Bethsaida of Galilee, and asked him, saying, Sir, we would see Jesus.
+These, therefore, came to Philip, who was from Bethsaida of Galilee, and asked him, saying, "Sir, we want to see Jesus."

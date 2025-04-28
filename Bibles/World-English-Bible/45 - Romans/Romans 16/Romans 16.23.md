@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gaius my host, and of the whole church, saluteth you. Erastus the treasurer of the city saluteth you, and Quartus the brother.
+Gaius, my host and host of the whole assembly, greets you. Erastus, the treasurer of the city, greets you, as does Quartus, the brother.

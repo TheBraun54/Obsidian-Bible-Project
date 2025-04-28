@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for the second side of the tabernacle, on the north side, twenty boards,
+For the second side of the tabernacle, on the north side, twenty boards,

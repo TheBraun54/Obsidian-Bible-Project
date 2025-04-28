@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass, while he executed the priest's office before God in the order of his course,
+Now it happened, while he executed the priest's office before God in the order of his division,

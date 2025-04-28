@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they rejected mine ordinances, and walked not in my statutes, and profaned my sabbaths: for their heart went after their idols.
+because they rejected my ordinances, and didn't walk in my statutes, and profaned my Sabbaths: for their heart went after their idols.

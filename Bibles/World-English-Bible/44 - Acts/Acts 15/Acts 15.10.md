@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore why make ye trial of God, that ye should put a yoke upon the neck of the disciples which neither our fathers nor we were able to bear?
+Now therefore why do you tempt God, that you should put a yoke on the neck of the disciples which neither our fathers nor we were able to bear?

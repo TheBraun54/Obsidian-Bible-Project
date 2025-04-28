@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howl, O gate; cry, O city; thou art melted away, O Philistia, all of thee; for there cometh a smoke out of the north, and there is no straggler in his ranks.
+Howl, gate! Cry, city! You are melted away, Philistia, all of you; for smoke comes out of the north, and there is no straggler in his ranks.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say not thou, What is the cause that the former days were better than these? for thou dost not inquire wisely concerning this.
+Don't say, "Why were the former days better than these?" For you do not ask wisely about this.

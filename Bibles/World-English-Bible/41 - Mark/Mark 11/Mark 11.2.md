@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saith unto them, Go your way into the village that is over against you: and straightway as ye enter into it, ye shall find a colt tied, whereon no man ever yet sat; loose him, and bring him.
+and said to them, "Go your way into the village that is opposite you. Immediately as you enter into it, you will find a young donkey tied, on which no one has sat. Untie him, and bring him.

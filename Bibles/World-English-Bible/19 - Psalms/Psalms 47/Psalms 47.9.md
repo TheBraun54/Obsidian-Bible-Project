@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The princes of the peoples are gathered together [To be] the people of the God of Abraham: For the shields of the earth belong unto God; He is greatly exalted.
+The princes of the peoples are gathered together, the people of the God of Abraham. For the shields of the earth belong to God. He is greatly exalted! A Song. A Psalm by the sons of Korah.

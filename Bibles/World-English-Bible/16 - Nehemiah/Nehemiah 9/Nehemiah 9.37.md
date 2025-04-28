@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it yieldeth much increase unto the kings whom thou hast set over us because of our sins: also they have power over our bodies, and over our cattle, at their pleasure, and we are in great distress.
+It yields much increase to the kings whom you have set over us because of our sins: also they have power over our bodies, and over our livestock, at their pleasure, and we are in great distress.

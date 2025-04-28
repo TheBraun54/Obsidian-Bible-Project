@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there arose certain of them that were of the synagogue called [the synagogue] of the Libertines, and of the Cyrenians, and of the Alexandrians, and of them of Cilicia and Asia, disputing with Stephen.
+But some of those who were of the synagogue called "The Libertines," and of the Cyrenians, of the Alexandrians, and of those of Cilicia and Asia arose, disputing with Stephen.

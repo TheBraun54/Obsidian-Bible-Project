@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye shall still do wickedly, ye shall be consumed, both ye and your king.
+But if you shall still do wickedly, you shall be consumed, both you and your king."

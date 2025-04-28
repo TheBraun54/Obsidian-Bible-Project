@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What aileth thee, O thou sea, that thou fleest? Thou Jordan, that thou turnest back?
+What was it, you sea, that you fled? You Jordan, that you turned back?

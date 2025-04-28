@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto God, Who am I, that I should go unto Pharaoh, and that I should bring forth the children of Israel out of Egypt?
+Moses said to God, "Who am I, that I should go to Pharaoh, and that I should bring forth the children of Israel out of Egypt?"

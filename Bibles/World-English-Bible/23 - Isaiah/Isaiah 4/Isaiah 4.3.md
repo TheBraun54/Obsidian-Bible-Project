@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that he that is left in Zion, and he that remaineth in Jerusalem, shall be called holy, even every one that is written among the living in Jerusalem;
+It will happen, that he who is left in Zion, and he who remains in Jerusalem, shall be called holy, even everyone who is written among the living in Jerusalem;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their tongue is a deadly arrow; it speaketh deceit: one speaketh peaceably to his neighbor with his mouth, but in his heart he layeth wait for him.
+Their tongue is a deadly arrow; it speaks deceit: one speaks peaceably to his neighbor with his mouth, but in his heart he lays wait for him.

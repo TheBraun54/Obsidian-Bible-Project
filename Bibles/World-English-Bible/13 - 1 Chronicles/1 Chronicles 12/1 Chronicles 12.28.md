@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zadok, a young man mighty of valor, and of his father's house twenty and two captains.
+and Zadok, a young man mighty of valor, and of his father's house twenty-two captains.

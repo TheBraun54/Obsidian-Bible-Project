@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when I passed by thee, and looked upon thee, behold, thy time was the time of love; and I spread my skirt over thee, and covered thy nakedness: yea, I sware unto thee, and entered into a covenant with thee, saith the Lord Jehovah, and thou becamest mine.
+Now when I passed by you, and looked at you, behold, your time was the time of love; and I spread my skirt over you, and covered your nakedness: yes, I swore to you, and entered into a covenant with you, says the Lord Yahweh, and you became mine.

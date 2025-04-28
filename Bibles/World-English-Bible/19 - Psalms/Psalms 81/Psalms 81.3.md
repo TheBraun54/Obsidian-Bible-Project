@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blow the trumpet at the new moon, At the full moon, on our feast-day.
+Blow the trumpet at the New Moon, at the full moon, on our feast day.

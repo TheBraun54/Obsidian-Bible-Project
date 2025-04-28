@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I was in the ripeness of my days, When the friendship of God was upon my tent;
+as I was in the ripeness of my days, when the friendship of God was in my tent,

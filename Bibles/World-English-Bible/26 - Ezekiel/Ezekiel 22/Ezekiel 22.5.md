@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Those that are near, and those that are far from thee, shall mock thee, thou infamous one [and] full of tumult.
+Those who are near, and those who are far from you, shall mock you, you infamous one [and] full of tumult.

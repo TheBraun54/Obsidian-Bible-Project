@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Haggai and said, So is this people, and so is this nation before me, saith Jehovah; and so is every work of their hands; and that which they offer there is unclean.
+Then Haggai answered, "'So is this people, and so is this nation before me,' says Yahweh; 'and so is every work of their hands. That which they offer there is unclean.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, all the people of the land shall bury them; and it shall be to them a renown in the day that I shall be glorified, saith the Lord Jehovah.
+Yes, all the people of the land shall bury them; and it shall be to them a renown in the day that I shall be glorified, says the Lord Yahweh.

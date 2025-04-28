@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and kept back [part] of the price, his wife also being privy to it, and brought a certain part, and laid it at the apostles' feet.
+and kept back part of the price, his wife also being aware of it, and brought a certain part, and laid it at the apostles' feet.

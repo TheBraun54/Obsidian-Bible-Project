@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, a man will say, Thou hast faith, and I have works: show me thy faith apart from [thy] works, and I by my works will show thee [my] faith.
+Yes, a man will say, "You have faith, and I have works." Show me your faith without works, and I by my works will show you my faith.

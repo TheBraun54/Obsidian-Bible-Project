@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that soweth iniquity shall reap calamity; And the rod of his wrath shall fail.
+He who sows wickedness reaps trouble, and the rod of his fury will be destroyed.

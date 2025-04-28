@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the house of Israel, Thus saith the Lord Jehovah: Behold, I will profane my sanctuary, the pride of your power, the desire of your eyes, and that which your soul pitieth; and your sons and your daughters whom ye have left behind shall fall by the sword.
+Speak to the house of Israel, Thus says the Lord Yahweh: Behold, I will profane my sanctuary, the pride of your power, the desire of your eyes, and that which your soul pities; and your sons and your daughters whom you have left behind shall fall by the sword.

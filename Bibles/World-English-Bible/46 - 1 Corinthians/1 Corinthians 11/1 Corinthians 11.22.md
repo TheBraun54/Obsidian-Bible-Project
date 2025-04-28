@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What, have ye not houses to eat and to drink in? or despise ye the church of God, and put them to shame that have not? What shall I say to you? shall I praise you? In this I praise you not.
+What, don't you have houses to eat and to drink in? Or do you despise God's assembly, and put them to shame who don't have? What shall I tell you? Shall I praise you? In this I don't praise you.

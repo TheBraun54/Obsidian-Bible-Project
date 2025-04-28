@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came over against Gibeah ten thousand chosen men out of all Israel, and the battle was sore; but they knew not that evil was close upon them.
+There came over against Gibeah ten thousand chosen men out of all Israel, and the battle was severe; but they didn't know that evil was close on them.

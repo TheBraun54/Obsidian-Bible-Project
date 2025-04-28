@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah was with Joseph, and showed kindness unto him, and gave him favor in the sight of the keeper of the prison.
+But Yahweh was with Joseph, and showed kindness to him, and gave him favor in the sight of the keeper of the prison.

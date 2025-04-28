@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give a portion to seven, yea, even unto eight; for thou knowest not what evil shall be upon the earth.
+Give a portion to seven, yes, even to eight; for you don't know what evil will be on the earth.

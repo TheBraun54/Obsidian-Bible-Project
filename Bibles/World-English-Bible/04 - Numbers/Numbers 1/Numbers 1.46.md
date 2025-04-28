@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even all they that were numbered were six hundred thousand and three thousand and five hundred and fifty.
+even all those who were numbered were six hundred three thousand five hundred fifty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, Jehovah maketh the earth empty, and maketh it waste, and turneth it upside down, and scattereth abroad the inhabitants thereof.
+Behold, Yahweh makes the earth empty, makes it waste, turns it upside down, and scatters its inhabitants.

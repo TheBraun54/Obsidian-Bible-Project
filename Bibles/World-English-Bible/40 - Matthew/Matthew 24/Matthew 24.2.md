@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said unto them, See ye not all these things? verily I say unto you, There shall not be left here one stone upon another, that shall not be thrown down.
+But he answered them, "You see all of these things, don't you? Most certainly I tell you, there will not be left here one stone on another, that will not be thrown down."

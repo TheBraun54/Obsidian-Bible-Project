@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they eat the bread of wickedness, And drink the wine of violence.
+For they eat the bread of wickedness, and drink the wine of violence.

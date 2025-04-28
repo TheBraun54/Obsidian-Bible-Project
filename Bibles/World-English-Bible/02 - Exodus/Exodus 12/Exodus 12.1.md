@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses and Aaron in the land of Egypt, saying,
+Yahweh spoke to Moses and Aaron in the land of Egypt, saying,

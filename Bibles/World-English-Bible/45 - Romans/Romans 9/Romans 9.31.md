@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Israel, following after a law of righteousness, did not arrive at [that] law.
+but Israel, following after a law of righteousness, didn't arrive at the law of righteousness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ain with its suburbs, and Juttah with its suburbs, [and] Beth-shemesh with its suburbs; nine cities out of those two tribes.
+Ain with its suburbs, Juttah with its suburbs, and Beth Shemesh with its suburbs; nine cities out of those two tribes.

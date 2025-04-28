@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The waters wear the stones; The overflowings thereof wash away the dust of the earth: So thou destroyest the hope of man.
+The waters wear the stones. The torrents of it wash away the dust of the earth. So you destroy the hope of man.

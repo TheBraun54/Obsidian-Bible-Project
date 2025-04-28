@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the lowland, Eshtaol, and Zorah, and Ashnah,
+In the lowland, Eshtaol, Zorah, Ashnah,

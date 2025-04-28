@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look, after that the plague is washed; and, behold, if the plague have not changed its color, and the plague be not spread, it is unclean; thou shalt burn it in the fire: it is a fret, whether the bareness be within or without.
+Then the priest shall examine it, after the plague is washed; and behold, if the plague hasn't changed its color, and the plague hasn't spread, it is unclean; you shall burn it in the fire. It is a mildewed spot, whether the bareness is inside or outside.

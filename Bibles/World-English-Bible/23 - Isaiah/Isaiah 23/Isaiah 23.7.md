@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is this your joyous [city], whose antiquity is of ancient days, whose feet carried her afar off to sojourn?
+Is this your joyous city, whose antiquity is of ancient days, whose feet carried her far away to travel?

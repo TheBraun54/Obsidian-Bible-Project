@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is my commandment, that ye love one another, even as I have loved you.
+"This is my commandment, that you love one another, even as I have loved you.

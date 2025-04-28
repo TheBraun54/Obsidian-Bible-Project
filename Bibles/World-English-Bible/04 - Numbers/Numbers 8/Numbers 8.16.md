@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they are wholly given unto me from among the children of Israel; instead of all that openeth the womb, even the first-born of all the children of Israel, have I taken them unto me.
+For they are wholly given to me from among the children of Israel; instead of all who open the womb, even the firstborn of all the children of Israel, I have taken them to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to reveal his Son in me, that I might preach him among the Gentiles; straightway I conferred not with flesh and blood:
+to reveal his Son in me, that I might preach him among the Gentiles, I didn't immediately confer with flesh and blood,

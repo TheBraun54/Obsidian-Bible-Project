@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But put forth thy hand now, and touch his bone and his flesh, and he will renounce thee to thy face.
+But put forth your hand now, and touch his bone and his flesh, and he will renounce you to your face."

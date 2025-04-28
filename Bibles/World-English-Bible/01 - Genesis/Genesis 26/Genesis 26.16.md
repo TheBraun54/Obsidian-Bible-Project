@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech said unto Isaac, Go from us; for thou art much mightier than we.
+Abimelech said to Isaac, "Go from us, for you are much mightier than we."

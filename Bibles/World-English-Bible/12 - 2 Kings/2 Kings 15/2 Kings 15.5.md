@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah smote the king, so that he was a leper unto the day of his death, and dwelt in a separate house. And Jotham the king's son was over the household, judging the people of the land.
+Yahweh struck the king, so that he was a leper to the day of his death, and lived in a separate house. Jotham the king's son was over the household, judging the people of the land.

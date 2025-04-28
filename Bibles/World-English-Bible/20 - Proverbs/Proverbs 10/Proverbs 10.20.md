@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tongue of the righteous is [as] choice silver: The heart of the wicked is little worth.
+The tongue of the righteous is like choice silver. The heart of the wicked is of little worth.

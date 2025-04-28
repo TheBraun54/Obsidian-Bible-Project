@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Thou hast saved our lives: let us find favor in the sight of my lord, and we will be Pharaoh's servants.
+They said, "You have saved our lives! Let us find favor in the sight of my lord, and we will be Pharaoh's servants."

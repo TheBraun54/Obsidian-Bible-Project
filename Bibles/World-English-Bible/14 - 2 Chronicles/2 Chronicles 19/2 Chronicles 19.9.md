@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged them, saying, Thus shall ye do in the fear of Jehovah, faithfully, and with a perfect heart.
+He commanded them, saying, "Thus you shall do in the fear of Yahweh, faithfully, and with a perfect heart.

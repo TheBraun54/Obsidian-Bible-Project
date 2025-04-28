@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath an ear, let him hear what the Spirit saith to the churches. To him that overcometh, to him will I give to eat of the tree of life, which is in the Paradise of God.
+He who has an ear, let him hear what the Spirit says to the assemblies. To him who overcomes I will give to eat of the tree of life, which is in the Paradise of my God.

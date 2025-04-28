@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The length of each curtain was eight and twenty cubits, and the breadth of each curtain four cubits: all the curtains had one measure.
+The length of each curtain was twenty-eight cubits, and the breadth of each curtain four cubits. All the curtains had one measure.

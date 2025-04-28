@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel answering said unto him, I am Gabriel, that stand in the presence of God; and I was sent to speak unto thee, and to bring thee these good tidings.
+The angel answered him, "I am Gabriel, who stands in the presence of God. I was sent to speak to you, and to bring you this good news.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jabez called on the God of Israel, saying, Oh that thou wouldest bless me indeed, and enlarge my border, and that thy hand might be with me, and that thou wouldest keep me from evil, that it be not to my sorrow! And God granted him that which he requested.
+Jabez called on the God of Israel, saying, "Oh that you would bless me indeed, and enlarge my border, and that your hand might be with me, and that you would keep me from evil, that it not be to my sorrow!" God granted him that which he requested.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The morsel which thou hast eaten shalt thou vomit up, And lose thy sweet words.
+The morsel which you have eaten you shall vomit up, and lose your good words.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, if thou go with us, yea, it shall be, that what good soever Jehovah shall do unto us, the same will we do unto thee.
+It shall be, if you go with us, yes, it shall be, that whatever good Yahweh does to us, we will do the same to you."

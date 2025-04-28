@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but contrariwise, when they saw that I had been intrusted with the gospel of the uncircumcision, even as Peter with [the gospel] of the circumcision
+but to the contrary, when they saw that I had been entrusted with the Good News for the uncircumcision, even as Peter with the Good News for the circumcision

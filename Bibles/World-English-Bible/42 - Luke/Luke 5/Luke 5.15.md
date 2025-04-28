@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But so much the more went abroad the report concerning him: and great multitudes came together to hear, and to be healed of their infirmities.
+But the report concerning him spread much more, and great multitudes came together to hear, and to be healed by him of their infirmities.

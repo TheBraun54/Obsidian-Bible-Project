@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lords of the Philistines gathered them together to offer a great sacrifice unto Dagon their god, and to rejoice; for they said, Our god hath delivered Samson our enemy into our hand.
+The lords of the Philistines gathered them together to offer a great sacrifice to Dagon their god, and to rejoice; for they said, "Our god has delivered Samson our enemy into our hand."

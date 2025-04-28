@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus seeing him said, How hardly shall they that have riches enter into the kingdom of God!
+Jesus, seeing that he became very sad, said, "How hard it is for those who have riches to enter into the Kingdom of God!

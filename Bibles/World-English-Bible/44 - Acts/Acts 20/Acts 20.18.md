@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come to him, he said unto them, Ye yourselves know, from the first day that I set foot in Asia, after what manner I was with you all the time,
+When they had come to him, he said to them, "You yourselves know, from the first day that I set foot in Asia, how I was with you all the time,

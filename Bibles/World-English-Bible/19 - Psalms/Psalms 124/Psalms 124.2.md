@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If it had not been Jehovah who was on our side, When men rose up against us;
+if it had not been Yahweh who was on our side, when men rose up against us;

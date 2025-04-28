@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when she came [unto him], that she moved him to ask of her father a field: and she alighted from off her ass; and Caleb said, What wouldest thou?
+It happened, when she came, that she had him ask her father fore a field. She got off of her donkey, and Caleb said, "What do you want?"

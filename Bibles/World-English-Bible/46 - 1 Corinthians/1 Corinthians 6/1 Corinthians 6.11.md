@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And such were some of you: but ye were washed, but ye were sanctified, but ye were justified in the name of the Lord Jesus Christ, and in the Spirit of our God.
+Such were some of you, but you were washed. But you were sanctified. But you were justified in the name of the Lord Jesus, and in the Spirit of our God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Horites also dwelt in Seir aforetime, but the children of Esau succeeded them; and they destroyed them from before them, and dwelt in their stead; as Israel did unto the land of his possession, which Jehovah gave unto them.)
+The Horites also lived in Seir before, but the children of Esau succeeded them; and they destroyed them from before them, and lived in their place; as Israel did to the land of his possession, which Yahweh gave to them.)

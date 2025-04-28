@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But whoso hearkeneth unto me shall dwell securely, And shall be quiet without fear of evil.
+But whoever listens to me will dwell securely, and will be at ease, without fear of harm."

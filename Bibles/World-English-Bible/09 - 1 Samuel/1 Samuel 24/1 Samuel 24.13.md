@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As saith the proverb of the ancients, Out of the wicked cometh forth wickedness; but my hand shall not be upon thee.
+As the proverb of the ancients says, 'Out of the wicked comes forth wickedness;' but my hand shall not be on you.

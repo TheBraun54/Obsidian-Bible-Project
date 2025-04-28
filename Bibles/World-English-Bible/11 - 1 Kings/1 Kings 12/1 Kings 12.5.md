@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Depart yet for three days, then come again to me. And the people departed.
+He said to them, "Depart for three days, then come back to me." The people departed.

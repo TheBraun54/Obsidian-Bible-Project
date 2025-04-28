@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not at all [meaning] with the fornicators of this world, or with the covetous and extortioners, or with idolaters; for then must ye needs go out of the world:
+yet not at all meaning with the sexual sinners of this world, or with the covetous and extortioners, or with idolaters; for then you would have to leave the world.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him repaired the priests, the men of the Plain.
+After him repaired the priests, the men of the Plain.

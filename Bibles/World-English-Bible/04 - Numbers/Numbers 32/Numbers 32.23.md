@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye will not do so, behold, ye have sinned against Jehovah; and be sure your sin will find you out.
+"But if you will not do so, behold, you have sinned against Yahweh; and be sure your sin will find you out.

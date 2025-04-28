@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when the Pharisee that had bidden him saw it, he spake within himself, saying, This man, if he were a prophet, would have perceived who and what manner of woman this is that toucheth him, that she is a sinner.
+Now when the Pharisee who had invited him saw it, he said to himself, "This man, if he were a prophet, would have perceived who and what kind of woman this is who touches him, that she is a sinner."

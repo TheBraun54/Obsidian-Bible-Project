@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest Jehovah see it, and it displease him, And he turn away his wrath from him.
+lest Yahweh see it, and it displease him, and he turn away his wrath from him.

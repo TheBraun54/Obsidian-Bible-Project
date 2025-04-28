@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the flesh hath in the skin thereof a boil, and it is healed,
+"When the body has a boil on its skin, and it has healed,

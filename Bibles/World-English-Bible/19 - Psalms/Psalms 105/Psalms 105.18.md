@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His feet they hurt with fetters: He was laid in [chains of] iron,
+They bruised his feet with shackles. His neck was locked in irons,

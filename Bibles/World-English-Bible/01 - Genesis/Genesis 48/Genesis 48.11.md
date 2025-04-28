@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel said unto Joseph, I had not thought to see thy face: and, lo, God hath let me see thy seed also.
+Israel said to Joseph, "I didn't think I would see your face, and behold, God has let me see your seed also."

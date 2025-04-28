@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when a few years are come, I shall go the way whence I shall not return.
+For when a few years are come, I shall go the way of no return.

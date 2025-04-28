@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thus saith Jehovah, Learn not the way of the nations, and be not dismayed at the signs of heaven; for the nations are dismayed at them.
+Thus says Yahweh, "Don't learn the way of the nations, and don't be dismayed at the signs of the sky; for the nations are dismayed at them.

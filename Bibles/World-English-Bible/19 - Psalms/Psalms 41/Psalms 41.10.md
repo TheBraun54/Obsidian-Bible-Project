@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O Jehovah, have mercy upon me, and raise me up, That I may requite them.
+But you, Yahweh, have mercy on me, and raise me up, that I may repay them.

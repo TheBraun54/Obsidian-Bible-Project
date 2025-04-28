@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [lest] thou say in thy heart, My power and the might of my hand hath gotten me this wealth.
+and [lest] you say in your heart, "My power and the might of my hand has gotten me this wealth."

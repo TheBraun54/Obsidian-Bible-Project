@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brake down the pillar of Baal, and brake down the house of Baal, and made it a draught-house, unto this day.
+They broke down the pillar of Baal, and broke down the house of Baal, and made it a latrine, to this day.

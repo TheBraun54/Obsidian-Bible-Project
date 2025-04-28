@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, take up a lamentation over the king of Tyre, and say unto him, Thus saith the Lord Jehovah: Thou sealest up the sum, full of wisdom, and perfect in beauty.
+Son of man, take up a lamentation over the king of Tyre, and tell him, Thus says the Lord Yahweh: You seal up the sum, full of wisdom, and perfect in beauty.

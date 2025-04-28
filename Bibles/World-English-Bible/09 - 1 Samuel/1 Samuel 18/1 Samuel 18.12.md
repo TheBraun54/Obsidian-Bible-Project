@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul was afraid of David, because Jehovah was with him, and was departed from Saul.
+Saul was afraid of David, because Yahweh was with him, and was departed from Saul.

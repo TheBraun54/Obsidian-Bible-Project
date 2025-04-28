@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That path no bird of prey knoweth, Neither hath the falcon's eye seen it:
+That path no bird of prey knows, neither has the falcon's eye seen it.

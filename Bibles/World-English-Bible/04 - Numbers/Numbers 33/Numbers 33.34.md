@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Jotbathah, and encamped in Abronah.
+They traveled from Jotbathah, and encamped in Abronah.

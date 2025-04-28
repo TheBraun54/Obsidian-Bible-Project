@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And surely your blood, [the blood] of your lives, will I require; at the hand of every beast will I require it: and at the hand of man, even at the hand of every man's brother, will I require the life of man.
+I will surely require your blood of your lives. At the hand of every animal I will require it. At the hand of man, even at the hand of every man's brother, I will require the life of man.

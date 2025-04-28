@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prophet Gad said unto David, Abide not in the stronghold; depart, and get thee into the land of Judah. Then David departed, and came into the forest of Hereth.
+The prophet Gad said to David, "Don't stay in the stronghold. Depart, and go into the land of Judah." Then David departed, and came into the forest of Hereth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, thou turnest back the edge of his sword, And hast not made him to stand in the battle.
+Yes, you turn back the edge of his sword, and haven't supported him in battle.

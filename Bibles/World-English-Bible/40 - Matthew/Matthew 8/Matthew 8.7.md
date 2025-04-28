@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto him, I will come and heal him.
+Jesus said to him, "I will come and heal him."

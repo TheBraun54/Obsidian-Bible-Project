@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I say unto you, I shall not eat it, until it be fulfilled in the kingdom of God.
+for I tell you, I will no longer by any means eat of it until it is fulfilled in the Kingdom of God."

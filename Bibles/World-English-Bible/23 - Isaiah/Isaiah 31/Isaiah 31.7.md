@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in that day they shall cast away every man his idols of silver, and his idols of gold, which your own hands have made unto you for a sin.
+For in that day everyone shall cast away his idols of silver and his idols of gold--sin which your own hands have made for you.

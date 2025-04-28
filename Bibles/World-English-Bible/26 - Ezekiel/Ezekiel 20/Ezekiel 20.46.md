@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face toward the south, and drop [thy word] toward the south, and prophesy against the forest of the field in the South;
+Son of man, set your face toward the south, and drop [your word] toward the south, and prophesy against the forest of the field in the South;

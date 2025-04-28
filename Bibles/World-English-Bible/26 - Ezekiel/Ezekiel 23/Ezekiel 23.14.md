@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she increased her whoredoms; for she saw men portrayed upon the wall, the images of the Chaldeans portrayed with vermilion,
+She increased her prostitution; for she saw men portrayed on the wall, the images of the Chaldeans portrayed with vermilion,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My flesh and my skin hath he made old; he hath broken my bones.
+My flesh and my skin has he made old; he has broken my bones.

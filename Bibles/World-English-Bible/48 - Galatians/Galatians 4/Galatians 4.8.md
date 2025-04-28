@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit at that time, not knowing God, ye were in bondage to them that by nature are no gods:
+However at that time, not knowing God, you were in bondage to those who by nature are not gods.

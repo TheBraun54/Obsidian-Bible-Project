@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah our God delivered into our hand Og also, the king of Bashan, and all his people: and we smote him until none was left to him remaining.
+So Yahweh our God delivered into our hand Og also, the king of Bashan, and all his people: and we struck him until none was left to him remaining.

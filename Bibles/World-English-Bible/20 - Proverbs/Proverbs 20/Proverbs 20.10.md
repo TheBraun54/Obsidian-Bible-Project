@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Diverse weights, and diverse measures, Both of them alike are an abomination to Jehovah.
+Differing weights and differing measures, both of them alike are an abomination to Yahweh.

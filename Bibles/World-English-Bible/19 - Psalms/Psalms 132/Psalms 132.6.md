@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, we heard of it in Ephrathah: We found it in the field of the wood.
+Behold, we heard of it in Ephrathah. We found it in the field of Jaar:

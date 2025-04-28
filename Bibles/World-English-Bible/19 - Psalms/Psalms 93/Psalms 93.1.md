@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah reigneth; He is clothed with majesty; Jehovah is clothed with strength; he hath girded himself therewith: The world also is established, that it cannot be moved.
+Yahweh reigns! He is clothed with majesty! Yahweh is armed with strength. The world also is established. It can't be moved.

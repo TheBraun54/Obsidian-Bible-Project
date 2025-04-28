@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And be not ye like your fathers, and like your brethren, who trespassed against Jehovah, the God of their fathers, so that he gave them up to desolation, as ye see.
+Don't be like your fathers, and like your brothers, who trespassed against Yahweh, the God of their fathers, so that he gave them up to desolation, as you see.

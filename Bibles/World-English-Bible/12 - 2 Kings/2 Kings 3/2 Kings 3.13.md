@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha said unto the king of Israel, What have I to do with thee? get thee to the prophets of thy father, and to the prophets of thy mother. And the king of Israel said unto him, Nay; for Jehovah hath called these three kings together to deliver them into the hand of Moab.
+Elisha said to the king of Israel, "What have I to do with you? Go to the prophets of your father, and to the prophets of your mother." The king of Israel said to him, "No; for Yahweh has called these three kings together to deliver them into the hand of Moab."

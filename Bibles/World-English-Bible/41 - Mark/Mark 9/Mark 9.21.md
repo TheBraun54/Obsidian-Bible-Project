@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he asked his father, How long time is it since this hath come unto him? And he said, From a child.
+He asked his father, "How long has it been since this has come to him?" He said, "From childhood.

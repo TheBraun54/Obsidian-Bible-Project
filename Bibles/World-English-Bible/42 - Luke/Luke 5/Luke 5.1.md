@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass, while the multitude pressed upon him and heard the word of God, that he was standing by the lake of Gennesaret;
+Now it happened, while the multitude pressed on him and heard the word of God, that he was standing by the lake of Gennesaret.

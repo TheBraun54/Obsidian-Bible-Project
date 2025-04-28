@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is the Almighty, that we should serve him? And what profit should we have, if we pray unto him?
+What is the Almighty, that we should serve him? What profit should we have, if we pray to him?'

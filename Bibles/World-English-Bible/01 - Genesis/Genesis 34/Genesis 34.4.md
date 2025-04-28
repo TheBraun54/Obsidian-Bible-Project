@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shechem spake unto his father Hamor, saying, Get me this damsel to wife.
+Shechem spoke to his father, Hamor, saying, "Get me this young lady as a wife."

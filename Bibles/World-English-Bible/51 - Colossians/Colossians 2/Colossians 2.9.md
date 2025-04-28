@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for in him dwelleth all the fulness of the Godhead bodily,
+For in him all the fullness of the Godhead dwells bodily,

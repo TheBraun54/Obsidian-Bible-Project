@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only with thine eyes shalt thou behold, And see the reward of the wicked.
+You will only look with your eyes, and see the recompense of the wicked.

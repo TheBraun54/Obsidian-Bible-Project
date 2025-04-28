@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A factious man after a first and second admonition refuse;
+Avoid a factious man after a first and second warning;

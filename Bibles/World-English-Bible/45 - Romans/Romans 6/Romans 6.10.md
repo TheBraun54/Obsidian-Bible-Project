@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the death that he died, he died unto sin once: but the life that he liveth, he liveth unto God.
+For the death that he died, he died to sin one time; but the life that he lives, he lives to God.

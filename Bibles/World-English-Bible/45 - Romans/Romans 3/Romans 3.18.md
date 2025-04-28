@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no fear of God before their eyes.
+"There is no fear of God before their eyes."

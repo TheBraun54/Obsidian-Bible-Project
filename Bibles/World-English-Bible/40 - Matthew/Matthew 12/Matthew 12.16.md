@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and charged them that they should not make him known:
+and commanded them that they should not make him known:

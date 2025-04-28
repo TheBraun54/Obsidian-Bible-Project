@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of a fool is right in his own eyes; But he that is wise hearkeneth unto counsel.
+The way of a fool is right in his own eyes, but he who is wise listens to counsel.

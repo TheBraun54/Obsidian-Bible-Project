@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there arise in the midst of thee a prophet, or a dreamer of dreams, and he give thee a sign or a wonder,
+If there arise in the midst of you a prophet, or a dreamer of dreams, and he give you a sign or a wonder,

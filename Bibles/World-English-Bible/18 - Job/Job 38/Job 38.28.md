@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hath the rain a father? Or who hath begotten the drops of dew?
+Does the rain have a father? Or who fathers the drops of dew?

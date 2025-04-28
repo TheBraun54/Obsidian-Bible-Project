@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then contended I with the rulers, and said, Why is the house of God forsaken? And I gathered them together, and set them in their place.
+Then I contended with the rulers, and said, "Why is the house of God forsaken?" I gathered them together, and set them in their place.

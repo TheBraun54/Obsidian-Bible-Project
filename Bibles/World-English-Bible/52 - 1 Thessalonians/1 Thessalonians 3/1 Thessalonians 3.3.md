@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that no man be moved by these afflictions; for yourselves know that hereunto we are appointed.
+that no one be moved by these afflictions. For you know that we are appointed to this task.

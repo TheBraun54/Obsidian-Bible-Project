@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shall ye separate the children of Israel from their uncleanness, that they die not in their uncleanness, when they defile my tabernacle that is in the midst of them.
+"'Thus you shall separate the children of Israel from their uncleanness, so they will not die in their uncleanness, when they defile my tabernacle that is in their midst.'"

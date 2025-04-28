@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Elisha was sitting in his house, and the elders were sitting with him; and [the king] sent a man from before him: but ere the messenger came to him, he said to the elders, See ye how this son of a murderer hath sent to take away my head? look, when the messenger cometh, shut the door, and hold the door fast against him: is not the sound of his master's feet behind him?
+But Elisha was sitting in his house, and the elders were sitting with him. Then the king sent a man from before him; but before the messenger came to him, he said to the elders, "Do you see how this son of a murderer has sent to take away my head? Behold, when the messenger comes, shut the door, and hold the door shut against him. Isn't the sound of his master's feet behind him?"

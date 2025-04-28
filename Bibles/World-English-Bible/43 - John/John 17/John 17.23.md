@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I in them, and thou in me, that they may be perfected into one; that the world may know that thou didst send me, and lovedst them, even as thou lovedst me.
+I in them, and you in me, that they may be perfected into one; that the world may know that you sent me, and loved them, even as you loved me.

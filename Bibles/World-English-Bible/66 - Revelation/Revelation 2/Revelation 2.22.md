@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I cast her into a bed, and them that commit adultery with her into great tribulation, except they repent of her works.
+Behold, I will throw her into a bed, and those who commit adultery with her into great oppression, unless they repent of her works.

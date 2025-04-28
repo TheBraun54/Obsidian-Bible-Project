@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the one went out from me, and I said, Surely he is torn in pieces; and I have not seen him since:
+and the one went out from me, and I said, "Surely he is torn in pieces;" and I haven't seen him since.

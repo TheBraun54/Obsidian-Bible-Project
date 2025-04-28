@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham said of Sarah his wife, She is my sister: and Abimelech king of Gerar sent, and took Sarah.
+Abraham said about Sarah his wife, "She is my sister." Abimelech king of Gerar sent, and took Sarah.

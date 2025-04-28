@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thence they sailed to Antioch, from whence they had been committed to the grace of God for the work which they had fulfilled.
+From there they sailed to Antioch, from where they had been committed to the grace of God for the work which they had fulfilled.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But David could not go before it to inquire of God; for he was afraid because of the sword of the angel of Jehovah.
+But David couldn't go before it to inquire of God; for he was afraid because of the sword of the angel of Yahweh.

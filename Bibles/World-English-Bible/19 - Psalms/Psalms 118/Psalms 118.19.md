@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Open to me the gates of righteousness: I will enter into them, I will give thanks unto Jehovah.
+Open to me the gates of righteousness. I will enter into them. I will give thanks to Yah.

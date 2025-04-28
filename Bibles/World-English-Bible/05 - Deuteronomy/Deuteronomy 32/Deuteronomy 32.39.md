@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See now that I, even I, am he, And there is no god with me: I kill, and I make alive; I wound, and I heal; And there is none that can deliver out of my hand.
+"See now that I, even I, am he, There is no god with me. I kill, and I make alive. I wound, and I heal. There is no one who can deliver out of my hand.

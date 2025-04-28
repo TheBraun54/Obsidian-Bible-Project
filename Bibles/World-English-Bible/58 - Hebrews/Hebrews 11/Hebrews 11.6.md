@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And without faith it is impossible to be well-pleasing [unto him] ; for he that cometh to God must believe that he is, and [that] he is a rewarder of them that seek after him.
+Without faith it is impossible to be well pleasing to him, for he who comes to God must believe that he exists, and that he is a rewarder of those who seek him.

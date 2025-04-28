@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah, Behold, I will lift up my hand to the nations, and set up my ensign to the peoples; and they shall bring thy sons in their bosom, and thy daughters shall be carried upon their shoulders.
+Thus says the Lord Yahweh, "Behold, I will lift up my hand to the nations, and set up my banner to the peoples; and they shall bring your sons in their bosom, and your daughters shall be carried on their shoulders.

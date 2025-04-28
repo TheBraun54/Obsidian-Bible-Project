@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. [A Psalm] of David; to bring to remembrance]. [Make haste], O God, to deliver me; Make haste to help me, O Jehovah.
+Hurry, God, to deliver me. Come quickly to help me, Yahweh.

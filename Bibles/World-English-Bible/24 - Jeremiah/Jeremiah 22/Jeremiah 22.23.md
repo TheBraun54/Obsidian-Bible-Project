@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O inhabitant of Lebanon, that makest thy nest in the cedars, how greatly to be pitied shalt thou be when pangs come upon thee, the pain as of a woman in travail!
+Inhabitant of Lebanon, who makes your nest in the cedars, how greatly to be pitied you will be when pangs come on you, the pain as of a woman in travail!

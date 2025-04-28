@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I go forward, but he is not [there] ; And backward, but I cannot perceive him;
+"If I go east, he is not there; if west, I can't find him;

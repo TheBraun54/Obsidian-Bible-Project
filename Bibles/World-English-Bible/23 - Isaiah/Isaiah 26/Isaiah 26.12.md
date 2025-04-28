@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, thou wilt ordain peace for us; for thou hast also wrought all our works for us.
+Yahweh, you will ordain peace for us, for you have also worked all our works for us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore now rise up early in the morning with the servants of thy lord that are come with thee; and as soon as ye are up early in the morning, and have light, depart.
+Therefore now rise up early in the morning with the servants of your lord who have come with you; and as soon as you are up early in the morning, and have light, depart."

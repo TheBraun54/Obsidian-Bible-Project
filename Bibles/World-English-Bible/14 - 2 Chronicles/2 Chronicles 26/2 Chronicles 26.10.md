@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built towers in the wilderness, and hewed out many cisterns, for he had much cattle; in the lowland also, and in the plain: [and he had] husbandmen and vinedressers in the mountains and in the fruitful fields; for he loved husbandry.
+He built towers in the wilderness, and dug out many cisterns, for he had much livestock; in the lowland also, and in the plain: [and he had] farmers and vineyard keepers in the mountains and in the fruitful fields; for he loved farming.

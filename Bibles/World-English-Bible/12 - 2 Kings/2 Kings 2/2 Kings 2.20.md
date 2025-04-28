@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Bring me a new cruse, and put salt therein. And they brought it to him.
+He said, "Bring me a new jar, and put salt in it." They brought it to him.

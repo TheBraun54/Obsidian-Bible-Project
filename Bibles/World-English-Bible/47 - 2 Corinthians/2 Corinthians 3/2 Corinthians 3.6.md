@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who also made us sufficient as ministers of a new covenant; not of the letter, but of the spirit: for the letter killeth, but the spirit giveth life.
+who also made us sufficient as servants of a new covenant; not of the letter, but of the Spirit. For the letter kills, but the Spirit gives life.

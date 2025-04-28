@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine arrows are sharp; The peoples fall under thee; [They are] in the heart of the king's enemies.
+Your arrows are sharp. The nations fall under you, with arrows in the heart of the king's enemies.

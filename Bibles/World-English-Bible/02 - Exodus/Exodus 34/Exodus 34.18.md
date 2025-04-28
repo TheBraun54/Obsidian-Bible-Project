@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The feast of unleavened bread shalt thou keep. Seven days thou shalt eat unleavened bread, as I commanded thee, at the time appointed in the month Abib; for in the month Abib thou camest out from Egypt.
+"You shall keep the feast of unleavened bread. Seven days you shall eat unleavened bread, as I commanded you, at the time appointed in the month Abib; for in the month Abib you came out from Egypt.

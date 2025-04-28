@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he departed thence, and went into their synagogue:
+He departed there, and went into their synagogue.

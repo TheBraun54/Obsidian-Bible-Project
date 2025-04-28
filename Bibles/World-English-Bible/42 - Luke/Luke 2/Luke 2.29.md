@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now lettest thou thy servant depart, Lord, According to thy word, in peace;
+"Now you are releasing your servant, Master, according to your word, in peace;

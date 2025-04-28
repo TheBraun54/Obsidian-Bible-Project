@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-burning for burning, wound for wound, stripe for stripe.
+burning for burning, wound for wound, and bruise for bruise.

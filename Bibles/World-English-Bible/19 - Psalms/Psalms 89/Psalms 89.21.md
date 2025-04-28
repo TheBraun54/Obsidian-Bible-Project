@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With whom my hand shall be established; Mine arm also shall strengthen him.
+with whom my hand shall be established. My arm will also strengthen him.

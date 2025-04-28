@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou diligent to know the state of thy flocks, [And] look well to thy herds:
+Know well the state of your flocks, and pay attention to your herds:

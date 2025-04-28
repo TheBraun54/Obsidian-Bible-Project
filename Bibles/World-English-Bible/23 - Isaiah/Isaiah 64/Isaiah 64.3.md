@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou didst terrible things which we looked not for, thou camest down, the mountains quaked at thy presence.
+When you did awesome things which we didn't look for, you came down, the mountains quaked at your presence.

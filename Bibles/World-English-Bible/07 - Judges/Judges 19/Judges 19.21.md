@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he brought him into his house, and gave the asses fodder; and they washed their feet, and did eat and drink.
+So he brought him into his house, and gave the donkeys fodder; and they washed their feet, and ate and drink.

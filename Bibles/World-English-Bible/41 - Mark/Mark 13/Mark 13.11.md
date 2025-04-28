@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they lead you [to judgment], and deliver you up, be not anxious beforehand what ye shall speak: but whatsoever shall be given you in that hour, that speak ye; for it is not ye that speak, but the Holy Spirit.
+When they lead you away and deliver you up, don't be anxious beforehand, or premeditate what you will say, but say whatever will be given you in that hour. For it is not you who speak, but the Holy Spirit.

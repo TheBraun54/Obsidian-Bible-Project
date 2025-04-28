@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they made way for her; and she went to the entrance of the horse gate to the king's house: and they slew her there.
+So they made way for her. She went to the entrance of the horse gate to the king's house; and they killed her there.

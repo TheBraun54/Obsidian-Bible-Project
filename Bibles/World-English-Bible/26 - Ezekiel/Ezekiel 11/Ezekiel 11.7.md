@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Your slain whom ye have laid in the midst of it, they are the flesh, and this [city] is the caldron; but ye shall be brought forth out of the midst of it.
+Therefore thus says the Lord Yahweh: Your slain whom you have laid in its midst, they are the flesh, and this [city] is the caldron; but you shall be brought forth out of its midst.

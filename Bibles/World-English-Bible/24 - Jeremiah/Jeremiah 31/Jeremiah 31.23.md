@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel, Yet again shall they use this speech in the land of Judah and in the cities thereof, when I shall bring again their captivity: Jehovah bless thee, O habitation of righteousness, O mountain of holiness.
+Thus says Yahweh of Armies, the God of Israel, Yet again shall they use this speech in the land of Judah and in its cities, when I shall bring again their captivity: Yahweh bless you, habitation of righteousness, mountain of holiness.

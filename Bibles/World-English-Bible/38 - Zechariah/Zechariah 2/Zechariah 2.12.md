@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah shall inherit Judah as his portion in the holy land, and shall yet choose Jerusalem.
+Yahweh will inherit Judah as his portion in the holy land, and will again choose Jerusalem.

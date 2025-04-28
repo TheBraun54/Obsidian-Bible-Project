@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines called for the priests and the diviners, saying, What shall we do with the ark of Jehovah? show us wherewith we shall sent it to its place.
+The Philistines called for the priests and the diviners, saying, "What shall we do with the ark of Yahweh? Show us with which we shall send it to its place."

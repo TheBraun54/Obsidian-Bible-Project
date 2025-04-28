@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, his soul is puffed up, it is not upright in him; but the righteous shall live by his faith.
+Behold, his soul is puffed up. It is not upright in him, but the righteous will live by his faith.

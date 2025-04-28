@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They all handle the sword, [and] are expert in war: Every man hath his sword upon his thigh, Because of fear in the night.
+They all handle the sword, and are expert in war. Every man has his sword on his thigh, because of fear in the night.

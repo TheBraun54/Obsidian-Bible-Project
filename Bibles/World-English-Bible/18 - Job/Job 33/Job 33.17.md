@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That he may withdraw man [from his] purpose, And hide pride from man;
+That he may withdraw man from his purpose, and hide pride from man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her ways are ways of pleasantness, And all her paths are peace.
+Her ways are ways of pleasantness. All her paths are peace.

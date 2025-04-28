@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-TEKEL; thou art weighed in the balances, and art found wanting.
+TEKEL; you are weighed in the balances, and are found wanting.

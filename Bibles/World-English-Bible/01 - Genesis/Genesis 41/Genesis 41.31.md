@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the plenty shall not be known in the land by reason of that famine which followeth; for it shall be very grievous.
+and the plenty will not be known in the land by reason of that famine which follows; for it will be very grievous.

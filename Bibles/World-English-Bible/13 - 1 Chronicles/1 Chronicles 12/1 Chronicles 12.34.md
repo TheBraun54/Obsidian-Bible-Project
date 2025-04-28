@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Naphtali a thousand captains, and with them with shield and spear thirty and seven thousand.
+Of Naphtali one thousand captains, and with them with shield and spear thirty-seven thousand.

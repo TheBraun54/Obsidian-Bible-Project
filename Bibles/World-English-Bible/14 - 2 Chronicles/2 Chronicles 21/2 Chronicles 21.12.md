@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came a writing to him from Elijah the prophet, saying, Thus saith Jehovah, the God of David thy father, Because thou hast not walked in the ways of Jehoshaphat thy father, nor in the ways of Asa king of Judah,
+A letter came to him from Elijah the prophet, saying, "Thus says Yahweh, the God of David your father, 'Because you have not walked in the ways of Jehoshaphat your father, nor in the ways of Asa king of Judah,

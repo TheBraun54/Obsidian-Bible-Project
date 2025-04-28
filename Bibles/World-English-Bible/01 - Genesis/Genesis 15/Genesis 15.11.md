@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the birds of prey came down upon the carcasses, and Abram drove them away.
+The birds of prey came down on the carcasses, and Abram drove them away.

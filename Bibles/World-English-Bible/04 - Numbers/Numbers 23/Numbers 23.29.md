@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam said unto Balak, Build me here seven altars, and prepare me here seven bullocks and seven rams.
+Balaam said to Balak, "Build me here seven altars, and prepare me here seven bulls and seven rams."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that eateth and drinketh, eateth and drinketh judgment unto himself, if he discern not the body.
+For he who eats and drinks in an unworthy way eats and drinks judgment to himself, if he doesn't discern the Lord's body.

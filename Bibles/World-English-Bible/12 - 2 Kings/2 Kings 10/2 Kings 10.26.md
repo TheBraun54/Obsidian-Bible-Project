@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought forth the pillars that were in the house of Baal, and burned them.
+They brought out the pillars that were in the house of Baal, and burned them.

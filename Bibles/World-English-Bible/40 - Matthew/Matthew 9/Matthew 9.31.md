@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they went forth, and spread abroad his fame in all that land.
+But they went out and spread abroad his fame in all that land.

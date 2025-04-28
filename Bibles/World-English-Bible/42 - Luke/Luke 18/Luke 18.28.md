@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter said, Lo, we have left our own, and followed thee.
+Peter said, "Look, we have left everything, and followed you."

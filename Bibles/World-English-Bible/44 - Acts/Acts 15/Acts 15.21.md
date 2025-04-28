@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Moses from generations of old hath in every city them that preach him, being read in the synagogues every sabbath.
+For Moses from generations of old has in every city those who preach him, being read in the synagogues every Sabbath."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to Muth-labben. A Psalm of David]. I will give thanks unto Jehovah with my whole heart; I will show forth all thy marvellous works.
+I will give thanks to Yahweh with my whole heart. I will tell of all your marvelous works.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no man, when he hath lighted a lamp, covereth it with a vessel, or putteth it under a bed; but putteth it on a stand, that they that enter in may see the light.
+"No one, when he has lit a lamp, covers it with a container, or puts it under a bed; but puts it on a stand, that those who enter in may see the light.

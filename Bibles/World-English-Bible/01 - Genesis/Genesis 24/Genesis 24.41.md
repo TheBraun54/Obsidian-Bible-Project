@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shalt thou be clear from my oath, when thou comest to my kindred; and if they give her not to thee, thou shalt be clear from my oath.
+Then will you be clear from my oath, when you come to my relatives. If they don't give her to you, you shall be clear from my oath.'

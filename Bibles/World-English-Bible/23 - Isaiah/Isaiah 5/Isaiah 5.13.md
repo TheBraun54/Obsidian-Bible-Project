@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore my people are gone into captivity for lack of knowledge; and their honorable men are famished, and their multitude are parched with thirst.
+Therefore my people go into captivity for lack of knowledge. Their honorable men are famished, and their multitudes are parched with thirst.

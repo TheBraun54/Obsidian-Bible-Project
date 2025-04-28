@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Joseph said, The hill-country is not enough for us: and all the Canaanites that dwell in the land of the valley have chariots of iron, both they who are in Beth-shean and its towns, and they who are in the valley of Jezreel.
+The children of Joseph said, "The hill country is not enough for us. All the Canaanites who dwell in the land of the valley have chariots of iron, both those who are in Beth Shean and its towns, and those who are in the valley of Jezreel."

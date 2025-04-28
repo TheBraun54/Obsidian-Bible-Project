@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he asked him, What is thy name? And he saith unto him, My name is Legion; for we are many.
+He asked him, "What is your name?" He said to him, "My name is Legion, for we are many."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither be ye called masters: for one is your master, [even] the Christ.
+Neither be called masters, for one is your master, the Christ.

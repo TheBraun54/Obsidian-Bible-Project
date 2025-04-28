@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah is righteous; He loveth righteousness: The upright shall behold his face.
+For Yahweh is righteous. He loves righteousness. The upright shall see his face. For the Chief Musician; upon an eight-stringed lyre. A Psalm of David.

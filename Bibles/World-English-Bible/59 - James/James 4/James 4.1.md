@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whence [come] wars and whence [come] fightings among you? [come they] not hence, [even] of your pleasures that war in your members?
+Where do wars and fightings among you come from? Don't they come from your pleasures that war in your members?

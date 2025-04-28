@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto them, If the children of Gad and the children of Reuben will pass with you over the Jordan, every man that is armed to battle, before Jehovah, and the land shall be subdued before you; then ye shall give them the land of Gilead for a possession:
+Moses said to them, "If the children of Gad and the children of Reuben will pass with you over the Jordan, every man who is armed to battle, before Yahweh, and the land shall be subdued before you; then you shall give them the land of Gilead for a possession:

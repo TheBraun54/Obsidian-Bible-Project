@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and out of the city he took an officer that was set over the men of war; and five men of them that saw the king's face, who were found in the city; and the scribe, the captain of the host, who mustered the people of the land; and threescore men of the people of the land, that were found in the city.
+and out of the city he took an officer who was set over the men of war; and five men of those who saw the king's face, who were found in the city; and the scribe, the captain of the army, who mustered the people of the land; and sixty men of the people of the land, who were found in the city.

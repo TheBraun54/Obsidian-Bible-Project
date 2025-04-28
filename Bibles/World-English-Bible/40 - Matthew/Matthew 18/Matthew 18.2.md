@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called to him a little child, and set him in the midst of them,
+Jesus called a little child to himself, and set him in the midst of them,

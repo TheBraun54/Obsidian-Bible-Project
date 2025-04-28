@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the Amalekite came down, and the Canaanite who dwelt in that mountain, and smote them and beat them down, even unto Hormah.
+Then the Amalekite came down, and the Canaanite who lived in that mountain, and struck them and beat them down, even to Hormah.

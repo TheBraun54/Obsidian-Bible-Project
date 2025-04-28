@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scribes of the Pharisees, when they saw that he was eating with the sinners and publicans, said unto his disciples, [How is it] that he eateth and drinketh with publicans and sinners?
+The scribes and the Pharisees, when they saw that he was eating with the sinners and tax collectors, said to his disciples, "Why is it that he eats and drinks with tax collectors and sinners?"

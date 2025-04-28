@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember not against us the iniquities of our forefathers: Let thy tender mercies speedily meet us; For we are brought very low.
+Don't hold the iniquities of our forefathers against us. Let your tender mercies speedily meet us, for we are in desperate need.

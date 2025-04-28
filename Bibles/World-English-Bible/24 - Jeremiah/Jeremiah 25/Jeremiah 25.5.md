@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Return ye now every one from his evil way, and from the evil of your doings, and dwell in the land that Jehovah hath given unto you and to your fathers, from of old and even for evermore;
+saying, Return now everyone from his evil way, and from the evil of your doings, and dwell in the land that Yahweh has given to you and to your fathers, from of old and even forevermore;

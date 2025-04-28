@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Children, obey your parents in all things, for this is well-pleasing in the Lord.
+Children, obey your parents in all things, for this pleases the Lord.

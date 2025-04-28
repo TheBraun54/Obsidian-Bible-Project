@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I to the angel that talked with me, Whither do these bear the ephah?
+Then I said to the angel who talked with me, "Where are these carrying the ephah basket?"

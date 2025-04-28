@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give peace in the land, and ye shall lie down, and none shall make you afraid: and I will cause evil beasts to cease out of the land, neither shall the sword go through your land.
+"'I will give peace in the land, and you shall lie down, and no one will make you afraid; and I will remove evil animals out of the land, neither shall the sword go through your land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in very deed, as I live, and as all the earth shall be filled with the glory of Jehovah;
+but in very deed, as I live, and as all the earth shall be filled with the glory of Yahweh;

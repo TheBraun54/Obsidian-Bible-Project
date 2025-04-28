@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seek ye Jehovah and his strength; Seek his face evermore.
+Seek Yahweh and his strength. Seek his face forever more.

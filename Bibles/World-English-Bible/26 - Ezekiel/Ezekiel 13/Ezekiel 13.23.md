@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore ye shall no more see false visions, nor divine divinations: and I will deliver my people out of your hand; and ye shall know that I am Jehovah.
+Therefore you shall no more see false visions, nor practice divination. I will deliver my people out of your hand; and you shall know that I am Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the king hath sent with him Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada, and the Cherethites and the Pelethites; and they have caused him to ride upon the king's mule;
+The king has sent with him Zadok the priest, Nathan the prophet, Benaiah the son of Jehoiada, and the Cherethites and the Pelethites; and they have caused him to ride on the king's mule.

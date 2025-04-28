@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that same house remain, eating and drinking such things as they give: for the laborer is worthy of his hire. Go not from house to house.
+Remain in that same house, eating and drinking the things they give, for the laborer is worthy of his wages. Don't go from house to house.

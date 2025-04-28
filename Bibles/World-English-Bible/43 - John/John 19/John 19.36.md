@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For these things came to pass, that the scripture might be fulfilled, A bone of him shall not be broken.
+For these things happened, that the Scripture might be fulfilled, "A bone of him will not be broken."

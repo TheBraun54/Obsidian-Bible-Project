@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear diligently my speech, And let my declaration be in your ears.
+Hear diligently my speech. Let my declaration be in your ears.

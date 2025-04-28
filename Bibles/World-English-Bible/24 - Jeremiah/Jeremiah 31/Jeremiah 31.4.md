@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again will I build thee, and thou shalt be built, O virgin of Israel: again shalt thou be adorned with thy tabrets, and shalt go forth in the dances of them that make merry.
+Again will I build you, and you shall be built, O virgin of Israel: again you shall be adorned with your tambourines, and shall go forth in the dances of those who make merry.

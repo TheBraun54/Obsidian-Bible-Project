@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let the women keep silence in the churches: for it is not permitted unto them to speak; but let them be in subjection, as also saith the law.
+let your wives keep silent in the assemblies, for it has not been permitted for them to speak; but let them be in subjection, as the law also says.

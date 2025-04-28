@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And answerable unto the border of the priests, the Levites shall have five and twenty thousand in length, and ten thousand in breadth: all the length shall be five and twenty thousand, and the breadth ten thousand.
+Answerable to the border of the priests, the Levites shall have twenty-five thousand in length, and ten thousand in breadth: all the length shall be twenty-five thousand, and the breadth ten thousand.

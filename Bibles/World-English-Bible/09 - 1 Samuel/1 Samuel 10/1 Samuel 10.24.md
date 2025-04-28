@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said to all the people, See ye him whom Jehovah hath chosen, that there is none like him along all the people? And all the people shouted, and said, [Long] live the king.
+Samuel said to all the people, "You see him whom Yahweh has chosen, that there is none like him among all the people?" All the people shouted, and said, "[Long] live the king!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the chiefs of the sons of Esau: the sons of Eliphaz the first-born of Esau: chief Teman, chief Omar, chief Zepho, chief Kenaz,
+These are the chiefs of the sons of Esau: the sons of Eliphaz the firstborn of Esau: chief Teman, chief Omar, chief Zepho, chief Kenaz,

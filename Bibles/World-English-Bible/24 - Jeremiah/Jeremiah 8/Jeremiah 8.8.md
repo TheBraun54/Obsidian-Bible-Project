@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How do ye say, We are wise, and the law of Jehovah is with us? But, behold, the false pen of the scribes hath wrought falsely.
+How do you say, We are wise, and the law of Yahweh is with us? But, behold, the false pen of the scribes has worked falsely.

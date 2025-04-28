@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the first day of unleavened bread, when they sacrificed the passover, his disciples say unto him, Where wilt thou that we go and make ready that thou mayest eat the passover?
+On the first day of unleavened bread, when they sacrificed the Passover, his disciples asked him, "Where do you want us to go and prepare that you may eat the Passover?"

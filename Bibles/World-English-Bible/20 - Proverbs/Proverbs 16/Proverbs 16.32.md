@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is slow to anger is better than the mighty; And he that ruleth his spirit, than he that taketh a city.
+One who is slow to anger is better than the mighty; one who rules his spirit, than he who takes a city.

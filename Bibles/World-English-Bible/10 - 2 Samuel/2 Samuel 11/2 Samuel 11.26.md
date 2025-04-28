@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the wife of Uriah heard that Uriah her husband was dead, she made lamentation for her husband.
+When the wife of Uriah heard that Uriah her husband was dead, she made lamentation for her husband.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they gat not the land in possession by their own sword, Neither did their own arm save them; But thy right hand, and thine arm, and the light of thy countenance, Because thou wast favorable unto them.
+For they didn't get the land in possession by their own sword, neither did their own arm save them; but your right hand, and your arm, and the light of your face, because you were favorable to them.

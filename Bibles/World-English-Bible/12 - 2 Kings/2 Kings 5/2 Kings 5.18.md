@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In this thing Jehovah pardon thy servant: when my master goeth into the house of Rimmon to worship there, and he leaneth on my hand, and I bow myself in the house of Rimmon, when I bow myself in the house of Rimmon, Jehovah pardon thy servant in this thing.
+In this thing may Yahweh pardon your servan: when my master goes into the house of Rimmon to worship there, and he leans on my hand, and I bow myself in the house of Rimmon. When I bow myself in the house of Rimmon, may Yahweh pardon your servant in this thing."

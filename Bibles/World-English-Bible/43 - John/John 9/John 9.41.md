@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto them, If ye were blind, ye would have no sin: but now ye say, We see: your sin remaineth.
+Jesus said to them, "If you were blind, you would have no sin; but now you say, 'We see.' Therefore your sin remains.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his name shall be called in Israel, The house of him that hath his shoe loosed.
+His name shall be called in Israel, The house of him who has his shoe untied.

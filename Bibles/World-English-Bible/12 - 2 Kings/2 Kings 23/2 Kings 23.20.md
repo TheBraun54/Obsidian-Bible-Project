@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he slew all the priests of the high places that were there, upon the altars, and burned men's bones upon them; and he returned to Jerusalem.
+He killed all the priests of the high places that were there, on the altars, and burned men's bones on them; and he returned to Jerusalem.

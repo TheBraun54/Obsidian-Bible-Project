@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, my feet were almost gone; My steps had well nigh slipped.
+But as for me, my feet were almost gone. My steps had nearly slipped.

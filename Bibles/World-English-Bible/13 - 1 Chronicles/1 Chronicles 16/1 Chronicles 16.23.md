@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto Jehovah, all the earth; Show forth his salvation from day to day.
+Sing to Yahweh, all the earth! Display his salvation from day to day.

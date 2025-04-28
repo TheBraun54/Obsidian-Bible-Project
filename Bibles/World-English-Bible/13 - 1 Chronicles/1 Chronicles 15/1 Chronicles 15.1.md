@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [David] made him houses in the city of David; and he prepared a place for the ark of God, and pitched for it a tent.
+[David] made him houses in the city of David; and he prepared a place for the ark of God, and pitched for it a tent.

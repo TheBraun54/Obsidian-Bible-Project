@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their wine is the poison of serpents, And the cruel venom of asps.
+Their wine is the poison of serpents, The cruel venom of asps.

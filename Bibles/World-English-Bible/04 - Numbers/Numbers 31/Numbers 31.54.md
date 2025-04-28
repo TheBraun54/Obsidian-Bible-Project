@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Eleazar the priest took the gold of the captains of thousands and of hundreds, and brought it into the tent of meeting, for a memorial for the children of Israel before Jehovah.
+Moses and Eleazar the priest took the gold of the captains of thousands and of hundreds, and brought it into the Tent of Meeting, for a memorial for the children of Israel before Yahweh.

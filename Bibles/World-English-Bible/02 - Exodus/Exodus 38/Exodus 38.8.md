@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the laver of brass, and the base thereof of brass, of the mirrors of the ministering women that ministered at the door of the tent of meeting.
+He made the basin of brass, and its base of brass, out of the mirrors of the ministering women who ministered at the door of the Tent of Meeting.

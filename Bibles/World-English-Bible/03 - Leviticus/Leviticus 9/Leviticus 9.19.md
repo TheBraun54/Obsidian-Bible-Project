@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the fat of the ox and of the ram, the fat tail, and that which covereth [the inwards], and the kidneys, and the caul of the liver:
+and the fat of the bull and of the ram, the fat tail, and that which covers the innards, and the kidneys, and the cover of the liver:

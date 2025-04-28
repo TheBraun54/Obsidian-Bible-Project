@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Being then the offspring of God, we ought not to think that the Godhead is like unto gold, or silver, or stone, graven by art and device of man.
+Being then the offspring of God, we ought not to think that the Divine Nature is like gold, or silver, or stone, engraved by art and design of man.

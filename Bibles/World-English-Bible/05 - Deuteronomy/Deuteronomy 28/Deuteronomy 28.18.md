@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed shall be the fruit of thy body, and the fruit of thy ground, the increase of thy cattle, and the young of thy flock.
+The fruit of your body, the fruit of your ground, the increase of your livestock, and the young of your flock shall be cursed.

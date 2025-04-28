@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go into the presence of a foolish man, And thou shalt not perceive [in him] the lips of knowledge.
+Stay away from a foolish man, for you won't find knowledge on his lips.

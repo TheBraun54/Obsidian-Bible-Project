@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Know ye Laban the son of Nahor? And they said, We know him.
+He said to them, "Do you know Laban, the son of Nahor?" They said, "We know him."

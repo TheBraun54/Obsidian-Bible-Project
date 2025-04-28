@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet ye have forsaken me, and served other gods: wherefore I will save you no more.
+Yet you have forsaken me, and served other gods: therefore I will save you no more.

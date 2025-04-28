@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is evident that our Lord hath sprung out of Judah; as to which tribe Moses spake nothing concerning priests.
+For it is evident that our Lord has sprung out of Judah, about which tribe Moses spoke nothing concerning priesthood.

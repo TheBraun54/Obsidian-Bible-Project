@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hamonah shall also be the name of a city. Thus shall they cleanse the land.
+Hamonah shall also be the name of a city. Thus shall they cleanse the land.

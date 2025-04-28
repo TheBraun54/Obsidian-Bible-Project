@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he established a testimony in Jacob, And appointed a law in Israel, Which he commanded our fathers, That they should make them known to their children;
+For he established a testimony in Jacob, and appointed a teaching in Israel, which he commanded our fathers, that they should make them known to their children;

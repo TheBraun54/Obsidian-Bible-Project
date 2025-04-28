@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On that day went Jesus out of the house, and sat by the sea side.
+On that day Jesus went out of the house, and sat by the seaside.

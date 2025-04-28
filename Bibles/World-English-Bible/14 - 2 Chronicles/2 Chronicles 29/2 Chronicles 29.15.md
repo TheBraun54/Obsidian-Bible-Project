@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gathered their brethren, and sanctified themselves, and went in, according to the commandment of the king by the words of Jehovah, to cleanse the house of Jehovah.
+They gathered their brothers, and sanctified themselves, and went in, according to the commandment of the king by the words of Yahweh, to cleanse the house of Yahweh.

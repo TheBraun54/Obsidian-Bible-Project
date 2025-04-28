@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not the foot of pride come against me, And let not the hand of the wicked drive me away.
+Don't let the foot of pride come against me. Don't let the hand of the wicked drive me away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The arrow cannot make him flee: Sling-stones are turned with him into stubble.
+The arrow can't make him flee. Sling stones are like chaff to him.

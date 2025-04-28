@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit what things were gain to me, these have I counted loss for Christ.
+However, what things were gain to me, these have I counted loss for Christ.

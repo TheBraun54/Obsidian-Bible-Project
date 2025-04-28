@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some began to spit on him, and to cover his face, and to buffet him, and to say unto him, Prophesy: and the officers received him with blows of their hands.
+Some began to spit on him, and to cover his face, and to beat him with fists, and to tell him, "Prophesy!" The officers struck him with the palms of their hands.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will take away from thee all sickness; and none of the evil diseases of Egypt, which thou knowest, will he put upon thee, but will lay them upon all them that hate thee.
+Yahweh will take away from you all sickness; and none of the evil diseases of Egypt, which you know, he will put on you, but will lay them on all those who hate you.

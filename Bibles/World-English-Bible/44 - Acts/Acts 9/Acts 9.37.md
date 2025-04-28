@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in those days, that she fell sick, and died: and when they had washed her, they laid her in an upper chamber.
+It happened in those days that she fell sick, and died. When they had washed her, they laid her in an upper room.

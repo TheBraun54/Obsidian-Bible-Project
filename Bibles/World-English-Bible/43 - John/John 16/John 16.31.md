@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered them, Do ye now believe?
+Jesus answered them, "Do you now believe?

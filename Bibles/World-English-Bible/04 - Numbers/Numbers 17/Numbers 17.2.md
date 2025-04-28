@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and take of them rods, one for each fathers' house, of all their princes according to their fathers' houses, twelve rods: write thou every man's name upon his rod.
+"Speak to the children of Israel, and take of them rods, one for each fathers' house, of all their princes according to their fathers' houses, twelve rods: write every man's name on his rod.

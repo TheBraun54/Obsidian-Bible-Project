@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again the anger of Jehovah was kindled against Israel, and he moved David against them, saying, Go, number Israel and Judah.
+Again the anger of Yahweh was kindled against Israel, and he moved David against them, saying, "Go, number Israel and Judah."

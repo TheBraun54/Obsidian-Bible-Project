@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye have seen their abominations, and their idols, wood and stone, silver and gold, which were among them);
+and you have seen their abominations, and their idols, wood and stone, silver and gold, which were among them);

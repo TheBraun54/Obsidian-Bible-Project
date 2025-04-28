@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The portion of Jacob is not like these; for he is the former of all things; and [Israel] is the tribe of his inheritance: Jehovah of hosts is his name.
+The portion of Jacob is not like these; for he is the former of all things; and [Israel] is the tribe of his inheritance: Yahweh of Armies is his name.

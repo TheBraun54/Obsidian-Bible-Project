@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He gathereth the waters of the sea together as a heap: He layeth up the deeps in store-houses.
+He gathers the waters of the sea together as a heap. He lays up the deeps in storehouses.

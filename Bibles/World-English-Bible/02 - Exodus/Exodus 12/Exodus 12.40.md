@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the time that the children of Israel dwelt in Egypt was four hundred and thirty years.
+Now the time that the children of Israel lived in Egypt was four hundred thirty years.

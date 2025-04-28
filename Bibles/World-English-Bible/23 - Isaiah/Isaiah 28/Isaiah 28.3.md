@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The crown of pride of the drunkards of Ephraim shall be trodden under foot:
+The crown of pride of the drunkards of Ephraim will be trodden under foot.

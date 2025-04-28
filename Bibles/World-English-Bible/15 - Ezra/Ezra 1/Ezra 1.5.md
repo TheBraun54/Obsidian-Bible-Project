@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then rose up the heads of fathers' [houses] of Judah and Benjamin, and the priests, and the Levites, even all whose spirit God had stirred to go up to build the house of Jehovah which is in Jerusalem.
+Then the heads of fathers' [houses] of Judah and Benjamin, and the priests, and the Levites, even all whose spirit God had stirred to go up rose up to build the house of Yahweh which is in Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall fall by the edge of the sword, and shall be led captive into all the nations: and Jerusalem shall be trodden down of the Gentiles, until the times of the Gentiles be fulfilled.
+They will fall by the edge of the sword, and will be led captive into all the nations. Jerusalem will be trampled down by the Gentiles, until the times of the Gentiles are fulfilled.

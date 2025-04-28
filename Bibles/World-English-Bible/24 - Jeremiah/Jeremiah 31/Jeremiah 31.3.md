@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah appeared of old unto me, [saying], Yea, I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee.
+Yahweh appeared of old to me, [saying], Yes, I have loved you with an everlasting love: therefore with loving kindness have I drawn you.

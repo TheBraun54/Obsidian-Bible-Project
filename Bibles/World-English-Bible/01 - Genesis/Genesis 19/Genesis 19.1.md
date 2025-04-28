@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the two angels came to Sodom at even; and Lot sat in the gate of Sodom: and Lot saw them, and rose up to meet them; and he bowed himself with his face to the earth;
+The two angels came to Sodom at evening. Lot sat in the gate of Sodom. Lot saw them, and rose up to meet them. He bowed himself with his face to the earth,

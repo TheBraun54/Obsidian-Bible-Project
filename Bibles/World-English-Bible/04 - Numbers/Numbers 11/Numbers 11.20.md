@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but a whole month, until it come out at your nostrils, and it be loathsome unto you; because that ye have rejected Jehovah who is among you, and have wept before him, saying, Why came we forth out of Egypt?
+but a whole month, until it come out at your nostrils, and it is loathsome to you; because that you have rejected Yahweh who is among you, and have wept before him, saying, "Why did we come out of Egypt?"'"

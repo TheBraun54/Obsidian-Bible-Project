@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say to the rebellious, even to the house of Israel, Thus saith the Lord Jehovah: O ye house of Israel, let it suffice you of all your abominations,
+You shall tell the rebellious, even to the house of Israel, Thus says the Lord Yahweh: you house of Israel, let it suffice you of all your abominations,

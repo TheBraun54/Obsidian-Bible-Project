@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest thou learn this ways, And get a snare to thy soul.
+lest you learn his ways, and ensnare your soul.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having foreordained us unto adoption as sons through Jesus Christ unto himself, according to the good pleasure of his will,
+having predestined us for adoption as children through Jesus Christ to himself, according to the good pleasure of his desire,

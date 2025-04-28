@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the king of Ai saw it, that they hasted and rose up early, and the men of the city went out against Israel to battle, he and all his people, at the time appointed, before the Arabah; but he knew not that there was an ambush against him behind the city.
+It happened, when the king of Ai saw it, that they hurried and rose up early, and the men of the city went out against Israel to battle, he and all his people, at the time appointed, before the Arabah; but he didn't know that there was an ambush against him behind the city.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when they deliver you up, be not anxious how or what ye shall speak: for it shall be given you in that hour what ye shall speak.
+But when they deliver you up, don't be anxious how or what you will say, for it will be given you in that hour what you will say.

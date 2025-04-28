@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye have bitter jealousy and faction in your heart, glory not and lie not against the truth.
+But if you have bitter jealousy and selfish ambition in your heart, don't boast and don't lie against the truth.

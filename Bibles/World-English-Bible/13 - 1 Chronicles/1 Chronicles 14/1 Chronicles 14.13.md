@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines yet again made a raid in the valley.
+The Philistines yet again made a raid in the valley.

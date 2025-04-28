@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then upon Jahaziel the son of Zechariah, the son of Benaiah, the son of Jeiel, the son of Mattaniah, the Levite, of the sons of Asaph, came the Spirit of Jehovah in the midst of the assembly;
+Then the Spirit of Yahweh came on Jahaziel the son of Zechariah, the son of Benaiah, the son of Jeiel, the son of Mattaniah, the Levite, of the sons of Asaph, in the midst of the assembly;

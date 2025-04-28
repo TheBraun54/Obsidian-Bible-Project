@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The former treatise I made, O Theophilus, concerning all that Jesus began both to do and to teach,
+The first book I wrote, Theophilus, concerned all that Jesus began both to do and to teach,

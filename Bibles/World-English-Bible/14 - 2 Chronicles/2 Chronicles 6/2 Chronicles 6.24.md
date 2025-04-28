@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy people Israel be smitten down before the enemy, because they have sinned against thee, and shall turn again and confess thy name, and pray and make supplication before thee in this house;
+"If your people Israel be struck down before the enemy, because they have sinned against you, and shall turn again and confess your name, and pray and make supplication before you in this house;

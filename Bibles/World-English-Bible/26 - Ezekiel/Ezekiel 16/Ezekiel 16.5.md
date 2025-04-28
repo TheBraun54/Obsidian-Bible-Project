@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No eye pitied thee, to do any of these things unto thee, to have compassion upon thee; but thou wast cast out in the open field, for that thy person was abhorred, in the day that thou wast born.
+No eye pitied you, to do any of these things to you, to have compassion on you; but you were cast out in the open field, for that your person was abhorred, in the day that you were born.

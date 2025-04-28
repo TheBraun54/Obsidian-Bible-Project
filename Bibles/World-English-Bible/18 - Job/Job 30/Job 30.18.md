@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By [God's] great force is my garment disfigured; It bindeth me about as the collar of my coat.
+By great force is my garment disfigured. It binds me about as the collar of my coat.

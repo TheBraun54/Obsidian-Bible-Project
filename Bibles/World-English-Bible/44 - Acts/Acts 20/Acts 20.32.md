@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I commend you to God, and to the word of his grace, which is able to build [you] up, and to give [you] the inheritance among all them that are sanctified.
+Now, brothers, I entrust you to God, and to the word of his grace, which is able to build up, and to give you the inheritance among all those who are sanctified.

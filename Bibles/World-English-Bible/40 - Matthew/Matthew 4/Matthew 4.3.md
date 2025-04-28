@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tempter came and said unto him, If thou art the Son of God, command that these stones become bread.
+The tempter came and said to him, "If you are the Son of God, command that these stones become bread."

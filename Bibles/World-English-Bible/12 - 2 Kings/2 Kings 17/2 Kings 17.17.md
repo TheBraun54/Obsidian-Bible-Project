@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they caused their sons and their daughters to pass through the fire, and used divination and enchantments, and sold themselves to do that which was evil in the sight of Jehovah, to provoke him to anger.
+They caused their sons and their daughters to pass through the fire, and used divination and enchantments, and sold themselves to do that which was evil in the sight of Yahweh, to provoke him to anger.

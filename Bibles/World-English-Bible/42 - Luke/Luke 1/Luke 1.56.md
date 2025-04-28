@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mary abode with her about three months, and returned unto her house.
+Mary stayed with her about three months, and then returned to her house.

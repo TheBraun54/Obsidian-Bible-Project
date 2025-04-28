@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jair died, and was buried in Kamon.
+Jair died, and was buried in Kamon.

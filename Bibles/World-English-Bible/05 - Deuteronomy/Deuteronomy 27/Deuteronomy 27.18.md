@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that maketh the blind to wander out of the way. And all the people shall say, Amen.
+'Cursed is he who makes the blind to wander out of the way.' All the people shall say, 'Amen.'

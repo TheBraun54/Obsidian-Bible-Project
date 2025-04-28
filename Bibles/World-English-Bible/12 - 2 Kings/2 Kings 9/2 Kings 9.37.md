@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the body of Jezebel shall be as dung upon the face of the field in the portion of Jezreel, so that they shall not say, This is Jezebel.
+and the body of Jezebel shall be as dung on the face of the field in the portion of Jezreel, so that they shall not say, "This is Jezebel."'"

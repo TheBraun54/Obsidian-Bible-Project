@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the king took the two sons of Rizpah the daughter of Aiah, whom she bare unto Saul, Armoni and Mephibosheth; and the five sons of Michal the daughter of Saul, whom she bare to Adriel the son of Barzillai the Meholathite:
+But the king took the two sons of Rizpah the daughter of Aiah, whom she bore to Saul, Armoni and Mephibosheth; and the five sons of Michal the daughter of Saul, whom she bore to Adriel the son of Barzillai the Meholathite.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let his posterity be cut off; In the generation following let their name be blotted out.
+Let his posterity be cut off. In the generation following let their name be blotted out.

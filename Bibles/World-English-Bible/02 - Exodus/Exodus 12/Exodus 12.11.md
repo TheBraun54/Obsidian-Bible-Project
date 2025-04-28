@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus shall ye eat it: with your loins girded, your shoes on your feet, and your staff in your hand; and ye shall eat it in haste: it is Jehovah's passover.
+This is how you shall eat it: with your belt on your waist, your shoes on your feet, and your staff in your hand; and you shall eat it in haste: it is Yahweh's Passover.

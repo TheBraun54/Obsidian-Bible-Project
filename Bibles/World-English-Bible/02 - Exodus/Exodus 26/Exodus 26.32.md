@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt hang it upon four pillars of acacia overlaid with gold; their hooks [shall be] of gold, upon four sockets of silver.
+You shall hang it on four pillars of acacia overlaid with gold; their hooks shall be of gold, on four sockets of silver.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken unto me, O house of Jacob, and all the remnant of the house of Israel, that have been borne [by me] from their birth, that have been carried from the womb;
+"Listen to me, house of Jacob, and all the remnant of the house of Israel, that have been borne [by me] from their birth, that have been carried from the womb;

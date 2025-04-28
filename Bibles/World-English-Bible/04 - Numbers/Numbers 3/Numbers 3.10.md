@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt appoint Aaron and his sons, and they shall keep their priesthood: and the stranger that cometh nigh shall be put to death.
+You shall appoint Aaron and his sons, and they shall keep their priesthood. The stranger who comes near shall be put to death."

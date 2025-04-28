@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye judge after the flesh; I judge no man.
+You judge according to the flesh. I judge no one.

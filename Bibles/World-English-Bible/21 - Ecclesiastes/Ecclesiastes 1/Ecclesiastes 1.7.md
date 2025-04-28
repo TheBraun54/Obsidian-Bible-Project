@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the rivers run into the sea, yet the sea is not full; unto the place whither the rivers go, thither they go again.
+All the rivers run into the sea, yet the sea is not full. To the place where the rivers flow, there they flow again.

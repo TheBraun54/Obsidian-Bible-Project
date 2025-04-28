@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul sware to her by Jehovah, saying, As Jehovah liveth, there shall no punishment happen to thee for this thing.
+Saul swore to her by Yahweh, saying, "As Yahweh lives, no punishment shall happen to you for this thing."

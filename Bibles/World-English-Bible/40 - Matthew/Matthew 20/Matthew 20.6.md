@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And about the eleventh [hour] he went out, and found others standing; and he saith unto them, Why stand ye here all the day idle?
+About the eleventh hour he went out, and found others standing idle. He said to them, 'Why do you stand here all day idle?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your eyes shall see, and ye shall say, Jehovah be magnified beyond the border of Israel.
+Your eyes will see, and you will say, "Yahweh is great--even beyond the border of Israel!"

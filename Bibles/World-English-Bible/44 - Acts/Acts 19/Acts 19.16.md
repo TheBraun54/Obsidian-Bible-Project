@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man in whom the evil spirit was leaped on them, and mastered both of them, and prevailed against them, so that they fled out of that house naked and wounded.
+The man in whom the evil spirit was leaped on them, and overpowered them, and prevailed against them, so that they fled out of that house naked and wounded.

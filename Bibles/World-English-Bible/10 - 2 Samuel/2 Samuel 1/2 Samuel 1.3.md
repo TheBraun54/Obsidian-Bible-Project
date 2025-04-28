@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto him, From whence comest thou? And he said unto him, Out of the camp of Israel am I escaped.
+David said to him, "Where do you come from?" He said to him, "I have escaped out of the camp of Israel."

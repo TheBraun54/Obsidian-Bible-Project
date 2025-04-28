@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His cheeks are as a bed of spices, [As] banks of sweet herbs: His lips are [as] lilies, dropping liquid myrrh.
+His cheeks are like a bed of spices with towers of perfumes. His lips are like lilies, dropping liquid myrrh.

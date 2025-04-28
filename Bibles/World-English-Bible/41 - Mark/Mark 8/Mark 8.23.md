@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took hold of the blind man by the hand, and brought him out of the village; and when he had spit on his eyes, and laid his hands upon him, he asked him, Seest thou aught?
+He took hold of the blind man by the hand, and brought him out of the village. When he had spit on his eyes, and laid his hands on him, he asked him if he saw anything.

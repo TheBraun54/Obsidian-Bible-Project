@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel journeyed from Rameses, and encamped in Succoth.
+The children of Israel traveled from Rameses, and encamped in Succoth.

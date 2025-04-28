@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if also a man contend in the games, he is not crowned, except he have contended lawfully.
+Also, if anyone competes in athletics, he isn't crowned unless he has competed by the rules.

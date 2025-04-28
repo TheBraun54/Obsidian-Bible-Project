@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is there any number of his armies? And upon whom doth not his light arise?
+Can his armies be counted? On whom does his light not arise?

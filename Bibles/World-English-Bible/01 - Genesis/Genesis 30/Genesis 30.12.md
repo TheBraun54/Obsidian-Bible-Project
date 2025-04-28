@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zilpah Leah's handmaid bare Jacob a second son.
+Zilpah, Leah's handmaid, bore Jacob a second son.

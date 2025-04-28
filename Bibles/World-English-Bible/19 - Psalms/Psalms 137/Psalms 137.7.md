@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, O Jehovah, against the children of Edom The day of Jerusalem; Who said, Rase it, rase it, Even to the foundation thereof.
+Remember, Yahweh, against the children of Edom, the day of Jerusalem; who said, "Raze it! Raze it even to its foundation!"

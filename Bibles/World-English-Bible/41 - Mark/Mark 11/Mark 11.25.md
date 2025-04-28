@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whensoever ye stand praying, forgive, if ye have aught against any one; that your Father also who is in heaven may forgive you your trespasses.
+Whenever you stand praying, forgive, if you have anything against anyone; so that your Father, who is in heaven, may also forgive you your transgressions.

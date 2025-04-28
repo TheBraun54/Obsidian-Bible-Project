@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sum of thy word is truth; And every one of thy righteous ordinances [endureth] for ever.
+All of your words are truth. Every one of your righteous ordinances endures forever. SIN AND SHIN

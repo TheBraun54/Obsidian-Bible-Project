@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rephah was his son, and Resheph, and Telah his son, and Tahan his son,
+Rephah was his son, and Resheph, and Telah his son, and Tahan his son,

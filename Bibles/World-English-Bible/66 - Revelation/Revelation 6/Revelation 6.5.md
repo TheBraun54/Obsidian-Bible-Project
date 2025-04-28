@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he opened the third seal, I heard the third living creature saying, Come. And I saw, and behold, a black horse; and he that sat thereon had a balance in his hand.
+When he opened the third seal, I heard the third living creature saying, "Come and see!" And behold, a black horse, and he who sat on it had a balance in his hand.

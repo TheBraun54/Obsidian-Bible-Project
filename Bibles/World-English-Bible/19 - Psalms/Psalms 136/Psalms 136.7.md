@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that made great lights; For his lovingkindness [endureth] for ever:
+To him who made the great lights; for his loving kindness endures forever:

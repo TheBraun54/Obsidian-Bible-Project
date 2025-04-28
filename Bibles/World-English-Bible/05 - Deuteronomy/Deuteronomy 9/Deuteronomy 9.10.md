@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah delivered unto me the two tables of stone written with the finger of God; and on them [was written] according to all the words, which Jehovah spake with you in the mount out of the midst of the fire in the day of the assembly.
+Yahweh delivered to me the two tables of stone written with the finger of God; and on them [was written] according to all the words, which Yahweh spoke with you on the mountain out of the midst of the fire in the day of the assembly.

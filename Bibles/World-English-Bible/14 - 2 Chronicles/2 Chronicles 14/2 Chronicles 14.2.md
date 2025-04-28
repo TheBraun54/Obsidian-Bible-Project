@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Asa did that which was good and right in the eyes of Jehovah his God:
+Asa did that which was good and right in the eyes of Yahweh his God:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She openeth her mouth with wisdom; And the law of kindness is on her tongue.
+She opens her mouth with wisdom. Faithful instruction is on her tongue.

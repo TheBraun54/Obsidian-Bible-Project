@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take, I pray thee, my gift that is brought to thee; because God hath dealt graciously with me, and because I have enough. And he urged him, and he took it.
+Please take the gift that I brought to you, because God has dealt graciously with me, and because I have enough." He urged him, and he took it.

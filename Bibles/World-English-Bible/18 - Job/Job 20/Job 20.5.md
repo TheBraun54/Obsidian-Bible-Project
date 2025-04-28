@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That the triumphing of the wicked is short, And the joy of the godless but for a moment?
+that the triumphing of the wicked is short, the joy of the godless but for a moment?

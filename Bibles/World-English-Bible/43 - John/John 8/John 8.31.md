@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said to those Jews that had believed him, If ye abide in my word, [then] are ye truly my disciples;
+Jesus therefore said to those Jews who had believed him, "If you remain in my word, then you are truly my disciples.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I said, Surely these are poor; they are foolish; for they know not the way of Jehovah, nor the law of their God:
+Then I said, "Surely these are poor. They are foolish; for they don't know the way of Yahweh, nor the law of their God.

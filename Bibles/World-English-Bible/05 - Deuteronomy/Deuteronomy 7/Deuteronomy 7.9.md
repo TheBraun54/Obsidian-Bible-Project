@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know therefore that Jehovah thy God, he is God, the faithful God, who keepeth covenant and lovingkindness with them that love him and keep his commandments to a thousand generations,
+Know therefore that Yahweh your God, he is God, the faithful God, who keeps covenant and loving kindness with them who love him and keep his commandments to a thousand generations,

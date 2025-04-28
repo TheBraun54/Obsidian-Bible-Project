@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jeremiah said, They shall not deliver thee. Obey, I beseech thee, the voice of Jehovah, in that which I speak unto thee: so it shall be well with thee, and thy soul shall live.
+But Jeremiah said, They shall not deliver you. Obey, I beg you, the voice of Yahweh, in that which I speak to you: so it shall be well with you, and your soul shall live.

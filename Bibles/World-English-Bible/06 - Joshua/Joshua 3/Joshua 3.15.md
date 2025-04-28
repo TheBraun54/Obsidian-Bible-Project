@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they that bare the ark were come unto the Jordan, and the feet of the priests that bare the ark were dipped in the brink of the water (for the Jordan overfloweth all its banks all the time of harvest,)
+and when those who bore the ark had come to the Jordan, and the feet of the priests who bore the ark had dipped in the edge of the water (for the Jordan overflows all its banks all the time of harvest),

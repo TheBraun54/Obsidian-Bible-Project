@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My head with oil thou didst not anoint: but she hath anointed my feet with ointment.
+You didn't anoint my head with oil, but she has anointed my feet with ointment.

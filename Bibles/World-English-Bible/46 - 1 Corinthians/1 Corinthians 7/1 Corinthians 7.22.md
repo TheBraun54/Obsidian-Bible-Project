@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that was called in the Lord being a bondservant, is the Lord's freedman: likewise he that was called being free, is Christ's bondservant.
+For he who was called in the Lord being a bondservant is the Lord's free man. Likewise he who was called being free is Christ's bondservant.

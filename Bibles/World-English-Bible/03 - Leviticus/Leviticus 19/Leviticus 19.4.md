@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn ye not unto idols, nor make to yourselves molten gods: I am Jehovah your God.
+"'Don't turn to idols, nor make molten gods for yourselves. I am Yahweh your God.

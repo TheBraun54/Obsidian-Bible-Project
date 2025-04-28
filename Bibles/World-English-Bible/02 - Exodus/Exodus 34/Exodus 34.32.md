@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward all the children of Israel came nigh: and he gave them in commandment all that Jehovah had spoken with him in mount Sinai.
+Afterward all the children of Israel came near, and he gave them all of the commandments that Yahweh had spoken with him on Mount Sinai.

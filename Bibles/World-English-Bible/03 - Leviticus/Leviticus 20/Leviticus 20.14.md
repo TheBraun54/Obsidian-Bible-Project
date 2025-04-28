@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man take a wife and her mother, it is wickedness: they shall be burnt with fire, both he and they; that there be no wickedness among you.
+"'If a man takes a wife and her mother, it is wickedness: they shall be burned with fire, both he and they; that there may be no wickedness among you.

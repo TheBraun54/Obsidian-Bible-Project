@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, There was in a city a judge, who feared not God, and regarded not man:
+saying, "There was a judge in a certain city who didn't fear God, and didn't respect man.

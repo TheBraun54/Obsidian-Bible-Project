@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are their generations: the first-born of Ishmael, Nebaioth; then Kedar, and Adbeel, and Mibsam,
+These are their generations: the firstborn of Ishmael, Nebaioth; then Kedar, and Adbeel, and Mibsam,

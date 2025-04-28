@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the fellowship of thy faith may become effectual, in the knowledge of every good thing which is in you, unto Christ.
+that the fellowship of your faith may become effective, in the knowledge of every good thing which is in us in Christ Jesus.

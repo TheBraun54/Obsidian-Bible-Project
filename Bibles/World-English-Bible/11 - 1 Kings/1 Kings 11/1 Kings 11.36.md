@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto his son will I give one tribe, that David my servant may have a lamp alway before me in Jerusalem, the city which I have chosen me to put my name there.
+To his son will I give one tribe, that David my servant may have a lamp always before me in Jerusalem, the city which I have chosen me to put my name there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the service of the families of the sons of Merari, according to all their service, in the tent of meeting, under the hand of Ithamar the son of Aaron the priest.
+This is the service of the families of the sons of Merari, according to all their service, in the Tent of Meeting, under the hand of Ithamar the son of Aaron the priest."

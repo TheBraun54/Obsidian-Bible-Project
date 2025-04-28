@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the golden altar, and the anointing oil, and the sweet incense, and the screen for the door of the Tent;
+the golden altar, the anointing oil, the sweet incense, the screen for the door of the Tent,

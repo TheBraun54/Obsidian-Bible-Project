@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel answered Saul, and said, I am the seer; go up before me unto the high place, for ye shall eat with me to-day: and in the morning I will let thee go, and will tell thee all that is in thy heart.
+Samuel answered Saul, and said, "I am the seer. Go up before me to the high place, for you shall eat with me today. In the morning I will let you go, and will tell you all that is in your heart.

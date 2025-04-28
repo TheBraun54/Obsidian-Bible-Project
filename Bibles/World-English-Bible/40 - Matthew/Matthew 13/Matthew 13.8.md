@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and others fell upon the good ground, and yielded fruit, some a hundredfold, some sixty, some thirty.
+Others fell on good soil, and yielded fruit: some one hundred times as much, some sixty, and some thirty.

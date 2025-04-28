@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their visage is blacker than a coal; They are not known in the streets: Their skin cleaveth to their bones; it is withered, it is become like a stick.
+Their appearance is blacker than a coal; they are not known in the streets: Their skin clings to their bones; it is withered, it is become like a stick.

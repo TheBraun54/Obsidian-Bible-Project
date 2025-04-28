@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of thy temple at Jerusalem Kings shall bring presents unto thee.
+Because of your temple at Jerusalem, kings shall bring presents to you.

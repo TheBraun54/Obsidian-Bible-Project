@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let no man seek his own, but [each] his neighbor's [good] .
+Let no one seek his own, but each one his neighbor's good.

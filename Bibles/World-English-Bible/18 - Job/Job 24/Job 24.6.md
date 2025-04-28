@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They cut their provender in the field; And they glean the vintage of the wicked.
+They cut their provender in the field. They glean the vineyard of the wicked.

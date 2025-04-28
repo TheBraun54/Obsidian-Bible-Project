@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath sworn unto David in truth; He will not turn from it: Of the fruit of thy body will I set upon thy throne.
+Yahweh has sworn to David in truth. He will not turn from it: "I will set the fruit of your body on your throne.

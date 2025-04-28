@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he satisfieth the longing soul, And the hungry soul he filleth with good.
+For he satisfies the longing soul. He fills the hungry soul with good.

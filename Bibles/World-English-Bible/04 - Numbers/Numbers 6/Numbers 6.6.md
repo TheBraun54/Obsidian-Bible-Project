@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the days that he separateth himself unto Jehovah he shall not come near to a dead body.
+"'All the days that he separates himself to Yahweh he shall not go near a dead body.

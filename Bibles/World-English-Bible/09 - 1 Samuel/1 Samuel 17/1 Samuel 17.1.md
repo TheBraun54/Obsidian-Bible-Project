@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the Philistines gathered together their armies to battle; and they were gathered together at Socoh, which belongeth to Judah, and encamped between Socoh and Azekah, in Ephes-dammim.
+Now the Philistines gathered together their armies to battle; and they were gathered together at Socoh, which belongs to Judah, and encamped between Socoh and Azekah, in Ephesdammim.

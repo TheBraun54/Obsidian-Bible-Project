@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every high priest is appointed to offer both gifts and sacrifices: wherefore it is necessary that this [high priest] also have somewhat to offer.
+For every high priest is appointed to offer both gifts and sacrifices. Therefore it is necessary that this high priest also have something to offer.

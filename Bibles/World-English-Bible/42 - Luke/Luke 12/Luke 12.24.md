@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider the ravens, that they sow not, neither reap; which have no store-chamber nor barn; and God feedeth them: of how much more value are ye than the birds!
+Consider the ravens: they don't sow, they don't reap, they have no warehouse or barn, and God feeds them. How much more valuable are you than birds!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it seemed good to the Holy Spirit, and to us, to lay upon you no greater burden than these necessary things:
+For it seemed good to the Holy Spirit, and to us, to lay no greater burden on you than these necessary things:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye, brethren, became imitators of the churches of God which are in Judaea in Christ Jesus: for ye also suffered the same things of your own countrymen, even as they did of the Jews;
+For you, brothers, became imitators of the assemblies of God which are in Judea in Christ Jesus; for you also suffered the same things from your own countrymen, even as they did from the Jews;

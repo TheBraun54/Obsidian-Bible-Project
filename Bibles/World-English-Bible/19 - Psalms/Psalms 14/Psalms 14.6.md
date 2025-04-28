@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye put to shame the counsel of the poor, Because Jehovah is his refuge.
+You frustrate the plan of the poor, because Yahweh is his refuge.

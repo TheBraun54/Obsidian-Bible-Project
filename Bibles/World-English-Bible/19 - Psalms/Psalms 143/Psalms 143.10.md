@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teach me to do thy will; For thou art my God: Thy Spirit is good; Lead me in the land of uprightness.
+Teach me to do your will, for you are my God. Your Spirit is good. Lead me in the land of uprightness.

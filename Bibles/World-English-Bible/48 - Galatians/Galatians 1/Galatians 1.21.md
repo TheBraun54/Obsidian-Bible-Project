@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I came unto the regions of Syria and Cilicia.
+Then I came to the regions of Syria and Cilicia.

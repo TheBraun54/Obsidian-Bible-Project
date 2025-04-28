@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The kings came and fought; Then fought the kings of Canaan. In Taanach by the waters of Megiddo: They took no gain of money.
+"The kings came and fought, then the kings of Canaan fought at Taanach by the waters of Megiddo. They took no plunder of silver.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet there shall be left therein gleanings, as the shaking of an olive-tree, two or three berries in the top of the uppermost bough, four or five in the outmost branches of a fruitful tree, saith Jehovah, the God of Israel.
+Yet gleanings will be left there, like the shaking of an olive tree, two or three olives in the top of the uppermost bough, four or five in the outermost branches of a fruitful tree," says Yahweh, the God of Israel.

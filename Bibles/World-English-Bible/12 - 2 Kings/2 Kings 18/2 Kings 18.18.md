@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had called to the king, there came out to them Eliakim the son of Hilkiah, who was over the household, and Shebnah the scribe, and Joah the son of Asaph the recorder.
+When they had called to the king, there came out to them Eliakim the son of Hilkiah, who was over the household, and Shebnah the scribe, and Joah the son of Asaph the recorder.

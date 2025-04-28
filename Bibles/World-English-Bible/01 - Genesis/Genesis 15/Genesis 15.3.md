@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram said, Behold, to me thou hast given no seed: and, lo, one born in my house is mine heir.
+Abram said, "Behold, to me you have given no seed: and, behold, one born in my house is my heir."

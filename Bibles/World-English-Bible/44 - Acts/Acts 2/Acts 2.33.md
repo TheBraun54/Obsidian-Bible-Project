@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Being therefore by the right hand of God exalted, and having received of the Father the promise of the Holy Spirit, he hath poured forth this, which ye see and hear.
+Being therefore exalted by the right hand of God, and having received from the Father the promise of the Holy Spirit, he has poured out this, which you now see and hear.

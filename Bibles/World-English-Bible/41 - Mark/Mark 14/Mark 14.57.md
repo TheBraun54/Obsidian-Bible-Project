@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there stood up certain, and bare false witness against him, saying,
+Some stood up, and gave false testimony against him, saying,

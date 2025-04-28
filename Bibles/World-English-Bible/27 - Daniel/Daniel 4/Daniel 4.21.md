@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose leaves were fair, and the fruit thereof much, and in it was food for all; under which the beasts of the field dwelt, and upon whose branches the birds of the heavens had their habitation:
+whose leaves were beautiful, and its fruit much, and in it was food for all; under which the animals of the field lived, and on whose branches the birds of the sky had their habitation:

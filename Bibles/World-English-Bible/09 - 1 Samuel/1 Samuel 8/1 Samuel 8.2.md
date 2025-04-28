@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the name of his first-born was Joel; and the name of his second, Abijah: they were judges in Beer-sheba.
+Now the name of his firstborn was Joel; and the name of his second, Abijah: they were judges in Beersheba.

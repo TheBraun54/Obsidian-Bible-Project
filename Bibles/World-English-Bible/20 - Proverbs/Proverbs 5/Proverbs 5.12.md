@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And say, How have I hated instruction, And my heart despised reproof;
+and say, "How I have hated instruction, and my heart despised reproof;

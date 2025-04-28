@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought me to the door of the court; and when I looked, behold, a hole in the wall.
+He brought me to the door of the court; and when I looked, behold, a hole in the wall.

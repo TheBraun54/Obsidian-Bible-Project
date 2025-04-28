@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they and their children had the oversight of the gates of the house of Jehovah, even the house of the tent, by wards.
+So they and their children had the oversight of the gates of the house of Yahweh, even the house of the tent, by wards.

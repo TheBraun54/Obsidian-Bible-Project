@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That forsaketh the friend of her youth, And forgetteth the covenant of her God:
+who forsakes the friend of her youth, and forgets the covenant of her God:

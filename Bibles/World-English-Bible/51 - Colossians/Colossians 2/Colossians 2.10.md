@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in him ye are made full, who is the head of all principality and power:
+and in him you are made full, who is the head of all principality and power;

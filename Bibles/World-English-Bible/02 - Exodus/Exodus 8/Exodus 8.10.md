@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Against to-morrow. And he said, Be it according to thy word; that thou mayest know that there is none like unto Jehovah our God.
+He said, "Tomorrow." He said, "Be it according to your word, that you may know that there is none like Yahweh our God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts concerning the pillars, and concerning the sea, and concerning the bases, and concerning the residue of the vessels that are left in this city,
+For thus says Yahweh of Armies concerning the pillars, and concerning the sea, and concerning the bases, and concerning the residue of the vessels that are left in this city,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as the Father hath loved me, I also have loved you: abide ye in my love.
+Even as the Father has loved me, I also have loved you. Remain in my love.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the ungodly shall be all of them as thorns to be thrust away, Because they cannot be taken with the hand;
+But all of the ungodly shall be as thorns to be thrust away, because they can't be taken with the hand,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be yet many years, according unto them he shall give back the price of his redemption out of the money that he was bought for.
+If there are yet many years, according to them he shall give back the price of his redemption out of the money that he was bought for.

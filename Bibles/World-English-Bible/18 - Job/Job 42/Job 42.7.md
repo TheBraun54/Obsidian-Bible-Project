@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, after Jehovah had spoken these words unto Job, Jehovah said to Eliphaz the Temanite, My wrath is kindled against thee, and against thy two friends; for ye have not spoken of me the thing that is right, as my servant Job hath.
+It was so, that after Yahweh had spoken these words to Job, Yahweh said to Eliphaz the Temanite, "My wrath is kindled against you, and against your two friends; for you have not spoken of me the thing that is right, as my servant Job has.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-John answered, saying unto them all, I indeed baptize you with water; but there cometh he that is mightier than I, the latchet of whose shoes I am not worthy to unloose: he shall baptize you [ in the Holy Spirit and [in] fire:
+John answered them all, "I indeed baptize you with water, but he comes who is mightier than I, the latchet of whose sandals I am not worthy to loosen. He will baptize you in the Holy Spirit and fire,

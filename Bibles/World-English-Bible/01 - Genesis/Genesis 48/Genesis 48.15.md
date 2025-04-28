@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he blessed Joseph, and said, The God before whom my fathers Abraham and Isaac did walk, the God who hath fed me all my life long unto this day,
+He blessed Joseph, and said, "The God before whom my fathers Abraham and Isaac did walk, the God who has fed me all my life long to this day,

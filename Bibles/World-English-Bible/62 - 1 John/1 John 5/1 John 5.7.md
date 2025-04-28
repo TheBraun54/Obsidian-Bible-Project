@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it is the Spirit that beareth witness, because the Spirit is the truth.
+For there are three who testify:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take thee again another roll, and write in it all the former words that were in the first roll, which Jehoiakim the king of Judah hath burned.
+Take again another scroll, and write in it all the former words that were in the first scroll, which Jehoiakim the king of Judah has burned.

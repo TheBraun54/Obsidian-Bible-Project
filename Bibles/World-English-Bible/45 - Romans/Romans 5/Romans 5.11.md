@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and not only so, but we also rejoice in God through our Lord Jesus Christ, through whom we have now received the reconciliation.
+Not only so, but we also rejoice in God through our Lord Jesus Christ, through whom we have now received the reconciliation.

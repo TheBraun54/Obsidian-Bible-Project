@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when ye are multiplied and increased in the land, in those days, saith Jehovah, they shall say no more, The ark of the covenant of Jehovah; neither shall it come to mind; neither shall they remember it; neither shall they miss it; neither shall it be made any more.
+It shall come to pass, when you are multiplied and increased in the land, in those days," says Yahweh, "they shall say no more, 'The ark of the covenant of Yahweh!' neither shall it come to mind; neither shall they remember it; neither shall they miss it; neither shall it be made any more.

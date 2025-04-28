@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the law came in besides, that the trespass might abound; but where sin abounded, grace did abound more exceedingly:
+The law came in besides, that the trespass might abound; but where sin abounded, grace abounded more exceedingly;

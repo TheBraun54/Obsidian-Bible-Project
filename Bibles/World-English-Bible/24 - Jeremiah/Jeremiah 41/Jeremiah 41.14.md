@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So all the people that Ishmael had carried away captive from Mizpah turned about and came back, and went unto Johanan the son of Kareah.
+So all the people who Ishmael had carried away captive from Mizpah turned about and came back, and went to Johanan the son of Kareah.

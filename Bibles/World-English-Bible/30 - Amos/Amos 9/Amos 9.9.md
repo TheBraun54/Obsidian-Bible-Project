@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, I will command, and I will sift the house of Israel among all the nations, like as [grain] is sifted in a sieve, yet shall not the least kernel fall upon the earth.
+"For, behold, I will command, and I will sift the house of Israel among all the nations, as grain is sifted in a sieve, yet not the least kernel will fall on the earth.

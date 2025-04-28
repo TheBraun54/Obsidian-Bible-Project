@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that time shall a present be brought unto Jehovah of hosts [from] a people tall and smooth, even from a people terrible from their beginning onward, a nation that meteth out and treadeth down, whose land the rivers divide, to the place of the name of Jehovah of hosts, the mount Zion.
+In that time, a present will be brought to Yahweh of Armies from a people tall and smooth, even from a people awesome from their beginning onward, a nation that measures out and treads down, whose land the rivers divide, to the place of the name of Yahweh of Armies, Mount Zion.

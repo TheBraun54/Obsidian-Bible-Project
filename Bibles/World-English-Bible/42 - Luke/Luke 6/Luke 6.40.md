@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The disciple is not above his teacher: but every one when he is perfected shall be as his teacher.
+A disciple is not above his teacher, but everyone when he is fully trained will be like his teacher.

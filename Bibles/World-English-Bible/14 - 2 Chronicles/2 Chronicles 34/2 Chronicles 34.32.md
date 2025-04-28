@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he caused all that were found in Jerusalem and Benjamin to stand [to it] . And the inhabitants of Jerusalem did according to the covenant of God, the God of their fathers.
+He caused all who were found in Jerusalem and Benjamin to stand [to it]. The inhabitants of Jerusalem did according to the covenant of God, the God of their fathers.

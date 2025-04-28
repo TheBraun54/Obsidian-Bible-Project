@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their whole body, and their backs, and their hands, and their wings, and the wheels, were full of eyes round about, [even] the wheels that they four had.
+Their whole body, and their backs, and their hands, and their wings, and the wheels, were full of eyes all around, [even] the wheels that the four of them had.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the day-time also he led them with a cloud, And all the night with a light of fire.
+In the daytime he also led them with a cloud, and all night with a light of fire.

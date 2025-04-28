@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall also strip thee of thy clothes, and take away thy fair jewels.
+They shall also strip you of your clothes, and take away your beautiful jewels.

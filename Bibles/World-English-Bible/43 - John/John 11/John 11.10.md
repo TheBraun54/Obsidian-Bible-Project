@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if a man walk in the night, he stumbleth, because the light is not in him.
+But if a man walks in the night, he stumbles, because the light isn't in him."

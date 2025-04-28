@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bring forth therefore fruit worthy of repentance:
+Therefore bring forth fruit worthy of repentance!

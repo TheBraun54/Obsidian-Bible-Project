@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon said, Thou hast showed unto thy servant David my father great lovingkindness, according as he walked before thee in truth, and in righteousness, and in uprightness of heart with thee; and thou hast kept for him this great lovingkindness, that thou hast given him a son to sit on his throne, as it is this day.
+Solomon said, "You have shown to your servant David my father great loving kindness, according as he walked before you in truth, and in righteousness, and in uprightness of heart with you. You have kept for him this great loving kindness, that you have given him a son to sit on his throne, as it is this day.

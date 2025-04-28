@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, Are there not twelve hours in the day? If a man walk in the day, he stumbleth not, because he seeth the light of this world.
+Jesus answered, "Aren't there twelve hours of daylight? If a man walks in the day, he doesn't stumble, because he sees the light of this world.

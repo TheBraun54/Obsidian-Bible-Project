@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Was it not told my lord what I did when Jezebel slew the prophets of Jehovah, how I hid a hundred men of Jehovah's prophets by fifty in a cave, and fed them with bread and water?
+Wasn't it told my lord what I did when Jezebel killed the prophets of Yahweh, how I hid one hundred men of Yahweh's prophets with fifty to a cave, and fed them with bread and water?

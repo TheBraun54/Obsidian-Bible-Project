@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, in those days, and in that time, when I shall bring back the captivity of Judah and Jerusalem,
+"For, behold, in those days, and in that time, when I restore the fortunes of Judah and Jerusalem,

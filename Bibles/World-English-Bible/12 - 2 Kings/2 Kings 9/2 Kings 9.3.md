@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then take the vial of oil, and pour it on his head, and say, Thus saith Jehovah, I have anointed thee king over Israel. Then open the door, and flee, and tarry not.
+Then take the vial of oil, and pour it on his head, and say, 'Thus says Yahweh, "I have anointed you king over Israel."' Then open the door, flee, and don't wait."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every one shall be salted with fire .
+For everyone will be salted with fire, and every sacrifice will be seasoned with salt.

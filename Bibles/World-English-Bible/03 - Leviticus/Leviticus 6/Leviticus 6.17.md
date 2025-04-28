@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall not be baken with leaven. I have given it as their portion of my offerings made by fire; it is most holy, as the sin-offering, and as the trespass-offering.
+It shall not be baked with yeast. I have given it as their portion of my offerings made by fire. It is most holy, as the sin offering, and as the trespass offering.

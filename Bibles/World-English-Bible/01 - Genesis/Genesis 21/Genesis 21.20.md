@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God was with the lad, and he grew; and he dwelt in the wilderness, and became, as he grew up, an archer.
+God was with the boy, and he grew. He lived in the wilderness, and became, as he grew up, an archer.

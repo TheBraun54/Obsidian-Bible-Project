@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And would that this people were under my hand! then would I remove Abimelech. And he said to Abimelech, Increase thine army, and come out.
+Would that this people were under my hand! Then I would remove Abimelech." He said to Abimelech, "Increase your army, and come out!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, let that night be barren; Let no joyful voice come therein.
+Behold, let that night be barren. Let no joyful voice come therein.

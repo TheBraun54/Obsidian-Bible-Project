@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A woman when she is in travail hath sorrow, because her hour is come: but when she is delivered of the child, she remembereth no more the anguish, for the joy that a man is born into the world.
+A woman, when she gives birth, has sorrow, because her time has come. But when she has delivered the child, she doesn't remember the anguish any more, for the joy that a human being is born into the world.

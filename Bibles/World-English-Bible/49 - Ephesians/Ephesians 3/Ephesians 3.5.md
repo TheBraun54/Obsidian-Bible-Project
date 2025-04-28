@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which in other generations was not made known unto the sons of men, as it hath now been revealed unto his holy apostles and prophets in the Spirit;
+which in other generations was not made known to the children of men, as it has now been revealed to his holy apostles and prophets in the Spirit;

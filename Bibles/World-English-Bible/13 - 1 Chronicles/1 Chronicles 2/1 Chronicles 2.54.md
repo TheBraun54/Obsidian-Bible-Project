@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Salma: Beth-lehem, and the Netophathites, Atroth-beth-joab, and half of the Manahathites, the Zorites.
+The sons of Salma: Bethlehem, and the Netophathites, Atroth Beth Joab, and half of the Manahathites, the Zorites.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, Receive thy sight; thy faith hath made thee whole.
+Jesus said to him, "Receive your sight. Your faith has healed you."

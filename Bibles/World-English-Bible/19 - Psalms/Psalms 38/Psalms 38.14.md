@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, I am as a man that heareth not, And in whose mouth are no reproofs.
+Yes, I am as a man who doesn't hear, in whose mouth are no reproofs.

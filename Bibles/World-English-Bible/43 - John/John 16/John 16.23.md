@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day ye shall ask me no question. Verily, verily, I say unto you, if ye shall ask anything of the Father, he will give it you in my name.
+"In that day you will ask me no questions. Most certainly I tell you, whatever you may ask of the Father in my name, he will give it to you.

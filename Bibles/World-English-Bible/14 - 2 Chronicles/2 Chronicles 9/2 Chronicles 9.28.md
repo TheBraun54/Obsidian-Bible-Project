@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought horses for Solomon out of Egypt, and out of all lands.
+They brought horses for Solomon out of Egypt, and out of all lands.

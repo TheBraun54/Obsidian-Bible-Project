@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they girded sackcloth on their loins, and [put] ropes on their heads, and came to the king of Israel, and said, Thy servant Ben-hadad saith, I pray thee, let me live. And he said, Is he yet alive? he is my brother.
+So they put sackcloth on their bodies and ropes on their heads, and came to the king of Israel, and said, "Your servant Ben Hadad says, 'Please let me live.'" He said, "Is he still alive? He is my brother."

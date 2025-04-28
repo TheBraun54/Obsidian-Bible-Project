@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Woe, woe, the great city, she that was arrayed in fine linen and purple and scarlet, and decked with gold and precious stone and pearl!
+saying, 'Woe, woe, the great city, she who was dressed in fine linen, purple, and scarlet, and decked with gold and precious stones and pearls!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Ephraim spake, there was trembling; he exalted himself in Israel; but when he offended in Baal, he died.
+When Ephraim spoke, there was trembling. He exalted himself in Israel, but when he became guilty in Baal, he died.

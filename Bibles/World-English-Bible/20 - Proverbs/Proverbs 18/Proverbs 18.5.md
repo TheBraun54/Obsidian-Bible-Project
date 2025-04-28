@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To respect the person of the wicked is not good, [Nor] to turn aside the righteous in judgment.
+To be partial to the faces of the wicked is not good, nor to deprive the innocent of justice.

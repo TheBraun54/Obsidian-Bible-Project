@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Say ye, His disciples came by night, and stole him away while we slept.
+saying, "Say that his disciples came by night, and stole him away while we slept.

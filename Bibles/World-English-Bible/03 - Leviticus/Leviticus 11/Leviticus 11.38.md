@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if water be put upon the seed, and [aught] of their carcass fall thereon, it is unclean unto you.
+But if water is put on the seed, and part of their carcass falls on it, it is unclean to you.

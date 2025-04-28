@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Moses gave the redemption-money unto Aaron and to his sons, according to the word of Jehovah, as Jehovah commanded Moses.
+and Moses gave the redemption money to Aaron and to his sons, according to the word of Yahweh, as Yahweh commanded Moses.

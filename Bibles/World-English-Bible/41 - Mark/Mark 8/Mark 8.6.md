@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commandeth the multitude to sit down on the ground: and he took the seven loaves, and having given thanks, he brake, and gave to his disciples, to set before them; and they set them before the multitude.
+He commanded the multitude to sit down on the ground, and he took the seven loaves. Having given thanks, he broke them, and gave them to his disciples to serve, and they served the multitude.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I take the wings of the morning, And dwell in the uttermost parts of the sea;
+If I take the wings of the dawn, and settle in the uttermost parts of the sea;

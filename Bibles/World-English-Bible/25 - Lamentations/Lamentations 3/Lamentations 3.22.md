@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ It is of] Jehovah's lovingkindnesses that we are not consumed, because his compassions fail not.
+[It is of] Yahweh's loving kindnesses that we are not consumed, because his compassion doesn't fail.

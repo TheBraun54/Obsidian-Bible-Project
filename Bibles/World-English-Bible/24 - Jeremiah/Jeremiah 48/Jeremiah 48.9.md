@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give wings unto Moab, that she may fly and get her away: and her cities shall become a desolation, without any to dwell therein.
+Give wings to Moab, that she may fly and get her away: and her cities shall become a desolation, without any to dwell therein.

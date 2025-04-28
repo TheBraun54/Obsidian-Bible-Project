@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the vision of the evenings and mornings which hath been told is true: but shut thou up the vision; for it belongeth to many days [to come] .
+The vision of the evenings and mornings which has been told is true: but seal up the vision; for it belongs to many days [to come].

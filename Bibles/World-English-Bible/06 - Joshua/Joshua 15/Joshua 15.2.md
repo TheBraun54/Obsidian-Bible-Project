@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their south border was from the uttermost part of the Salt Sea, from the bay that looketh southward;
+Their south border was from the uttermost part of the Salt Sea, from the bay that looks southward;

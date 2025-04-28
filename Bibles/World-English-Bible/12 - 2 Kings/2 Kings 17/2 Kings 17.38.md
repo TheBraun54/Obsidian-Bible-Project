@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the covenant that I have made with you ye shall not forget; neither shall ye fear other gods:
+You shall not forget the covenant that I have made with you; neither shall you fear other gods.

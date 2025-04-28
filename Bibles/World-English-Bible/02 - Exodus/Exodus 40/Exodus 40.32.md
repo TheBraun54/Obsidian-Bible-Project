@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when they went into the tent of meeting, and when they came near unto the altar, they washed; as Jehovah commanded Moses.
+When they went into the Tent of Meeting, and when they came near to the altar, they washed, as Yahweh commanded Moses.

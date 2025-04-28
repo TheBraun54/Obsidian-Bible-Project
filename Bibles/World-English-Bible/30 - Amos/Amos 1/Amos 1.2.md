@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Jehovah will roar from Zion, and utter his voice from Jerusalem; and the pastures of the shepherds shall mourn, and the top of Carmel shall wither.
+He said: "Yahweh will roar from Zion, and utter his voice from Jerusalem; and the pastures of the shepherds will mourn, and the top of Carmel will wither."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men, whom Moses sent to spy out the land, who returned, and made all the congregation to murmur against him, by bringing up an evil report against the land,
+The men, whom Moses sent to spy out the land, who returned, and made all the congregation to murmur against him, by bringing up an evil report against the land,

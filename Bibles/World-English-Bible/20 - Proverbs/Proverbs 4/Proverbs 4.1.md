@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, [my] sons, the instruction of a father, And attend to know understanding:
+Listen, sons, to a father's instruction. Pay attention and know understanding;

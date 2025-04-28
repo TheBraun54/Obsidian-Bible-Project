@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his servants spake yet more against Jehovah God, and against his servant Hezekiah.
+His servants spoke yet more against Yahweh God, and against his servant Hezekiah.

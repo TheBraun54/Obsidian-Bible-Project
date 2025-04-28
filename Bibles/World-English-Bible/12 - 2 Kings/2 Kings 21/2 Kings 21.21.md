@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he walked in all the way that his father walked in, and served the idols that his father served, and worshipped them:
+He walked in all the way that his father walked in, and served the idols that his father served, and worshiped them:

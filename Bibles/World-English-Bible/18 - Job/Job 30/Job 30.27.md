@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart is troubled, and resteth not; Days of affliction are come upon me.
+My heart is troubled, and doesn't rest. Days of affliction have come on me.

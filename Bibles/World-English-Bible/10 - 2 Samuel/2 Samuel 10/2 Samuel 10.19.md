@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all the kings that were servants to Hadarezer saw that they were put to the worse before Israel, they made peace with Israel, and served them. So the Syrians feared to help the children of Ammon any more.
+When all the kings who were servants to Hadadezer saw that they were defeated before Israel, they made peace with Israel, and served them. So the Syrians feared to help the children of Ammon any more.

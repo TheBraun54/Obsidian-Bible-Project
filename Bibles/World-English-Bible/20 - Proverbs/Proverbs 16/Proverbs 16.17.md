@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The highway of the upright is to depart from evil: He that keepeth his way preserveth his soul.
+The highway of the upright is to depart from evil. He who keeps his way preserves his soul.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore be ye not foolish, but understand what the will of the Lord is.
+Therefore don't be foolish, but understand what the will of the Lord is.

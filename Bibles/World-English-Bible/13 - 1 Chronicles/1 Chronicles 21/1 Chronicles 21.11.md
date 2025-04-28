@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Gad came to David, and said unto him, Thus saith Jehovah, Take which thou wilt:
+So Gad came to David, and said to him, "Thus says Yahweh, 'Take your choice:

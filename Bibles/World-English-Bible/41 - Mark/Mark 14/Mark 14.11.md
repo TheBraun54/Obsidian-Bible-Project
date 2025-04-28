@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, when they heard it, were glad, and promised to give him money. And he sought how he might conveniently deliver him [unto them] .
+They, when they heard it, were glad, and promised to give him money. He sought how he might conveniently deliver him.

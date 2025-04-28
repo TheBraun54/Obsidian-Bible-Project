@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another also said, I will follow thee, Lord; but first suffer me to bid farewell to them that are at my house.
+Another also said, "I want to follow you, Lord, but first allow me to say good-bye to those who are at my house."

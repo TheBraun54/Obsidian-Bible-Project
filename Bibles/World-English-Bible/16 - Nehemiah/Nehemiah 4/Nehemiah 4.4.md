@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O our God; for we are despised: and turn back their reproach upon their own head, and give them up for a spoil in a land of captivity;
+"Hear, our God; for we are despised; and turn back their reproach on their own head, give them up for a spoil in a land of captivity;

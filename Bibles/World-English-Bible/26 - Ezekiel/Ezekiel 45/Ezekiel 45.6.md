@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall appoint the possession of the city five thousand broad, and five and twenty thousand long, side by side with the oblation of the holy portion: it shall be for the whole house of Israel.
+You shall appoint the possession of the city five thousand broad, and twenty-five thousand long, side by side with the offering of the holy portion: it shall be for the whole house of Israel.

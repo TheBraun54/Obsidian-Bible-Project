@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Morning by morning will I destroy all the wicked of the land; To cut off all the workers of iniquity from the city of Jehovah.
+Morning by morning, I will destroy all the wicked of the land; to cut off all the workers of iniquity from Yahweh's city. A Prayer of the afflicted, when he is overwhelmed and pours out his complaint before Yahweh.

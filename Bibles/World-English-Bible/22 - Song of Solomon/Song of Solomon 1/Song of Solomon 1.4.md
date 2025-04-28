@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Draw me; we will run after thee: The king hath brought me into his chambers; We will be glad and rejoice in thee; We will make mention of thy love more than of wine: Rightly do they love thee. [
+Take me away with you. Let us hurry. The king has brought me into his rooms. Friends We will be glad and rejoice in you. We will praise your love more than wine! Beloved They are right to love you.

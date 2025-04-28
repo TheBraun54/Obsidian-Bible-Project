@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say unto them, Thus saith Jehovah: If ye will not hearken to me, to walk in my law, which I have set before you,
+You shall tell them, Thus says Yahweh: If you will not listen to me, to walk in my law, which I have set before you,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Jehovah, Oh, Lord, I am not eloquent, neither heretofore, nor since thou hast spoken unto thy servant; for I am slow of speech, and of a slow tongue.
+Moses said to Yahweh, "O Lord, I am not eloquent, neither before now, nor since you have spoken to your servant; for I am slow of speech, and of a slow tongue."

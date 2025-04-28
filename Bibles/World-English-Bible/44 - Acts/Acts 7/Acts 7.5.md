@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he gave him none inheritance in it, no, not so much as to set his foot on: and he promised that he would give it to him in possession, and to his seed after him, when [as yet] he had no child.
+He gave him no inheritance in it, no, not so much as to set his foot on. He promised that he would give it to him for a possession, and to his seed after him, when he still had no child.

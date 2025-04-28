@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him therefore that knoweth to do good, and doeth it not, to him it is sin.
+To him therefore who knows to do good, and doesn't do it, to him it is sin.

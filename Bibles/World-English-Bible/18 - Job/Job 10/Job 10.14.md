@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I sin, then thou markest me, And thou wilt not acquit me from mine iniquity.
+if I sin, then you mark me. You will not acquit me from my iniquity.

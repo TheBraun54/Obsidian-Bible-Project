@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is good to all; And his tender mercies are over all his works.
+Yahweh is good to all. His tender mercies are over all his works.

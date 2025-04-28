@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take the atonement money from the children of Israel, and shalt appoint it for the service of the tent of meeting; that it may be a memorial for the children of Israel before Jehovah, to make atonement for your souls.
+You shall take the atonement money from the children of Israel, and shall appoint it for the service of the Tent of Meeting; that it may be a memorial for the children of Israel before Yahweh, to make atonement for your souls."

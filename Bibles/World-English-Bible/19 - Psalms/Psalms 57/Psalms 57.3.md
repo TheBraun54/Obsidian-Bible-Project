@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will send from heaven, and save me, [When] he that would swallow me up reproacheth; {{Selah God will send forth his lovingkindness and his truth.
+He will send from heaven, and save me, he rebukes the one who is pursuing me. Selah. God will send out his loving kindness and his truth.

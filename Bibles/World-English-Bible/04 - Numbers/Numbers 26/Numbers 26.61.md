@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nadab and Abihu died, when they offered strange fire before Jehovah.
+Nadab and Abihu died, when they offered strange fire before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go and get thee in unto king David, and say unto him, Didst not thou, my lord, O king, swear unto thy handmaid, saying, Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne? why then doth Adonijah reign?
+Go in to king David, and tell him, 'Didn't you, my lord, king, swear to your handmaid, saying, Assuredly Solomon your son shall reign after me, and he shall sit on my throne? Why then does Adonijah reign?'

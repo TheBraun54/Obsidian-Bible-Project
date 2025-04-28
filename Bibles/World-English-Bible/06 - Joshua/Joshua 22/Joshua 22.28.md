@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore said we, It shall be, when they so say to us or to our generations in time to come, that we shall say, Behold the pattern of the altar of Jehovah, which our fathers made, not for burnt-offering, nor for sacrifice; but it is a witness between us and you.
+"Therefore we said, 'It shall be, when they tell us or our generations this in time to come, that we shall say, "Behold the pattern of the altar of Yahweh, which our fathers made, not for burnt offering, nor for sacrifice; but it is a witness between us and you."'

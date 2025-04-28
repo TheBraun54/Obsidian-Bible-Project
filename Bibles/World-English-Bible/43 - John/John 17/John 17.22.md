@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glory which thou hast given me I have given unto them; that they may be one, even as we [are] one;
+The glory which you have given me, I have given to them; that they may be one, even as we are one;

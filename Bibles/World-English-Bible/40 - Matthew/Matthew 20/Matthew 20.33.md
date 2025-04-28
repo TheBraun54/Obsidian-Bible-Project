@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say unto him, Lord, that our eyes may be opened.
+They told him, "Lord, that our eyes may be opened."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scribe said unto him, Of a truth, Teacher, thou hast well said that he is one; and there is none other but he:
+The scribe said to him, "Truly, teacher, you have said well that he is one, and there is none other but he,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses, Go, get thee down; for thy people, that thou broughtest up out of the land of Egypt, have corrupted themselves:
+Yahweh spoke to Moses, "Go, get down; for your people, who you brought up out of the land of Egypt, have corrupted themselves!

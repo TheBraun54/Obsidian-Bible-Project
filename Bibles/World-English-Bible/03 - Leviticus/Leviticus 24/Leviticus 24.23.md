@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake to the children of Israel; and they brought forth him that had cursed out of the camp, and stoned him with stones. And the children of Israel did as Jehovah commanded Moses.
+Moses spoke to the children of Israel; and they brought forth him who had cursed out of the camp, and stoned him with stones. The children of Israel did as Yahweh commanded Moses.

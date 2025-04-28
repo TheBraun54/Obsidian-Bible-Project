@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the children of the province, that went up out of the captivity of those that had been carried away, whom Nebuchadnezzar the king of Babylon had carried away, and that returned unto Jerusalem and to Judah, every one unto his city;
+These are the children of the province, who went up out of the captivity of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away, and who returned to Jerusalem and to Judah, everyone to his city;

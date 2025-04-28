@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I be wicked, woe unto me; And if I be righteous, yet shall I not lift up my head; Being filled with ignominy, And looking upon mine affliction.
+If I am wicked, woe to me. If I am righteous, I still shall not lift up my head, being filled with disgrace, and conscious of my affliction.

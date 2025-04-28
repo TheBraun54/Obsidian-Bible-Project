@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his delight shall be in the fear of Jehovah; and he shall not judge after the sight of his eyes, neither decide after the hearing of his ears;
+His delight will be in the fear of Yahweh. He will not judge by the sight of his eyes, neither decide by the hearing of his ears;

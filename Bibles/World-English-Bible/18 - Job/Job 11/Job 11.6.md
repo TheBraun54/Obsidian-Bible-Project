@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that he would show thee the secrets of wisdom! For he is manifold in understanding. Know therefore that God exacteth of thee less than thine iniquity deserveth.
+that he would show you the secrets of wisdom! For true wisdom has two sides. Know therefore that God exacts of you less than your iniquity deserves.

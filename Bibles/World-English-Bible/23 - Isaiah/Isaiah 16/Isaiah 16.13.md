@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the word that Jehovah spake concerning Moab in time past.
+This is the word that Yahweh spoke concerning Moab in time past.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the time will come when they will not endure the sound doctrine; but, having itching ears, will heap to themselves teachers after their own lusts;
+For the time will come when they will not listen to the sound doctrine, but, having itching ears, will heap up for themselves teachers after their own lusts;

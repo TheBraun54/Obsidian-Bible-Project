@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Daniel, whose name was Belteshazzar, was stricken dumb for a while, and his thoughts troubled him. The king answered and said, Belteshazzar, let not the dream, or the interpretation, trouble thee. Belteshazzar answered and said, My lord, the dream be to them that hate thee, and the interpretation thereof to thine adversaries.
+Then Daniel, whose name was Belteshazzar, was stricken mute for a while, and his thoughts troubled him. The king answered, Belteshazzar, don't let the dream, or the interpretation, trouble you. Belteshazzar answered, My lord, the dream be to those who hate you, and its interpretation to your adversaries.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O house of David, thus saith Jehovah, Execute justice in the morning, and deliver him that is robbed out of the hand of the oppressor, lest my wrath go forth like fire, and burn so that none can quench it, because of the evil of your doings.
+House of David, thus says Yahweh, Execute justice in the morning, and deliver him who is robbed out of the hand of the oppressor, lest my wrath go forth like fire, and burn so that none can quench it, because of the evil of your doings.

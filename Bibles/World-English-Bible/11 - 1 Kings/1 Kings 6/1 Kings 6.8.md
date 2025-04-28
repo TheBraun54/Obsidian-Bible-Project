@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The door for the middle side-chambers was in the right side of the house: and they went up by winding stairs into the middle [story], and out of the middle into the third.
+The door for the middle side rooms was in the right side of the house: and they went up by winding stairs into the middle [story], and out of the middle into the third.

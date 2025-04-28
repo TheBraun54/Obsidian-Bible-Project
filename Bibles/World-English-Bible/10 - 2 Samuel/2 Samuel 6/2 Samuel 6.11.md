@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ark of Jehovah remained in the house of Obed-edom the Gittite three months: and Jehovah blessed Obed-edom, and all his house.
+The ark of Yahweh remained in the house of Obed-Edom the Gittite three months: and Yahweh blessed Obed-Edom, and all his house.

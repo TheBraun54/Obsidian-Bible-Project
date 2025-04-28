@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah found her by a fountain of water in the wilderness, by the fountain in the way to Shur.
+The angel of Yahweh found her by a fountain of water in the wilderness, by the fountain in the way to Shur.

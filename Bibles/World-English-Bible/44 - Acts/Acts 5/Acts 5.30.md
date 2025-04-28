@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God of our fathers raised up Jesus, whom ye slew, hanging him on a tree.
+The God of our fathers raised up Jesus, whom you killed, hanging him on a tree.

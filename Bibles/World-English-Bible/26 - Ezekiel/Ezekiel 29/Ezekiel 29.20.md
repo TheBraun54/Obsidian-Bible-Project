@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have given him the land of Egypt as his recompense for which he served, because they wrought for me, saith the Lord Jehovah.
+I have given him the land of Egypt as his recompense for which he served, because they worked for me, says the Lord Yahweh.

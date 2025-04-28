@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They return, but not to [him that is] on high; they are like a deceitful bow; their princes shall fall by the sword for the rage of their tongue: this shall be their derision in the land of Egypt.
+They return, but not to the Most High. They are like a faulty bow. Their princes will fall by the sword for the rage of their tongue. This will be their derision in the land of Egypt.

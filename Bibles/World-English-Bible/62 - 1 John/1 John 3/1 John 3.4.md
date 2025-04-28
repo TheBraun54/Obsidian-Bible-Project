@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one that doeth sin doeth also lawlessness; and sin is lawlessness.
+Everyone who sins also commits lawlessness. Sin is lawlessness.

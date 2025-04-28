@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will set no base thing before mine eyes: I hate the work of them that turn aside; It shall not cleave unto me.
+I will set no vile thing before my eyes. I hate the deeds of faithless men. They will not cling to me.

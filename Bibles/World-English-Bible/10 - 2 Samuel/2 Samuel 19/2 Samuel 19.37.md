@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy servant, I pray thee, turn back again, that I may die in mine own city, by the grave of my father and my mother. But behold, thy servant Chimham; let him go over with my lord the king; and do to him what shall seem good unto thee.
+Please let your servant turn back again, that I may die in my own city, by the grave of my father and my mother. But behold, your servant Chimham; let him go over with my lord the king; and do to him what shall seem good to you."

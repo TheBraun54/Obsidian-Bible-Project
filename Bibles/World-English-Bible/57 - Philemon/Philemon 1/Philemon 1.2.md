@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to Apphia our sister, and to Archippus our fellow-soldier, and to the church in thy house:
+to the beloved Apphia, to Archippus, our fellow soldier, and to the assembly in your house:

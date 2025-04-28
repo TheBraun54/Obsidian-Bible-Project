@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the east side eastward fifty cubits.
+For the east side eastward fifty cubits.

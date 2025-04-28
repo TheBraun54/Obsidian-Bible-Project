@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway coming up out of the water, he saw the heavens rent asunder, and the Spirit as a dove descending upon him:
+Immediately coming up from the water, he saw the heavens parting, and the Spirit descending on him like a dove.

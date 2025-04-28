@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the watchman told, saying, He came even unto them, and cometh not back: and the driving is like the driving of Jehu the son of Nimshi; for he driveth furiously.
+The watchman said, "He came to them, and isn't coming back. The driving is like the driving of Jehu the son of Nimshi; for he drives furiously."

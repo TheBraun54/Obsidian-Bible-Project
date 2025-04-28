@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the redeemed of Jehovah say [so], Whom he hath redeemed from the hand of the adversary,
+Let the redeemed by Yahweh say so, whom he has redeemed from the hand of the adversary,

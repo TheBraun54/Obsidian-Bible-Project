@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bring forth thy stuff by day in their sight, as stuff for removing; and thou shalt go forth thyself at even in their sight, as when men go forth into exile.
+You shall bring forth your stuff by day in their sight, as stuff for moving; and you shall go forth yourself at even in their sight, as when men go forth into exile.

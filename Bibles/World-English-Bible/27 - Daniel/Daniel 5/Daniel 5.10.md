@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Now] the queen by reason of the words of the king and his lords came into the banquet house: the queen spake and said, O king, live for ever; let not thy thoughts trouble thee, nor let thy countenance be changed.
+[Now] the queen by reason of the words of the king and his lords came into the banquet house: the queen spoke and said, O king, live forever; don't let your thoughts trouble you, nor let your face be changed.

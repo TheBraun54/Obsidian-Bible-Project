@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a chariot came up and went out of Egypt for six hundred [shekels] of silver, and a horse for a hundred and fifty; and so for all the kings of the Hittites, and for the kings of Syria, did they bring them out [ by their means.
+A chariot came up and went out of Egypt for six hundred [shekels] of silver, and a horse for one hundred fifty; and so for all the kings of the Hittites, and for the kings of Syria, did they bring them out by their means.

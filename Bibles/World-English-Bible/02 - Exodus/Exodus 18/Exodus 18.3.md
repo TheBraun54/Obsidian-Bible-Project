@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and her two sons; of whom the name of the one was Gershom; for he said, I have been a sojourner in a foreign land:
+and her two sons. The name of one son was Gershom, for Moses said, "I have lived as a foreigner in a foreign land".

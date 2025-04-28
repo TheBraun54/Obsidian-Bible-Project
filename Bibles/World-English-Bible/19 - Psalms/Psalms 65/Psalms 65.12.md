@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They drop upon the pastures of the wilderness; And the hills are girded with joy.
+The wilderness grasslands overflow. The hills are clothed with gladness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thou shalt say unto them, When ye heave the best thereof from it, then it shall be reckoned unto the Levites as the increase of the threshing-floor, and as the increase of the wine-press.
+"Therefore you shall tell them, 'When you heave its best from it, then it shall be reckoned to the Levites as the increase of the threshing floor, and as the increase of the winepress.

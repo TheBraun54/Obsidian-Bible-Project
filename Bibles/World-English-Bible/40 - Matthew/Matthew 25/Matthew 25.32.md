@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and before him shall be gathered all the nations: and he shall separate them one from another, as the shepherd separateth the sheep from the goats;
+Before him all the nations will be gathered, and he will separate them one from another, as a shepherd separates the sheep from the goats.

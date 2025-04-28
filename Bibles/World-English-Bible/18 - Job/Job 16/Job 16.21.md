@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That he would maintain the right of a man with God, And of a son of man with his neighbor!
+that he would maintain the right of a man with God, of a son of man with his neighbor!

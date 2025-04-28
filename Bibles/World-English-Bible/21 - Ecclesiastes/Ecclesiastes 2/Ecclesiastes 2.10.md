@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever mine eyes desired I kept not from them; I withheld not my heart from any joy; for my heart rejoiced because of all my labor; and this was my portion from all my labor.
+Whatever my eyes desired, I didn't keep from them. I didn't withhold my heart from any joy, for my heart rejoiced because of all my labor, and this was my portion from all my labor.

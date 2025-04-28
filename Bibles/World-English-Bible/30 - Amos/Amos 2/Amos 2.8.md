@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they lay themselves down beside every altar upon clothes taken in pledge; and in the house of their God they drink the wine of such as have been fined.
+and they lay themselves down beside every altar on clothes taken in pledge; and in the house of their God they drink the wine of those who have been fined.

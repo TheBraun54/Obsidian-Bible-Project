@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I thought how I might know this, It was too painful for me;
+When I tried to understand this, it was too painful for me;

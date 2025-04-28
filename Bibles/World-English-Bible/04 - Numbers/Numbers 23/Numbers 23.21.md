@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath not beheld iniquity in Jacob; Neither hath he seen perverseness in Israel: Jehovah his God is with him, And the shout of a king is among them.
+He has not seen iniquity in Jacob. Neither has he seen perverseness in Israel. Yahweh his God is with him. The shout of a king is among them.

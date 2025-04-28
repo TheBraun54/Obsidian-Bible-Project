@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I am this day weak, though anointed king; and these men the sons of Zeruiah are too hard for me: Jehovah reward the evil-doer according to his wickedness.
+I am this day weak, though anointed king; and these men the sons of Zeruiah are too hard for me. May Yahweh reward the evildoer according to his wickedness."

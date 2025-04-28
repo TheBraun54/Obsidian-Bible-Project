@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron came to the front of the tent of meeting.
+Moses and Aaron came to the front of the Tent of Meeting.

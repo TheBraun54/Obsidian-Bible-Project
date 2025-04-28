@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Comfort ye, comfort ye my people, saith your God.
+"Comfort, comfort my people," says your God.

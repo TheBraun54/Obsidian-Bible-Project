@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The altar was of wood, three cubits high, and the length thereof two cubits; and the corners thereof, and the length thereof, and the walls thereof, were of wood: and he said unto me, This is the table that is before Jehovah.
+The altar was of wood, three cubits high, and its length two cubits; and its corners, and its length, and its walls, were of wood: and he said to me, This is the table that is before Yahweh.

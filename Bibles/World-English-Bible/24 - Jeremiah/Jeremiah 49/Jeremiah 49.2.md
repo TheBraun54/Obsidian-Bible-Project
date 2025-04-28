@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, the days come, saith Jehovah, that I will cause an alarm of war to be heard against Rabbah of the children of Ammon; and it shall become a desolate heap, and her daughters shall be burned with fire: then shall Israel possess them that did possess him, saith Jehovah.
+Therefore, behold, the days come, says Yahweh, that I will cause an alarm of war to be heard against Rabbah of the children of Ammon; and it shall become a desolate heap, and her daughters shall be burned with fire: then shall Israel possess those who did possess him, says Yahweh.

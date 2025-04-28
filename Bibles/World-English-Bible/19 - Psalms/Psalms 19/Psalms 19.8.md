@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The precepts of Jehovah are right, rejoicing the heart: The commandment of Jehovah is pure, enlightening the eyes.
+Yahweh's precepts are right, rejoicing the heart. Yahweh's commandment is pure, enlightening the eyes.

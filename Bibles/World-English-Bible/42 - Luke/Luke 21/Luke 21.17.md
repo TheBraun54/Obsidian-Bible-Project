@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be hated of all men for my name's sake.
+You will be hated by all men for my name's sake.

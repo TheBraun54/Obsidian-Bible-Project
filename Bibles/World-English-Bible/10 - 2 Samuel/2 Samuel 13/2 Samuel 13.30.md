@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while they were in the way, that the tidings came to David, saying, Absalom hath slain all the king's sons, and there is not one of them left.
+It happened, while they were in the way, that the news came to David, saying, "Absalom has slain all the king's sons, and there is not one of them left!"

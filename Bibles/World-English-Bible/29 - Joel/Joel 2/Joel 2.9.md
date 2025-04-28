@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They leap upon the city; they run upon the wall; they climb up into the houses; they enter in at the windows like a thief.
+They rush on the city. They run on the wall. They climb up into the houses. They enter in at the windows like thieves.

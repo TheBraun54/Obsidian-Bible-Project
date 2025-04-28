@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he shall not much remember the days of his life; because God answereth [him] in the joy of his heart.
+For he shall not often reflect on the days of his life; because God occupies him with the joy of his heart.

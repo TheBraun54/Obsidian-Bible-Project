@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come to the multitude, there came to him a man, kneeling to him, saying,
+When they came to the multitude, a man came to him, kneeling down to him, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return, I pray you, let there be no injustice; Yea, return again, my cause is righteous.
+Please return. Let there be no injustice. Yes, return again. My cause is righteous.

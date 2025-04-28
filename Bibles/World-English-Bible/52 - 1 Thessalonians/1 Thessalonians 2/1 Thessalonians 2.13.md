@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for this cause we also thank God without ceasing, that, when ye received from us the word of the message, [even the word] of God, ye accepted [it] not [as] the word of men, but, as it is in truth, the word of God, which also worketh in you that believe.
+For this cause we also thank God without ceasing, that, when you received from us the word of the message of God, you accepted it not as the word of men, but, as it is in truth, the word of God, which also works in you who believe.

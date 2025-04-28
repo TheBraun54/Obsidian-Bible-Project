@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel, concerning Ahab the son of Kolaiah, and concerning Zedekiah the son of Maaseiah, who prophesy a lie unto you in my name: Behold, I will deliver them into the hand of Nebuchadrezzar king of Babylon; and he shall slay them before your eyes;
+Thus says Yahweh of Armies, the God of Israel, concerning Ahab the son of Kolaiah, and concerning Zedekiah the son of Maaseiah, who prophesy a lie to you in my name: Behold, I will deliver them into the hand of Nebuchadnezzar king of Babylon; and he shall kill them before your eyes;

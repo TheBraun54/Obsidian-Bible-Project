@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For John said unto him, It is not lawful for thee to have her.
+For John said to him, "It is not lawful for you to have her."

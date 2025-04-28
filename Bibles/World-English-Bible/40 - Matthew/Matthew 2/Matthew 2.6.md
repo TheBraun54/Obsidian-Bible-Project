@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou Bethlehem, land of Judah, art in no wise least among the princes of Judah: for out of thee shall come forth a governor, who shall be shepherd of my people Israel.
+'You Bethlehem, land of Judah, are in no way least among the princes of Judah: for out of you shall come forth a governor, who shall shepherd my people, Israel.'"

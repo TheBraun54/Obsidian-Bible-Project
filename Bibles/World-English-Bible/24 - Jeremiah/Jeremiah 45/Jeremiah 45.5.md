@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seekest thou great things for thyself? seek them not; for, behold, I will bring evil upon all flesh, saith Jehovah; but thy life will I give unto thee for a prey in all places whither thou goest.
+Do you seek great things for yourself? Don't seek them; for, behold, I will bring evil on all flesh, says Yahweh; but your life will I give to you for a prey in all places where you go.

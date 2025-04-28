@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The simple believeth every word; But the prudent man looketh well to his going.
+A simple man believes everything, but the prudent man carefully considers his ways.

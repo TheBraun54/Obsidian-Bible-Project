@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they said unto me, Make us gods, which shall go before us; for as for this Moses, the man that brought us up out of the land of Egypt, we know not what is become of him.
+For they said to me, 'Make us gods, which shall go before us; for as for this Moses, the man who brought us up out of the land of Egypt, we don't know what has become of him.'

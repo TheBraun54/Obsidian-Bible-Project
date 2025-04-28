@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This Jesus did God raise up, whereof we all are witnesses.
+This Jesus God raised up, to which we all are witnesses.

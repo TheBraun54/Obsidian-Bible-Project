@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the next sabbath almost the whole city was gathered together to hear the word of God.
+The next Sabbath almost the whole city was gathered together to hear the word of God.

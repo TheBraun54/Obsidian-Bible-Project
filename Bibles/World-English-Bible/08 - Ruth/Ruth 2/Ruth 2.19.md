@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her mother-in-law said unto her, Where hast thou gleaned to-day? and where hast thou wrought? blessed be he that did take knowledge of thee. And she showed her mother-in-law with whom she had wrought, and said, The man's name with whom I wrought to-day is Boaz.
+Her mother-in-law said to her, "Where have you gleaned today? Where have you worked? Blessed be he who noticed you." She showed her mother-in-law with whom she had worked, and said, "The man's name with whom I worked today is Boaz."

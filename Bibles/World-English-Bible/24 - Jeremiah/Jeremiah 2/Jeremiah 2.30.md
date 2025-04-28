@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In vain have I smitten your children; they received no correction: your own sword hath devoured your prophets, like a destroying lion.
+"I have struck your children in vain. They received no correction. Your own sword has devoured your prophets, like a destroying lion.

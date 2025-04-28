@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The spirit of a man will sustain his infirmity; But a broken spirit who can bear?
+A man's spirit will sustain him in sickness, but a crushed spirit, who can bear?

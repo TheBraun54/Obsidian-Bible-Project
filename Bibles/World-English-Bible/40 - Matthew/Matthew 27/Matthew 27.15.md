@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now at the feast the governor was wont to release unto the multitude one prisoner, whom they would.
+Now at the feast the governor was accustomed to release to the multitude one prisoner, whom they desired.

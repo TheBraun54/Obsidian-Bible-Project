@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then therefore he delivered him unto them to be crucified.
+So then he delivered him to them to be crucified. So they took Jesus and led him away.

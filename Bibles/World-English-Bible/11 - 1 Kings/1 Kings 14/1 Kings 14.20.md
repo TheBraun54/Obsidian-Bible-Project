@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the days which Jeroboam reigned were two and twenty years: and he slept with his fathers, and Nadab his son reigned in his stead.
+The days which Jeroboam reigned were two and twenty years: and he slept with his fathers, and Nadab his son reigned in his place.

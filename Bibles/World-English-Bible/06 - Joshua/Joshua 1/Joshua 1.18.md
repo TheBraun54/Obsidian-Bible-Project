@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever he be that shall rebel against thy commandment, and shall not hearken unto thy words in all that thou commandest him, he shall be put to death: only be strong and of good courage.
+Whoever rebels against your commandment, and doesn't listen to your words in all that you command him, he shall be put to death. Only be strong and courageous."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus speaketh Jehovah of hosts, saying, This people say, It is not the time [for us] to come, the time for Jehovah's house to be built.
+"This is what Yahweh of Armies says: These people say, 'The time hasn't yet come, the time for Yahweh's house to be built.'"

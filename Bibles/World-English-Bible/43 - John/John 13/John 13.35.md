@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By this shall all men know that ye are my disciples, if ye have love one to another.
+By this everyone will know that you are my disciples, if you have love for one another."

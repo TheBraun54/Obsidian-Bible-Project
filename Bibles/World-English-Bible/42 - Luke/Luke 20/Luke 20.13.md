@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lord of the vineyard said, What shall I do? I will send my beloved son; it may be they will reverence him.
+The lord of the vineyard said, 'What shall I do? I will send my beloved son. It may be that seeing him, they will respect him.'

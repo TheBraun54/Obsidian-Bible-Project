@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the brethren knew it, they brought him down to Caesarea, and sent him forth to Tarsus.
+When the brothers knew it, they brought him down to Caesarea, and sent him off to Tarsus.

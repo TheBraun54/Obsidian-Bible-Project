@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore he said unto them, I am [he], they went backward, and fell to the ground.
+When therefore he said to them, "I am he," they went backward, and fell to the ground.

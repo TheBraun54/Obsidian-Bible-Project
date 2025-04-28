@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah is the beginning of wisdom; And the knowledge of the Holy One is understanding.
+The fear of Yahweh is the beginning of wisdom. The knowledge of the Holy One is understanding.

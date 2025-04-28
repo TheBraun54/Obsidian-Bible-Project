@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Above the voices of many waters, The mighty breakers of the sea, Jehovah on high is mighty.
+Above the voices of many waters, the mighty breakers of the sea, Yahweh on high is mighty.

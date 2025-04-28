@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto Balaam, Go with the men; but only the word that I shall speak unto thee, that thou shalt speak. So Balaam went with the princes of Balak.
+The angel of Yahweh said to Balaam, "Go with the men; but only the word that I shall speak to you, that you shall speak." So Balaam went with the princes of Balak.

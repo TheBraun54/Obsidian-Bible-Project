@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.
+Then I will tell them, 'I never knew you. Depart from me, you who work iniquity.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall perish, but thou shalt endure; Yea, all of them shall wax old like a garment; As a vesture shalt thou change them, and they shall be changed:
+They will perish, but you will endure. Yes, all of them will wear out like a garment. You will change them like a cloak, and they will be changed.

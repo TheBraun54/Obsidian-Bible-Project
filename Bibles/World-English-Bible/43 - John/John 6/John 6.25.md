@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they found him on the other side of the sea, they said unto him, Rabbi, when camest thou hither?
+When they found him on the other side of the sea, they asked him, "Rabbi, when did you come here?"

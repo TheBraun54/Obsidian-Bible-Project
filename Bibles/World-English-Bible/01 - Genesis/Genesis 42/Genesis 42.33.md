@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man, the lord of the land, said unto us, Hereby shall I know that ye are true men: leave one of your brethren with me, and take [grain for] the famine of your houses, and go your way;
+The man, the lord of the land, said to us, 'By this I will know that you are honest men: leave one of your brothers with me, and take grain for the famine of your houses, and go your way.

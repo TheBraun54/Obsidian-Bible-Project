@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judah, thee shall thy brethren praise: Thy hand shall be on the neck of thine enemies; Thy father's sons shall bow down before thee.
+"Judah, your brothers will praise you. Your hand will be on the neck of your enemies. Your father's sons will bow down before you.

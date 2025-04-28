@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Because the Philistines have dealt by revenge, and have taken vengeance with despite of soul to destroy with perpetual enmity;
+Thus says the Lord Yahweh: Because the Philistines have dealt by revenge, and have taken vengeance with despite of soul to destroy with perpetual enmity;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I say unto you, I shall not drink from henceforth of the fruit of the vine, until the kingdom of God shall come.
+for I tell you, I will not drink at all again from the fruit of the vine, until the Kingdom of God comes."

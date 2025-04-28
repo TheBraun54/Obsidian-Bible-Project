@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now shall the isles tremble in the day of thy fall; yea, the isles that are in the sea shall be dismayed at thy departure.
+Now shall the islands tremble in the day of your fall; yes, the islands that are in the sea shall be dismayed at your departure.

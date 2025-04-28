@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But go ye now unto my place which was in Shiloh, where I caused my name to dwell at the first, and see what I did to it for the wickedness of my people Israel.
+But go now to my place which was in Shiloh, where I caused my name to dwell at the first, and see what I did to it for the wickedness of my people Israel.

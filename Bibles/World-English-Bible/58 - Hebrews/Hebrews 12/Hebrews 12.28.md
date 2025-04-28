@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, receiving a kingdom that cannot be shaken, let us have grace, whereby we may offer service well-pleasing to God with reverence and awe:
+Therefore, receiving a Kingdom that can't be shaken, let us have grace, through which we serve God acceptably, with reverence and awe,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is this man Coniah a despised broken vessel? is he a vessel wherein none delighteth? wherefore are they cast out, he and his seed, and are cast into the land which they know not?
+Is this man Coniah a despised broken vessel? is he a vessel in which none delights? why are they cast out, he and his seed, and are cast into the land which they don't know?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only the land of the priests bought he not: for the priests had a portion from Pharaoh, and did eat their portion which Pharaoh gave them; wherefore they sold not their land.
+Only he didn't buy the land of the priests, for the priests had a portion from Pharaoh, and ate their portion which Pharaoh gave them. That is why they didn't sell their land.

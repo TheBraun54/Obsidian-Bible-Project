@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, of a surety, God will not do wickedly, Neither will the Almighty pervert justice.
+Yes surely, God will not do wickedly, neither will the Almighty pervert justice.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man shall sanctify unto Jehovah part of the field of his possession, then thy estimation shall be according to the sowing thereof: the sowing of a homer of barley [shall be valued] at fifty shekels of silver.
+"'If a man dedicates to Yahweh part of the field of his possession, then your valuation shall be according to the seed for it: the sowing of a homer of barley shall be valued at fifty shekels of silver.

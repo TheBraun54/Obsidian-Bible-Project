@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that were sent, returning to the house, found the servant whole.
+Those who were sent, returning to the house, found that the servant who had been sick was well.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he offered the tribute unto Eglon king of Moab: now Eglon was a very fat man.
+He offered the tribute to Eglon king of Moab: now Eglon was a very fat man.

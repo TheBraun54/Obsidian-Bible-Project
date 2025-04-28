@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah is the beginning of knowledge; [But] the foolish despise wisdom and instruction.
+The fear of Yahweh is the beginning of knowledge; but the foolish despise wisdom and instruction.

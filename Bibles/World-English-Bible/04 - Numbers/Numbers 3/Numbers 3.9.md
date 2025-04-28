@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt give the Levites unto Aaron and to his sons: they are wholly given unto him on the behalf of the children of Israel.
+You shall give the Levites to Aaron and to his sons. They are wholly given to him on the behalf of the children of Israel.

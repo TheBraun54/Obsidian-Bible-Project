@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Anab, and Eshtemoh, and Anim,
+Anab, Eshtemoh, Anim,

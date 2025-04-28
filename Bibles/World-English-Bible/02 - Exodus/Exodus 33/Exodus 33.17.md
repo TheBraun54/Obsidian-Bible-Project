@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, I will do this thing also that thou hast spoken; for thou hast found favor in my sight, and I know thee by name.
+Yahweh said to Moses, "I will do this thing also that you have spoken; for you have found favor in my sight, and I know you by name."

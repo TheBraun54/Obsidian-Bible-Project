@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a chamber with the door thereof was by the posts at the gates; there they washed the burnt-offering.
+A room with its door was by the posts at the gates; there they washed the burnt offering.

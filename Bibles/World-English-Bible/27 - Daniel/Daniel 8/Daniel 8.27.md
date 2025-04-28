@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, Daniel, fainted, and was sick certain days; then I rose up, and did the king's business: and I wondered at the vision, but none understood it.
+I, Daniel, fainted, and was sick certain days; then I rose up, and did the king's business: and I wondered at the vision, but none understood it.

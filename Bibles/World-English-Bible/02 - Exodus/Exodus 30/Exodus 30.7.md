@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron shall burn thereon incense of sweet spices: every morning, when he dresseth the lamps, he shall burn it.
+Aaron shall burn incense of sweet spices on it every morning. When he tends the lamps, he shall burn it.

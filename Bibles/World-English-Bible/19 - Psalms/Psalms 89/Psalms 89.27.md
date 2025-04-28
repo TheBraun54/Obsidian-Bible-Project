@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I also will make him [my] first-born, The highest of the kings of the earth.
+I will also appoint him my firstborn, the highest of the kings of the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then he shall minister in the name of Jehovah his God, as all his brethren the Levites do, who stand there before Jehovah.
+then he shall minister in the name of Yahweh his God, as all his brothers the Levites do, who stand there before Yahweh.

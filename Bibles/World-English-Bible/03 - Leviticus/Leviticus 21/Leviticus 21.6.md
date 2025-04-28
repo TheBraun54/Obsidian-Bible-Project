@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall be holy unto their God, and not profane the name of their God; for the offerings of Jehovah made by fire, the bread of their God, they do offer: therefore they shall be holy.
+They shall be holy to their God, and not profane the name of their God; for they offer the offerings of Yahweh made by fire, the bread of their God; therefore they shall be holy.

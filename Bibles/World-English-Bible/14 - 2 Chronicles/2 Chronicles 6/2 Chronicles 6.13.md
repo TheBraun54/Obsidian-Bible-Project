@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for Solomon had made a brazen scaffold, five cubits long, and five cubits broad, and three cubits high, and had set it in the midst of the court; and upon it he stood, and kneeled down upon his knees before all the assembly of Israel, and spread forth his hands toward heaven;)
+(for Solomon had made a bronze scaffold, five cubits long, and five cubits broad, and three cubits high, and had set it in the midst of the court; and on it he stood, and kneeled down on his knees before all the assembly of Israel, and spread forth his hands toward heaven;)

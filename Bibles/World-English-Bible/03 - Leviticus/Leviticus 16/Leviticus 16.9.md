@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron shall present the goat upon which the lot fell for Jehovah, and offer him for a sin-offering.
+Aaron shall present the goat on which the lot fell for Yahweh, and offer him for a sin offering.

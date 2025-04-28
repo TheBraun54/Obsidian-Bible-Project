@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that came unto Jeremiah from Jehovah, after that the king Zedekiah had made a covenant with all the people that were at Jerusalem, to proclaim liberty unto them;
+The word that came to Jeremiah from Yahweh, after that the king Zedekiah had made a covenant with all the people who were at Jerusalem, to proclaim liberty to them;

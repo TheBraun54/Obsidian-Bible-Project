@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-looking for and earnestly desiring the coming of the day of God, by reason of which the heavens being on fire shall be dissolved, and the elements shall melt with fervent heat?
+looking for and earnestly desiring the coming of the day of God, which will cause the burning heavens to be dissolved, and the elements will melt with fervent heat?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that is the high priest among his brethren, upon whose head the anointing oil is poured, and that is consecrated to put on the garments, shall not let the hair of his head go loose, nor rend his clothes;
+"'He who is the high priest among his brothers, upon whose head the anointing oil is poured, and that is consecrated to put on the garments, shall not let the hair of his head hang loose, nor tear his clothes;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat stood in the assembly of Judah and Jerusalem, in the house of Jehovah, before the new court;
+Jehoshaphat stood in the assembly of Judah and Jerusalem, in the house of Yahweh, before the new court;

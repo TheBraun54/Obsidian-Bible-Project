@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall walk after Jehovah your God, and fear him, and keep his commandments, and obey his voice, and ye shall serve him, and cleave unto him.
+You shall walk after Yahweh your God, and fear him, and keep his commandments, and obey his voice, and you shall serve him, and cling to him.

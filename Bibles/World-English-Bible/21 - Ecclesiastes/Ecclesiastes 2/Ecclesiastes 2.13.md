@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I saw that wisdom excelleth folly, as far as light excelleth darkness.
+Then I saw that wisdom excels folly, as far as light excels darkness.

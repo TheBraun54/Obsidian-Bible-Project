@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore speak I to them in parables; because seeing they see not, and hearing they hear not, neither do they understand.
+Therefore I speak to them in parables, because seeing they don't see, and hearing, they don't hear, neither do they understand.

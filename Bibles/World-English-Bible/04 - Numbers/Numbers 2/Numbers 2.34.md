@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did the children of Israel; according to all that Jehovah commanded Moses, so they encamped by their standards, and so they set forward, every one by their families, according to their fathers' houses.
+Thus the children of Israel did. According to all that Yahweh commanded Moses, so they encamped by their standards, and so they set out, everyone by their families, according to their fathers' houses.

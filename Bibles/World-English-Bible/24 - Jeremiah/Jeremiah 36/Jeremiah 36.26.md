@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king commanded Jerahmeel the king's son, and Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to take Baruch the scribe and Jeremiah the prophet; but Jehovah hid them.
+The king commanded Jerahmeel the king's son, and Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to take Baruch the scribe and Jeremiah the prophet; but Yahweh hid them.

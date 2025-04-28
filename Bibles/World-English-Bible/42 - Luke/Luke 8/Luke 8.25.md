@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Where is your faith? And being afraid they marvelled, saying one to another, Who then is this, that he commandeth even the winds and the water, and they obey him?
+He said to them, "Where is your faith?" Being afraid they marveled, saying one to another, "Who is this, then, that he commands even the winds and the water, and they obey him?"

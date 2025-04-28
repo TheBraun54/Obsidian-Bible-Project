@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It has happened unto them according to the true proverb, The dog turning to his own vomit again, and the sow that had washed to wallowing in the mire.
+But it has happened to them according to the true proverb, "The dog turns to his own vomit again," and "the sow that has washed to wallowing in the mire."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye should remember the words which were spoken before by the holy prophets, and the commandments of the Lord and Saviour through your apostles:
+that you should remember the words which were spoken before by the holy prophets, and the commandments of us, the apostles of the Lord and Savior:

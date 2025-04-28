@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon the top of the pillars was lily-work: so was the work of the pillars finished.
+On the top of the pillars was lily work: so was the work of the pillars finished.

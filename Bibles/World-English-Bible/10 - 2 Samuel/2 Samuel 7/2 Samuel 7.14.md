@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will be his father, and he shall be my son: if he commit iniquity, I will chasten him with the rod of men, and with the stripes of the children of men;
+I will be his father, and he shall be my son. If he commits iniquity, I will chasten him with the rod of men, and with the stripes of the children of men;

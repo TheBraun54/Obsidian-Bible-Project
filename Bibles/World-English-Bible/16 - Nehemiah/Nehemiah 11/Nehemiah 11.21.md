@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Nethinim dwelt in Ophel: and Ziha and Gishpa were over the Nethinim.
+But the Nethinim lived in Ophel: and Ziha and Gishpa were over the Nethinim.

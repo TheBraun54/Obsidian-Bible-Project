@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The trees went forth on a time to anoint a king over them; and they said unto the olive-tree, Reign thou over us.
+The trees went forth on a time to anoint a king over them; and they said to the olive tree, 'Reign over us.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah looked down from heaven upon the children of men, To see if there were any that did understand, That did seek after God.
+Yahweh looked down from heaven on the children of men, to see if there were any who did understand, who did seek after God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast set all the borders of the earth: Thou hast made summer and winter.
+You have set all the boundaries of the earth. You have made summer and winter.

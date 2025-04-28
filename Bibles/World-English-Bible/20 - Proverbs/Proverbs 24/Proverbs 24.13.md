@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, eat thou honey, for it is good; And the droppings of the honeycomb, which are sweet to thy taste:
+My son, eat honey, for it is good; the droppings of the honeycomb, which are sweet to your taste:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the days of their purification according to the law of Moses were fulfilled, they brought him up to Jerusalem, to present him to the Lord
+When the days of their purification according to the law of Moses were fulfilled, they brought him up to Jerusalem, to present him to the Lord

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-prove all things; hold fast that which is good;
+Test all things, and hold firmly that which is good.

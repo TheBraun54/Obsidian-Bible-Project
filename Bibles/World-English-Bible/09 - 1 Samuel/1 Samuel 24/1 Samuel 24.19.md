@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if a man find his enemy, will he let him go well away? wherefore Jehovah reward thee good for that which thou hast done unto me this day.
+For if a man finds his enemy, will he let him go away unharmed? Therefore may Yahweh reward you good for that which you have done to me this day.

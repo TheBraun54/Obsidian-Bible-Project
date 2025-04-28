@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehovah rained upon Sodom and upon Gomorrah brimstone and fire from Jehovah out of heaven;
+Then Yahweh rained on Sodom and on Gomorrah sulfur and fire from Yahweh out of the sky.

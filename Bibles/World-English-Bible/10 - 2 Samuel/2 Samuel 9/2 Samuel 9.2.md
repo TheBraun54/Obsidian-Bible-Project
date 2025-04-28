@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was of the house of Saul a servant whose name was Ziba, and they called him unto David; and the king said unto him, Art thou Ziba? And he said, Thy servant is he.
+There was of the house of Saul a servant whose name was Ziba, and they called him to David; and the king said to him, "Are you Ziba?" He said, "Your servant is he."

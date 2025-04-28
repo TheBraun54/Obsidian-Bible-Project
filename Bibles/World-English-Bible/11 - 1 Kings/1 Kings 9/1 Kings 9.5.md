@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then I will establish the throne of thy kingdom over Israel for ever, according as I promised to David thy father, saying, There shall not fail thee a man upon the throne of Israel.
+then I will establish the throne of your kingdom over Israel forever, according as I promised to David your father, saying, 'There shall not fail you a man on the throne of Israel.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, the God of Israel, unto thee, O Baruch:
+Thus says Yahweh, the God of Israel, to you, Baruch:

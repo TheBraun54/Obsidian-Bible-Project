@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou play with him as with a bird? Or wilt thou bind him for thy maidens?
+Will you play with him as with a bird? Or will you bind him for your girls?

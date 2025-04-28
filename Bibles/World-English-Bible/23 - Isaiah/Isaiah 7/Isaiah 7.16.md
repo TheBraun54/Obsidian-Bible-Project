@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For before the child shall know to refuse the evil, and choose the good, the land whose two kings thou abhorrest shall be forsaken.
+For before the child knows to refuse the evil, and choose the good, the land whose two kings you abhor shall be forsaken.

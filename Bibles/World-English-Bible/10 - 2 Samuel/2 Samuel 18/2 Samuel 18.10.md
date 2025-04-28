@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain man saw it, and told Joab, and said, Behold, I saw Absalom hanging in an oak.
+A certain man saw it, and told Joab, and said, "Behold, I saw Absalom hanging in an oak."

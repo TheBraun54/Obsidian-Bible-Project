@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put the two wreathen chains of gold in the two rings at the ends of the breastplate.
+You shall put the two braided chains of gold in the two rings at the ends of the breastplate.

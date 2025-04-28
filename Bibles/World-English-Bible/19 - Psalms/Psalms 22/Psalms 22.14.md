@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am poured out like water, And all my bones are out of joint: My heart is like wax; It is melted within me.
+I am poured out like water. All my bones are out of joint. My heart is like wax; it is melted within me.

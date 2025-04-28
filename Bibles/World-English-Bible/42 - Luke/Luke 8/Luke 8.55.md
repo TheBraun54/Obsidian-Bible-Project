@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her spirit returned, and she rose up immediately: and he commanded that [something] be given her to eat.
+Her spirit returned, and she rose up immediately. He commanded that something be given to her to eat.

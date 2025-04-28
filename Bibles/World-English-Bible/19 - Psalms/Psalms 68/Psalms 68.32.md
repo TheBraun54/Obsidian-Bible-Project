@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto God, ye kingdoms of the earth; Oh sing praises unto the Lord; {{Selah
+Sing to God, you kingdoms of the earth! Sing praises to the Lord! Selah.

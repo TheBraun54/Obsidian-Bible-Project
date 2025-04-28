@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab said unto the man that told him, And, behold, thou sawest it, and why didst thou not smite him there to the ground? and I would have given thee ten [pieces of] silver, and a girdle.
+Joab said to the man who told him, "Behold, you saw it, and why didn't you strike him there to the ground? I would have given you ten pieces of silver, and a sash."

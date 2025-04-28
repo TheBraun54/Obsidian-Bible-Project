@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, the days come, saith Jehovah, that I will turn again the captivity of my people Israel and Judah, saith Jehovah; and I will cause them to return to the land that I gave to their fathers, and they shall possess it.
+For, behold, the days come, says Yahweh, that I will turn again the captivity of my people Israel and Judah, says Yahweh; and I will cause them to return to the land that I gave to their fathers, and they shall possess it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Herod himself had sent forth and laid hold upon John, and bound him in prison for the sake of Herodias, his brother Philip's wife; for he had married her.
+For Herod himself had sent out and arrested John, and bound him in prison for the sake of Herodias, his brother Philip's wife, for he had married her.

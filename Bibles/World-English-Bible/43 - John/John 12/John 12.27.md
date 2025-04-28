@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now is my soul troubled; and what shall I say? Father, save me from this hour. But for this cause came I unto this hour.
+"Now my soul is troubled. What shall I say? 'Father, save me from this time?' But for this cause I came to this time.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear, and the pit, and the snare, are upon thee, O inhabitant of the earth.
+Fear, the pit, and the snare, are on you who inhabitant the earth.

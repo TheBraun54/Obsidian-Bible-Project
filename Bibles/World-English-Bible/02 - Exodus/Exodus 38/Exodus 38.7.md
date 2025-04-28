@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the staves into the rings on the sides of the altar, wherewith to bear it; he made it hollow with planks.
+He put the poles into the rings on the sides of the altar, with which to carry it. He made it hollow with planks.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the present passed over before him: and he himself lodged that night in the company.
+So the present passed over before him, and he himself lodged that night in the camp.

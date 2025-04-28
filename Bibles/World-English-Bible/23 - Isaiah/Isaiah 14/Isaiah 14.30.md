@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the first-born of the poor shall feed, and the needy shall lie down in safety; and I will kill thy root with famine, and thy remnant shall be slain.
+The firstborn of the poor will eat, and the needy will lie down in safety; and I will kill your root with famine, and your remnant will be killed.

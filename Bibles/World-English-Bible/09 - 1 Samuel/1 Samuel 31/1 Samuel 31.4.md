@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Saul to his armorbearer, Draw thy sword, and thrust me through therewith, lest these uncircumcised come and thrust me through, and abuse me. But his armorbearer would not; for he was sore afraid. Therefore Saul took his sword, and fell upon it.
+Then Saul said to his armor bearer, "Draw your sword, and thrust me through with it, lest these uncircumcised come and thrust me through, and abuse me!" But his armor bearer would not; for he was terrified. Therefore Saul took his sword, and fell on it.

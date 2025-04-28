@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Both low and high, Rich and poor together.
+both low and high, rich and poor together.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a cage is full of birds, so are their houses full of deceit: therefore they are become great, and waxed rich.
+As a cage is full of birds, so are their houses full of deceit. Therefore they have become great, and grew rich.

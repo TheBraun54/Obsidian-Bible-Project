@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou say unto them, Thus saith Jehovah, Behold, I will fill all the inhabitants of this land, even the kings that sit upon David's throne, and the priests, and the prophets, and all the inhabitants of Jerusalem, with drunkenness.
+Then you shall tell them, Thus says Yahweh, Behold, I will fill all the inhabitants of this land, even the kings who sit on David's throne, and the priests, and the prophets, and all the inhabitants of Jerusalem, with drunkenness.

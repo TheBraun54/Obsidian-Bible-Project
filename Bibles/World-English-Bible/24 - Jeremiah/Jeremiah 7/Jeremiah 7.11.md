@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is this house, which is called by my name, become a den of robbers in your eyes? Behold, I, even I, have seen it, saith Jehovah.
+Is this house, which is called by my name, become a den of robbers in your eyes? Behold, I, even I, have seen it, says Yahweh.

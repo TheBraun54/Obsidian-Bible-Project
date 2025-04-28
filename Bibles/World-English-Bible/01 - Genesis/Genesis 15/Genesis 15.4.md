@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, the word of Jehovah came unto him, saying, This man shall not be thine heir; but he that shall come forth out of thine own bowels shall be thine heir.
+Behold, the word of Yahweh came to him, saying, "This man will not be your heir, but he who will come forth out of your own body will be your heir."

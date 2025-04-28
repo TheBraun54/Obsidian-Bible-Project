@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How can ye believe, who receive glory one of another, and the glory that [cometh] from the only God ye seek not?
+How can you believe, who receive glory from one another, and you don't seek the glory that comes from the only God?

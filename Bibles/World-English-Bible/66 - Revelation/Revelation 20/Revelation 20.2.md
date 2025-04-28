@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he laid hold on the dragon, the old serpent, which is the Devil and Satan, and bound him for a thousand years,
+He seized the dragon, the old serpent, which is the devil and Satan, who deceives the whole inhabited earth, and bound him for a thousand years,

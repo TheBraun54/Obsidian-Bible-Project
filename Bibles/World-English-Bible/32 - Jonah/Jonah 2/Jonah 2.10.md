@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto the fish, and it vomited out Jonah upon the dry land.
+Yahweh spoke to the fish, and it vomited out Jonah on the dry land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of jealousy, when a wife, being under her husband, goeth aside, and is defiled;
+"'This is the law of jealousy, when a wife, being under her husband, goes astray, and is defiled;

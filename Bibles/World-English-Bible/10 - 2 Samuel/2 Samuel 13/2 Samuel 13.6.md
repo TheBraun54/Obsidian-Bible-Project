@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Amnon lay down, and feigned himself sick: and when the king was come to see him, Amnon said unto the king, Let her sister Tamar come, I pray thee, and make me a couple of cakes in my sight, that I may eat from her hand.
+So Amnon lay down and faked being sick. When the king came to see him, Amnon said to the king, "Please let my sister Tamar come, and make me a couple of cakes in my sight, that I may eat from her hand."

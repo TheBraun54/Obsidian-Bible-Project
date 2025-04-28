@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we are consumed in thine anger, And in thy wrath are we troubled.
+For we are consumed in your anger. We are troubled in your wrath.

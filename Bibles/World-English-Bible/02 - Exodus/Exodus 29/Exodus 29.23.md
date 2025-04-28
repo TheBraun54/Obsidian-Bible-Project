@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and one loaf of bread, and one cake of oiled bread, and one wafer, out of the basket of unleavened bread that is before Jehovah:
+and one loaf of bread, one cake of oiled bread, and one wafer out of the basket of unleavened bread that is before Yahweh.

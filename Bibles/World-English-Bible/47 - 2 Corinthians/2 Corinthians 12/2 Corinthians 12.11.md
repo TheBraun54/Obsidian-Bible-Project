@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am become foolish: ye compelled me; for I ought to have been commended of you: for in nothing was I behind the very chiefest apostles, though I am nothing.
+I have become foolish in boasting. You compelled me, for I ought to have been commended by you, for in nothing was I inferior to the very best apostles, though I am nothing.

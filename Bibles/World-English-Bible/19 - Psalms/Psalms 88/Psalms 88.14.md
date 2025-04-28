@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, why castest thou off my soul? Why hidest thou thy face from me?
+Yahweh, why do you reject my soul? Why do you hide your face from me?

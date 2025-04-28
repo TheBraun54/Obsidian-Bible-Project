@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as thou art going with thine adversary before the magistrate, on the way give diligence to be quit of him; lest haply he drag thee unto the judge, and the judge shall deliver thee to the officer, and the officer shall cast thee into prison.
+For when you are going with your adversary before the magistrate, try diligently on the way to be released from him, lest perhaps he drag you to the judge, and the judge deliver you to the officer, and the officer throw you into prison.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto them, Get you to the mountain, lest the pursuers light upon you; and hide yourselves there three days, until the pursuers be returned: and afterward may ye go your way.
+She said to them, "Go to the mountain, lest the pursuers find you; and hide yourselves there three days, until the pursuers have returned. Afterward, you may go your way."

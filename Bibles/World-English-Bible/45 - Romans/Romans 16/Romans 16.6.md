@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Mary, who bestowed much labor on you.
+Greet Mary, who labored much for us.

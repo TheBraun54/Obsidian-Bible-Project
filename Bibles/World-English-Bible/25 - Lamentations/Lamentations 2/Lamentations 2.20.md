@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See, O Jehovah, and behold to whom thou hast done thus! Shall the women eat their fruit, the children that are dandled in the hands? Shall the priest and the prophet be slain in the sanctuary of the Lord?
+Look, Yahweh, and see to whom you have done thus! Shall the women eat their fruit, the children that are dandled in the hands? Shall the priest and the prophet be killed in the sanctuary of the Lord?

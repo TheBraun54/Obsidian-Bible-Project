@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he left them again, and went away, and prayed a third time, saying again the same words.
+He left them again, went away, and prayed a third time, saying the same words.

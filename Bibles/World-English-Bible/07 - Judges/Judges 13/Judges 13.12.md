@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Manoah said, Now let thy words come to pass: what shall be the ordering of the child, and [how] shall we do unto him?
+Manoah said, "Now let your words happen. What shall be the ordering of the child, and [how] shall we do to him?"

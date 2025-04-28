@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said, Let her alone; why trouble ye her? she hath wrought a good work on me.
+But Jesus said, "Leave her alone. Why do you trouble her? She has done a good work for me.

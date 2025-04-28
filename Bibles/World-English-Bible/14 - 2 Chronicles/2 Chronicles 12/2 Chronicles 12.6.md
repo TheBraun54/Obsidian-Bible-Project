@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the princes of Israel and the king humbled themselves; and they said, Jehovah is righteous.
+Then the princes of Israel and the king humbled themselves; and they said, "Yahweh is righteous."

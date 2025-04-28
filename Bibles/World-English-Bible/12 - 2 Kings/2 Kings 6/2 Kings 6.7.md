@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Take it up to thee. So he put out his hand, and took it.
+He said, "Take it." So he put out his hand and took it.

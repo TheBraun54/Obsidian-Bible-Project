@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hezekiah also had said, What is the sign that I shall go up to the house of Jehovah?
+Hezekiah also had said, "What is the sign that I will go up to the house of Yahweh?"

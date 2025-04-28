@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-nor yet that he should offer himself often, as the high priest entereth into the holy place year by year with blood not his own;
+nor yet that he should offer himself often, as the high priest enters into the holy place year by year with blood not his own,

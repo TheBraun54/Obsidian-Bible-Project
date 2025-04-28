@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that he would overthrow their seed among the nations, And scatter them in the lands.
+that he would overthrow their seed among the nations, and scatter them in the lands.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus did Hezekiah throughout all Judah; and he wrought that which was good and right and faithful before Jehovah his God.
+Hezekiah did so throughout all Judah; and he worked that which was good and right and faithful before Yahweh his God.

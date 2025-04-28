@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah answered and said unto his people, Behold, I will send you grain, and new wine, and oil, and ye shall be satisfied therewith; and I will no more make you a reproach among the nations;
+Yahweh answered his people, "Behold, I will send you grain, new wine, and oil, and you will be satisfied with them; and I will no more make you a reproach among the nations.

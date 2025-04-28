@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-bless them that curse you, pray for them that despitefully use you.
+bless those who curse you, and pray for those who mistreat you.

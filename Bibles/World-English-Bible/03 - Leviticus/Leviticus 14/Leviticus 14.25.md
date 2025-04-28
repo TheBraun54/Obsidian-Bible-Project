@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall kill the lamb of the trespass-offering; and the priest shall take of the blood of the trespass-offering, and put it upon the tip of the right ear of him that is to be cleansed, and upon the thumb of his right hand, and upon the great toe of his right foot.
+He shall kill the lamb of the trespass offering. The priest shall take some of the blood of the trespass offering and put it on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the big toe of his right foot.

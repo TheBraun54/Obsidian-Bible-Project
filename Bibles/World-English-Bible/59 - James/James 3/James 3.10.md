@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-out of the same mouth cometh forth blessing and cursing. My brethren, these things ought not so to be.
+Out of the same mouth comes forth blessing and cursing. My brothers, these things ought not to be so.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will come with the mighty acts of the Lord Jehovah: I will make mention of thy righteousness, even of thine only.
+I will come with the mighty acts of the Lord Yahweh. I will make mention of your righteousness, even of yours alone.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the watchmen of Saul in Gibeah of Benjamin looked; and, behold, the multitude melted away, and they went [hither] and thither.
+The watchmen of Saul in Gibeah of Benjamin looked; and behold, the multitude melted away, and they went [here] and there.

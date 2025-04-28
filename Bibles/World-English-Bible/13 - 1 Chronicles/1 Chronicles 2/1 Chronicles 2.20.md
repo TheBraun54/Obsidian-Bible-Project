@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hur begat Uri, and Uri begat Bezalel.
+Hur became the father of Uri, and Uri became the father of Bezalel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But those of them that escape shall escape, and shall be on the mountains like doves of the valleys, all of them moaning, every one in his iniquity.
+But those of those who escape shall escape, and shall be on the mountains like doves of the valleys, all of them moaning, every one in his iniquity.

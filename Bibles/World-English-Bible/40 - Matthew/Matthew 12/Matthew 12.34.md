@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye offspring of vipers, how can ye, being evil, speak good things? for out of the abundance of the heart the mouth speaketh.
+You offspring of vipers, how can you, being evil, speak good things? For out of the abundance of the heart, the mouth speaks.

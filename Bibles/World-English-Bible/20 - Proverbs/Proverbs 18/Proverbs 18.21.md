@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Death and life are in the power of the tongue; And they that love it shall eat the fruit thereof.
+Death and life are in the power of the tongue; those who love it will eat its fruit.

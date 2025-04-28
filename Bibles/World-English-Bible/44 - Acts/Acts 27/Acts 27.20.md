@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when neither sun nor stars shone upon [us] for many days, and no small tempest lay on [us], all hope that we should be saved was now taken away.
+When neither sun nor stars shone on us for many days, and no small storm pressed on us, all hope that we would be saved was now taken away.

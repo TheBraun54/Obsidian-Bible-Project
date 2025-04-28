@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now ye glory in your vauntings: all such glorying is evil.
+But now you glory in your boasting. All such boasting is evil.

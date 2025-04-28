@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because they turned aside from following him, And would not have regard in any of his ways:
+because they turned aside from following him, and wouldn't pay attention to any of his ways,

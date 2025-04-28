@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus went forth, and his disciples, into the villages of Caesarea Philippi: and on the way he asked his disciples, saying unto them, Who do men say that I am?
+Jesus went out, with his disciples, into the villages of Caesarea Philippi. On the way he asked his disciples, "Who do men say that I am?"

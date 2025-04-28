@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have not I written unto thee excellent things Of counsels and knowledge,
+Haven't I written to you thirty excellent things of counsel and knowledge,

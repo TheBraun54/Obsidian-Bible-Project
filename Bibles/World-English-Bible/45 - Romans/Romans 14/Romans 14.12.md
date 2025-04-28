@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then each one of us shall give account of himself to God.
+So then each one of us will give account of himself to God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul stood in the midst of the Areopagus, and said, Ye men of Athens, in all things, I perceive that ye are very religious.
+Paul stood in the middle of the Areopagus, and said, "You men of Athens, I perceive that you are very religious in all things.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I heard, and my body trembled, My lips quivered at the voice; Rottenness entereth into my bones, and I tremble in my place; Because I must wait quietly for the day of trouble, For the coming up of the people that invadeth us.
+I heard, and my body trembled. My lips quivered at the voice. Rottenness enters into my bones, and I tremble in my place, because I must wait quietly for the day of trouble, for the coming up of the people who invade us.

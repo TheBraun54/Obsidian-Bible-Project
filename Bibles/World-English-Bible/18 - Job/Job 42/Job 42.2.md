@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know that thou canst do all things, And that no purpose of thine can be restrained.
+"I know that you can do all things, and that no purpose of yours can be restrained.

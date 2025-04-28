@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he will turn away thy son from following me, that they may serve other gods: so will the anger of Jehovah be kindled against you, and he will destroy thee quickly.
+For he will turn away your son from following me, that they may serve other gods: so the anger of Yahweh would be kindled against you, and he would destroy you quickly.

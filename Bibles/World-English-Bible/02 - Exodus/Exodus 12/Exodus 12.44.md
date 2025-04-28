@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but every man's servant that is bought for money, when thou hast circumcised him, then shall he eat thereof.
+but every man's servant who is bought for money, when you have circumcised him, then shall he eat of it.

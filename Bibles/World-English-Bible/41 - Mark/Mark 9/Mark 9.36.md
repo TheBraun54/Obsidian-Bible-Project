@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took a little child, and set him in the midst of them: and taking him in his arms, he said unto them,
+He took a little child, and set him in the midst of them. Taking him in his arms, he said to them,

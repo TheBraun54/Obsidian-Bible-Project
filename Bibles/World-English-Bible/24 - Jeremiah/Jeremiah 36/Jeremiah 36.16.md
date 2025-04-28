@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass, when they had heard all the words, they turned in fear one toward another, and said unto Baruch, We will surely tell the king of all these words.
+Now it happened, when they had heard all the words, they turned in fear one toward another, and said to Baruch, We will surely tell the king of all these words.

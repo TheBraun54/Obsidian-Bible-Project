@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he left Judea, and departed again into Galilee.
+he left Judea, and departed into Galilee.

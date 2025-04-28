@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Till I come, give heed to reading, to exhortation, to teaching.
+Until I come, pay attention to reading, to exhortation, and to teaching.

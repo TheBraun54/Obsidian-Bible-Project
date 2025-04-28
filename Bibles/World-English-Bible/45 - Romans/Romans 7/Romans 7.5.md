@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when we were in the flesh, the sinful passions, which were through the law, wrought in our members to bring forth fruit unto death.
+For when we were in the flesh, the sinful passions which were through the law, worked in our members to bring forth fruit to death.

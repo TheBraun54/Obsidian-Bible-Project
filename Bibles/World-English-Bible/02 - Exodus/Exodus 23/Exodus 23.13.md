@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in all things that I have said unto you take ye heed: and make no mention of the name of other gods, neither let it be heard out of thy mouth.
+"Be careful to do all things that I have said to you; and don't invoke the name of other gods, neither let them be heard out of your mouth.

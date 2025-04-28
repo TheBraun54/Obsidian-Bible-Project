@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a people great, and many, and tall, as the Anakim; but Jehovah destroyed them before them; and they succeeded them, and dwelt in their stead;
+a people great, and many, and tall, as the Anakim; but Yahweh destroyed them before them; and they succeeded them, and lived in their place;

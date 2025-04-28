@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The image, a workman hath cast [it], and the goldsmith overlayeth it with gold, and casteth [for it] silver chains.
+A workman has cast an image, and the goldsmith overlays it with gold, and casts silver chains for it.

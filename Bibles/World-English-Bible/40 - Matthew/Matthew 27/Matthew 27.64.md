@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Command therefore that the sepulchre be made sure until the third day, lest haply his disciples come and steal him away, and say unto the people, He is risen from the dead: and the last error will be worse than the first.
+Command therefore that the tomb be made secure until the third day, lest perhaps his disciples come at night and steal him away, and tell the people, 'He is risen from the dead;' and the last deception will be worse than the first."

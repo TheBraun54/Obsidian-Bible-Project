@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say unto them, Whosoever he be of all your seed throughout your generations, that approacheth unto the holy things, which the children of Israel hallow unto Jehovah, having his uncleanness upon him, that soul shall be cut off from before me: I am Jehovah.
+"Tell them, 'If anyone of all your seed throughout your generations approaches the holy things, which the children of Israel make holy to Yahweh, having his uncleanness on him, that soul shall be cut off from before me. I am Yahweh.

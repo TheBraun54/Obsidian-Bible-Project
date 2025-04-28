@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou confide in him, that he will bring home thy seed, And gather [the grain] of thy threshing-floor?
+Will you confide in him, that he will bring home your seed, and gather the grain of your threshing floor?

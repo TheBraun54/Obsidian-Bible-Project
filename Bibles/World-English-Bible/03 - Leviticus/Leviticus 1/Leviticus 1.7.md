@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Aaron the priest shall put fire upon the altar, and lay wood in order upon the fire;
+The sons of Aaron the priest shall put fire on the altar, and lay wood in order on the fire;

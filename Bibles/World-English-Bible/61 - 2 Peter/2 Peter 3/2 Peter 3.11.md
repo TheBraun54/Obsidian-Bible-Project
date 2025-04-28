@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing that these things are thus all to be dissolved, what manner of persons ought ye to be in [all] holy living and godliness,
+Therefore since all these things will be destroyed like this, what kind of people ought you to be in holy living and godliness,

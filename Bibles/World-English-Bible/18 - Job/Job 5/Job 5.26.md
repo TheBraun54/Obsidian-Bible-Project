@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt come to thy grave in a full age, Like as a shock of grain cometh in in its season.
+You shall come to your grave in a full age, like a shock of grain comes in its season.

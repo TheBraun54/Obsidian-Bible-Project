@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then went Jeremiah unto Gedaliah the son of Ahikam to Mizpah, and dwelt with him among the people that were left in the land.
+Then went Jeremiah to Gedaliah the son of Ahikam to Mizpah, and lived with him among the people who were left in the land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she is departed out of his house, she may go and be another man's [wife] .
+When she is departed out of his house, she may go and be another man's [wife].

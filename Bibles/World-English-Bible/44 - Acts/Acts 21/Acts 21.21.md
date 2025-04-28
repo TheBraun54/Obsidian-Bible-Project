@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they have been informed concerning thee, that thou teachest all the Jews who are among the Gentiles to forsake Moses, telling them not to circumcise their children neither to walk after the customs.
+They have been informed about you, that you teach all the Jews who are among the Gentiles to forsake Moses, telling them not to circumcise their children neither to walk after the customs.

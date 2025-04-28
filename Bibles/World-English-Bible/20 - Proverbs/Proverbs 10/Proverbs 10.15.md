@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rich man's wealth is his strong city: The destruction of the poor is their poverty.
+The rich man's wealth is his strong city. The destruction of the poor is their poverty.

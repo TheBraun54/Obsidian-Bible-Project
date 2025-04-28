@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from the first-born of the children of Israel took he the money, a thousand three hundred and threescore and five [shekels], after the shekel of the sanctuary:
+from the firstborn of the children of Israel he took the money, one thousand three hundred sixty-five shekels, after the shekel of the sanctuary:

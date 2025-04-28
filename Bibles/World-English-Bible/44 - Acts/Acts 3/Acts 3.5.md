@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave heed unto them, expecting to receive something from them.
+He listened to them, expecting to receive something from them.

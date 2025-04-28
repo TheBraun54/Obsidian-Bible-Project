@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto him, Fear not; for I will surely show thee kindness for Jonathan thy father's sake, and will restore thee all the land of Saul thy father; and thou shalt eat bread at my table continually.
+David said to him, "Don't be afraid of him; for I will surely show you kindness for Jonathan your father's sake, and will restore to you all the land of Saul your father. You shall eat bread at my table continually."

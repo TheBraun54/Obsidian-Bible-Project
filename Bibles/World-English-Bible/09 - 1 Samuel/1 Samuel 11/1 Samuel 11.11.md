@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so on the morrow, that Saul put the people in three companies; and they came into the midst of the camp in the morning watch, and smote the Ammonites until the heat of the day: and it came to pass, that they that remained were scattered, so that not two of them were left together.
+It was so on the next day, that Saul put the people in three companies; and they came into the midst of the camp in the morning watch, and struck the Ammonites until the heat of the day: and it happened, that those who remained were scattered, so that no two of them were left together.

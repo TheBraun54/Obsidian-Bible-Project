@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seven angels that had the seven trumpets prepared themselves to sound.
+The seven angels who had the seven trumpets prepared themselves to sound.

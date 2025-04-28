@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall bear their iniquity: the iniquity of the prophet shall be even as the iniquity of him that seeketh [unto him] ;
+They shall bear their iniquity: the iniquity of the prophet shall be even as the iniquity of him who seeks [to him];

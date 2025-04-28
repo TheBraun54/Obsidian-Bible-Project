@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither for these only do I pray, but for them also that believe on me through their word;
+Not for these only do I pray, but for those also who believe in me through their word,

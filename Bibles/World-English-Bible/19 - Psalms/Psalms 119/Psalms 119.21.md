@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast rebuked the proud that are cursed, That do wander from thy commandments.
+You have rebuked the proud who are cursed, who wander from your commandments.

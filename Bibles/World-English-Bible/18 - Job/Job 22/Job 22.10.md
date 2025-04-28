@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore snares are round about thee, And sudden fear troubleth thee,
+Therefore snares are around you. Sudden fear troubles you,

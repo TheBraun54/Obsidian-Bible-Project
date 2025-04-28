@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As they were making their hearts merry, behold, the men of the city, certain base fellows, beset the house round about, beating at the door; and they spake to the master of the house, the old man, saying, Bring forth the man that came into thy house, that we may know him.
+As they were making their hearts merry, behold, the men of the city, certain base fellows, surrounded the house, beating at the door; and they spoke to the master of the house, the old man, saying, "Bring out the man who came into your house, that we may have sex with him!"

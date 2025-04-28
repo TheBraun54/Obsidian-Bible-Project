@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The merciful man doeth good to his own soul; But he that is cruel troubleth his own flesh.
+The merciful man does good to his own soul, but he who is cruel troubles his own flesh.

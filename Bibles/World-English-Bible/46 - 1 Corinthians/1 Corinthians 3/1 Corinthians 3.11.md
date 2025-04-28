@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For other foundation can no man lay than that which is laid, which is Jesus Christ.
+For no one can lay any other foundation than that which has been laid, which is Jesus Christ.

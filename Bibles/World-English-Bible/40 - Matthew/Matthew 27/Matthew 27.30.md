@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they spat upon him, and took the reed and smote him on the head.
+They spat on him, and took the reed and struck him on the head.

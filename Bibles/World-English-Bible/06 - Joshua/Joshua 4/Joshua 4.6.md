@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that this may be a sign among you, that, when your children ask in time to come, saying, What mean ye by these stones?
+that this may be a sign among you, that when your children ask in time to come, saying, 'What do you mean by these stones?'

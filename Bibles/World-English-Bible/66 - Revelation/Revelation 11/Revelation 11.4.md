@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the two olive trees and the two candlesticks, standing before the Lord of the earth.
+These are the two olive trees and the two lampstands, standing before the Lord of the earth.

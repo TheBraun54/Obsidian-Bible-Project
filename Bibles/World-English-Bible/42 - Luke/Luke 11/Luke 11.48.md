@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So ye are witnesses and consent unto the works of your fathers: for they killed them, and ye build [their tombs] .
+So you testify and consent to the works of your fathers. For they killed them, and you build their tombs.

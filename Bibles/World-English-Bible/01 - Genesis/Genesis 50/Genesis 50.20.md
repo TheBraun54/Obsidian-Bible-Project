@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for you, ye meant evil against me; but God meant it for good, to bring to pass, as it is this day, to save much people alive.
+As for you, you meant evil against me, but God meant it for good, to bring to pass, as it is this day, to save many people alive.

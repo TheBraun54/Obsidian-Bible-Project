@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as her soul was departing (for she died), that she called his name Ben-oni: but his father called him Benjamin.
+It happened, as her soul was departing (for she died), that she named him Benoni, but his father named him Benjamin.

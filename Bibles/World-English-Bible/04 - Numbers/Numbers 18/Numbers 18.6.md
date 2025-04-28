@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, behold, I have taken your brethren the Levites from among the children of Israel: to you they are a gift, given unto Jehovah, to do the service of the tent of meeting.
+I, behold, I have taken your brothers the Levites from among the children of Israel: to you they are a gift, given to Yahweh, to do the service of the Tent of Meeting.

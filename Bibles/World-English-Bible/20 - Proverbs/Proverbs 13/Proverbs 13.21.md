@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Evil pursueth sinners; But the righteous shall be recompensed with good.
+Misfortune pursues sinners, but prosperity rewards the righteous.

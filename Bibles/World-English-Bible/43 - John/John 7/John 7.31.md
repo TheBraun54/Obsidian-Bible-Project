@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But of the multitude many believed on him; and they said, When the Christ shall come, will he do more signs than those which this man hath done?
+But of the multitude, many believed in him. They said, "When the Christ comes, he won't do more signs than those which this man has done, will he?"

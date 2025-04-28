@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh send out thy light and thy truth; Let them lead me: Let them bring me unto thy holy hill, And to thy tabernacles.
+Oh, send out your light and your truth. Let them lead me. Let them bring me to your holy hill, To your tents.

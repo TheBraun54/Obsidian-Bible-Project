@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if by any means I may attain unto the resurrection from the dead.
+if by any means I may attain to the resurrection from the dead.

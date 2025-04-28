@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from the days of John the Baptist until now the kingdom of heaven suffereth violence, and men of violence take it by force.
+From the days of John the Baptizer until now, the Kingdom of Heaven suffers violence, and the violent take it by force.

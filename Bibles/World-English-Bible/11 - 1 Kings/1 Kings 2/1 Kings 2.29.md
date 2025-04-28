@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told king Solomon, Joab is fled unto the Tent of Jehovah, and, behold, he is by the altar. Then Solomon sent Benaiah the son of Jehoiada, saying, Go, fall upon him.
+It was told king Solomon, "Joab has fled to the Tent of Yahweh, and behold, he is by the altar." Then Solomon sent Benaiah the son of Jehoiada, saying, "Go, fall on him."

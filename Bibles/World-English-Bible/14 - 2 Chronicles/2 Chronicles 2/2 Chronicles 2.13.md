@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I have sent a skilful man, endued with understanding, of Huram my father's,
+Now I have sent a skillful man, endowed with understanding, of Huram my father's,

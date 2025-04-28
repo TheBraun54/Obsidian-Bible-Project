@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall compass the king round about, every man with his weapons in his hand; and he that cometh within the ranks, let him be slain: and be ye with the king when he goeth out, and when he cometh in.
+You shall surround the king, every man with his weapons in his hand; and he who comes within the ranks, let him be slain. Be with the king when he goes out, and when he comes in."

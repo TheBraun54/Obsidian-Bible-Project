@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he opened his mouth for blasphemies against God, to blaspheme his name, and his tabernacle, [even] them that dwell in the heaven.
+He opened his mouth for blasphemy against God, to blaspheme his name, and his dwelling, those who dwell in heaven.

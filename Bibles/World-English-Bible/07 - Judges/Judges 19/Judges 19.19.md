@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet there is both straw and provender for our asses; and there is bread and wine also for me, and for thy handmaid, and for the young man that is with thy servants: there is no want of anything.
+Yet there is both straw and provender for our donkeys; and there is bread and wine also for me, and for your handmaid, and for the young man who is with your servants: there is no want of anything."

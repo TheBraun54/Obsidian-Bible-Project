@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after eight days again his disciples were within, and Thomas with them. Jesus cometh, the doors being shut, and stood in the midst, and said, Peace [be] unto you.
+After eight days again his disciples were inside, and Thomas was with them. Jesus came, the doors being locked, and stood in the midst, and said, "Peace be to you."

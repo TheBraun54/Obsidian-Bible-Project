@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they found the stone rolled away from the tomb.
+They found the stone rolled away from the tomb.

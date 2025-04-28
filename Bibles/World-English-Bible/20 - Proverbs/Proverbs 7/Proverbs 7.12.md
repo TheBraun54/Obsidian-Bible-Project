@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now she is in the streets, now in the broad places, And lieth in wait at every corner.)
+Now she is in the streets, now in the squares, and lurking at every corner.

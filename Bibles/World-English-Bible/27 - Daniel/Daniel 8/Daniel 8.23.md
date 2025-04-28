@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the latter time of their kingdom, when the transgressors are come to the full, a king of fierce countenance, and understanding dark sentences, shall stand up.
+In the latter time of their kingdom, when the transgressors are come to the full, a king of fierce face, and understanding dark sentences, shall stand up.

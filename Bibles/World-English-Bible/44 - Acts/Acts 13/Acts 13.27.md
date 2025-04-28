@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they that dwell in Jerusalem, and their rulers, because they knew him not, nor the voices of the prophets which are read every sabbath, fulfilled [them] by condemning [him] .
+For those who dwell in Jerusalem, and their rulers, because they didn't know him, nor the voices of the prophets which are read every Sabbath, fulfilled them by condemning him.

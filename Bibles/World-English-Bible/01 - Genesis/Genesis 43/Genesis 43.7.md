@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, The man asked straitly concerning ourselves, and concerning our kindred, saying, Is your father yet alive? have ye [another] brother? and we told him according to the tenor of these words: could we in any wise know that he would say, Bring your brother down?
+They said, "The man asked directly concerning ourselves, and concerning our relatives, saying, 'Is your father still alive? Have you another brother?' We just answered his questions. Is there any way we could know that he would say, 'Bring your brother down?'"

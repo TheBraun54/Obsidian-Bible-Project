@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, Father, glorify thou me with thine own self with the glory which I had with thee before the world was.
+Now, Father, glorify me with your own self with the glory which I had with you before the world existed.

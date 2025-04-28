@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I went down to the bottoms of the mountains; The earth with its bars [closed] upon me for ever: Yet hast thou brought up my life from the pit, O Jehovah my God.
+I went down to the bottoms of the mountains. The earth barred me in forever: yet have you brought up my life from the pit, Yahweh my God.

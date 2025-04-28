@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth quaketh before them; the heavens tremble; the sun and the moon are darkened, and the stars withdraw their shining.
+The earth quakes before them. The heavens tremble. The sun and the moon are darkened, and the stars withdraw their shining.

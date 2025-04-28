@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they were but a few men in number, Yea, very few, and sojourners in it.
+when they were but a few men in number, yes, very few, and foreigners in it.

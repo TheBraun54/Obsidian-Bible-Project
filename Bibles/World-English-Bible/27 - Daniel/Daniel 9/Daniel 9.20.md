@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while I was speaking, and praying, and confessing my sin and the sin of my people Israel, and presenting my supplication before Jehovah my God for the holy mountain of my God;
+While I was speaking, and praying, and confessing my sin and the sin of my people Israel, and presenting my supplication before Yahweh my God for the holy mountain of my God;

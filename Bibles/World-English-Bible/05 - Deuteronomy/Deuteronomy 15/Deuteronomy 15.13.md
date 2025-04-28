@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when thou lettest him go free from thee, thou shalt not let him go empty:
+When you let him go free from you, you shall not let him go empty:

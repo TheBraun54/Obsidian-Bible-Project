@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jehovah unto me, What seest thou, Jeremiah? And I said, Figs; the good figs, very good; and the bad, very bad, that cannot be eaten, they are so bad.
+Then Yahweh said to me, What do you see, Jeremiah? I said, Figs; the good figs, very good; and the bad, very bad, that can't be eaten, they are so bad.

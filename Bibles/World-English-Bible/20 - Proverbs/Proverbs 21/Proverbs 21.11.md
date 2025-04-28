@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the scoffer is punished, the simple is made wise; And when the wise is instructed, he receiveth knowledge.
+When the mocker is punished, the simple gains wisdom. When the wise is instructed, he receives knowledge.

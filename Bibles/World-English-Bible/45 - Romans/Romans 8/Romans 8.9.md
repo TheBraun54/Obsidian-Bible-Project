@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye are not in the flesh but in the Spirit, if so be that the Spirit of God dwelleth in you. But if any man hath not the Spirit of Christ, he is none of his.
+But you are not in the flesh but in the Spirit, if it is so that the Spirit of God dwells in you. But if any man doesn't have the Spirit of Christ, he is not his.

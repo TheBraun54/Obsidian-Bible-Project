@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be the name of Jehovah From this time forth and for evermore.
+Blessed be the name of Yahweh, from this time forth and forevermore.

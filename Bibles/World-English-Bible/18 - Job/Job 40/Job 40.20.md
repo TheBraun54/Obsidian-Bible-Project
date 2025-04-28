@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely the mountains bring him forth food, Where all the beasts of the field do play.
+Surely the mountains produce food for him, where all the animals of the field play.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And so shalt thou do with his ass; and so shalt thou do with his garment; and so shalt thou do with every lost thing of thy brother's, which he hath lost, and thou hast found: thou mayest not hide thyself.
+So you shall do with his donkey; and so you shall do with his garment; and so you shall do with every lost thing of your brother's, which he has lost, and you have found: you may not hide yourself.

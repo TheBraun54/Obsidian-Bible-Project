@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the priests the Levites, the sons of Zadok, that kept the charge of my sanctuary when the children of Israel went astray from me, they shall come near to me to minister unto me; and they shall stand before me to offer unto me the fat and the blood, saith the Lord Jehovah:
+But the priests the Levites, the sons of Zadok, who performed the duty of my sanctuary when the children of Israel went astray from me, they shall come near to me to minister to me; and they shall stand before me to offer to me the fat and the blood, says the Lord Yahweh:

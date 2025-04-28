@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whereas thou sawest the iron mixed with miry clay, they shall mingle themselves with the seed of men; but they shall not cleave one to another, even as iron doth not mingle with clay.
+Whereas you saw the iron mixed with miry clay, they shall mingle themselves with the seed of men; but they shall not cling to one another, even as iron does not mingle with clay.

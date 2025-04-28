@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the way before them was like the appearance of [the way of] the chambers which were toward the north; according to their length so was their breadth: and all their egresses were both according to their fashions, and according to their doors.
+The way before them was like the appearance of [the way of] the rooms which were toward the north; according to their length so was their breadth: and all their exits were both according to their fashions, and according to their doors.

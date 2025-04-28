@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, I may say unto you freely of the patriarch David, that he both died and was buried, and his tomb is with us unto this day.
+"Brothers, I may tell you freely of the patriarch David, that he both died and was buried, and his tomb is with us to this day.

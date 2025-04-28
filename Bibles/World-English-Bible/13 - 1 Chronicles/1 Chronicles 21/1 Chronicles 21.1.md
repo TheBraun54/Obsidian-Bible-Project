@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Satan stood up against Israel, and moved David to number Israel.
+Satan stood up against Israel, and moved David to number Israel.

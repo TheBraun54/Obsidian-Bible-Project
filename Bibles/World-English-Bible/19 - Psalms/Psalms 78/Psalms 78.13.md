@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He clave the sea, and caused them to pass through; And he made the waters to stand as a heap.
+He split the sea, and caused them to pass through. He made the waters stand as a heap.

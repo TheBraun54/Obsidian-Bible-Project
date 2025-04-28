@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel dwelt in the land of Egypt, in the land of Goshen; and they gat them possessions therein, and were fruitful, and multiplied exceedingly.
+Israel lived in the land of Egypt, in the land of Goshen; and they got themselves possessions therein, and were fruitful, and multiplied exceedingly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mattithiah, one of the Levites, who was the first-born of Shallum the Korahite, had the office of trust over the things that were baked in pans.
+Mattithiah, one of the Levites, who was the firstborn of Shallum the Korahite, had the office of trust over the things that were baked in pans.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There he brake the arrows of the bow; The shield, and the sword, and the battle. {{Selah
+There he broke the flaming arrows of the bow, the shield, and the sword, and the weapons of war. Selah.

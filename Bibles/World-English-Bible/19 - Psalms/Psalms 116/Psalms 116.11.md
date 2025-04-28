@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said in my haste, All men are liars.
+I said in my haste, "All men are liars."

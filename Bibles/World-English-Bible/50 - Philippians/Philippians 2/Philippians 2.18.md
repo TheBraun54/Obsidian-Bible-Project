@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the same manner do ye also joy, and rejoice with me.
+In the same way, you also rejoice, and rejoice with me.

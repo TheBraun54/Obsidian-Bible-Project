@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sigh, but not aloud, make no mourning for the dead; bind thy headtire upon thee, and put thy shoes upon thy feet, and cover not thy lips, and eat not the bread of men.
+Sigh, but not aloud, make no mourning for the dead; bind your headdress on you, and put your shoes on your feet, and don't cover your lips, and don't eat men's bread.

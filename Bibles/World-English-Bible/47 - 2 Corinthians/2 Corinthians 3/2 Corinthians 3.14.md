@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but their minds were hardened: for until this very day at the reading of the old covenant the same veil remaineth, it not being revealed [to them] that it is done away in Christ.
+But their minds were hardened, for until this very day at the reading of the old covenant the same veil remains, because in Christ it passes away.

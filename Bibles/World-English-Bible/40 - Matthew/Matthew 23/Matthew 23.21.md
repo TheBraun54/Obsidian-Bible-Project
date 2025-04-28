@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that sweareth by the temple, sweareth by it, and by him that dwelleth therein.
+He who swears by the temple, swears by it, and by him who was living in it.

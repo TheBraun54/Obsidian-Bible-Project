@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took the blood, and sprinkled it on the people, and said, Behold the blood of the covenant, which Jehovah hath made with you concerning all these words.
+Moses took the blood, and sprinkled it on the people, and said, "Look, this is the blood of the covenant, which Yahweh has made with you concerning all these words."

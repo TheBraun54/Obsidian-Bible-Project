@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people rose up all that day, and all the night, and all the next day, and gathered the quails: he that gathered least gathered ten homers: and they spread them all abroad for themselves round about the camp.
+The people rose up all that day, and all the night, and all the next day, and gathered the quails. He who gathered least gathered ten homers; and they spread them all abroad for themselves around the camp.

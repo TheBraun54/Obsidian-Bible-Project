@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they all did cast in of their superfluity; but she of her want did cast in all that she had, [even] all her living.
+for they all gave out of their abundance, but she, out of her poverty, gave all that she had to live on."

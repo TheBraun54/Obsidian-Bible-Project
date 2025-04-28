@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Issachar: Tola, and Puah, Jashub, and Shimron, four.
+Of the sons of Issachar: Tola, and Puah, Jashub, and Shimron, four.

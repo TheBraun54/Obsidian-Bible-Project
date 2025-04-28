@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he was now going down, his servants met him, saying, that his son lived.
+As he was now going down, his servants met him and reported, saying "Your child lives!"

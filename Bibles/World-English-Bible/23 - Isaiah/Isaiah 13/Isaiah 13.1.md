@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of Babylon, which Isaiah the son of Amoz did see.
+The burden of Babylon, which Isaiah the son of Amoz saw:

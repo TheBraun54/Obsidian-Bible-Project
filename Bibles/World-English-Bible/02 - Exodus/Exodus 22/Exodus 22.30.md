@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Likewise shalt thou do with thine oxen, [and] with thy sheep: seven days it shall be with its dam; on the eighth day thou shalt give it me.
+You shall do likewise with your cattle and with your sheep. Seven days it shall be with its mother, then on the eighth day you shall give it to me.

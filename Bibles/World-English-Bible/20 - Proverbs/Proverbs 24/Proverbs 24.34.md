@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall thy poverty come as a robber, And thy want as an armed man.
+so your poverty will come as a robber, and your want as an armed man.

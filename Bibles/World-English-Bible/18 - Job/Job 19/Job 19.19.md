@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All my familiar friends abhor me, And they whom I loved are turned against me.
+All my familiar friends abhor me. They whom I loved have turned against me.

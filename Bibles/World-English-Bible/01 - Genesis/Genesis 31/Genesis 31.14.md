@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rachel and Leah answered and said unto him, Is there yet any portion or inheritance for us in our father's house?
+Rachel and Leah answered him, "Is there yet any portion or inheritance for us in our father's house?

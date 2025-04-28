@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto him shall be the tribe of Manasseh: and the prince of the children of Manasseh shall be Gamaliel the son of Pedahzur.
+"Next to him shall be the tribe of Manasseh: and the prince of the children of Manasseh shall be Gamaliel the son of Pedahzur.

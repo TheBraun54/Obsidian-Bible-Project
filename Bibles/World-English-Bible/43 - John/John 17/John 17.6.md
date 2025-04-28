@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I manifested thy name unto the men whom thou gavest me out of the world: thine they were, and thou gavest them to me; and they have kept thy word.
+I revealed your name to the people whom you have given me out of the world. They were yours, and you have given them to me. They have kept your word.

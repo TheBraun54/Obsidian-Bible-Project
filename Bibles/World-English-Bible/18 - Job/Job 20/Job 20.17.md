@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not look upon the rivers, The flowing streams of honey and butter.
+He shall not look at the rivers, the flowing streams of honey and butter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it came to pass that were parted from them and had set sail, we came with a straight course unto Cos, and the next day unto Rhodes, and from thence unto Patara:
+When it happened that we had parted from them and had set sail, we came with a straight course to Cos, and the next day to Rhodes, and from there to Patara.

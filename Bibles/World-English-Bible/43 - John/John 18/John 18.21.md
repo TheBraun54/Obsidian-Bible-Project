@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why askest thou me? Ask them that have heard [me], what I spake unto them: behold, these know the things which I said.
+Why do you ask me? Ask those who have heard me what I said to them. Behold, these know the things which I said."

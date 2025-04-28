@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brake in pieces the pillars, and cut down the Asherim, and filled their places with the bones of men.
+He broke in pieces the pillars, and cut down the Asherim, and filled their places with the bones of men.

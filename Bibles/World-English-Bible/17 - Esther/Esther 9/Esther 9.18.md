@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Jews that were in Shushan assembled together on the thirteenth [day] thereof, and on the fourteenth thereof; and on the fifteenth [day] of the same they rested, and made it a day of feasting and gladness.
+But the Jews who were in Shushan assembled together on the thirteenth and on the fourteenth days of the month; and on the fifteenth day of that month, they rested, and made it a day of feasting and gladness.

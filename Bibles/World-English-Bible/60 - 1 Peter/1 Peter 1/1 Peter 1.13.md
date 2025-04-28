@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore girding up the loins of your mind, be sober and set your hope perfectly on the grace that is to be brought unto you at the revelation of Jesus Christ;
+Therefore, prepare your minds for action, be sober and set your hope fully on the grace that will be brought to you at the revelation of Jesus Christ--

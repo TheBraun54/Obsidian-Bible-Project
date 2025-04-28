@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can a bird fall in a snare upon the earth, where no gin is [set] for him? shall a snare spring up from the ground, and have taken nothing at all?
+Can a bird fall in a trap on the earth, where no snare is set for him? Does a snare spring up from the ground, when there is nothing to catch?

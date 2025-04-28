@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One post shall run to meet another, and one messenger to meet another, to show the king of Babylon that his city is taken on every quarter:
+One runner will run to meet another, and one messenger to meet another, to show the king of Babylon that his city is taken on every quarter:

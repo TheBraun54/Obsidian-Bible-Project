@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Judah came, and there they anointed David king over the house of Judah. And they told David, saying, The men of Jabesh-gilead were they that buried Saul.
+The men of Judah came, and there they anointed David king over the house of Judah. They told David, saying, "The men of Jabesh Gilead were those who buried Saul."

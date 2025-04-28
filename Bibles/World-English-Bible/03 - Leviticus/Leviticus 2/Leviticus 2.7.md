@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy oblation be a meal-offering of the frying-pan, it shall be made of fine flour with oil.
+If your offering is a meal offering of the pan, it shall be made of fine flour with oil.

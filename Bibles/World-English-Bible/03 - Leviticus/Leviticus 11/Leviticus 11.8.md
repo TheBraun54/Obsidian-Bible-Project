@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of their flesh ye shall not eat, and their carcasses ye shall not touch; they are unclean unto you.
+Of their flesh you shall not eat, and their carcasses you shall not touch; they are unclean to you.

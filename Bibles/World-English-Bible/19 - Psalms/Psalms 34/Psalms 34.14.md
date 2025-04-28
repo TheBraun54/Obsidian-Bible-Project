@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Depart from evil, and do good; Seek peace, and pursue it.
+Depart from evil, and do good. seek peace, and pursue it.

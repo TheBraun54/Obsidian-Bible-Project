@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I took my staff Beauty, and cut it asunder, that I might break my covenant which I had made with all the peoples.
+I took my staff Favor, and cut it apart, that I might break my covenant that I had made with all the peoples.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am toward God even as thou art: I also am formed out of the clay.
+Behold, I am toward God even as you are. I am also formed out of the clay.

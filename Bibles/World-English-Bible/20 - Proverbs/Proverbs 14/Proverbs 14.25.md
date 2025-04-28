@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A true witness delivereth souls; But he that uttereth lies [causeth] deceit.
+A truthful witness saves souls, but a false witness is deceitful.

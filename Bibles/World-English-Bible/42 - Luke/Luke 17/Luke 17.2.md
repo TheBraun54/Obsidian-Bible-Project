@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It were well for him if a millstone were hanged about his neck, and he were thrown into the sea, rather than that he should cause one of these little ones to stumble.
+It would be better for him if a millstone were hung around his neck, and he were thrown into the sea, rather than that he should cause one of these little ones to stumble.

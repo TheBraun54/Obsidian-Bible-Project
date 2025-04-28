@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when thou offerest an oblation of a meal-offering baken in the oven, it shall be unleavened cakes of fine flour mingled with oil, or unleavened wafers anointed with oil.
+"'When you offer an offering of a meal offering baked in the oven, it shall be unleavened cakes of fine flour mixed with oil, or unleavened wafers anointed with oil.

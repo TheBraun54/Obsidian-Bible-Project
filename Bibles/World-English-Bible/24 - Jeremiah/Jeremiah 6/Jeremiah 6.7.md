@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a well casteth forth its waters, so she casteth forth her wickedness: violence and destruction is heard in her; before me continually is sickness and wounds.
+As a well casts forth its waters, so she casts forth her wickedness: violence and destruction is heard in her; before me continually is sickness and wounds.

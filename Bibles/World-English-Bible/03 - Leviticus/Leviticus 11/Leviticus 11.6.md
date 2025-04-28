@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the hare, because she cheweth the cud but parteth not the hoof, she is unclean unto you.
+The hare, because she chews the cud but doesn't part the hoof, she is unclean to you.

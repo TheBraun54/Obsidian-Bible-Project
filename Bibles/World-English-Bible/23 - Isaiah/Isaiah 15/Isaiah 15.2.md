@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are gone up to Bayith, and to Dibon, to the high places, to weep: Moab waileth over Nebo, and over Medeba; on all their heads is baldness, every beard is cut off.
+They have gone up to Bayith, and to Dibon, to the high places, to weep. Moab wails over Nebo and over Medeba. Baldness is on all of their heads. Every beard is cut off.

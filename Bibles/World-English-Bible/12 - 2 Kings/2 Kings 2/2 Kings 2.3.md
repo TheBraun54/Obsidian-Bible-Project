@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of the prophets that were at Beth-el came forth to Elisha, and said unto him, Knowest thou that Jehovah will take away thy master from thy head to-day? And he said, Yea, I know it; hold ye your peace.
+The sons of the prophets who were at Bethel came out to Elisha, and said to him, "Do you know that Yahweh will take away your master from your head today?" He said, "Yes, I know it; hold your peace."

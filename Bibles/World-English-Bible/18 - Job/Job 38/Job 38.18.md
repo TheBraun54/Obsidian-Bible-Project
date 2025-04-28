@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou comprehended the earth in its breadth? Declare, if thou knowest it all.
+Have you comprehended the earth in its breadth? Declare, if you know it all.

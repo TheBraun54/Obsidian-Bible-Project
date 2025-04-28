@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But where are thy gods that thou hast made thee? let them arise, if they can save thee in the time of thy trouble: for according to the number of thy cities are thy gods, O Judah.
+"But where are your gods that you have made for yourselves? Let them arise, if they can save you in the time of your trouble: for according to the number of your cities are your gods, Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Benaiah the son of Jehoiada answered the king, and said, Amen: Jehovah, the God of my lord the king, say so [too] .
+Benaiah the son of Jehoiada answered the king, and said, "Amen. May Yahweh, the God of my lord the king, say so.

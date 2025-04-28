@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for such as turn aside unto their crooked ways, Jehovah will lead them forth with the workers of iniquity. Peace be upon Israel.
+But as for those who turn aside to their crooked ways, Yahweh will lead them away with the workers of iniquity. Peace be on Israel. A Song of Ascents.

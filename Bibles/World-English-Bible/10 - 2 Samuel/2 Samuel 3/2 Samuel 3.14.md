@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David sent messengers to Ish-bosheth, Saul's son, saying, Deliver me my wife Michal, whom I betrothed to me for a hundred foreskins of the Philistines.
+David sent messengers to Ishbosheth, Saul's son, saying, "Deliver me my wife Michal, whom I pledged to be married to me for one hundred foreskins of the Philistines."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ziklag, and Beth-marcaboth, and Hazar-susah,
+Ziklag, Beth Marcaboth, Hazar Susah,

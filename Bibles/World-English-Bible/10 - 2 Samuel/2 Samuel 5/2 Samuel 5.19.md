@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David inquired of Jehovah, saying, Shall I go up against the Philistines? wilt thou deliver them into my hand? And Jehovah said unto David, Go up; for I will certainly deliver the Philistines into thy hand.
+David inquired of Yahweh, saying, "Shall I go up against the Philistines? Will you deliver them into my hand?" Yahweh said to David, "Go up; for I will certainly deliver the Philistines into your hand."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, This man persuadeth men to worship God contrary to the law.
+saying, "This man persuades men to worship God contrary to the law."

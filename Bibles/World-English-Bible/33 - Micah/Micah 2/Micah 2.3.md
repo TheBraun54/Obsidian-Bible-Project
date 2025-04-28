@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah: Behold, against this family do I devise an evil, from which ye shall not remove your necks, neither shall ye walk haughtily; for it is an evil time.
+Therefore thus says Yahweh: "Behold, I am planning against these people a disaster, from which you will not remove your necks, neither will you walk haughtily; for it is an evil time.

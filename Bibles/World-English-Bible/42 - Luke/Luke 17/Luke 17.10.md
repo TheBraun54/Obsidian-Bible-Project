@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so ye also, when ye shall have done all the things that are commanded you, say, We are unprofitable servants; we have done that which it was our duty to do.
+Even so you also, when you have done all the things that are commanded you, say, 'We are unworthy servants. We have done our duty.'"

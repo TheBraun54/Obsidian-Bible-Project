@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I live, saith the King, whose name is Jehovah of hosts, surely like Tabor among the mountains, and like Carmel by the sea, so shall he come.
+As I live, says the King, whose name is Yahweh of Armies, surely like Tabor among the mountains, and like Carmel by the sea, so shall he come.

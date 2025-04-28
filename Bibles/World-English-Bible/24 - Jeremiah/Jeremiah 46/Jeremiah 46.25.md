@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts, the God of Israel, saith: Behold, I will punish Amon of No, and Pharaoh, and Egypt, with her gods, and her kings; even Pharaoh, and them that trust in him:
+Yahweh of Armies, the God of Israel, says: Behold, I will punish Amon of No, and Pharaoh, and Egypt, with her gods, and her kings; even Pharaoh, and those who trust in him:

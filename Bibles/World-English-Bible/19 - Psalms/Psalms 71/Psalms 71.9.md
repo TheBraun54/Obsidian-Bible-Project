@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast me not off in the time of old age; Forsake me not when my strength faileth.
+Don't reject me in my old age. Don't forsake me when my strength fails.

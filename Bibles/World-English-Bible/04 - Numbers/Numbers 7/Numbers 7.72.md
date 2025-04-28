@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the eleventh day Pagiel the son of Ochran, prince of the children of Asher:
+On the eleventh day Pagiel the son of Ochran, prince of the children of Asher

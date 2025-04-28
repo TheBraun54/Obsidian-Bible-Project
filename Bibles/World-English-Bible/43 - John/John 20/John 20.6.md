@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter therefore also cometh, following him, and entered into the tomb; and he beholdeth the linen cloths lying,
+Then Simon Peter came, following him, and entered into the tomb. He saw the linen cloths lying,

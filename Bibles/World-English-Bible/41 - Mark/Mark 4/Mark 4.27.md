@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and should sleep and rise night and day, and the seed should spring up and grow, he knoweth not how.
+and should sleep and rise night and day, and the seed should spring up and grow, he doesn't know how.

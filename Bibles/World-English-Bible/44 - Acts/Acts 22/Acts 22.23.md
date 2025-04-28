@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they cried out, and threw off their garments, and cast dust into the air,
+As they cried out, and threw off their cloaks, and threw dust into the air,

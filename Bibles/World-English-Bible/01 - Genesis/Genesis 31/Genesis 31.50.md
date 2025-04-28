@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou shalt afflict my daughters, and if thou shalt take wives besides my daughters, no man is with us; see, God is witness betwixt me and thee.
+If you afflict my daughters, or if you take wives besides my daughters, no man is with us; behold, God is witness between me and you."

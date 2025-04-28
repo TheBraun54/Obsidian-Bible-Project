@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a son of peace be there, your peace shall rest upon him: but if not, it shall turn to you again.
+If a son of peace is there, your peace will rest on him; but if not, it will return to you.

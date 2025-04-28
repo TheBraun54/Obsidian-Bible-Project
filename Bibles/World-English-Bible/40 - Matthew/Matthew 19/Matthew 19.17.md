@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Why askest thou me concerning that which is good? One there is who is good: but if thou wouldest enter into life, keep the commandments.
+He said to him, "Why do you call me good? No one is good but one, that is, God. But if you want to enter into life, keep the commandments."

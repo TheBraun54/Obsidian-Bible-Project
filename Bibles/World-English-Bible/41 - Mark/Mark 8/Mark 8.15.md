@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged them, saying, Take heed, beware of the leaven of the Pharisees and the leaven of Herod.
+He warned them, saying, "Take heed: beware of the yeast of the Pharisees and the yeast of Herod."

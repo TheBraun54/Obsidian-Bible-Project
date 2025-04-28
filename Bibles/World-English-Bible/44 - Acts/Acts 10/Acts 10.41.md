@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not to all the people, but unto witnesses that were chosen before of God, [even] to us, who ate and drank with him after he rose from the dead.
+not to all the people, but to witnesses who were chosen before by God, to us, who ate and drank with him after he rose from the dead.

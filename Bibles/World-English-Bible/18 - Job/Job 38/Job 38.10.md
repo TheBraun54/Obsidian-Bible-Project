@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And marked out for it my bound, And set bars and doors,
+marked out for it my bound, set bars and doors,

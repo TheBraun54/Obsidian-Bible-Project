@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were closed windows and palm-trees on the one side and on the other side, on the sides of the porch: thus were the side-chambers of the house, and the thresholds.
+There were closed windows and palm trees on the one side and on the other side, on the sides of the porch: thus were the side rooms of the house, and the thresholds.

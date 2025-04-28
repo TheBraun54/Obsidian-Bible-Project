@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken not unto them; serve the king of Babylon, and live: wherefore should this city become a desolation?
+Don't listen to them; serve the king of Babylon, and live: why should this city become a desolation?

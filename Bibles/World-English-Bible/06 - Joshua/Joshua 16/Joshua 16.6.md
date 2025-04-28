@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border went out westward at Michmethath on the north; and the border turned about eastward unto Taanath-shiloh, and passed along it on the east of Janoah;
+The border went out westward at Michmethath on the north. The border turned about eastward to Taanath Shiloh, and passed along it on the east of Janoah.

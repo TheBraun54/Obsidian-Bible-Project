@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is thy beloved more than [another] beloved, O thou fairest among women? What is thy beloved more than [another] beloved, That thou dost so adjure us?
+How is your beloved better than another beloved, you fairest among women? How is your beloved better than another beloved, that you do so adjure us? Beloved

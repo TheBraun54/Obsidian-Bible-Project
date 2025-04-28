@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they cry with a great voice, saying, Salvation unto our God who sitteth on the throne, and unto the Lamb.
+They cried with a loud voice, saying, "Salvation be to our God, who sits on the throne, and to the Lamb!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for this cause the Jews persecuted Jesus, because he did these things on the sabbath.
+For this cause the Jews persecuted Jesus, and sought to kill him, because he did these things on the Sabbath.

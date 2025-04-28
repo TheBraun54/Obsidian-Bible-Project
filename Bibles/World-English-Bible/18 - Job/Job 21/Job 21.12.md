@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They sing to the timbrel and harp, And rejoice at the sound of the pipe.
+They sing to the tambourine and harp, and rejoice at the sound of the pipe.

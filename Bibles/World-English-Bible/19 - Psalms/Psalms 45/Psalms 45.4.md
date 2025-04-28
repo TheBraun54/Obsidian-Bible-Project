@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in thy majesty ride on prosperously, Because of truth and meekness [and] righteousness: And thy right hand shall teach thee terrible things.
+In your majesty ride on victoriously on behalf of truth, humility, and righteousness. Let your right hand display awesome deeds.

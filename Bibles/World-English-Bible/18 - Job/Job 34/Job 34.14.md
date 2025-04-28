@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he set his heart upon himself, [If] he gather unto himself his spirit and his breath;
+If he set his heart on himself, If he gathered to himself his spirit and his breath,

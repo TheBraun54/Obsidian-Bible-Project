@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made them a feast, and they did eat and drink.
+He made them a feast, and they ate and drank.

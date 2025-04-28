@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there were with us seven brethren: and the first married and deceased, and having no seed left his wife unto his brother;
+Now there were with us seven brothers. The first married and died, and having no seed left his wife to his brother.

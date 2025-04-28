@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is my portion, saith my soul; therefore will I hope in him.
+Yahweh is my portion, says my soul; therefore will I hope in him.

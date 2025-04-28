@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah looketh from heaven; He beholdeth all the sons of men;
+Yahweh looks from heaven. He sees all the sons of men.

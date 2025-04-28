@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that season Jesus answered and said, I thank thee, O Father, Lord of heaven and earth, that thou didst hide these things from the wise and understanding, and didst reveal them unto babes: [
+At that time, Jesus answered, "I thank you, Father, Lord of heaven and earth, that you hid these things from the wise and understanding, and revealed them to infants.

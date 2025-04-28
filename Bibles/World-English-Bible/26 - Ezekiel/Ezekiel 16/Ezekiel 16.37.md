@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore behold, I will gather all thy lovers, with whom thou hast taken pleasure, and all them that thou hast loved, with all them that thou hast hated; I will even gather them against thee on every side, and will uncover thy nakedness unto them, that they may see all thy nakedness.
+therefore see, I will gather all your lovers, with whom you have taken pleasure, and all those who you have loved, with all those who you have hated; I will even gather them against you on every side, and will uncover your nakedness to them, that they may see all your nakedness.

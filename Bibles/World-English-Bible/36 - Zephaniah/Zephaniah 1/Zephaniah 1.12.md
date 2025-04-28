@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass at that time, that I will search Jerusalem with lamps; and I will punish the men that are settled on their lees, that say in their heart, Jehovah will not do good, neither will he do evil.
+It will happen at that time, that I will search Jerusalem with lamps, and I will punish the men who are settled on their dregs, who say in their heart, "Yahweh will not do good, neither will he do evil."

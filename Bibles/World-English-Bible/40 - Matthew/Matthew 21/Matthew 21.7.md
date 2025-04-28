@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and brought the ass, and the colt, and put on them their garments; and he sat thereon.
+and brought the donkey and the colt, and laid their clothes on them; and he sat on them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I love them that love me; And those that seek me diligently shall find me.
+I love those who love me. Those who seek me diligently will find me.

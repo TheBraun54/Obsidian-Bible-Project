@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless Jehovah thy God would not hearken unto Balaam; but Jehovah thy God turned the curse into a blessing unto thee, because Jehovah thy God loved thee.
+Nevertheless Yahweh your God wouldn't listen to Balaam; but Yahweh your God turned the curse into a blessing to you, because Yahweh your God loved you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of forty days and forty nights, that Jehovah gave me the two tables of stone, even the tables of the covenant.
+It came to pass at the end of forty days and forty nights, that Yahweh gave me the two tables of stone, even the tables of the covenant.

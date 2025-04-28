@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who perished at Endor, Who became as dung for the earth.
+who perished at Endor, who became as dung for the earth.

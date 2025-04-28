@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God do so to Abner, and more also, if, as Jehovah hath sworn to David, I do not even so to him;
+God do so to Abner, and more also, if, as Yahweh has sworn to David, I don't do even so to him;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Pharisees said unto him, Behold, why do they on the sabbath day that which is not lawful?
+The Pharisees said to him, "Behold, why do they do that which is not lawful on the Sabbath day?"

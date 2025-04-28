@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Abronah, and encamped in Ezion-geber.
+They traveled from Abronah, and encamped in Ezion Geber.

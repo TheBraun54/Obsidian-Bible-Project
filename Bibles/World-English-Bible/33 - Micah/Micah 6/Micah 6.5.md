@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my people, remember now what Balak king of Moab devised, and what Balaam the son of Beor answered him; [remember] from Shittim unto Gilgal, that ye may know the righteous acts of Jehovah.
+My people, remember now what Balak king of Moab devised, and what Balaam the son of Beor answered him from Shittim to Gilgal, that you may know the righteous acts of Yahweh."

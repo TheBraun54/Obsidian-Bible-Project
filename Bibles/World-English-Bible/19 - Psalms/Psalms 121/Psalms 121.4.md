@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he that keepeth Israel Will neither slumber nor sleep.
+Behold, he who keeps Israel will neither slumber nor sleep.

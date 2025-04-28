@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I [counsel thee], Keep the king's command, and that in regard of the oath of God.
+I say, "Keep the king's command!" because of the oath to God.

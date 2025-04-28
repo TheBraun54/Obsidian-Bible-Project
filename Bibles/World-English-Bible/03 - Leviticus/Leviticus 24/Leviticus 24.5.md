@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take fine flour, and bake twelve cakes thereof: two tenth parts [of an ephah] shall be in one cake.
+"You shall take fine flour, and bake twelve cakes of it: two tenth parts of an ephah shall be in one cake.

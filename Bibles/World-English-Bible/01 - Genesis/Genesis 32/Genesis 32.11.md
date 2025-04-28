@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me, I pray thee, from the hand of my brother, from the hand of Esau: for I fear him, lest he come and smite me, the mother with the children.
+Please deliver me from the hand of my brother, from the hand of Esau: for I fear him, lest he come and strike me, and the mothers with the children.

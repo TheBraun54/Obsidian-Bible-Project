@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the whole valley of the dead bodies and of the ashes, and all the fields unto the brook Kidron, unto the corner of the horse gate toward the east, shall be holy unto Jehovah; it shall not be plucked up, nor thrown down any more for ever.
+The whole valley of the dead bodies and of the ashes, and all the fields to the brook Kidron, to the corner of the horse gate toward the east, shall be holy to Yahweh; it shall not be plucked up, nor thrown down any more forever.

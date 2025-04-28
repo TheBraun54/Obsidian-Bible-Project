@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But whensoever it shall turn to the Lord, the veil is taken away.
+But whenever one turns to the Lord, the veil is taken away.

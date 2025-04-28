@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah rejoiced, and all the people, because of that which God had prepared for the people: for the thing was done suddenly.
+Hezekiah rejoiced, and all the people, because of that which God had prepared for the people: for the thing was done suddenly.

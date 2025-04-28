@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fifteen cubits upward did the waters prevail; and the mountains were covered.
+The waters prevailed fifteen cubits upward, and the mountains were covered.

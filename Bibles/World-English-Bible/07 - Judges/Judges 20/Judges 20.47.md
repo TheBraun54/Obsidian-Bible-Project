@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But six hundred men turned and fled toward the wilderness unto the rock of Rimmon, and abode in the rock of Rimmon four months.
+But six hundred men turned and fled toward the wilderness to the rock of Rimmon, and stayed in the rock of Rimmon four months.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now is not Boaz our kinsman, with whose maidens thou wast? Behold, he winnoweth barley to-night in the threshing-floor.
+Now isn't Boaz our kinsman, with whose maidens you were? Behold, he winnows barley tonight in the threshing floor.

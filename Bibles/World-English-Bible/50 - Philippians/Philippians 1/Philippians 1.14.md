@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that most of the brethren in the Lord, being confident through my bonds, are more abundantly bold to speak the word of God without fear.
+and that most of the brothers in the Lord, being confident through my bonds, are more abundantly bold to speak the word of God without fear.

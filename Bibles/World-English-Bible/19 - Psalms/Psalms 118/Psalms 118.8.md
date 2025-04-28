@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is better to take refuge in Jehovah Than to put confidence in man.
+It is better to take refuge in Yahweh, than to put confidence in man.

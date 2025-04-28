@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can bring a clean thing out of an unclean? not one.
+Who can bring a clean thing out of an unclean? Not one.

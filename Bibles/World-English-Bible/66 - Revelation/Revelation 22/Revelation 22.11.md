@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is unrighteous, let him do unrighteousness still: and he that is filthy, let him be made filthy still: and he that is righteous, let him do righteousness still: and he that is holy, let him be made holy still.
+He who acts unjustly, let him act unjustly still. He who is filthy, let him be filthy still. He who is righteous, let him do righteousness still. He who is holy, let him be holy still."

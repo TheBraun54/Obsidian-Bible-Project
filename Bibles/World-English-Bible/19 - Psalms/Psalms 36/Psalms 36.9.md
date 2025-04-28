@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For with thee is the fountain of life: In thy light shall we see light.
+For with you is the spring of life. In your light shall we see light.

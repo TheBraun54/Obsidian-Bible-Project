@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David numbered the people that were with him, and set captains of thousands and captains of hundreds over them.
+David numbered the people who were with him, and set captains of thousands and captains of hundreds over them.

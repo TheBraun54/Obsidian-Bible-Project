@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore David inquired of Jehovah, saying, Shall I go and smite these Philistines? And Jehovah said unto David, Go, and smite the Philistines, and save Keilah.
+Therefore David inquired of Yahweh, saying, "Shall I go and strike these Philistines?" Yahweh said to David, "Go strike the Philistines, and save Keilah."

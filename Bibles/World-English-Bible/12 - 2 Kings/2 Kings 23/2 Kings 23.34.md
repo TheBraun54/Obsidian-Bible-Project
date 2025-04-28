@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh-necoh made Eliakim the son of Josiah king in the room of Josiah his father, and changed his name to Jehoiakim: but he took Jehoahaz away; and he came to Egypt, and died there.
+Pharaoh Necoh made Eliakim the son of Josiah king in the place of Josiah his father, and changed his name to Jehoiakim: but he took Jehoahaz away; and he came to Egypt, and died there.

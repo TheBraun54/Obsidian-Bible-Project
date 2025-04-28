@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, my brethren, ye also were made dead to the law through the body of Christ; that ye should be joined to another, [even] to him who was raised from the dead, that we might bring forth fruit unto God.
+Therefore, my brothers, you also were made dead to the law through the body of Christ, that you would be joined to another, to him who was raised from the dead, that we might bring forth fruit to God.

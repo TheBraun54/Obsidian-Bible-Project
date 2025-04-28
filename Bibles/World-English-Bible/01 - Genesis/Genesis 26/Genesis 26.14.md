@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he had possessions of flocks, and possessions of herds, and a great household: and the Philistines envied him.
+He had possessions of flocks, possessions of herds, and a great household. The Philistines envied him.

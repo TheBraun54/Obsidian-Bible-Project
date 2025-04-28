@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hardened the heart of Pharaoh, and he hearkened not unto them; as Jehovah had spoken unto Moses.
+Yahweh hardened the heart of Pharaoh, and he didn't listen to them, as Yahweh had spoken to Moses.

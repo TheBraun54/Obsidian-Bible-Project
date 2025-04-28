@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the staves thereof shall be put into the rings, and the staves shall be upon the two sides of the altar, in bearing it.
+Its poles shall be put into the rings, and the poles shall be on the two sides of the altar, when carrying it.

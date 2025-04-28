@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These see the works of Jehovah, And his wonders in the deep.
+These see Yahweh's works, and his wonders in the deep.

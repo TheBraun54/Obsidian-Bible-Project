@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover of the children of the strangers that sojourn among you, of them shall ye buy, and of their families that are with you, which they have begotten in your land: and they shall be your possession.
+Moreover of the children of the aliens who live among you, of them you may buy, and of their families who are with you, which they have conceived in your land; and they will be your property.

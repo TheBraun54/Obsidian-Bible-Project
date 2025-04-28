@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron and his sons washed their hands and their feet thereat;
+Moses, Aaron, and his sons washed their hands and their feet there.

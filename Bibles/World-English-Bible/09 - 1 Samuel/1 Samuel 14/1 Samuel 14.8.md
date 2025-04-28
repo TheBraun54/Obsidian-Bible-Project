@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jonathan, Behold, we will pass over unto the men, and we will disclose ourselves unto them.
+Then Jonathan said, "Behold, we will pass over to the men, and we will reveal ourselves to them.

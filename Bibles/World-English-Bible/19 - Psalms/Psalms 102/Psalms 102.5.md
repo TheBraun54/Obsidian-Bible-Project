@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By reason of the voice of my groaning My bones cleave to my flesh.
+By reason of the voice of my groaning, my bones stick to my skin.

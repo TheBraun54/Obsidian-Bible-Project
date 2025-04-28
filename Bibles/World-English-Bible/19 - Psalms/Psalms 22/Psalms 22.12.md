@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many bulls have compassed me; Strong bulls of Bashan have beset me round.
+Many bulls have surrounded me. Strong bulls of Bashan have encircled me.

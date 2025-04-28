@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The vision of Obadiah. Thus saith the Lord Jehovah concerning Edom: We have heard tidings from Jehovah, and an ambassador is sent among the nations, [saying], Arise ye, and let us rise up against her in battle.
+The vision of Obadiah. This is what the Lord Yahweh says about Edom. We have heard news from Yahweh, and an ambassador is sent among the nations, saying, "Arise, and let's rise up against her in battle.

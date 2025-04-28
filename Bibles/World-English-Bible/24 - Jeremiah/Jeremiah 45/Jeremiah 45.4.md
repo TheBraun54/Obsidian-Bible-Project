@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shalt thou say unto him, Thus saith Jehovah: Behold, that which I have built will I break down, and that which I have planted I will pluck up; and this in the whole land.
+You shall tell him, Thus says Yahweh: Behold, that which I have built will I break down, and that which I have planted I will pluck up; and this in the whole land.

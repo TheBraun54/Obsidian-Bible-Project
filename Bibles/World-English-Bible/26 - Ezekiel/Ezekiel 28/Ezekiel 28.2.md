@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, say unto the prince of Tyre, Thus saith the Lord Jehovah: Because thy heart is lifted up, and thou hast said, I am a god, I sit in the seat of God, in the midst of the seas; yet thou art man, and not God, though thou didst set thy heart as the heart of God;--
+Son of man, tell the prince of Tyre, Thus says the Lord Yahweh: Because your heart is lifted up, and you have said, I am a god, I sit in the seat of God, in the midst of the seas; yet you are man, and not God, though you did set your heart as the heart of God--

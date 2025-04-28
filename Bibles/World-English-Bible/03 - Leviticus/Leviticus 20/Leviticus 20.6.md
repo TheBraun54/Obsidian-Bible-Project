@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the soul that turneth unto them that have familiar spirits, and unto the wizards, to play the harlot after them, I will even set my face against that soul, and will cut him off from among his people.
+"'The person that turns to those who are mediums, and to the wizards, to play the prostitute after them, I will even set my face against that person, and will cut him off from among his people.

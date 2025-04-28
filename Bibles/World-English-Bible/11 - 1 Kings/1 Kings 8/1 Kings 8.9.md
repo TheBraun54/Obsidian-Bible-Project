@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was nothing in the ark save the two tables of stone which Moses put there at Horeb, when Jehovah made a covenant with the children of Israel, when they came out of the land of Egypt.
+There was nothing in the ark except the two tables of stone which Moses put there at Horeb, when Yahweh made a covenant with the children of Israel, when they came out of the land of Egypt.

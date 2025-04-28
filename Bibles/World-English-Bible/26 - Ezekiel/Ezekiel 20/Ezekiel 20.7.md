@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto them, Cast ye away every man the abominations of his eyes, and defile not yourselves with the idols of Egypt; I am Jehovah your God.
+I said to them, Cast away every man the abominations of his eyes, and don't defile yourselves with the idols of Egypt; I am Yahweh your God.

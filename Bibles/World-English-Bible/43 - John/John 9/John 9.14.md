@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it was the sabbath on the day when Jesus made the clay, and opened his eyes.
+It was a Sabbath when Jesus made the mud and opened his eyes.

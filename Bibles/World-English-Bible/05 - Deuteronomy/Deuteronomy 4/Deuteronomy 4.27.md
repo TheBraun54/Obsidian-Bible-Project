@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will scatter you among the peoples, and ye shall be left few in number among the nations, whither Jehovah shall lead you away.
+Yahweh will scatter you among the peoples, and you shall be left few in number among the nations, where Yahweh shall lead you away.

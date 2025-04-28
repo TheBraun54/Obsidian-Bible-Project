@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when thou art bidden, go and sit down in the lowest place; that when he that hath bidden thee cometh, he may say to thee, Friend, go up higher: then shalt thou have glory in the presence of all that sit at meat with thee.
+But when you are invited, go and sit in the lowest place, so that when he who invited you comes, he may tell you, 'Friend, move up higher.' Then you will be honored in the presence of all who sit at the table with you.

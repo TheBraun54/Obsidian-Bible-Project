@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then arose Ezra, and made the chiefs of the priests, the Levites, and all Israel, to swear that they would do according to this word. So they sware.
+Then Ezra arose, and made the chiefs of the priests, the Levites, and all Israel, to swear that they would do according to this word. So they swore.

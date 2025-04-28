@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heart of the wise instructeth his mouth, And addeth learning to his lips.
+The heart of the wise instructs his mouth, and adds learning to his lips.

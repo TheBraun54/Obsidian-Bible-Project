@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Chephar-ammoni, and Ophni, and Geba; twelve cities with their villages:
+Chephar Ammoni, Ophni, and Geba; twelve cities with their villages.

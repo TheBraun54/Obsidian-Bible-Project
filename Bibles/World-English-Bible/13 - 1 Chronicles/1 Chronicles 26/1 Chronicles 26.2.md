@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Meshelemiah had sons: Zechariah the first-born, Jediael the second, Zebadiah the third, Jathniel the fourth,
+Meshelemiah had sons: Zechariah the firstborn, Jediael the second, Zebadiah the third, Jathniel the fourth,

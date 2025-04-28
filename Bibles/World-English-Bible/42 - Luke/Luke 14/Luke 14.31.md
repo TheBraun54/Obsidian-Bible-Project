@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or what king, as he goeth to encounter another king in war, will not sit down first and take counsel whether he is able with ten thousand to meet him that cometh against him with twenty thousand?
+Or what king, as he goes to encounter another king in war, will not sit down first and consider whether he is able with ten thousand to meet him who comes against him with twenty thousand?

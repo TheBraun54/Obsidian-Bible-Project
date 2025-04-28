@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Samuel was dead, and all Israel had lamented him, and buried him in Ramah, even in his own city. And Saul had put away those that had familiar spirits, and the wizards, out of the land.
+Now Samuel was dead, and all Israel had lamented him, and buried him in Ramah, even in his own city. Saul had put away those who had familiar spirits, and the wizards, out of the land.

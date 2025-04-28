@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Jesus saw the reasoning of their heart, he took a little child, and set him by his side,
+Jesus, perceiving the reasoning of their hearts, took a little child, and set him by his side,

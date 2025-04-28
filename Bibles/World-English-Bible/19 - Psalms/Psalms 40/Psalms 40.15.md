@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be desolate by reason of their shame That say unto me, Aha, aha.
+Let them be desolate by reason of their shame that tell me, "Aha! Aha!"

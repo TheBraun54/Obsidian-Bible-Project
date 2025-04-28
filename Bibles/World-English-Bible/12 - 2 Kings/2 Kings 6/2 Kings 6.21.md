@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel said unto Elisha, when he saw them, My father, shall I smite them? shall I smite them?
+The king of Israel said to Elisha, when he saw them, "My father, shall I strike them? Shall I strike them?"

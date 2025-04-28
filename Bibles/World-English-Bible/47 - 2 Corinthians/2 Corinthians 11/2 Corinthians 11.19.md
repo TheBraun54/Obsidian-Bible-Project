@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye bear with the foolish gladly, being wise [yourselves] .
+For you bear with the foolish gladly, being wise.

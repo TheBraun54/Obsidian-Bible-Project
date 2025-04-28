@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said, What have I to do with you, ye sons of Zeruiah, that ye should this day be adversaries unto me? shall there any man be put to death this day in Israel? for do not I know that I am this day king over Israel?
+David said, "What have I to do with you, you sons of Zeruiah, that you should this day be adversaries to me? Shall there any man be put to death this day in Israel? For don't I know that I am this day king over Israel?"

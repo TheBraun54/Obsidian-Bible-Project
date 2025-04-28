@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am not ashamed of the gospel: for it is the power of God unto salvation to every one that believeth; to the Jew first, and also to the Greek.
+For I am not ashamed of the Good News of Christ, for it is the power of God for salvation for everyone who believes; for the Jew first, and also for the Greek.

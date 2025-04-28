@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will rise up against them, saith Jehovah of hosts, and cut off from Babylon name and remnant, and son and son's son, saith Jehovah.
+"I will rise up against them," says Yahweh of Armies, "and cut off from Babylon name and remnant, and son and son's son," says Yahweh.

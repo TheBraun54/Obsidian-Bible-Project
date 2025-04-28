@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for the law made nothing perfect), and a bringing in thereupon of a better hope, through which we draw nigh unto God.
+(for the law made nothing perfect), and a bringing in of a better hope, through which we draw near to God.

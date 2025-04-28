@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That the man of God may be complete, furnished completely unto every good work.
+that the man of God may be complete, thoroughly equipped for every good work.

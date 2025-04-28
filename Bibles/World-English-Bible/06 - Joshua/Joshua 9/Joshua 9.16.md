@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of three days after they had made a covenant with them, that they heard that they were their neighbors, and that they dwelt among them.
+It happened at the end of three days after they had made a covenant with them, that they heard that they were their neighbors, and that they lived among them.

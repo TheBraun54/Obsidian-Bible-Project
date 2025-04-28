@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that it might be fulfilled which was spoken through Isaiah the prophet, saying: Himself took our infirmities, and bare our diseases.
+that it might be fulfilled which was spoken through Isaiah the prophet, saying: "He took our infirmities, and bore our diseases."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon a set day Herod arrayed himself in royal apparel, and sat on the throne, and made an oration unto them.
+On an appointed day, Herod dressed himself in royal clothing, sat on the throne, and gave a speech to them.

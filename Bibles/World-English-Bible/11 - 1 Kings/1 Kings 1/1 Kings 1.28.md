@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then king David answered and said, Call to me Bath-sheba. And she came into the king's presence, and stood before the king.
+Then king David answered, "Call to me Bathsheba." She came into the king's presence, and stood before the king.

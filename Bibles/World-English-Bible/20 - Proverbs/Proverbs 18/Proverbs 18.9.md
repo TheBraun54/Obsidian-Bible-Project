@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He also that is slack in his work Is brother to him that is a destroyer.
+One who is slack in his work is brother to him who is a master of destruction.

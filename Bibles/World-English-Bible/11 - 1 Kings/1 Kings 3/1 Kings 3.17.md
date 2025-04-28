@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the one woman said, Oh, my lord, I and this woman dwell in one house; and I was delivered of a child with her in the house.
+The one woman said, "Oh, my lord, I and this woman dwell in one house. I delivered a child with her in the house.

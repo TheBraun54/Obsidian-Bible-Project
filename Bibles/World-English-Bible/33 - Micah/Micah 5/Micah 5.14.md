@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will pluck up thine Asherim out of the midst of thee; and I will destroy thy cities.
+I will uproot your Asherim out of your midst; and I will destroy your cities.

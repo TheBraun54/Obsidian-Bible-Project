@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not strive, nor cry aloud; Neither shall any one hear his voice in the streets.
+He will not strive, nor shout; neither will anyone hear his voice in the streets.

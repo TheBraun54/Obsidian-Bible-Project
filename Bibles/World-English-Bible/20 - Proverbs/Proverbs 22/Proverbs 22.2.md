@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rich and the poor meet together: Jehovah is the maker of them all.
+The rich and the poor have this in common: Yahweh is the maker of them all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Achish, But what have I done? and what hast thou found in thy servant so long as I have been before thee unto this day, that I may not go and fight against the enemies of my lord the king?
+David said to Achish, "But what have I done? What have you found in your servant so long as I have been before you to this day, that I may not go and fight against the enemies of my lord the king?"

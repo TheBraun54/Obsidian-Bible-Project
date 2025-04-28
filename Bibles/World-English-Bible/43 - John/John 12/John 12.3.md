@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mary therefore took a pound of ointment of pure nard, very precious, and anointed the feet of Jesus, and wiped his feet with her hair: and the house was filled with the odor of the ointment.
+Mary, therefore, took a pound of ointment of pure nard, very precious, and anointed the feet of Jesus, and wiped his feet with her hair. The house was filled with the fragrance of the ointment.

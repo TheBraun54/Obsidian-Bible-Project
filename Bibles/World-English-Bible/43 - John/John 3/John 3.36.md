@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that believeth on the Son hath eternal life; but he that obeyeth not the Son shall not see life, but the wrath of God abideth on him.
+One who believes in the Son has eternal life, but one who disobeys the Son won't see life, but the wrath of God remains on him."

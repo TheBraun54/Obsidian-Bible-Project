@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will be merciful to their iniquities, And their sins will I remember no more.
+For I will be merciful to their unrighteousness. I will remember their sins and lawless deeds no more."

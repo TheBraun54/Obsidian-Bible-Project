@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he sat on the mount of Olives over against the temple, Peter and James and John and Andrew asked him privately,
+As he sat on the Mount of Olives opposite the temple, Peter, James, John, and Andrew asked him privately,

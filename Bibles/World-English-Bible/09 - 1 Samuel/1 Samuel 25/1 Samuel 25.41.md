@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she arose, and bowed herself with her face to the earth, and said, Behold, thy handmaid is a servant to wash the feet of the servants of my lord.
+She arose, and bowed herself with her face to the earth, and said, "Behold, your handmaid is a servant to wash the feet of the servants of my lord."

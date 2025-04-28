@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they did not all hearken to the glad tidings. For Isaiah saith, Lord, who hath believed our report?
+But they didn't all listen to the glad news. For Isaiah says, "Lord, who has believed our report?"

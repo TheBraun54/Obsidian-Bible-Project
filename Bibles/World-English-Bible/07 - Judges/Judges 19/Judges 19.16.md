@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, there came an old man from his work out of the field at even: now the man was of the hill-country of Ephraim, and he sojourned in Gibeah; but the men of the place were Benjamites.
+Behold, there came an old man from his work out of the field at evening: now the man was of the hill country of Ephraim, and he lived in Gibeah; but the men of the place were Benjamites.

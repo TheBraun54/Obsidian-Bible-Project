@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the lust, when it hath conceived, beareth sin: and the sin, when it is fullgrown, bringeth forth death.
+Then the lust, when it has conceived, bears sin; and the sin, when it is full grown, brings forth death.

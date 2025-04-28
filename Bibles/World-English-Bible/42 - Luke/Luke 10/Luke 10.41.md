@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Lord answered and said unto her, Martha, Martha, thou art anxious and troubled about many things:
+Jesus answered her, "Martha, Martha, you are anxious and troubled about many things,

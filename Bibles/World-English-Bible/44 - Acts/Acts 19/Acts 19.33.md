@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought Alexander out of the multitude, the Jews putting him forward. And Alexander beckoned with the hand, and would have made a defense unto the people.
+They brought Alexander out of the multitude, the Jews putting him forward. Alexander beckoned with his hand, and would have made a defense to the people.

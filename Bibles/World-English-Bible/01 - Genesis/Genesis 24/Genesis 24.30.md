@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he saw the ring, and the bracelets upon his sister's hands, and when he heard the words of Rebekah his sister, saying, Thus spake the man unto me; that he came unto the man; and, behold, he was standing by the camels at the fountain.
+It happened, when he saw the ring, and the bracelets on his sister's hands, and when he heard the words of Rebekah his sister, saying, "This is what the man said to me," that he came to the man. Behold, he was standing by the camels at the spring.

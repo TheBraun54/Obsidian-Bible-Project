@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, O king, sawest, and, behold, a great image. This image, which was mighty, and whose brightness was excellent, stood before thee; and the aspect thereof was terrible.
+You, O king, saw, and behold, a great image. This image, which was mighty, and whose brightness was excellent, stood before you; and its aspect was awesome.

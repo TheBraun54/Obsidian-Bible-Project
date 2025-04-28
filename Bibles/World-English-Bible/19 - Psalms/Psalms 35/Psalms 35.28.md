@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my tongue shall talk of thy righteousness [And] of thy praise all the day long.
+My tongue shall talk about your righteousness and about your praise all day long. For the Chief Musician. By David, the servant of Yahweh.

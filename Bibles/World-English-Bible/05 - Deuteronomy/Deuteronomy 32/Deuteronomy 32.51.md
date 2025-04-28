@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because ye trespassed against me in the midst of the children of Israel at the waters of Meribah of Kadesh, in the wilderness of Zin; because ye sanctified me not in the midst of the children of Israel.
+because you trespassed against me in the midst of the children of Israel at the waters of Meribah of Kadesh, in the wilderness of Zin; because you didn't sanctify me in the midst of the children of Israel.

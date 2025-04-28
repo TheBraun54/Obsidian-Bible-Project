@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall blossom abundantly, and rejoice even with joy and singing; the glory of Lebanon shall be given unto it, the excellency of Carmel and Sharon: they shall see the glory of Jehovah, the excellency of our God.
+It will blossom abundantly, and rejoice even with joy and singing. Lebanon's glory Lebanon will be given to it, the excellence of Carmel and Sharon. They will see Yahweh's glory, the excellence of our God.

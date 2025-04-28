@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their seed shall be known among the nations, and their offspring among the peoples; all that see them shall acknowledge them, that they are the seed which Jehovah hath blessed.
+Their seed shall be known among the nations, and their offspring among the peoples; all who see them shall acknowledge them, that they are the seed which Yahweh has blessed."

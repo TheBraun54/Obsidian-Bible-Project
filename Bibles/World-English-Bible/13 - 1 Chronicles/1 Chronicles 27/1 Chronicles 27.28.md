@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and over the olive-trees and the sycomore-trees that were in the lowland was Baal-hanan the Gederite: and over the cellars of oil was Joash:
+and over the olive trees and the sycamore trees that were in the lowland was Baal Hanan the Gederite: and over the cellars of oil was Joash:

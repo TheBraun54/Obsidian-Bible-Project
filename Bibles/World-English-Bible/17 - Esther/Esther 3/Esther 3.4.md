@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass, when they spake daily unto him, and he hearkened not unto them, that they told Haman, to see whether Mordecai's matters would stand: for he had told them that he was a Jew. [
+Now it came to pass, when they spoke daily to him, and he didn't listen to them, that they told Haman, to see whether Mordecai's reason would stand; for he had told them that he was a Jew.

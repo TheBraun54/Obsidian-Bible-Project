@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Micah consecrated the Levite, and the young man became his priest, and was in the house of Micah.
+Micah consecrated the Levite, and the young man became his priest, and was in the house of Micah.

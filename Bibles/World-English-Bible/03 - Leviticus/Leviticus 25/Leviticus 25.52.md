@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if there remain but few years unto the year of jubilee, then he shall reckon with him; according unto his years shall he give back the price of his redemption.
+If there remain but a few years to the year of jubilee, then he shall reckon with him; according to his years of service he shall give back the price of his redemption.

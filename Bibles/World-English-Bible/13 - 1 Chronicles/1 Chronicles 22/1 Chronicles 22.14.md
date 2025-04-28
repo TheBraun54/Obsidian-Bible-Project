@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now, behold, in my affliction I have prepared for the house of Jehovah a hundred thousand talents of gold, and a thousand thousand talents of silver, and of brass and iron without weight; for it is in abundance: timber also and stone have I prepared; and thou mayest add thereto.
+Now, behold, in my affliction I have prepared for the house of Yahweh one hundred thousand talents of gold, one million talents of silver, and brass and iron without weight; for it is in abundance. I have also prepared timber and stone; and you may add to them.

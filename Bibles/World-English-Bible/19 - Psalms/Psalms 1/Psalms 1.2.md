@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his delight is in the law of Jehovah; And on his law doth he meditate day and night.
+but his delight is in Yahweh's law. On his law he meditates day and night.

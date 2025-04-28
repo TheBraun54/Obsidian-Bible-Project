@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came with haste, and found both Mary and Joseph, and the babe lying in the manger.
+They came with haste, and found both Mary and Joseph, and the baby was lying in the feeding trough.

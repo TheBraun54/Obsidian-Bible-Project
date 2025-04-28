@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he drank of the wine, and was drunken; and he was uncovered within his tent.
+He drank of the wine and got drunk. He was uncovered within his tent.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nathan departed unto his house. And Jehovah struck the child that Uriah's wife bare unto David, and it was very sick.
+Nathan departed to his house. Yahweh struck the child that Uriah's wife bore to David, and it was very sick.

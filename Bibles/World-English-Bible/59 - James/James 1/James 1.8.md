@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a doubleminded man, unstable in all his ways.
+He is a double-minded man, unstable in all his ways.

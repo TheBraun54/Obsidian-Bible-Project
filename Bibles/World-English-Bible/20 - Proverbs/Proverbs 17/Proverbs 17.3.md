@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The refining pot is for silver, and the furnace for gold; But Jehovah trieth the hearts.
+The refining pot is for silver, and the furnace for gold, but Yahweh tests the hearts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things hast thou done, and I kept silence; Thou thoughtest that I was altogether such a one as thyself: [But] I will reprove thee, and set [them] in order before thine eyes.
+You have done these things, and I kept silent. You thought that I was just like you. I will rebuke you, and accuse you in front of your eyes.

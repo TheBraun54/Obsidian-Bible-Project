@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He lieth down rich, but he shall not be gathered [to his fathers] ; He openeth his eyes, and he is not.
+He lies down rich, but he shall not do so again. He opens his eyes, and he is not.

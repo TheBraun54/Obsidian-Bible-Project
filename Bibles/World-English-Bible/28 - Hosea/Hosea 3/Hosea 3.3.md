@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I said unto her, Thou shalt abide for me many days; thou shalt not play the harlot, and thou shalt not be any man's wife: so will I also be toward thee.
+I said to her, "You shall stay with me many days. You shall not play the prostitute, and you shall not be with any other man. I will also be so toward you."

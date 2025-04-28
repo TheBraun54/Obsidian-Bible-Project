@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there the Amalekite and the Canaanite are before you, and ye shall fall by the sword: because ye are turned back from following Jehovah, therefore Jehovah will not be with you.
+For there the Amalekite and the Canaanite are before you, and you shall fall by the sword: because you are turned back from following Yahweh, therefore Yahweh will not be with you."

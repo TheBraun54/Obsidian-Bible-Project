@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Him that dieth of Baasha in the city shall the dogs eat; and him that dieth of his in the field shall the birds of the heavens eat.
+The dogs will eat Baasha's descendants who die in the city; and he who dies of his in the field the birds of the sky will eat."

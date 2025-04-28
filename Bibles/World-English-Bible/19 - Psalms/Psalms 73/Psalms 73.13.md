@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely in vain have I cleansed my heart, And washed my hands in innocency;
+Surely in vain I have cleansed my heart, and washed my hands in innocence,

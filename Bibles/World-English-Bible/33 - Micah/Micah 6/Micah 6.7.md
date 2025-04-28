@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-will Jehovah be pleased with thousands of rams, [or] with ten thousands of rivers of oil? shall I give my first-born for my transgression, the fruit of my body for the sin of my soul?
+Will Yahweh be pleased with thousands of rams? With tens of thousands of rivers of oil? Shall I give my firstborn for my disobedience? The fruit of my body for the sin of my soul?

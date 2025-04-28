@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I weighed into their hand six hundred and fifty talents of silver, and silver vessels a hundred talents; of gold a hundred talents;
+I weighed into their hand six hundred fifty talents of silver, and silver vessels one hundred talents; of gold one hundred talents;

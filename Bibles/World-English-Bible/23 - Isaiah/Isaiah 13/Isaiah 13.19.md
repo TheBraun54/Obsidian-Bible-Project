@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Babylon, the glory of kingdoms, the beauty of the Chaldeans' pride, shall be as when God overthrew Sodom and Gomorrah.
+Babylon, the glory of kingdoms, the beauty of the Chaldeans' pride, will be like when God overthrew Sodom and Gomorrah.

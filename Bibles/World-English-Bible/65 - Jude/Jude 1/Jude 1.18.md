@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That they said to you, In the last time there shall be mockers, walking after their own ungodly lusts.
+They said to you that "In the last time there will be mockers, walking after their own ungodly lusts."

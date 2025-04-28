@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap.
+Don't be deceived. God is not mocked, for whatever a man sows, that he will also reap.

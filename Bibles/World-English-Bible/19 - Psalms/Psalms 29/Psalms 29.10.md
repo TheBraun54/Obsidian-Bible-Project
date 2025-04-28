@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah sat [as King] at the Flood; Yea, Jehovah sitteth as King for ever.
+Yahweh sat enthroned at the Flood. Yes, Yahweh sits as King forever.

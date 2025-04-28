@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-hath wronged the poor and needy, hath taken by robbery, hath not restored the pledge, and hath lifted up his eyes to the idols, hath committed abomination,
+has wronged the poor and needy, has taken by robbery, has not restored the pledge, and has lifted up his eyes to the idols, has committed abomination,

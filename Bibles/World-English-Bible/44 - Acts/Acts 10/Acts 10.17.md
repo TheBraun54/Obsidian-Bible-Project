@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now while Peter was much perplexed in himself what the vision which he had seen might mean, behold, the men that were sent by Cornelius, having made inquiry for Simon's house, stood before the gate,
+Now while Peter was very perplexed in himself what the vision which he had seen might mean, behold, the men who were sent by Cornelius, having made inquiry for Simon's house, stood before the gate,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Christ entered not into a holy place made with hands, like in pattern to the true; but into heaven itself, now to appear before the face of God for us:
+For Christ hasn't entered into holy places made with hands, which are representations of the true, but into heaven itself, now to appear in the presence of God for us;

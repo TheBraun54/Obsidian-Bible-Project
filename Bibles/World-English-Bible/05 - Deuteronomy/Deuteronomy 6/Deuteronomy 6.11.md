@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and houses full of all good things, which thou filledst not, and cisterns hewn out, which thou hewedst not, vineyards and olive-trees, which thou plantedst not, and thou shalt eat and be full;
+and houses full of all good things, which you didn't fill, and cisterns dug out, which you didn't dig, vineyards and olive trees, which you didn't plant, and you shall eat and be full;

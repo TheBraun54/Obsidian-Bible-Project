@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither shall he stand that handleth the bow; and he that is swift of foot shall not deliver [himself] ; neither shall he that rideth the horse deliver himself;
+neither shall he stand who handles the bow; and he who is swift of foot won't escape; neither shall he who rides the horse deliver himself;

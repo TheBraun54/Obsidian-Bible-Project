@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They bear it upon the shoulder, they carry it, and set it in its place, and it standeth, from its place shall it not remove: yea, one may cry unto it, yet can it not answer, nor save him out of his trouble.
+They bear it on the shoulder, they carry it, and set it in its place, and it stands, from its place it shall not move: yes, one may cry to it, yet it can not answer, nor save him out of his trouble.

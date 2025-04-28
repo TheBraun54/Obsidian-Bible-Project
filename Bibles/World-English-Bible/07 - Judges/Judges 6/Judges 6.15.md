@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Oh, Lord, wherewith shall I save Israel? behold, my family is the poorest in Manasseh, and I am the least in my father's house.
+He said to him, "O Lord, how shall I save Israel? Behold, my family is the poorest in Manasseh, and I am the least in my father's house."

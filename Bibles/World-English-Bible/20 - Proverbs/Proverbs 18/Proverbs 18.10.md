@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The name of Jehovah is a strong tower; The righteous runneth into it, and is safe.
+The name of Yahweh is a strong tower: the righteous run to him, and are safe.

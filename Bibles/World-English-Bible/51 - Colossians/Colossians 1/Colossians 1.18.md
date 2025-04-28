@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he is the head of the body, the church: who is the beginning, the firstborn from the dead; that in all things he might have the preeminence.
+He is the head of the body, the assembly, who is the beginning, the firstborn from the dead; that in all things he might have the preeminence.

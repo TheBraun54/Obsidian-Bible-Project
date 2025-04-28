@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Repent ye therefore, and turn again, that your sins may be blotted out, that so there may come seasons of refreshing from the presence of the Lord;
+"Repent therefore, and turn again, that your sins may be blotted out, so that there may come times of refreshing from the presence of the Lord,

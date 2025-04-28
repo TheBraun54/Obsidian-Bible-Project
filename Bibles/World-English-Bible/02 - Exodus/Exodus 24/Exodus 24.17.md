@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the appearance of the glory of Jehovah was like devouring fire on the top of the mount in the eyes of the children of Israel.
+The appearance of the glory of Yahweh was like devouring fire on the top of the mountain in the eyes of the children of Israel.

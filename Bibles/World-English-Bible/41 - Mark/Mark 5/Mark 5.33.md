@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the woman fearing and trembling, knowing what had been done to her, came and fell down before him, and told him all the truth.
+But the woman, fearing and trembling, knowing what had been done to her, came and fell down before him, and told him all the truth.

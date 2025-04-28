@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall live; and to him shall be given of the gold of Sheba: And men shall pray for him continually; They shall bless him all the day long.
+They shall live, and to him shall be given of the gold of Sheba. Men shall pray for him continually. They shall bless him all day long.

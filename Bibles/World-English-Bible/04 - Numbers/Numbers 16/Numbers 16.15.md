@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses was very wroth, and said unto Jehovah, Respect not thou their offering: I have not taken one ass from them, neither have I hurt one of them.
+Moses was very angry, and said to Yahweh, "Don't respect their offering: I have not taken one donkey from them, neither have I hurt one of them."

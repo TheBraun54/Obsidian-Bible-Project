@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest they drink, and forget the law, And pervert the justice [due] to any that is afflicted.
+lest they drink, and forget the law, and pervert the justice due to anyone who is afflicted.

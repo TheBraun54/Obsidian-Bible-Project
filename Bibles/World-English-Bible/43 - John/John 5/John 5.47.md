@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye believe not his writings, how shall ye believe my words?
+But if you don't believe his writings, how will you believe my words?"

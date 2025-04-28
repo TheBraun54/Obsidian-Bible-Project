@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My beloved is gone down to his garden, To the beds of spices, To feed in the gardens, and to gather lilies.
+My beloved has gone down to his garden, to the beds of spices, to feed in the gardens, and to gather lilies.

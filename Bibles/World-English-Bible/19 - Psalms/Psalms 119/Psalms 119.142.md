@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy righteousness is an everlasting righteousness, And thy law is truth.
+Your righteousness is an everlasting righteousness. Your law is truth.

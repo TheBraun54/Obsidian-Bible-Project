@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the people that know the joyful sound: They walk, O Jehovah, in the light of thy countenance.
+Blessed are the people who learn to acclaim you. They walk in the light of your presence, Yahweh.

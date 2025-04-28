@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will say unto God, Do not condemn me; Show me wherefore thou contendest with me.
+I will tell God, 'Do not condemn me. Show me why you contend with me.

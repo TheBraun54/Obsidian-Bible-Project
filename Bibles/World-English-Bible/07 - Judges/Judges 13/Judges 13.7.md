@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he said unto me, Behold, thou shalt conceive, and bear a son; and now drink no wine nor strong drink, and eat not any unclean thing; for the child shall be a Nazirite unto God from the womb to the day of his death.
+but he said to me, 'Behold, you shall conceive, and bear a son; and now drink no wine nor strong drink, and eat not any unclean thing; for the child shall be a Nazirite to God from the womb to the day of his death.'"

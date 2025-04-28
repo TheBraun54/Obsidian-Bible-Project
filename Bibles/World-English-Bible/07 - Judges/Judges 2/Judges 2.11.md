@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did that which was evil in the sight of Jehovah, and served the Baalim;
+The children of Israel did that which was evil in the sight of Yahweh, and served the Baals;

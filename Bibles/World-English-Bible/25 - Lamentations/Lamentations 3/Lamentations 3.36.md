@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To subvert a man in his cause, the Lord approveth not.
+To subvert a man in his cause, the Lord doesn't approve.

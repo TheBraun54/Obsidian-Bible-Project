@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for all the people that were left of the Amorites, the Hittites, the Perizzites, the Hivites, and the Jebusites, who were not of the children of Israel;
+As for all the people who were left of the Amorites, the Hittites, the Perizzites, the Hivites, and the Jebusites, who were not of the children of Israel;

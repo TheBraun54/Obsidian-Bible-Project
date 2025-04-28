@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only Luke is with me. Take Mark, and bring him with thee; for he is useful to me for ministering.
+Only Luke is with me. Take Mark, and bring him with you, for he is useful to me for service.

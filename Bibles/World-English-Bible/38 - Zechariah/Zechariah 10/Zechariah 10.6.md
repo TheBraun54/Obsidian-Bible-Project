@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will strengthen the house of Judah, and I will save the house of Joseph, and I will bring them back; for I have mercy upon them; and they shall be as though I had not cast them off: for I am Jehovah their God, and I will hear them.
+"I will strengthen the house of Judah, and I will save the house of Joseph, and I will bring them back; for I have mercy on them; and they will be as though I had not cast them off: for I am Yahweh their God, and I will hear them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then both he that giveth his own virgin [daughter] in marriage doeth well; and he that giveth her not in marriage shall do better.
+So then both he who gives his own virgin in marriage does well, and he who doesn't give her in marriage does better.

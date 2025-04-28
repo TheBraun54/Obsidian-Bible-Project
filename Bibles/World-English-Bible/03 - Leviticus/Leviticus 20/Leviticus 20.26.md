@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be holy unto me: for I, Jehovah, am holy, and have set you apart from the peoples, that ye should be mine.
+You shall be holy to me: for I, Yahweh, am holy, and have set you apart from the peoples, that you should be mine.

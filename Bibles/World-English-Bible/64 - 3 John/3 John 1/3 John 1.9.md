@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I wrote somewhat unto the church: but Diotrephes, who loveth to have the preeminence among them, receiveth us not.
+I wrote to the assembly, but Diotrephes, who loves to be first among them, doesn't accept what we say.

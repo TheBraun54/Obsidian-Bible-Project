@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not go after other gods, of the gods of the peoples that are round about you;
+You shall not go after other gods, of the gods of the peoples who are around you;

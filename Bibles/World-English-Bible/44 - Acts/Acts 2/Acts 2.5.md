@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there were dwelling at Jerusalem Jews, devout men, from every nation under heaven.
+Now there were dwelling in Jerusalem Jews, devout men, from every nation under the sky.

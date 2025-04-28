@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Horites in their mount Seir, unto Elparan, which is by the wilderness.
+and the Horites in their Mount Seir, to Elparan, which is by the wilderness.

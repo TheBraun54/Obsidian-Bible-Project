@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there come his mother and his brethren; and, standing without, they sent unto him, calling him.
+His mother and his brothers came, and standing outside, they sent to him, calling him.

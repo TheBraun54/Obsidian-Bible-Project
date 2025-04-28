@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when these lepers came to the outermost part of the camp, they went into one tent, and did eat and drink, and carried thence silver, and gold, and raiment, and went and hid it; and they came back, and entered into another tent, and carried thence also, and went and hid it.
+When these lepers came to the outermost part of the camp, they went into one tent, and ate and drink, and carried there silver, and gold, and clothing, and went and hid it. Then they came back, and entered into another tent, and carried there also, and went and hid it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall be abundantly satisfied with the fatness of thy house; And thou wilt make them drink of the river of thy pleasures.
+They shall be abundantly satisfied with the abundance of your house. You will make them drink of the river of your pleasures.

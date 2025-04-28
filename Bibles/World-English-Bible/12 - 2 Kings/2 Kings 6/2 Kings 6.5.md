@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as one was felling a beam, the axe-head fell into the water; and he cried, and said, Alas, my master! for it was borrowed.
+But as one was felling a beam, the axe head fell into the water. Then he cried, and said, "Alas, my master! For it was borrowed."

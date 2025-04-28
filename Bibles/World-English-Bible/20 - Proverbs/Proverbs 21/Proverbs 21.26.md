@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is that coveteth greedily all the day long; But the righteous giveth and withholdeth not.
+There are those who covet greedily all day long; but the righteous give and don't withhold.

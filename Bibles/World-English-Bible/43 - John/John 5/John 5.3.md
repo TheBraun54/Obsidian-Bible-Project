@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In these lay a multitude of them that were sick, blind, halt, withered,
+In these lay a great multitude of those who were sick, blind, lame, or paralyzed, waiting for the moving of the water;

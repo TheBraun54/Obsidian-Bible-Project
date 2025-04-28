@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for they call themselves of the holy city, and stay themselves upon the God of Israel; Jehovah of hosts is his name):
+(for they call themselves of the holy city, and stay themselves on the God of Israel; Yahweh of Armies is his name):

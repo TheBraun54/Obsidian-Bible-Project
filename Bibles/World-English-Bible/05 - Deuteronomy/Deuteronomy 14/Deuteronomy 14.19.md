@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all winged creeping things are unclean unto you: they shall not be eaten.
+All winged creeping things are unclean to you: they shall not be eaten.

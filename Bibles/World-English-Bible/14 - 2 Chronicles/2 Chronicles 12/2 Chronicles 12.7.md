@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jehovah saw that they humbled themselves, the word of Jehovah came to Shemaiah, saying, They have humbled themselves: I will not destroy them; but I will grant them some deliverance, and my wrath shall not be poured out upon Jerusalem by the hand of Shishak.
+When Yahweh saw that they humbled themselves, the word of Yahweh came to Shemaiah, saying, "They have humbled themselves. I will not destroy them; but I will grant them some deliverance, and my wrath shall not be poured out on Jerusalem by the hand of Shishak.

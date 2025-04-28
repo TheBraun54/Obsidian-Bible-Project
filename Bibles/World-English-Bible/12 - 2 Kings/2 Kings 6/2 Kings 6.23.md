@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he prepared great provision for them; and when they had eaten and drunk, he sent them away, and they went to their master. And the bands of Syria came no more into the land of Israel.
+He prepared great feast for them. When they had eaten and drunk, he sent them away, and they went to their master. The bands of Syria stopped raiding the land of Israel.

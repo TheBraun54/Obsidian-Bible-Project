@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Separate yourselves from among this congregation, that I may consume them in a moment.
+"Separate yourselves from among this congregation, that I may consume them in a moment!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said she, Sit still, my daughter, until thou know how the matter will fall; for the man will not rest, until he have finished the thing this day.
+Then she said, "Sit still, my daughter, until you know how the matter will fall; for the man will not rest, until he has finished the thing this day."

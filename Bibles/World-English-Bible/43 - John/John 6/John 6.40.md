@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is the will of my Father, that every one that beholdeth the Son, and believeth on him, should have eternal life; and I will raise him up at the last day.
+This is the will of the one who sent me, that everyone who sees the Son, and believes in him, should have eternal life; and I will raise him up at the last day."

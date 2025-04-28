@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou didst divide the sea before them, so that they went through the midst of the sea on the dry land; and their pursuers thou didst cast into the depths, as a stone into the mighty waters.
+You divided the sea before them, so that they went through the midst of the sea on the dry land; and you cast their pursuers into the depths, as a stone into the mighty waters.

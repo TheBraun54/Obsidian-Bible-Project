@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou mightest know the certainty concerning the things wherein thou wast instructed.
+that you might know the certainty concerning the things in which you were instructed.

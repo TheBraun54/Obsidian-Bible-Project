@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The cords of Sheol were round about me; The snares of death came upon me.
+The cords of Sheol were around me. The snares of death caught me.

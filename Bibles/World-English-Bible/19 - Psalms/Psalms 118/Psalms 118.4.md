@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them now that fear Jehovah say, That his lovingkindness [endureth] for ever.
+Now let those who fear Yahweh say that his loving kindness endures forever.

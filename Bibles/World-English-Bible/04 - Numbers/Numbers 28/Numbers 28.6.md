@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is a continual burnt-offering, which was ordained in mount Sinai for a sweet savor, an offering made by fire unto Jehovah.
+It is a continual burnt offering, which was ordained in Mount Sinai for a pleasant aroma, an offering made by fire to Yahweh.

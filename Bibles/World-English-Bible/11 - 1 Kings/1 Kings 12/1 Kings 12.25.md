@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jeroboam built Shechem in the hill-country of Ephraim, and dwelt therein; and he went out from thence, and built Penuel.
+Then Jeroboam built Shechem in the hill country of Ephraim, and lived in it; and he went out from there, and built Penuel.

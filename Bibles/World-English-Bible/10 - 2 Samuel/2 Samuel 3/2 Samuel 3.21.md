@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abner said unto David, I will arise and go, and will gather all Israel unto my lord the king, that they may make a covenant with thee, and that thou mayest reign over all that thy soul desireth. And David sent Abner away; and he went in peace.
+Abner said to David, "I will arise and go, and will gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your soul desires." David sent Abner away; and he went in peace.

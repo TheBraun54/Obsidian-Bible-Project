@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sojourner that is in the midst of thee shall mount up above thee higher and higher; and thou shalt come down lower and lower.
+The foreigner who is in the midst of you shall mount up above you higher and higher; and you shall come down lower and lower.

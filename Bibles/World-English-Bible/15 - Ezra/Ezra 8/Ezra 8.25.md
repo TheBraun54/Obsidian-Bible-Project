@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and weighed unto them the silver, and the gold, and the vessels, even the offering for the house of our God, which the king, and his counsellors, and his princes, and all Israel there present, had offered:
+and weighed to them the silver, and the gold, and the vessels, even the offering for the house of our God, which the king, and his counselors, and his princes, and all Israel there present, had offered:

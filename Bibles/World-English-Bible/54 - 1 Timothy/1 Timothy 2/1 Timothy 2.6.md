@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who gave himself a ransom for all; the testimony [to be borne] in its own times;
+who gave himself as a ransom for all; the testimony in its own times;

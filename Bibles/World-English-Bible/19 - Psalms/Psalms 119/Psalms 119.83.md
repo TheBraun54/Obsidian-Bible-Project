@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am become like a wine-skin in the smoke; Yet do I not forget thy statutes.
+For I have become like a wineskin in the smoke. I don't forget your statutes.

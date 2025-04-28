@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the eleventh year, in the first [month], in the seventh [day] of the month, that the word of Jehovah came unto me, saying,
+It happened in the eleventh year, in the first [month], in the seventh [day] of the month, that the word of Yahweh came to me, saying,

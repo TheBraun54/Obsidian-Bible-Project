@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but their plot became known to Saul. And they watched the gates also day and night that they might kill him:
+but their plot became known to Saul. They watched the gates both day and night that they might kill him,

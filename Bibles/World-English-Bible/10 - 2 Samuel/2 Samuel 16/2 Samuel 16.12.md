@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It may be that Jehovah will look on the wrong done unto me, and that Jehovah will requite me good for [his] cursing of me this day.
+It may be that Yahweh will look on the wrong done to me, and that Yahweh will repay me good for the cursing of me today."

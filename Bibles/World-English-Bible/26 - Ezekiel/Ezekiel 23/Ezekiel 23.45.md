@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And righteous men, they shall judge them with the judgment of adulteresses, and with the judgment of women that shed blood; because they are adulteresses, and blood is in their hands.
+Righteous men, they shall judge them with the judgment of adulteresses, and with the judgment of women who shed blood; because they are adulteresses, and blood is in their hands.

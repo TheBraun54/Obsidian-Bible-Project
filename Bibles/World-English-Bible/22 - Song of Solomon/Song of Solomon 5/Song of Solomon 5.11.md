@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His head is [as] the most fine gold; His locks are bushy, [and] black as a raven.
+His head is like the purest gold. His hair is bushy, black as a raven.

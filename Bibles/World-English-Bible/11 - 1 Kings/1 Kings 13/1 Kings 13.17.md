@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for it was said to me by the word of Jehovah, Thou shalt eat no bread nor drink water there, nor turn again to go by the way that thou camest.
+For it was said to me by the word of Yahweh, 'You shall eat no bread nor drink water there, nor turn again to go by the way that you came.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At midnight I will rise to give thanks unto thee Because of thy righteous ordinances.
+At midnight I will rise to give thanks to you, because of your righteous ordinances.

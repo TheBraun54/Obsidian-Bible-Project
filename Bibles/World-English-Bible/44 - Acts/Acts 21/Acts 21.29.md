@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they had before seen with him in the city Trophimus the Ephesian, whom they supposed that Paul had brought into the temple.
+For they had seen Trophimus, the Ephesian, with him in the city, and they supposed that Paul had brought him into the temple.

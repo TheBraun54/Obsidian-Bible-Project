@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I know thy sitting down, and thy going out, and thy coming in, and thy raging against me.
+But I know your sitting down, and your going out, and your coming in, and your raging against me.

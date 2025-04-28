@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Beth-arabah, and Zemaraim, and Beth-el,
+Beth Arabah, Zemaraim, Bethel,

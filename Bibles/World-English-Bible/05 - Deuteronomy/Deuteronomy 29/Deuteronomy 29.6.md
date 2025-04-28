@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have not eaten bread, neither have ye drunk wine or strong drink; that ye may know that I am Jehovah your God.
+You have not eaten bread, neither have you drunk wine or strong drink; that you may know that I am Yahweh your God.

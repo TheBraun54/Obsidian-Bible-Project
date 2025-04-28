@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak not thou in thy heart, after that Jehovah thy God hath thrust them out from before thee, saying, For my righteousness Jehovah hath brought me in to possess this land; whereas for the wickedness of these nations Jehovah doth drive them out from before thee.
+Don't say in your heart, after Yahweh your God has thrust them out from before you, saying, "For my righteousness Yahweh has brought me in to possess this land;" because Yahweh drives them out before you because of the wickedness of these nations.

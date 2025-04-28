@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou hast made an end of cleansing it, thou shalt offer a young bullock without blemish, and a ram out of the flock without blemish.
+When you have finished cleansing it, you shall offer a young bull without blemish, and a ram out of the flock without blemish.

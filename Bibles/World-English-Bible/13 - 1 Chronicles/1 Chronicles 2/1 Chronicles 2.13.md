@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jesse begat his first-born Eliab, and Abinadab the second, and Shimea the third,
+and Jesse became the father of his firstborn Eliab, and Abinadab the second, and Shimea the third,

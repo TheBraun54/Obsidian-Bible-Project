@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And twelve lions stood there on the one side and on the other upon the six steps: there was not the like made in any kingdom.
+Twelve lions stood there on the one side and on the other on the six steps: there was nothing like it made in any kingdom.

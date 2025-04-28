@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel died; and all Israel gathered themselves together, and lamented him, and buried him in his house at Ramah. And David arose, and went down to the wilderness of Paran.
+Samuel died; and all Israel gathered themselves together, and lamented him, and buried him in his house at Ramah. David arose, and went down to the wilderness of Paran.

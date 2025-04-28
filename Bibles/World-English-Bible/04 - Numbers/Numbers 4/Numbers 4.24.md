@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the service of the families of the Gershonites, in serving and in bearing burdens:
+"This is the service of the families of the Gershonites, in serving and in bearing burdens:

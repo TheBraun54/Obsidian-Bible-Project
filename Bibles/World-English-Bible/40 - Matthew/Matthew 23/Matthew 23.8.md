@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But be not ye called Rabbi: for one is your teacher, and all ye are brethren.
+But don't you be called 'Rabbi,' for one is your teacher, the Christ, and all of you are brothers.

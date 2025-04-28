@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in the morning as he returned to the city, he hungered.
+Now in the morning, as he returned to the city, he was hungry.

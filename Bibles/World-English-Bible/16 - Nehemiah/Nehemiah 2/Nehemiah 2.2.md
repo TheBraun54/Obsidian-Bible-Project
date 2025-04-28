@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto me, Why is thy countenance sad, seeing thou art not sick? this is nothing else but sorrow of heart. Then I was very sore afraid.
+The king said to me, "Why is your face sad, since you are not sick? This is nothing else but sorrow of heart." Then I was very much afraid.

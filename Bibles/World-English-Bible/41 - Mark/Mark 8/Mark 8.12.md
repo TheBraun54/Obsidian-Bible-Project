@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sighed deeply in his spirit, and saith, Why doth this generation seek a sign? verily I say unto you, There shall no sign be given unto this generation.
+He sighed deeply in his spirit, and said, "Why does this generation seek a sign? Most certainly I tell you, no sign will be given to this generation."

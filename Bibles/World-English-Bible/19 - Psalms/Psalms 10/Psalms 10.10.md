@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He croucheth, he boweth down, And the helpless fall by his strong ones.
+The helpless are crushed. They collapse. They fall under his strength.

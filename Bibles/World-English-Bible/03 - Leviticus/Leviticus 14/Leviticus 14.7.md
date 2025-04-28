@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall sprinkle upon him that is to be cleansed from the leprosy seven times, and shall pronounce him clean, and shall let go the living bird into the open field.
+He shall sprinkle on him who is to be cleansed from the leprosy seven times, and shall pronounce him clean, and shall let the living bird go into the open field.

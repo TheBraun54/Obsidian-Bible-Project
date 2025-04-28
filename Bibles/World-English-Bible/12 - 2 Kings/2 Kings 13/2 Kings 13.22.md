@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hazael king of Syria oppressed Israel all the days of Jehoahaz.
+Hazael king of Syria oppressed Israel all the days of Jehoahaz.

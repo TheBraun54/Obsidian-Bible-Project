@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that whosoever would not seek Jehovah, the God of Israel, should be put to death, whether small or great, whether man or woman.
+and that whoever would not seek Yahweh, the God of Israel, should be put to death, whether small or great, whether man or woman.

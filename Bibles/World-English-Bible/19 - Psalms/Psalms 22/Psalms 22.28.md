@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the kingdom is Jehovah's; And he is the ruler over the nations.
+For the kingdom is Yahweh's. He is the ruler over the nations.

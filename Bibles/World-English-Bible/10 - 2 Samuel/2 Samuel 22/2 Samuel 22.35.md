@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He teacheth my hands to war, So that mine arms do bend a bow of brass.
+He teaches my hands to war, so that my arms bend a bow of brass.

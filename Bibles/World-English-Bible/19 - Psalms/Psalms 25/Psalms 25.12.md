@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What man is he that feareth Jehovah? Him shall he instruct in the way that he shall choose.
+What man is he who fears Yahweh? He shall instruct him in the way that he shall choose.

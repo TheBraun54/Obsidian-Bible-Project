@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto the Reubenites and unto the Gadites I gave from Gilead even unto the valley of the Arnon, the middle of the valley, and the border [thereof], even unto the river Jabbok, which is the border of the children of Ammon;
+To the Reubenites and to the Gadites I gave from Gilead even to the valley of the Arnon, the middle of the valley, and the border [of it], even to the river Jabbok, which is the border of the children of Ammon;

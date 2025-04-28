@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hath any of the rulers believed on him, or of the Pharisees?
+Have any of the rulers believed in him, or of the Pharisees?

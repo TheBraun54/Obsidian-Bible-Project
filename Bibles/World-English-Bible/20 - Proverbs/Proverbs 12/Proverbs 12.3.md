@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man shall not be established by wickedness; But the root of the righteous shall not be moved.
+A man shall not be established by wickedness, but the root of the righteous shall not be moved.

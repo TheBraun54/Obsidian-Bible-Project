@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if one person sin unwittingly, then he shall offer a she-goat a year old for a sin-offering.
+"'If one person sins unwittingly, then he shall offer a female goat a year old for a sin offering.

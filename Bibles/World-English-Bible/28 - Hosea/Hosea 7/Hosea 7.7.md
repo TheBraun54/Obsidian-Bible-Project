@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are all hot as an oven, and devour their judges; all their kings are fallen: there is none among them that calleth unto me.
+They are all hot as an oven, and devour their judges. All their kings have fallen. There is no one among them who calls to me.

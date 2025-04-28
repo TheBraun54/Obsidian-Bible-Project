@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the children of Ammon saw that they had made themselves odious to David, Hanun and the children of Ammon sent a thousand talents of silver to hire them chariots and horsemen out of Mesopotamia, and out of Arammaacah, and out of Zobah.
+When the children of Ammon saw that they had made themselves odious to David, Hanun and the children of Ammon sent one thousand talents of silver to hire them chariots and horsemen out of Mesopotamia, and out of Arammaacah, and out of Zobah.

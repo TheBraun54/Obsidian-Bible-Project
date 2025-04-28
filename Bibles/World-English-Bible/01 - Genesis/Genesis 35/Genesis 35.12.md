@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the land which I gave unto Abraham and Isaac, to thee I will give it, and to thy seed after thee will I give the land.
+The land which I gave to Abraham and Isaac, I will give it to you, and to your seed after you will I give the land."

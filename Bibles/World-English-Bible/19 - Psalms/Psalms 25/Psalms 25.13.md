@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His soul shall dwell at ease; And his seed shall inherit the land.
+His soul shall dwell at ease. His seed shall inherit the land.

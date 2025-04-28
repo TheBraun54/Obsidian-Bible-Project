@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Give me a blessing; for that thou hast set me in the land of the South, give me also springs of water. And he gave her the upper springs and the nether springs.
+She said, "Give me a blessing. Because you have set me in the land of the South, give me also springs of water." He gave her the upper springs and the lower springs.

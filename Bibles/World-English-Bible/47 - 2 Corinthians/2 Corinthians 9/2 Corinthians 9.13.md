@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-seeing that through the proving [of you] by this ministration they glorify God for the obedience of your confession unto the gospel of Christ, and for the liberality of [your] contribution unto them and unto all;
+seeing that through the proof given by this service, they glorify God for the obedience of your confession to the Good News of Christ, and for the liberality of your contribution to them and to all;

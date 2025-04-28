@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he had made an end of speaking, that he cast away the jawbone out of his hand; and that place was called Ramath-lehi.
+It happened, when he had made an end of speaking, that he cast away the jawbone out of his hand; and that place was called Ramath Lehi.

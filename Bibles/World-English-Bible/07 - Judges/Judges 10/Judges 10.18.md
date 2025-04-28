@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people, the princes of Gilead, said one to another, What man is he that will begin to fight against the children of Ammon? he shall be head over all the inhabitants of Gilead.
+The people, the princes of Gilead, said one to another, "What man is he who will begin to fight against the children of Ammon? He shall be head over all the inhabitants of Gilead."

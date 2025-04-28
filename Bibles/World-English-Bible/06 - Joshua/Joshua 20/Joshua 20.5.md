@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the avenger of blood pursue after him, then they shall not deliver up the manslayer into his hand; because he smote his neighbor unawares, and hated him not beforetime.
+If the avenger of blood pursue after him, then they shall not deliver up the manslayer into his hand; because he struck his neighbor unintentionally, and didn't hate him before.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Esther had not yet made known her kindred nor her people; as Mordecai had charged her: for Esther did the commandment of Mordecai, like as when she was brought up with him.
+Esther had not yet made known her relatives nor her people, as Mordecai had commanded her; for Esther obeyed Mordecai, like she did when she was brought up by him.

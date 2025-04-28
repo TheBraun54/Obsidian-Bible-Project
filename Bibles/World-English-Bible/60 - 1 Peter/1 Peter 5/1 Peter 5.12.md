@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By Silvanus, our faithful brother, as I account [him], I have written unto you briefly, exhorting, and testifying that this is the true grace of God. Stand ye fast therein.
+Through Silvanus, our faithful brother, as I consider him, I have written to you briefly, exhorting, and testifying that this is the true grace of God in which you stand.

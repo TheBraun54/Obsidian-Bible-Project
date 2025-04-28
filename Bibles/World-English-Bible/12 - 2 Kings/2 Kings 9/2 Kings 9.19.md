@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he sent out a second on horseback, who came to them, and said, Thus saith the king, Is it peace? And Jehu answered, What hast thou to do with peace? turn thee behind me.
+Then he sent out a second on horseback, who came to them, and said, "Thus says the king, 'Is it peace?'" Jehu answered, "What do you have to do with peace? Fall in behind me!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be confounded, O ye husbandmen, wail, O ye vinedressers, for the wheat and for the barley; for the harvest of the field is perished.
+Be confounded, you farmers! Wail, you vineyard keepers; for the wheat and for the barley; for the harvest of the field has perished.

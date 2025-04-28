@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that the law is become our tutor [to bring us] unto Christ, that we might be justified by faith.
+So that the law has become our tutor to bring us to Christ, that we might be justified by faith.

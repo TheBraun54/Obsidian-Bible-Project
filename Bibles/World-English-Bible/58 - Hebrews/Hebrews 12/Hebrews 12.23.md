@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the general assembly and church of the firstborn who are enrolled in heaven, and to God the Judge of all, and to the spirits of just men made perfect,
+to the general assembly and assembly of the firstborn who are enrolled in heaven, to God the Judge of all, to the spirits of just men made perfect,

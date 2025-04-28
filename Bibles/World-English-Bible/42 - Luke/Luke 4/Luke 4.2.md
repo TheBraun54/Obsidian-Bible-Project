@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-during forty days, being tempted of the devil. And he did eat nothing in those days: and when they were completed, he hungered.
+for forty days, being tempted by the devil. He ate nothing in those days. Afterward, when they were completed, he was hungry.

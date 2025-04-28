@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for the cities that stood on their mounds, Israel burned none of them, save Hazor only; that did Joshua burn.
+But as for the cities that stood on their mounds, Israel burned none of them, except Hazor only. Joshua burned that.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they that were numbered of the children of Israel by their fathers' houses: all that were numbered of the camps according to their hosts were six hundred thousand and three thousand and five hundred and fifty.
+These are those who were numbered of the children of Israel by their fathers' houses. All who were numbered of the camps according to their armies were six hundred three thousand five hundred fifty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah my God, I cried unto thee, and thou hast healed me.
+Yahweh my God, I cried to you, and you have healed me.

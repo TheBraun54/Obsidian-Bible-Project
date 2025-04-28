@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt keep his statutes, and his commandments, which I command thee this day, that it may go well with thee, and with thy children after thee, and that thou mayest prolong thy days in the land, which Jehovah thy God giveth thee, for ever.
+You shall keep his statutes, and his commandments, which I command you this day, that it may go well with you, and with your children after you, and that you may prolong your days in the land, which Yahweh your God gives you, forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul also is sore troubled: And thou, O Jehovah, how long?
+My soul is also in great anguish. But you, Yahweh--how long?

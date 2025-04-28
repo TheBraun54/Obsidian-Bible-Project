@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They made a calf in Horeb, And worshipped a molten image.
+They made a calf in Horeb, and worshiped a molten image.

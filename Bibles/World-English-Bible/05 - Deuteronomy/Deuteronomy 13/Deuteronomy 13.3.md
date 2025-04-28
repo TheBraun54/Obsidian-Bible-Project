@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt not hearken unto the words of that prophet, or unto that dreamer of dreams: for Jehovah your God proveth you, to know whether ye love Jehovah your God with all your heart and with all your soul.
+you shall not listen to the words of that prophet, or to that dreamer of dreams: for Yahweh your God proves you, to know whether you love Yahweh your God with all your heart and with all your soul.

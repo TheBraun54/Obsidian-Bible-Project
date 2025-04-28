@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is there among you that will give ear to this? that will hearken and hear for the time to come?
+Who is there among you who will give ear to this? Who will listen and hear for the time to come?

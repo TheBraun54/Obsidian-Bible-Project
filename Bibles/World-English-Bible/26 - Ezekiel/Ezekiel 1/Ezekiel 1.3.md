@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the word of Jehovah came expressly unto Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and the hand of Jehovah was there upon him.
+the word of Yahweh came expressly to Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and the hand of Yahweh was there on him.

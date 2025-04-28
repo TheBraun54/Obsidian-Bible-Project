@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Naaman, and Ahijah, and Gera, he carried them captive: and he begat Uzza and Ahihud.
+and Naaman, and Ahijah, and Gera, he carried them captive: and he became the father of Uzza and Ahihud.

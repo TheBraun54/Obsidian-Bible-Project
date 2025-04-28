@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-their children that were left after them in the land, whom the children of Israel were not able utterly to destroy, of them did Solomon raise a levy of bondservants unto this day.
+their children who were left after them in the land, whom the children of Israel were not able utterly to destroy, of them did Solomon raise a levy of bondservants to this day.

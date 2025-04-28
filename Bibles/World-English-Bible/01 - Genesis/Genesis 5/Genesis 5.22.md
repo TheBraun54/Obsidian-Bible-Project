@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Enoch walked with God after he begat Methuselah three hundred years, and begat sons and daughters:
+Enoch walked with God after he became the father of Methuselah three hundred years, and became the father of sons and daughters.

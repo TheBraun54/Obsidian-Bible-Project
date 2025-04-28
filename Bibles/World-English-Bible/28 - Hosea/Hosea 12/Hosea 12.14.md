@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim hath provoked to anger most bitterly: therefore shall his blood be left upon him, and his reproach shall his Lord return unto him.
+Ephraim has bitterly provoked anger. Therefore his blood will be left on him, and his Lord will repay his contempt.

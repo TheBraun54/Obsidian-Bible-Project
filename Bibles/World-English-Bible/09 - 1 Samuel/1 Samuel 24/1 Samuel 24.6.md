@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his men, Jehovah forbid that I should do this thing unto my lord, Jehovah's anointed, to put forth my hand against him, seeing he is Jehovah's anointed.
+He said to his men, "Yahweh forbid that I should do this thing to my lord, Yahweh's anointed, to put forth my hand against him, since he is Yahweh's anointed."

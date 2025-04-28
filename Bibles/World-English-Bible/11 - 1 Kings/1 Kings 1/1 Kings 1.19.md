@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he hath slain oxen and fatlings and sheep in abundance, and hath called all the sons of the king, and Abiathar the priest, and Joab the captain of the host; but Solomon thy servant hath he not called.
+He has slain cattle and fatlings and sheep in abundance, and has called all the sons of the king, and Abiathar the priest, and Joab the captain of the army; but he hasn't called Solomon your servant.

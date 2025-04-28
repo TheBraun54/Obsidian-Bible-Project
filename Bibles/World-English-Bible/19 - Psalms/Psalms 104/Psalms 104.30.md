@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou sendest forth thy Spirit, they are created; And thou renewest the face of the ground.
+You send forth your Spirit: they are created. You renew the face of the ground.

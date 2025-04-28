@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have cut off my life in the dungeon, and have cast a stone upon me.
+They have cut off my life in the dungeon, and have cast a stone on me.

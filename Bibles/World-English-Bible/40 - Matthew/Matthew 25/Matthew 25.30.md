@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And cast ye out the unprofitable servant into the outer darkness: there shall be the weeping and the gnashing of teeth.
+Throw out the unprofitable servant into the outer darkness, where there will be weeping and gnashing of teeth.'

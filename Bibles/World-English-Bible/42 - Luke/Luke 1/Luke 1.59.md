@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the eighth day, that they came to circumcise the child; and they would have called him Zacharias, after the name of the father.
+It happened on the eighth day, that they came to circumcise the child; and they would have called him Zacharias, after the name of the father.

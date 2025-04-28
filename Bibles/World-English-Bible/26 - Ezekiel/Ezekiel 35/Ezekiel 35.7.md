@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus will I make mount Seir an astonishment and a desolation; and I will cut off from it him that passeth through and him that returneth.
+Thus will I make Mount Seir an astonishment and a desolation; and I will cut off from it him who passes through and him who returns.

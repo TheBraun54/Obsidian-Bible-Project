@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless I must go on my way to-day and to-morrow and the [day] following: for it cannot be that a prophet perish out of Jerusalem.
+Nevertheless I must go on my way today and tomorrow and the next day, for it can't be that a prophet perish outside of Jerusalem.'

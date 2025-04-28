@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, Jehovah stood above it, and said, I am Jehovah, the God of Abraham thy father, and the God of Isaac: the land whereon thou liest, to thee will I give it, and to thy seed;
+Behold, Yahweh stood above it, and said, "I am Yahweh, the God of Abraham your father, and the God of Isaac. The land whereon you lie, to you will I give it, and to your seed.

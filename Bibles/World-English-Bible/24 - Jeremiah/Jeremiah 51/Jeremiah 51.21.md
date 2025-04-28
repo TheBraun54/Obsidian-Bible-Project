@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and with thee will I break in pieces the horse and his rider;
+and with you will I break in pieces the horse and his rider;

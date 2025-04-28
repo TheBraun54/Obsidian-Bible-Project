@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Johanan the son of Kareah, and all the captains of the forces, and all the people, obeyed not the voice of Jehovah, to dwell in the land of Judah.
+So Johanan the son of Kareah, and all the captains of the forces, and all the people, didn't obey the voice of Yahweh, to dwell in the land of Judah.

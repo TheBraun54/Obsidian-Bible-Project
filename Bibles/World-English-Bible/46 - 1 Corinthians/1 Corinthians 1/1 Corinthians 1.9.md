@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is faithful, through whom ye were called into the fellowship of his Son Jesus Christ our Lord.
+God is faithful, through whom you were called into the fellowship of his Son, Jesus Christ, our Lord.

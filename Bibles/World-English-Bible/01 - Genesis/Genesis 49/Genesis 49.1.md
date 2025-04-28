@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob called unto his sons, and said: Gather yourselves together, that I may tell you that which shall befall you in the latter days.
+Jacob called to his sons, and said: "Gather yourselves together, that I may tell you that which will happen to you in the days to come.

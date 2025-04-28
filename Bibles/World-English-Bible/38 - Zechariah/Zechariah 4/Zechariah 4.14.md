@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he, These are the two anointed ones, that stand by the Lord of the whole earth.
+Then he said, "These are the two anointed ones who stand by the Lord of the whole earth."

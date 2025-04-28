@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor and majesty are before him: Strength and beauty are in his sanctuary.
+Honor and majesty are before him. Strength and beauty are in his sanctuary.

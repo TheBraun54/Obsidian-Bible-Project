@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and, behold, here cometh a troop of men, horsemen in pairs. And he answered and said, Fallen, fallen is Babylon; and all the graven images of her gods are broken unto the ground.
+Behold, here comes a troop of men, horsemen in pairs." He answered, "Fallen, fallen is Babylon; and all the engraved images of her gods are broken to the ground.

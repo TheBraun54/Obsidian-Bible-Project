@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his host, and those that were numbered of them, were threescore and fourteen thousand and six hundred.
+His division, and those who were numbered of them, were seventy-four thousand six hundred.

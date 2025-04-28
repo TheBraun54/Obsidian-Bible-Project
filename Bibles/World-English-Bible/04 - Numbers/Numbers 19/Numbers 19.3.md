@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall give her unto Eleazar the priest, and he shall bring her forth without the camp, and one shall slay her before his face:
+You shall give her to Eleazar the priest, and he shall bring her forth outside of the camp, and one shall kill her before his face:

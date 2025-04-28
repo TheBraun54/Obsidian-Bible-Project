@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for the drink-offering thou shalt offer the third part of a hin of wine, of a sweet savor unto Jehovah.
+and for the drink offering you shall offer the third part of a hin of wine, of a pleasant aroma to Yahweh.

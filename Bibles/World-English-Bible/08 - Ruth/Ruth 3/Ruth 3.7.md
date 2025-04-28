@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Boaz had eaten and drunk, and his heart was merry, he went to lie down at the end of the heap of grain: and she came softly, and uncovered his feet, and laid her down.
+When Boaz had eaten and drunk, and his heart was merry, he went to lie down at the end of the heap of grain. She came softly, uncovered his feet, and laid her down.

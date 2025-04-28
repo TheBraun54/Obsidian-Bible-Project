@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I can of myself do nothing: as I hear, I judge: and my judgment is righteous; because I seek not mine own will, but the will of him that sent me.
+I can of myself do nothing. As I hear, I judge, and my judgment is righteous; because I don't seek my own will, but the will of my Father who sent me.

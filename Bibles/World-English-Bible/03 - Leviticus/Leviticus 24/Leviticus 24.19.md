@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man cause a blemish in his neighbor; as he hath done, so shall it be done to him:
+If anyone injures his neighbor; as he has done, so shall it be done to him:

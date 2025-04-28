@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For yourselves know how ye ought to imitate us: for we behaved not ourselves disorderly among you;
+For you know how you ought to imitate us. For we didn't behave ourselves rebelliously among you,

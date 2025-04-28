@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the father said to his servants, Bring forth quickly the best robe, and put it on him; and put a ring on his hand, and shoes on his feet:
+"But the father said to his servants, 'Bring out the best robe, and put it on him. Put a ring on his hand, and shoes on his feet.

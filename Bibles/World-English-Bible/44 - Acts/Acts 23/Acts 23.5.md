@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul said, I knew not, brethren, that he was high priest: for it is written, Thou shalt not speak evil of a ruler of thy people.
+Paul said, "I didn't know, brothers, that he was high priest. For it is written, 'You shall not speak evil of a ruler of your people.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Abner the son of Ner, captain of Saul's host, had taken Ish-bosheth the son of Saul, and brought him over to Mahanaim;
+Now Abner the son of Ner, captain of Saul's army, had taken Ishbosheth the son of Saul, and brought him over to Mahanaim;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts hath purposed it, to stain the pride of all glory, to bring into contempt all the honorable of the earth.
+Yahweh of Armies has planned it, to stain the pride of all glory, to bring into contempt all the honorable of the earth.

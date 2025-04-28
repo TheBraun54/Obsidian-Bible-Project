@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But my people hearkened not to my voice; And Israel would none of me.
+But my people didn't listen to my voice. Israel desired none of me.

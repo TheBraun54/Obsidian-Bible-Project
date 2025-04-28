@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wrath is cruel, and anger is overwhelming; But who is able to stand before jealousy?
+Wrath is cruel, and anger is overwhelming; but who is able to stand before jealousy?

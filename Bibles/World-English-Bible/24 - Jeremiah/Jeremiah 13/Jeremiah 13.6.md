@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after many days, that Jehovah said unto me, Arise, go to the Euphrates, and take the girdle from thence, which I commanded thee to hide there.
+It happened after many days, that Yahweh said to me, Arise, go to the Euphrates, and take the belt from there, which I commanded you to hide there.

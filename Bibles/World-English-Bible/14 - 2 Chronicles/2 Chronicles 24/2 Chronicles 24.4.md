@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after this, that Joash was minded to restore the house of Jehovah.
+It happened after this, that Joash was minded to restore the house of Yahweh.

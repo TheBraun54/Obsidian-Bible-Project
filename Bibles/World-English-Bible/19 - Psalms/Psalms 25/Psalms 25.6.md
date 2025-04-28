@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, O Jehovah, thy tender mercies and thy lovingkindness; For they have been ever of old.
+Yahweh, remember your tender mercies and your loving kindness, for they are from old times.

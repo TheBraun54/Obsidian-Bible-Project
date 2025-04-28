@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat feared, and set himself to seek unto Jehovah; and he proclaimed a fast throughout all Judah.
+Jehoshaphat was alarmed, and set himself to seek to Yahweh. He proclaimed a fast throughout all Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered all the wicked men and base fellows, of those that went with David, and said, Because they went not with us, we will not give them aught of the spoil that we have recovered, save to every man his wife and his children, that he may lead them away, and depart.
+Then all the wicked men and base fellows, of those who went with David, answered and said, "Because they didn't go with us, we will not give them anything of the spoil that we have recovered, except to every man his wife and his children, that he may lead them away, and depart."

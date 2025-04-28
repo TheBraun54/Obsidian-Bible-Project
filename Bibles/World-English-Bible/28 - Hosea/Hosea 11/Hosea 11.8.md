@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How shall I give thee up, Ephraim? [how] shall I cast thee off, Israel? how shall I make thee as Admah? [how] shall I set thee as Zeboiim? my heart is turned within me, my compassions are kindled together.
+"How can I give you up, Ephraim? How can I hand you over, Israel? How can I make you like Admah? How can I make you like Zeboiim? My heart is turned within me, my compassion is aroused.

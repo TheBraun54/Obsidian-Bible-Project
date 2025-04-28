@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Madmenah is a fugitive; the inhabitants of Gebim flee for safety.
+Madmenah is a fugitive. The inhabitants of Gebim flee for safety.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no umpire betwixt us, That might lay his hand upon us both.
+There is no umpire between us, that might lay his hand on us both.

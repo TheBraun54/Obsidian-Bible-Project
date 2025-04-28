@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have laid a snare for thee, and thou art also taken, O Babylon, and thou wast not aware: thou art found, and also caught, because thou hast striven against Jehovah.
+I have laid a snare for you, and you are also taken, Babylon, and you weren't aware: you are found, and also caught, because you have striven against Yahweh.

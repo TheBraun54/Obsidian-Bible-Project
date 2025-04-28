@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they understood not concerning the loaves, but their heart was hardened.
+for they hadn't understood about the loaves, but their hearts were hardened.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall lay his hand upon the head of the burnt-offering; and it shall be accepted for him to make atonement for him.
+He shall lay his hand on the head of the burnt offering, and it shall be accepted for him to make atonement for him.

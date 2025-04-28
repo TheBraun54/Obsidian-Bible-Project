@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Methuselah lived after he begat Lamech seven hundred eighty and two years, and begat sons and daughters:
+Methuselah lived after he became the father of Lamech seven hundred eighty-two years, and became the father of sons and daughters.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look therefore carefully how ye walk, not as unwise, but as wise;
+Therefore watch carefully how you walk, not as unwise, but as wise;

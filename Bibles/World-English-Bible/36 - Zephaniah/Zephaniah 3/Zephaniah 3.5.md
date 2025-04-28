@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah in the midst of her is righteous; he will not do iniquity; every morning doth he bring his justice to light, he faileth not; but the unjust knoweth no shame.
+Yahweh, in the midst of her, is righteous. He will do no wrong. Every morning he brings his justice to light. He doesn't fail, but the unjust know no shame.

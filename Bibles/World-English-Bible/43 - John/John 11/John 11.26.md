@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and whosoever liveth and believeth on me shall never die. Believest thou this?
+Whoever lives and believes in me will never die. Do you believe this?"

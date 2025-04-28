@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in the day that Jehovah shall give thee rest from thy sorrow, and from thy trouble, and from the hard service wherein thou wast made to serve,
+It will happen in the day that Yahweh will give you rest from your sorrow, from your trouble, and from the hard service in which you were made to serve,

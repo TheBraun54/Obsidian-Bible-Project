@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I searched in my heart how to cheer my flesh with wine, my heart yet guiding [me] with wisdom, and how to lay hold on folly, till I might see what it was good for the sons of men that they should do under heaven all the days of their life.
+I searched in my heart how to cheer my flesh with wine, my heart yet guiding me with wisdom, and how to lay hold of folly, until I might see what it was good for the sons of men that they should do under heaven all the days of their lives.

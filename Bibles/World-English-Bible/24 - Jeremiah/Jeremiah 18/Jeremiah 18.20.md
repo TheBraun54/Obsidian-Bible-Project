@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall evil be recompensed for good? for they have digged a pit for my soul. Remember how I stood before thee to speak good for them, to turn away thy wrath from them.
+Shall evil be recompensed for good? for they have dug a pit for my soul. Remember how I stood before you to speak good for them, to turn away your wrath from them.

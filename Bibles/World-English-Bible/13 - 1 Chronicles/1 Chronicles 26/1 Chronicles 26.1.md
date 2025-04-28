@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the courses of the doorkeepers: of the Korahites, Meshelemiah the son of Kore, of the sons of Asaph.
+For the divisions of the doorkeepers: of the Korahites, Meshelemiah the son of Kore, of the sons of Asaph.

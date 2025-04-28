@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the children of Israel said unto them, Would that we had died by the hand of Jehovah in the land of Egypt, when we sat by the flesh-pots, when we did eat bread to the full; for ye have brought us forth into this wilderness, to kill this whole assembly with hunger.
+and the children of Israel said to them, "We wish that we had died by the hand of Yahweh in the land of Egypt, when we sat by the meat pots, when we ate our fill of bread, for you have brought us out into this wilderness, to kill this whole assembly with hunger."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after five days the high priest Ananias came down with certain elders, and [with] an orator, one Tertullus; and they informed the governor against Paul.
+After five days, the high priest, Ananias, came down with certain elders and an orator, one Tertullus. They informed the governor against Paul.

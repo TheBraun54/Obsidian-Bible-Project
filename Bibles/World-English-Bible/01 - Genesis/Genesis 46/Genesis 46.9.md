@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Reuben: Hanoch, and Pallu, and Hezron, and Carmi.
+The sons of Reuben: Hanoch, Pallu, Hezron, and Carmi.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked watcheth the righteous, And seeketh to slay him.
+The wicked watches the righteous, and seeks to kill him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not afraid of sudden fear, Neither of the desolation of the wicked, when it cometh:
+Don't be afraid of sudden fear, neither of the desolation of the wicked, when it comes:

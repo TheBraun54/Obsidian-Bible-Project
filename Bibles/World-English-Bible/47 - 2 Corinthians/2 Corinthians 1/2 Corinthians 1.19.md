@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Son of God, Jesus Christ, who was preached among you by us, [even] by me and Silvanus and Timothy, was not yea and nay, but in him is yea.
+For the Son of God, Jesus Christ, who was preached among you by us, by me, Silvanus, and Timothy, was not "Yes and no," but in him is "Yes."

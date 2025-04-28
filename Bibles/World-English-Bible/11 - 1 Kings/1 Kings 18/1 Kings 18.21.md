@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah came near unto all the people, and said, How long go ye limping between the two sides? if Jehovah be God, follow him; but if Baal, then follow him. And the people answered him not a word.
+Elijah came near to all the people, and said, "How long will you waver between the two sides? If Yahweh is God, follow him; but if Baal, then follow him." The people answered him not a word.

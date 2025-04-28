@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after six days Jesus taketh with him Peter, and James, and John his brother, and bringeth them up into a high mountain apart:
+After six days, Jesus took with him Peter, James, and John his brother, and brought them up into a high mountain by themselves.

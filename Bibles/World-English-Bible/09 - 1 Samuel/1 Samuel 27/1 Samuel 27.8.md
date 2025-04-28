@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David and his men went up, and made a raid upon the Geshurites, and the Girzites, and the Amalekites; for those [nations] were the inhabitants of the land, who were of old, as thou goest to Shur, even unto the land of Egypt.
+David and his men went up, and made a raid on the Geshurites, and the Girzites, and the Amalekites; for those [nations] were the inhabitants of the land, who were of old, as you go to Shur, even to the land of Egypt.

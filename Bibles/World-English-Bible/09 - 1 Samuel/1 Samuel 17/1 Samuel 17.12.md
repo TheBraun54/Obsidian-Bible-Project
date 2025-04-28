@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now David was the son of that Ephrathite of Beth-lehem-judah, whose name was Jesse; and he had eight sons: and the man was an old man in the days of Saul, stricken [in years] among men.
+Now David was the son of that Ephrathite of Bethlehem Judah, whose name was Jesse; and he had eight sons: and the man was an old man in the days of Saul, stricken [in years] among men.

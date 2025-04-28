@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I entreated thy favor with my whole heart: Be merciful unto me according to thy word.
+I sought your favor with my whole heart. Be merciful to me according to your word.

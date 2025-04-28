@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said, Suffer the little children, and forbid them not, to come unto me: for to such belongeth the kingdom of heaven.
+But Jesus said, "Allow the little children, and don't forbid them to come to me; for the Kingdom of Heaven belongs to ones like these."

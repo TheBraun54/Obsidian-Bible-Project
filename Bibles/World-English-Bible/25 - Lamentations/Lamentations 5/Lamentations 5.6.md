@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have given the hand to the Egyptians, And to the Assyrians, to be satisfied with bread.
+We have given the hand to the Egyptians, To the Assyrians, to be satisfied with bread.

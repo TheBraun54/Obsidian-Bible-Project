@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For even his brethren did not believe on him.
+For even his brothers didn't believe in him.

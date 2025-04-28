@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus came to the place, he looked up, and said unto him, Zacchaeus, make haste, and come down; for to-day I must abide at thy house.
+When Jesus came to the place, he looked up and saw him, and said to him, "Zacchaeus, hurry and come down, for today I must stay at your house."

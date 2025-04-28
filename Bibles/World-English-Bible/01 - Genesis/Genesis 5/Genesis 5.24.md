@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Enoch walked with God: and he was not; for God took him.
+Enoch walked with God, and he was not, for God took him.

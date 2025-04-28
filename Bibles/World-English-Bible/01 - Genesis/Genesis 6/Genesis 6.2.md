@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the sons of God saw the daughters of men that they were fair; and they took them wives of all that they chose.
+that God's sons saw that men's daughters were beautiful, and they took for themselves wives of all that they chose.

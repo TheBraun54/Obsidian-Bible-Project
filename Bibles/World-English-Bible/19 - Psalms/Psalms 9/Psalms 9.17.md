@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked shall be turned back unto Sheol, Even all the nations that forget God.
+The wicked shall be turned back to Sheol, even all the nations that forget God.

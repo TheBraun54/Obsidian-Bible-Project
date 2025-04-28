@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus, sinning against the brethren, and wounding their conscience when it is weak, ye sin against Christ.
+Thus, sinning against the brothers, and wounding their conscience when it is weak, you sin against Christ.

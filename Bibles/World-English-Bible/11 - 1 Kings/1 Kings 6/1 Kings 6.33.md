@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So also made he for the entrance of the temple door-posts of olive-wood, out of a fourth part [of the wall] ;
+So also made he for the entrance of the temple door posts of olive wood, out of a fourth part [of the wall];

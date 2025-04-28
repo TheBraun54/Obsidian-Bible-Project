@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shaphan the scribe told the king, saying, Hilkiah the priest hath delivered me a book. And Shaphan read therein before the king.
+Shaphan the scribe told the king, saying, "Hilkiah the priest has delivered me a book." Shaphan read therein before the king.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put on righteousness as a breastplate, and a helmet of salvation upon his head; and he put on garments of vengeance for clothing, and was clad with zeal as a mantle.
+He put on righteousness as a breastplate, and a helmet of salvation on his head; and he put on garments of vengeance for clothing, and was clad with zeal as a mantle.

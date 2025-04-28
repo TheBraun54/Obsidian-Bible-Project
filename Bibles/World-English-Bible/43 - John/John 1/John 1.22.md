@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, Who art thou? that we may give an answer to them that sent us. What sayest thou of thyself?
+They said therefore to him, "Who are you? Give us an answer to take back to those who sent us. What do you say about yourself?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when this corruptible shall have put on incorruption, and this mortal shall have put on immortality, then shall come to pass the saying that is written, Death is swallowed up in victory.
+But when this corruptible will have put on incorruption, and this mortal will have put on immortality, then what is written will happen: "Death is swallowed up in victory."

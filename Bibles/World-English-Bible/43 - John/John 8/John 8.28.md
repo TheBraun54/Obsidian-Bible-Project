@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said, When ye have lifted up the Son of man, then shall ye know that I am [he], and [that] I do nothing of myself, but as the Father taught me, I speak these things. [
+Jesus therefore said to them, "When you have lifted up the Son of Man, then you will know that I am he, and I do nothing of myself, but as my Father taught me, I say these things.

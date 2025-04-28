@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, two of them were going that very day to a village named Emmaus, which was threescore furlongs from Jerusalem.
+Behold, two of them were going that very day to a village named Emmaus, which was sixty stadia from Jerusalem.

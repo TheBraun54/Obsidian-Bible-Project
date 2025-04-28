@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they said, Not during the feast, lest haply there shall be a tumult of the people.
+For they said, "Not during the feast, because there might be a riot of the people."

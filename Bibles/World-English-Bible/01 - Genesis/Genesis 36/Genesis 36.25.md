@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the children of Anah: Dishon and Oholibamah the daughter of Anah.
+These are the children of Anah: Dishon and Oholibamah, the daughter of Anah.

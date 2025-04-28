@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that thou shalt be mad for the sight of thine eyes which thou shalt see.
+so that you shall be mad for the sight of your eyes which you shall see.

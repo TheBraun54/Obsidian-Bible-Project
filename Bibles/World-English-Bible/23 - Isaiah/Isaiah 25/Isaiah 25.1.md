@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, thou art my God; I will exalt thee, I will praise thy name; for thou hast done wonderful things, [even] counsels of old, in faithfulness [and] truth.
+Yahweh, you are my God. I will exalt you! I will praise your name, for you have done wonderful things, things planned long ago, in complete faithfulness and truth.

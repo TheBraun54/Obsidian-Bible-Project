@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In holiness and righteousness before him all our days.
+In holiness and righteousness before him all the days of our life.

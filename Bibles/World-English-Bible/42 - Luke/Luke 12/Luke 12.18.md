@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, This will I do: I will pull down my barns, and build greater; and there will I bestow all my grain and my goods.
+He said, 'This is what I will do. I will pull down my barns, and build bigger ones, and there I will store all my grain and my goods.

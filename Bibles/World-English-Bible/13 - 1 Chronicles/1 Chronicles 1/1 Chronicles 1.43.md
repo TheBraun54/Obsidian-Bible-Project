@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the kings that reigned in the land of Edom, before there resigned any king over the children of Israel: Bela the son of Beor; and the name of his city was Dinhabah.
+Now these are the kings who reigned in the land of Edom, before there reigned any king over the children of Israel: Bela the son of Beor; and the name of his city was Dinhabah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he cometh to a city of Samaria, called Sychar, near to the parcel of ground that Jacob gave to his son Joseph:
+So he came to a city of Samaria, called Sychar, near the parcel of ground that Jacob gave to his son, Joseph.

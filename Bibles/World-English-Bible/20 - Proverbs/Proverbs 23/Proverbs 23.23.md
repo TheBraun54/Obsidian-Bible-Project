@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Buy the truth, and sell it not; [Yea], wisdom, and instruction, and understanding.
+Buy the truth, and don't sell it. Get wisdom, discipline, and understanding.

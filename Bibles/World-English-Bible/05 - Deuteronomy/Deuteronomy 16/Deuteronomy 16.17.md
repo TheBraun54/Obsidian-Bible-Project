@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-every man shall give as he is able, according to the blessing of Jehovah thy God which he hath given thee.
+every man shall give as he is able, according to the blessing of Yahweh your God which he has given you.

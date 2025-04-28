@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he went and did according unto the word of Jehovah; for he went and dwelt by the brook Cherith, that is before the Jordan.
+So he went and did according to the word of Yahweh; for he went and lived by the brook Cherith, that is before the Jordan.

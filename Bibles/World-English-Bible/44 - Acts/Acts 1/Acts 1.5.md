@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For John indeed baptized with water; but ye shall be baptized in the Holy Spirit not many days hence.
+For John indeed baptized in water, but you will be baptized in the Holy Spirit not many days from now."

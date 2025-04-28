@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But draw near hither, ye sons of the sorceress, the seed of the adulterer and the harlot.
+"But draw near here, you sons of the sorceress, the seed of the adulterer and the prostitute.

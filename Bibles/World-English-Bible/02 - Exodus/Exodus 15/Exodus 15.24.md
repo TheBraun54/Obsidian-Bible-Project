@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people murmured against Moses, saying, What shall we drink?
+The people murmured against Moses, saying, "What shall we drink?"

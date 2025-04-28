@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now that no man is justified by the law before God, is evident: for, The righteous shall live by faith;
+Now that no man is justified by the law before God is evident, for, "The righteous will live by faith."

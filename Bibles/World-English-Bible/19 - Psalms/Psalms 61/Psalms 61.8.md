@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So will I sing praise unto thy name for ever, That I may daily perform my vows.
+So I will sing praise to your name forever, that I may fulfill my vows daily. For the Chief Musician. To Jeduthan. A Psalm by David.

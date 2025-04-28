@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the centurion saw what was done, he glorified God, saying, Certainly this was a righteous man.
+When the centurion saw what was done, he glorified God, saying, "Certainly this was a righteous man."

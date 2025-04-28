@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dimnah with its suburbs, Nahalal with its suburbs; four cities.
+Dimnah with its suburbs, and Nahalal with its suburbs; four cities.

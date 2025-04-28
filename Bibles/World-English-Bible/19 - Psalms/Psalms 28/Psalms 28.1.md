@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Unto thee, O Jehovah, will I call: My rock, be not thou deaf unto me; Lest, if thou be silent unto me, I become like them that go down into the pit.
+To you, Yahweh, I call. My rock, don't be deaf to me; lest, if you are silent to me, I would become like those who go down into the pit.

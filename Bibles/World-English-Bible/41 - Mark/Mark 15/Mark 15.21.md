@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they compel one passing by, Simon of Cyrene, coming from the country, the father of Alexander and Rufus, to go [with them], that he might bear his cross.
+They compelled one passing by, coming from the country, Simon of Cyrene, the father of Alexander and Rufus, to go with them, that he might bear his cross.

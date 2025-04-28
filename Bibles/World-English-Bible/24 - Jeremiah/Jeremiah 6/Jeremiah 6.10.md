@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom shall I speak and testify, that they may hear? behold, their ear is uncircumcised, and they cannot hearken: behold, the word of Jehovah is become unto them a reproach; they have no delight in it.
+To whom shall I speak and testify, that they may hear? Behold, their ear is uncircumcised, and they can't listen. Behold, the word of Yahweh has become a reproach to them. They have no delight in it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, O our God, hearken unto the prayer of thy servant, and to his supplications, and cause thy face to shine upon thy sanctuary that is desolate, for the Lord's sake.
+Now therefore, our God, listen to the prayer of your servant, and to his petitions, and cause your face to shine on your sanctuary that is desolate, for the Lord's sake.

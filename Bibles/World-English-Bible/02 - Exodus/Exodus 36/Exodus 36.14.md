@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made curtains of goats' [hair] for a tent over the tabernacle: eleven curtains he made them.
+He made curtains of goats' hair for a covering over the tabernacle. He made them eleven curtains.

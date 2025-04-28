@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judge not, that ye be not judged.
+"Don't judge, so that you won't be judged.

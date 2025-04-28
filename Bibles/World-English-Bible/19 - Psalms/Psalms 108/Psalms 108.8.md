@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gilead is mine; Manasseh is mine; Ephraim also is the defence of my head; Judah is my sceptre.
+Gilead is mine. Manasseh is mine. Ephraim also is my helmet. Judah is my scepter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was also a superscription over him, THIS IS THE KING OF THE JEWS.
+An inscription was also written over him in letters of Greek, Latin, and Hebrew: "THIS IS THE KING OF THE JEWS."

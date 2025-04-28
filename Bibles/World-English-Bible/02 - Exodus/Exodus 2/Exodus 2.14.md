@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Who made thee a prince and a judge over us? Thinkest thou to kill me, as thou killedst the Egyptian? And Moses feared, and said, Surely the thing is known.
+He said, "Who made you a prince and a judge over us? Do you plan to kill me, as you killed the Egyptian?" Moses was afraid, and said, "Surely this thing is known."

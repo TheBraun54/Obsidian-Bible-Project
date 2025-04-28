@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he calleth unto him the twelve, and began to send them forth by two and two; and he gave them authority over the unclean spirits;
+He called to himself the twelve, and began to send them out two by two; and he gave them authority over the unclean spirits.

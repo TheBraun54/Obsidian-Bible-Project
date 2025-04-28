@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I live, saith the Lord Jehovah, surely forasmuch as my sheep became a prey, and my sheep became food to all the beasts of the field, because there was no shepherd, neither did my shepherds search for my sheep, but the shepherds fed themselves, and fed not my sheep;
+As I live, says the Lord Yahweh, surely because my sheep became a prey, and my sheep became food to all the animals of the field, because there was no shepherd, neither did my shepherds search for my sheep, but the shepherds fed themselves, and didn't feed my sheep;

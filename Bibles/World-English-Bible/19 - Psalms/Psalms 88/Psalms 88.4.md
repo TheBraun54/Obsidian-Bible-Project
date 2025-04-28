@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am reckoned with them that go down into the pit; I am as a man that hath no help,
+I am counted among those who go down into the pit. I am like a man who has no help,

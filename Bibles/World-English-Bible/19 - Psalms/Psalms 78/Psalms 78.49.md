@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He cast upon them the fierceness of his anger, Wrath, and indignation, and trouble, A band of angels of evil.
+He threw on them the fierceness of his anger, wrath, indignation, and trouble, and a band of angels of evil.

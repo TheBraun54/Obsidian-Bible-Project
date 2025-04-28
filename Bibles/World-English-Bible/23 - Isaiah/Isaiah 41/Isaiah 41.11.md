@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, all they that are incensed against thee shall be put to shame and confounded: they that strive with thee shall be as nothing, and shall perish.
+Behold, all those who are incensed against you will be disappointed and confounded. Those who strive with you will be like nothing, and shall perish.

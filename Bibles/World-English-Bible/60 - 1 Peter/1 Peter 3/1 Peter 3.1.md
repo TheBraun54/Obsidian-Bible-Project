@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In like manner, ye wives, [be] in subjection to your own husbands; that, even if any obey not the word, they may without the word be gained by the behavior of their wives;
+In the same way, wives, be in subjection to your own husbands; so that, even if any don't obey the Word, they may be won by the behavior of their wives without a word;

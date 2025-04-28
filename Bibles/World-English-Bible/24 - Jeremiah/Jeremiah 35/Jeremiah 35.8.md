@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we have obeyed the voice of Jonadab the son of Rechab, our father, in all that he charged us, to drink no wine all our days, we, our wives, our sons, or our daughters;
+We have obeyed the voice of Jonadab the son of Rechab, our father, in all that he commanded us, to drink no wine all our days, we, our wives, our sons, or our daughters;

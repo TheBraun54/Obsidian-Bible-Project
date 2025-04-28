@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Ethan: Azariah.
+The sons of Ethan: Azariah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and by reason thereof is bound, as for the people, so also for himself, to offer for sins.
+Because of this, he must offer sacrifices for sins for the people, as well as for himself.

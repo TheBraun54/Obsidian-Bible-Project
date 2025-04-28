@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judge me, O God, and plead my cause against an ungodly nation: Oh deliver me from the deceitful and unjust man.
+Vindicate me, God, and plead my cause against an ungodly nation. Oh, deliver me from deceitful and wicked men.

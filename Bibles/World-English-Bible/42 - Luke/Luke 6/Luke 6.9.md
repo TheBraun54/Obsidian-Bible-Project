@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, I ask you, Is it lawful on the sabbath to do good, or to do harm? to save a life, or to destroy it?
+Then Jesus said to them, "I will ask you something: Is it lawful on the Sabbath to do good, or to do harm? To save a life, or to kill?"

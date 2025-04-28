@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye shall be named the priests of Jehovah; men shall call you the ministers of our God: ye shall eat the wealth of the nations, and in their glory shall ye boast yourselves.
+But you shall be named the priests of Yahweh; men will call you the ministers of our God: you will eat the wealth of the nations, and you will boast in their glory.

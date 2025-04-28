@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if I pray in a tongue, my spirit prayeth, but my understanding is unfruitful.
+For if I pray in another language, my spirit prays, but my understanding is unfruitful.

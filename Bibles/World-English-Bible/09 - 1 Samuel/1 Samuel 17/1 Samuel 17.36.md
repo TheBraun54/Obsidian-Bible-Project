@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy servant smote both the lion and the bear: and this uncircumcised Philistine shall be as one of them, seeing he hath defied the armies of the living God.
+Your servant struck both the lion and the bear. This uncircumcised Philistine shall be as one of them, since he has defied the armies of the living God."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Come in, thou blessed of Jehovah; wherefore standest thou without? for I have prepared the house, and room for the camels.
+He said, "Come in, you blessed of Yahweh. Why do you stand outside? For I have prepared the house, and room for the camels."

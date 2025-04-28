@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when they had done circumcising all the nation, that they abode in their places in the camp, till they were whole.
+It happened, when they were done circumcising all the nation, that they stayed in their places in the camp until they were healed.

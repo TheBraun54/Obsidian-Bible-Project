@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Abijah waxed mighty, and took unto himself fourteen wives, and begat twenty and two sons, and sixteen daughters.
+But Abijah grew mighty, and took to himself fourteen wives, and became the father of twenty-two sons, and sixteen daughters.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was Abner very wroth for the words of Ish-bosheth, and said, Am I a dog's head that belongeth to Judah? This day do I show kindness unto the house of Saul thy father, to his brethren, and to his friends, and have not delivered thee into the hand of David; and yet thou chargest me this day with a fault concerning this woman.
+Then was Abner very angry for the words of Ishbosheth, and said, "Am I a dog's head that belongs to Judah? Today I show kindness to the house of Saul your father, to his brothers, and to his friends, and have not delivered you into the hand of David; and yet you charge me this day with a fault concerning this woman!

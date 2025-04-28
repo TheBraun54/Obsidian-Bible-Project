@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of one saying, Cry. And one said, What shall I cry? All flesh is grass, and all the goodliness thereof is as the flower of the field.
+The voice of one saying, "Cry!" One said, "What shall I cry?" "All flesh is like grass, and all its glory is like the flower of the field.

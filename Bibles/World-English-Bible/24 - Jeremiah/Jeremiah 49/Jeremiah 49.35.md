@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: Behold, I will break the bow of Elam, the chief of their might.
+Thus says Yahweh of Armies: Behold, I will break the bow of Elam, the chief of their might.

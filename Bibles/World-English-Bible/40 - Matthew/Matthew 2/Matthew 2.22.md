@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he heard that Archelaus was reigning over Judaea in the room of his father Herod, he was afraid to go thither; and being warned [of God] in a dream, he withdrew into the parts of Galilee,
+But when he heard that Archelaus was reigning over Judea in the place of his father, Herod, he was afraid to go there. Being warned in a dream, he withdrew into the region of Galilee,

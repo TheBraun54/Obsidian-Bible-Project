@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Incline not my heart to any evil thing, To practise deeds of wickedness With men that work iniquity: And let me not eat of their dainties.
+Don't incline my heart to any evil thing, to practice deeds of wickedness with men who work iniquity. Don't let me eat of their delicacies.

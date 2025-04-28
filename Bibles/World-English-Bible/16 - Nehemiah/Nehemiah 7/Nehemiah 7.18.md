@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Adonikam, six hundred threescore and seven.
+The children of Adonikam, six hundred sixty-seven.

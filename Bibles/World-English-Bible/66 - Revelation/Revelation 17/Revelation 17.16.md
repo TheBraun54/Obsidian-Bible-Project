@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ten horns which thou sawest, and the beast, these shall hate the harlot, and shall make her desolate and naked, and shall eat her flesh, and shall burn her utterly with fire.
+The ten horns which you saw, and the beast, these will hate the prostitute, and will make her desolate, and will make her naked, and will eat her flesh, and will burn her utterly with fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abiathar told David that Saul had slain Jehovah's priests.
+Abiathar told David that Saul had slain Yahweh's priests.

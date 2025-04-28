@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold thou their sitting down, and their rising up; I am their song.
+You see their sitting down, and their rising up; I am their song.

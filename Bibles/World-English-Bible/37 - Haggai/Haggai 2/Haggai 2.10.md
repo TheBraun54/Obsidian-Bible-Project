@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the four and twentieth [day] of the ninth [month], in the second year of Darius, came the word of Jehovah by Haggai the prophet, saying,
+In the twenty-fourth day of the ninth month, in the second year of Darius, the Word of Yahweh came by Haggai the prophet, saying,

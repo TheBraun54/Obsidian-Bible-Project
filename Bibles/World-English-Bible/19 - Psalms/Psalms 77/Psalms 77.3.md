@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I remember God, and am disquieted: I complain, and my spirit is overwhelmed. {{Selah
+I remember God, and I groan. I complain, and my spirit is overwhelmed. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus perceiving their reasonings, answered and said unto them, Why reason ye in your hearts?
+But Jesus, perceiving their thoughts, answered them, "Why are you reasoning so in your hearts?

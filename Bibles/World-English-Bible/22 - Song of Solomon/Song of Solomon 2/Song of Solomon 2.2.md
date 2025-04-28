@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a lily among thorns, So is my love among the daughters.
+As a lily among thorns, so is my love among the daughters. Beloved

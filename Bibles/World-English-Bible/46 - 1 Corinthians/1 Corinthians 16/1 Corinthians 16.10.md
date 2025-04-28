@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now if Timothy come, see that he be with you without fear; for he worketh the work of the Lord, as I also do:
+Now if Timothy comes, see that he is with you without fear, for he does the work of the Lord, as I also do.

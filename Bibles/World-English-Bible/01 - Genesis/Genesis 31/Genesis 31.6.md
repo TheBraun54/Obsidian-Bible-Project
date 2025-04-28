@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye know that with all my power I have served your father.
+You know that I have served your father with all of my strength.

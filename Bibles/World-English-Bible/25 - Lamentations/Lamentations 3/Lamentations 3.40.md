@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us search and try our ways, and turn again to Jehovah.
+Let us search and try our ways, and turn again to Yahweh.

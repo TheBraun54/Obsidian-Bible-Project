@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they know not to do right, saith Jehovah, who store up violence and robbery in their palaces.
+"Indeed they don't know to do right," says Yahweh, "Who hoard plunder and loot in their palaces."

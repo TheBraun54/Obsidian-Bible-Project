@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the morning, that Balak took Balaam, and brought him up into the high places of Baal; and he saw from thence the utmost part of the people.
+It happened in the morning, that Balak took Balaam, and brought him up into the high places of Baal; and he saw from there the utmost part of the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She runneth therefore, and cometh to Simon Peter, and to the other disciple whom Jesus loved, and saith unto them, They have taken away the Lord out of the tomb, and we know not where they have laid him.
+Therefore she ran and came to Simon Peter, and to the other disciple whom Jesus loved, and said to them, "They have taken away the Lord out of the tomb, and we don't know where they have laid him!"

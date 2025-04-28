@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And further, because the Preacher was wise, he still taught the people knowledge; yea, he pondered, and sought out, [and] set in order many proverbs.
+Further, because the Preacher was wise, he still taught the people knowledge. Yes, he pondered, sought out, and set in order many proverbs.

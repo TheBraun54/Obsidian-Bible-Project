@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the shooters shot at thy servants from off the wall; and some of the king's servants are dead, and thy servant Uriah the Hittite is dead also.
+The shooters shot at your servants from off the wall; and some of the king's servants are dead, and your servant Uriah the Hittite is dead also."

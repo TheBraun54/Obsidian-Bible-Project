@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A lying tongue hateth those whom it hath wounded; And a flattering mouth worketh ruin.
+A lying tongue hates those it hurts; and a flattering mouth works ruin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sabbath of the land shall be for food for you; for thee, and for thy servant and for thy maid, and for thy hired servant and for thy stranger, who sojourn with thee.
+The Sabbath of the land shall be for food for you; for yourself, for your servant, for your maid, for your hired servant, and for your stranger, who lives as a foreigner with you.

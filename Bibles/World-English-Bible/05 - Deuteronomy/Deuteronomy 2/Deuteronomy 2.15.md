@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the hand of Jehovah was against them, to destroy them from the midst of the camp, until they were consumed.
+Moreover the hand of Yahweh was against them, to destroy them from the midst of the camp, until they were consumed.

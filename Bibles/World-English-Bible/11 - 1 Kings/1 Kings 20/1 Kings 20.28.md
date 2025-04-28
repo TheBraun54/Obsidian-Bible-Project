@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a man of God came near and spake unto the king of Israel, and said, Thus saith Jehovah, Because the Syrians have said, Jehovah is a god of the hills, but he is not a god of the valleys; therefore will I deliver all this great multitude into thy hand, and ye shall know that I am Jehovah.
+A man of God came near and spoke to the king of Israel, and said, "Thus says Yahweh, 'Because the Syrians have said, "Yahweh is a god of the hills, but he is not a god of the valleys;" therefore I will deliver all this great multitude into your hand, and you shall know that I am Yahweh.'"

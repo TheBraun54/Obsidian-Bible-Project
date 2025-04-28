@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not sacrifice unto Jehovah thy God an ox, or a sheep, wherein is a blemish, [or] anything evil; for that is an abomination unto Jehovah thy God.
+You shall not sacrifice to Yahweh your God an ox, or a sheep, in which is a blemish, [or] anything evil; for that is an abomination to Yahweh your God.

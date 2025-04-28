@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and from Bamoth to the valley that is in the field of Moab, to the top of Pisgah, which looketh down upon the desert.
+and from Bamoth to the valley that is in the field of Moab, to the top of Pisgah, which looks down on the desert.

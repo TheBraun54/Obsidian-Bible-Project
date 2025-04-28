@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there died the third part of the creatures which were in the sea, [even] they that had life; and the third part of the ships was destroyed.
+and one third of the living creatures which were in the sea died. One third of the ships were destroyed.

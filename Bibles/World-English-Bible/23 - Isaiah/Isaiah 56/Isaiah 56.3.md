@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither let the foreigner, that hath joined himself to Jehovah, speak, saying, Jehovah will surely separate me from his people; neither let the eunuch say, Behold, I am a dry tree.
+Neither let the foreigner, who has joined himself to Yahweh, speak, saying, "Yahweh will surely separate me from his people;" neither let the eunuch say, "Behold, I am a dry tree."

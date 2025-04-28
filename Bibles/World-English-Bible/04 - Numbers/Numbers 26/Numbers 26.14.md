@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of the Simeonites, twenty and two thousand and two hundred.
+These are the families of the Simeonites, twenty-two thousand two hundred.

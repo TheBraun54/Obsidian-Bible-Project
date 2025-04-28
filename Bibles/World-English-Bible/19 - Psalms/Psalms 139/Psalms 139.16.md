@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine eyes did see mine unformed substance; And in thy book they were all written, [Even] the days that were ordained [for me], When as yet there was none of them.
+Your eyes saw my body. In your book they were all written, the days that were ordained for me, when as yet there were none of them.

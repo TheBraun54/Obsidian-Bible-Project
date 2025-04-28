@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For how great is his goodness, and how great is his beauty! grain shall make the young men flourish, and new wine the virgins.
+For how great is his goodness, and how great is his beauty! Grain will make the young men flourish, and new wine the virgins.

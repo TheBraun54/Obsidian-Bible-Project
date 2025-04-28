@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, for thy servant's sake, and according to thine own heart, hast thou wrought all this greatness, to make known all [these] great things.
+Yahweh, for your servant's sake, and according to your own heart, you have worked all this greatness, to make known all these great things.

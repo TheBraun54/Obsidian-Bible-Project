@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the priest shall come in, and look, and, behold, the plague hath not spread in the house, after the house was plastered; then the priest shall pronounce the house clean, because the plague is healed.
+"If the priest shall come in, and examine it, and behold, the plague hasn't spread in the house, after the house was plastered, then the priest shall pronounce the house clean, because the plague is healed.

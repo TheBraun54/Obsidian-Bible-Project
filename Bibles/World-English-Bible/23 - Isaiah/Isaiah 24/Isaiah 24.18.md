@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that he who fleeth from the noise of the fear shall fall into the pit; and he that cometh up out of the midst of the pit shall be taken in the snare: for the windows on high are opened, and the foundations of the earth tremble.
+It will happen that he who flees from the noise of the fear will fall into the pit; and he who comes up out of the midst of the pit will be taken in the snare; for the windows on high are opened, and the foundations of the earth tremble.

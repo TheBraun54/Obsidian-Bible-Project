@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, We saw plainly that Jehovah was with thee: and we said, Let there now be an oath betwixt us, even betwixt us and thee, and let us make a covenant with thee,
+They said, "We saw plainly that Yahweh was with you. We said, 'Let there now be an oath between us, even between us and you, and let us make a covenant with you,

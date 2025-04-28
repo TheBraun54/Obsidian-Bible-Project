@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he spake these things unto them, behold, there came a ruler, and worshipped him, saying, My daughter is even now dead: but come and lay thy hand upon her, and she shall live.
+While he told these things to them, behold, a ruler came and worshiped him, saying, "My daughter has just died, but come and lay your hand on her, and she will live."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God remembered Noah, and all the beasts, and all the cattle that were with him in the ark: and God made a wind to pass over the earth, and the waters assuaged;
+God remembered Noah, all the animals, and all the livestock that were with him in the ship; and God made a wind to pass over the earth. The waters subsided.

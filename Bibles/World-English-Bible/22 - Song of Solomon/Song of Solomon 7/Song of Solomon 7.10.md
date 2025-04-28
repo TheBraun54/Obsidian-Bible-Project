@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am my beloved's; And his desire is toward me.
+I am my beloved's. His desire is toward me.

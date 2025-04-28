@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Dedan were thy traffickers; many isles were the mart of thy hand: they brought thee in exchange horns of ivory and ebony.
+The men of Dedan were your traffickers; many islands were the market of your hand: they brought you in exchange horns of ivory and ebony.

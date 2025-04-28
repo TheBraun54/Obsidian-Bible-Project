@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-especially because thou art expert in all customs and questions which are among the Jews: wherefore I beseech thee to hear me patiently.
+especially because you are expert in all customs and questions which are among the Jews. Therefore I beg you to hear me patiently.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; afer the manner of Jeduthun. A Psalm of Asaph]. I will cry unto God with my voice, Even unto God with my voice; and he will give ear unto me.
+My cry goes to God! Indeed, I cry to God for help, and for him to listen to me.

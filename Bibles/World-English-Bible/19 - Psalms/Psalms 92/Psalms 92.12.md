@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous shall flourish like the palm-tree: He shall grow like a cedar in Lebanon.
+The righteous shall flourish like the palm tree. He will grow like a cedar in Lebanon.

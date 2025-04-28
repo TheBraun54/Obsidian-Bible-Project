@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the king unto her, What wilt thou, queen Esther? and what is thy request? it shall be given thee even to the half of the kingdom.
+Then the king asked her, "What would you like, queen Esther? What is your request? It shall be given you even to the half of the kingdom."

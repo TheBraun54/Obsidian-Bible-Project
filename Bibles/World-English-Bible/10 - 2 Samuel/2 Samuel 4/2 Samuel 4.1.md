@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when [Ish-bosheth], Saul's son, heard that Abner was dead in Hebron, his hands became feeble, and all the Israelites were troubled.
+When [Ishbosheth], Saul's son, heard that Abner was dead in Hebron, his hands became feeble, and all the Israelites were troubled.

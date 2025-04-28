@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my life is spent with sorrow, And my years with sighing: My strength faileth because of mine iniquity, And my bones are wasted away.
+For my life is spent with sorrow, my years with sighing. My strength fails because of my iniquity. My bones are wasted away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman said to Elijah, Now I know that thou art a man of God, and that the word of Jehovah in thy mouth is truth.
+The woman said to Elijah, "Now I know that you are a man of God, and that the word of Yahweh in your mouth is truth."

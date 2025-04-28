@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Ye men of Israel, take heed to yourselves as touching these men, what ye are about to do.
+He said to them, "You men of Israel, be careful concerning these men, what you are about to do.

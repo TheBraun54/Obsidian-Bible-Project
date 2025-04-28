@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even all that Jehovah hath commanded you by Moses, from the day that Jehovah gave commandment, and onward throughout your generations;
+even all that Yahweh has commanded you by Moses, from the day that Yahweh gave commandment, and onward throughout your generations;

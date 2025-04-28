@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall perish among the nations, and the land of your enemies shall eat you up.
+You will perish among the nations, and the land of your enemies will eat you up.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them that draw iniquity with cords of falsehood, and sin as it were with a cart rope;
+Woe to those who draw iniquity with cords of falsehood, and wickedness as with cart rope;

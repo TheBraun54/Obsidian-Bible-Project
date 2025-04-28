@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, the God of Israel, The jar of meal shall not waste, neither shall the cruse of oil fail, until the day that Jehovah sendeth rain upon the earth.
+For thus says Yahweh, the God of Israel, 'The jar of meal shall not empty, neither shall the jar of oil fail, until the day that Yahweh sends rain on the earth.'"

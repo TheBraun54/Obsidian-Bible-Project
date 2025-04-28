@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go, tell Jeroboam, Thus saith Jehovah, the God of Israel: Forasmuch as I exalted thee from among the people, and made thee prince over my people Israel,
+Go, tell Jeroboam, 'Thus says Yahweh, the God of Israel: "Because I exalted you from among the people, and made you prince over my people Israel,

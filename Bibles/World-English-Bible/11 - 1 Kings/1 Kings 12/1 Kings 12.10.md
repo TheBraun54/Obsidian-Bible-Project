@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the young men that were grown up with him spake unto him, saying, Thus shalt thou say unto this people that spake unto thee, saying, Thy father made our yoke heavy, but make thou it lighter unto us; thus shalt thou speak unto them, My little finger is thicker than my father's loins.
+The young men who had grown up with him spoke to him, saying, "Thus you shall tell this people who spoke to you, saying, 'Your father made our yoke heavy, but make it lighter to us;' you shall say to them, 'My little finger is thicker than my father's waist.

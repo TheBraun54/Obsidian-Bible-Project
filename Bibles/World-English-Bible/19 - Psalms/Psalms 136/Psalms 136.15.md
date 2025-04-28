@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But overthrew Pharaoh and his host in the Red Sea; For his lovingkindness [endureth] for ever:
+But overthrew Pharaoh and his army in the Red Sea; for his loving kindness endures forever:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord said unto my Lord, Sit thou on my right hand, Till I put thine enemies underneath thy feet?
+'The Lord said to my Lord, sit on my right hand, until I make your enemies a footstool for your feet?'

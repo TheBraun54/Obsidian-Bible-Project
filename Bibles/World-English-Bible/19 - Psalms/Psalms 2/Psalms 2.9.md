@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt break them with a rod of iron; Thou shalt dash them in pieces like a potter's vessel.
+You shall break them with a rod of iron. You shall dash them in pieces like a potter's vessel."

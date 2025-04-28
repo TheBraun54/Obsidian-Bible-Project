@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the generations of Perez: Perez begat Hezron,
+Now this is the history of the generations of Perez: Perez became the father of Hezron,

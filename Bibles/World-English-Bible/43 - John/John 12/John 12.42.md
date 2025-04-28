@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless even of the rulers many believed on him; but because of the Pharisees they did not confess [it], lest they should be put out of the synagogue:
+Nevertheless even of the rulers many believed in him, but because of the Pharisees they didn't confess it, so that they wouldn't be put out of the synagogue,

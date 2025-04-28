@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where is the wise? where is the scribe? where is the disputer of this world? hath not God made foolish the wisdom of the world?
+Where is the wise? Where is the scribe? Where is the lawyer of this world? Hasn't God made foolish the wisdom of this world?

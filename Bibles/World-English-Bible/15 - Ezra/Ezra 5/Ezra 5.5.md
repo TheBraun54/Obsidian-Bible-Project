@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the eye of their God was upon the elders of the Jews, and they did not make them cease, till the matter should come to Darius, and then answer should be returned by letter concerning it.
+But the eye of their God was on the elders of the Jews, and they did not make them cease, until the matter should come to Darius, and then answer should be returned by letter concerning it.

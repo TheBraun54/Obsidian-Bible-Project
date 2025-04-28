@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at midnight, that Jehovah smote all the first-born in the land of Egypt, from the first-born of Pharaoh that sat on his throne unto the first-born of the captive that was in the dungeon; and all the first-born of cattle.
+It happened at midnight, that Yahweh struck all the firstborn in the land of Egypt, from the firstborn of Pharaoh who sat on his throne to the firstborn of the captive who was in the dungeon; and all the firstborn of livestock.

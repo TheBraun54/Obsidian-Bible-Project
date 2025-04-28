@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set your mind on the things that are above, not on the things that are upon the earth.
+Set your mind on the things that are above, not on the things that are on the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he heard these things, he became exceeding sorrowful; for he was very rich.
+But when he heard these things, he became very sad, for he was very rich.

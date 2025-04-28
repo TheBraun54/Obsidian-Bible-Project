@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and be ye kind one to another, tenderhearted, forgiving each other, even as God also in Christ forgave you.
+And be kind to one another, tenderhearted, forgiving each other, just as God also in Christ forgave you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I beheld, and, lo, there were sinews upon them, and flesh came up, and skin covered them above; but there was no breath in them.
+I saw, and, behold, there were sinews on them, and flesh came up, and skin covered them above; but there was no breath in them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, if ye shall hearken diligently unto my commandments which I command you this day, to love Jehovah your God, and to serve him with all your heart and with all your soul,
+It shall happen, if you shall listen diligently to my commandments which I command you this day, to love Yahweh your God, and to serve him with all your heart and with all your soul,

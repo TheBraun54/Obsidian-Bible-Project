@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-until Jehovah have given your brethren rest, as [he hath given] you, and they also have possessed the land which Jehovah your God giveth them: then ye shall return unto the land of your possession, and possess it, which Moses the servant of Jehovah gave you beyond the Jordan toward the sunrising.
+until Yahweh has given your brothers rest, as he has given you, and they have also possessed the land which Yahweh your God gives them. Then you shall return to the land of your possession, and possess it, which Moses the servant of Yahweh gave you beyond the Jordan toward the sunrise.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That the godless man reign not, That there be none to ensnare the people.
+that the godless man may not reign, that there be no one to ensnare the people.

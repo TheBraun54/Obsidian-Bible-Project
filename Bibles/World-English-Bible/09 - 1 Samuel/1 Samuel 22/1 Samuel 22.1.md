@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David therefore departed thence, and escaped to the cave of Adullam: and when his brethren and all his father's house heard it, they went down thither to him.
+David therefore departed there, and escaped to the cave of Adullam. When his brothers and all his father's house heard it, they went down there to him.

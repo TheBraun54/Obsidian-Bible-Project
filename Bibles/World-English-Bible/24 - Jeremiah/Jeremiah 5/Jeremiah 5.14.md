@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore thus saith Jehovah, the God of hosts, Because ye speak this word, behold, I will make my words in thy mouth fire, and this people wood, and it shall devour them.
+Therefore thus says Yahweh, the God of Armies, "Because you speak this word, behold, I will make my words in your mouth fire, and this people wood, and it shall devour them.

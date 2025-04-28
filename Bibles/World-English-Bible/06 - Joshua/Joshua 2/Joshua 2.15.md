@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then she let them down by a cord through the window: for her house was upon the side of the wall, and she dwelt upon the wall.
+Then she let them down by a cord through the window; for her house was on the side of the wall, and she lived on the wall.

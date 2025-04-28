@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he saith, Are not my princes all of them kings?
+For he says, "Aren't all of my princes kings?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, we call them blessed that endured: ye have heard of the patience of Job, and have seen the end of the Lord, how that the Lord is full of pity, and merciful.
+Behold, we call them blessed who endured. You have heard of the patience of Job, and have seen the Lord in the outcome, and how the Lord is full of compassion and mercy.

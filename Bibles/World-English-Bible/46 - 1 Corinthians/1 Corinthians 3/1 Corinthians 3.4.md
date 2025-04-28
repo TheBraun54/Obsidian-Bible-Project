@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when one saith, I am of Paul; and another, I am of Apollos; are ye not men?
+For when one says, "I follow Paul," and another, "I follow Apollos," aren't you fleshly?

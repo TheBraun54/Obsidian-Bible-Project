@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in those days, that the Philistines gathered their hosts together for warfare, to fight with Israel. And Achish said unto David, Know thou assuredly, that thou shalt go out with me in the host, thou and thy men.
+It happened in those days, that the Philistines gathered their armies together for warfare, to fight with Israel. Achish said to David, "Know assuredly that you shall go out with me in the army, you and your men."

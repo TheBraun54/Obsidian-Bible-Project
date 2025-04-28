@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon answered and said, He, I suppose, to whom he forgave the most. And he said unto him, Thou hast rightly judged.
+Simon answered, "He, I suppose, to whom he forgave the most." He said to him, "You have judged correctly."

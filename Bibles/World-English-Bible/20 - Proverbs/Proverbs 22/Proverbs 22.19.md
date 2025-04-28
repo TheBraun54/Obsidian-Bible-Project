@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thy trust may be in Jehovah, I have made [them] known to thee this day, even to thee.
+That your trust may be in Yahweh, I teach you today, even you.

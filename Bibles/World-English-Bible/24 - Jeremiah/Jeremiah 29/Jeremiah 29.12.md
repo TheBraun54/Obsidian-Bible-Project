@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall call upon me, and ye shall go and pray unto me, and I will hearken unto you.
+You shall call on me, and you shall go and pray to me, and I will listen to you.

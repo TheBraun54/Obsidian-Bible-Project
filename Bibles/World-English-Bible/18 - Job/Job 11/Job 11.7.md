@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou by searching find out God? Canst thou find out the Almighty unto perfection?
+"Can you fathom the mystery of God? Or can you probe the limits of the Almighty?

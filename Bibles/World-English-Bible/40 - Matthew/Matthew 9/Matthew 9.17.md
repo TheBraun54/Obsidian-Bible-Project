@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither do [men] put new wine into old wine-skins: else the skins burst, and the wine is spilled, and the skins perish: but they put new wine into fresh wine-skins, and both are preserved.
+Neither do people put new wine into old wineskins, or else the skins would burst, and the wine be spilled, and the skins ruined. No, they put new wine into fresh wineskins, and both are preserved."

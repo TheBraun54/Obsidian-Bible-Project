@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let royal apparel be brought which the king useth to wear, and the horse that the king rideth upon, and on the head of which a crown royal is set:
+let royal clothing be brought which the king uses to wear, and the horse that the king rides on, and on the head of which a crown royal is set.

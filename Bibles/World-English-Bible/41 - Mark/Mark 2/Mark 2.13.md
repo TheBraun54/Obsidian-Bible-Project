@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went forth again by the sea side; and all the multitude resorted unto him, and he taught them.
+He went out again by the seaside. All the multitude came to him, and he taught them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came there unto him all his brethren, and all his sisters, and all they that had been of his acquaintance before, and did eat bread with him in his house: and they bemoaned him, and comforted him concerning all the evil that Jehovah had brought upon him: every man also gave him a piece of money, and every one a ring of gold.
+Then came there to him all his brothers, and all his sisters, and all those who had been of his acquaintance before, and ate bread with him in his house. They comforted him, and consoled him concerning all the evil that Yahweh had brought on him. Everyone also gave him a piece of money, and everyone a ring of gold.

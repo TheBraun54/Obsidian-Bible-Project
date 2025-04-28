@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Pashhur, the son of Immer the priest, who was chief officer in the house of Jehovah, heard Jeremiah prophesying these things.
+Now Pashhur, the son of Immer the priest, who was chief officer in the house of Yahweh, heard Jeremiah prophesying these things.

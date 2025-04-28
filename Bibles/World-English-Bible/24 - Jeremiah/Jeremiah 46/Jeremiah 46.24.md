@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The daughter of Egypt shall be put to shame; she shall be delivered into the hand of the people of the north.
+The daughter of Egypt shall be disappointed; she shall be delivered into the hand of the people of the north.

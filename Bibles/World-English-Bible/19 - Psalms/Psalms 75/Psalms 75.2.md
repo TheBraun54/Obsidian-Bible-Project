@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I shall find the set time, I will judge uprightly.
+When I choose the appointed time, I will judge blamelessly.

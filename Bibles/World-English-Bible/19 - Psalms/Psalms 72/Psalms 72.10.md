@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The kings of Tarshish and of the isles shall render tribute: The kings of Sheba and Seba shall offer gifts.
+The kings of Tarshish and of the islands will bring tribute. The kings of Sheba and Seba shall offer gifts.

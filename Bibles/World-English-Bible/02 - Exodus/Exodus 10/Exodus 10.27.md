@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah hardened Pharaoh's heart, and he would not let them go.
+But Yahweh hardened Pharaoh's heart, and he wouldn't let them go.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They took therefore two chariots with horses; and the king sent after the host of the Syrians, saying, Go and see.
+They took therefore two chariots with horses; and the king sent after the army of the Syrians, saying, "Go and see."

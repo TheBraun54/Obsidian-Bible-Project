@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Judas Iscariot, one of his disciples, that should betray him, saith,
+Then Judas Iscariot, Simon's son, one of his disciples, who would betray him, said,

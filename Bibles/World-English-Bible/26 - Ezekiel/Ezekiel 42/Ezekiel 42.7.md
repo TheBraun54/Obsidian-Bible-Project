@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the wall that was without by the side of the chambers, toward the outer court before the chambers, the length thereof was fifty cubits.
+The wall that was outside by the side of the rooms, toward the outer court before the rooms, its length was fifty cubits.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Solomon his son, Be strong and of good courage, and do it: fear not, nor be dismayed; for Jehovah God, even my God, is with thee; he will not fail thee, nor forsake thee, until all the work for the service of the house of Jehovah be finished.
+David said to Solomon his son, "Be strong and courageous, and do it. Don't be afraid, nor be dismayed; for Yahweh God, even my God, is with you. He will not fail you, nor forsake you, until all the work for the service of the house of Yahweh is finished.

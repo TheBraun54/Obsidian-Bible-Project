@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king of Israel gathered the prophets together, about four hundred men, and said unto them, Shall I go against Ramoth-gilead to battle, or shall I forbear? And they said, Go up; for the Lord will deliver it into the hand of the king.
+Then the king of Israel gathered the prophets together, about four hundred men, and said to them, "Shall I go against Ramoth Gilead to battle, or shall I forbear?" They said, "Go up; for the Lord will deliver it into the hand of the king."

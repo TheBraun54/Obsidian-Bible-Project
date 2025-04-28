@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah said unto Elisha, Tarry here, I pray thee; for Jehovah hath sent me as far as Beth-el. And Elisha said, As Jehovah liveth, and as thy soul liveth, I will not leave thee. So they went down to Beth-el.
+Elijah said to Elisha, "Please wait here, for Yahweh has sent me as far as Bethel." Elisha said, "As Yahweh lives, and as your soul lives, I will not leave you." So they went down to Bethel.

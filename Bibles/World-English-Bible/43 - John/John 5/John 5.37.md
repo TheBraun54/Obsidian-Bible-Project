@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Father that sent me, he hath borne witness of me. Ye have neither heard his voice at any time, nor seen his form.
+The Father himself, who sent me, has testified about me. You have neither heard his voice at any time, nor seen his form.

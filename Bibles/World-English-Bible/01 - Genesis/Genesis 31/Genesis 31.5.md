@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, I see your father's countenance, that it is not toward me as beforetime; but the God of my father hath been with me.
+and said to them, "I see the expression on your father's face, that it is not toward me as before; but the God of my father has been with me.

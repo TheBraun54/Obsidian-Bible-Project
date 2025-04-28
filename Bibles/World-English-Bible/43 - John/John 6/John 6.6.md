@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this he said to prove him: for he himself knew what he would do.
+This he said to test him, for he himself knew what he would do.

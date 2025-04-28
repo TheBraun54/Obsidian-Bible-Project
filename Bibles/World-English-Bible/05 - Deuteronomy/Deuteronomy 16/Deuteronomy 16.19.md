@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not wrest justice: thou shalt not respect persons; neither shalt thou take a bribe; for a bribe doth blind the eyes of the wise, and pervert the words of the righteous.
+You shall not wrest justice: you shall not respect persons; neither shall you take a bribe; for a bribe does blind the eyes of the wise, and pervert the words of the righteous.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For to this end Christ died and lived [again], that he might be Lord of both the dead and the living.
+For to this end Christ died, rose, and lived again, that he might be Lord of both the dead and the living.

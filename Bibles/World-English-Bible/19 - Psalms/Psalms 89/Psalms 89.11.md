@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heavens are thine, the earth also is thine: The world and the fulness thereof, thou hast founded them.
+The heavens are yours. The earth also is yours; the world and its fullness. You have founded them.

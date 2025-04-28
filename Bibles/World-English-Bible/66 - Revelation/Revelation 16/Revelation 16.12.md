@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sixth poured out his bowl upon the great river, the [river] Euphrates; and the water thereof was dried up, that the way might by made ready for the kings that [come] from the sunrising.
+The sixth poured out his bowl on the great river, the Euphrates. Its water was dried up, that the way might be prepared for the kings that come from the sunrise.

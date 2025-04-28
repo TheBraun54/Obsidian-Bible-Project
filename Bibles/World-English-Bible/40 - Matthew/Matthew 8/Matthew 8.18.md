@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Jesus saw great multitudes about him, he gave commandment to depart unto the other side.
+Now when Jesus saw great multitudes around him, he gave the order to depart to the other side.

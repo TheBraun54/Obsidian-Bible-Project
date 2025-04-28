@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God said unto the woman, What is this thou hast done? And the woman said, The serpent beguiled me, and I did eat.
+Yahweh God said to the woman, "What is this you have done?" The woman said, "The serpent deceived me, and I ate."

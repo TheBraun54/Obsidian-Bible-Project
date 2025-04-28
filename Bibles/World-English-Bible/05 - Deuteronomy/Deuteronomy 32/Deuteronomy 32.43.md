@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice, O ye nations, [with] his people: For he will avenge the blood of his servants, And will render vengeance to his adversaries, And will make expiation for his land, for his people.
+Rejoice, you nations, [with] his people, for he will avenge the blood of his servants. He will render vengeance to his adversaries, And will make expiation for his land, for his people.

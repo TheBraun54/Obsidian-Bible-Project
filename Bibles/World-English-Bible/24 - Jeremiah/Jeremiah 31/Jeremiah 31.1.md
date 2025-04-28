@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time, saith Jehovah, will I be the God of all the families of Israel, and they shall be my people.
+At that time, says Yahweh, will I be the God of all the families of Israel, and they shall be my people.

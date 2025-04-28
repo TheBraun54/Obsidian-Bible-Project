@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I came to Jerusalem, and understood the evil that Eliashib had done for Tobiah, in preparing him a chamber in the courts of the house of God.
+and I came to Jerusalem, and understood the evil that Eliashib had done for Tobiah, in preparing him a room in the courts of the house of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I charged Baruch before them, saying,
+I commanded Baruch before them, saying,

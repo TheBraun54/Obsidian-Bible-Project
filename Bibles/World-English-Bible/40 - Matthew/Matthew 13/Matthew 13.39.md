@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the enemy that sowed them is the devil: and the harvest is the end of the world; and the reapers are angels.
+The enemy who sowed them is the devil. The harvest is the end of the age, and the reapers are angels.

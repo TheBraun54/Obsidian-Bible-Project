@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How canst thou say, I am not defiled, I have not gone after the Baalim? see thy way in the valley, know what thou hast done: [thou art] a swift dromedary traversing her ways;
+"How can you say, 'I am not defiled. I have not gone after the Baals'? See your way in the valley. Know what you have done. [You are] a swift dromedary traversing her ways;

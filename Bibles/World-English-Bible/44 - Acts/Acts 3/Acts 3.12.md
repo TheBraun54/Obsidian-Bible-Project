@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Peter saw it, he answered unto the people, Ye men of Israel, why marvel ye at this man? or why fasten ye your eyes on us, as though by our own power or godliness we had made him to walk?
+When Peter saw it, he responded to the people, "You men of Israel, why do you marvel at this man? Why do you fasten your eyes on us, as though by our own power or godliness we had made him walk?

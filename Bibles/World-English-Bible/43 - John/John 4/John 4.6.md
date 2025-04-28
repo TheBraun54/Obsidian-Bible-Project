@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jacob's well was there. Jesus therefore, being wearied with his journey, sat thus by the well. It was about the sixth hour.
+Jacob's well was there. Jesus therefore, being tired from his journey, sat down by the well. It was about the sixth hour.

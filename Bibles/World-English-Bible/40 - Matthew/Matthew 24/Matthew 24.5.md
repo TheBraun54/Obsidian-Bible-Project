@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For many shall come in my name, saying, I am the Christ; and shall lead many astray.
+For many will come in my name, saying, 'I am the Christ,' and will lead many astray.

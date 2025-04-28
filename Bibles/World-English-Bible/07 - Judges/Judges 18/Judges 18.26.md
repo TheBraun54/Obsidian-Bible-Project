@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Dan went their way: and when Micah saw that they were too strong for him, he turned and went back unto his house.
+The children of Dan went their way: and when Micah saw that they were too strong for him, he turned and went back to his house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I hate putting away, saith Jehovah, the God of Israel, and him that covereth his garment with violence, saith Jehovah of hosts: therefore take heed to your spirit, that ye deal not treacherously.
+For I hate divorce," says Yahweh, the God of Israel, "and him who covers his garment with violence!" says Yahweh of Armies. "Therefore take heed to your spirit, that you don't deal treacherously.

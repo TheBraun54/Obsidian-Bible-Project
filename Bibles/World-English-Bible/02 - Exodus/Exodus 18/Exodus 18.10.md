@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jethro said, Blessed be Jehovah, who hath delivered you out of the hand of the Egyptians, and out of the hand of Pharaoh; who hath delivered the people from under the hand of the Egyptians.
+Jethro said, "Blessed be Yahweh, who has delivered you out of the hand of the Egyptians, and out of the hand of Pharaoh; who has delivered the people from under the hand of the Egyptians.

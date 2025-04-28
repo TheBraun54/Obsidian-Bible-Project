@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the greatness of thine excellency thou overthrowest them that rise up against thee: Thou sendest forth thy wrath, it consumeth them as stubble.
+In the greatness of your excellency, you overthrow those who rise up against you. You send forth your wrath. It consumes them as stubble.

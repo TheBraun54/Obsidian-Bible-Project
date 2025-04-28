@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Maschil of Asaph]. O God, why hast thou cast [us] off for ever? Why doth thine anger smoke against the sheep of thy pasture?
+God, why have you rejected us forever? Why does your anger smolder against the sheep of your pasture?

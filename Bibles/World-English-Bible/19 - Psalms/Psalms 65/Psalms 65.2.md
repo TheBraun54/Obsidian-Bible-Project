@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou that hearest prayer, Unto thee shall all flesh come.
+You who hear prayer, to you all men will come.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Absalom said moreover, Oh that I were made judge in the land, that every man who hath any suit or cause might come unto me, and I would do him justice!
+Absalom said moreover, "Oh that I were made judge in the land, that every man who has any suit or cause might come to me, and I would do him justice!"

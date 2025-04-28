@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For at the window of my house I looked forth through my lattice;
+For at the window of my house, I looked out through my lattice.

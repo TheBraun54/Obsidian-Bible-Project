@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which things have indeed a show of wisdom in will-worship, and humility, and severity to the body; [but are] not of any value against the indulgence of the flesh.
+Which things indeed appear like wisdom in self-imposed worship, and humility, and severity to the body; but aren't of any value against the indulgence of the flesh.

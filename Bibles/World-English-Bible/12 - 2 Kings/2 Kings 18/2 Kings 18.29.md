@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the king, Let not Hezekiah deceive you; for he will not be able to deliver you out of his hand:
+Thus says the king, 'Don't let Hezekiah deceive you; for he will not be able to deliver you out of his hand.

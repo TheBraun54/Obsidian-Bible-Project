@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who ought to have been here before thee, and to make accusation, if they had aught against me.
+They ought to have been here before you, and to make accusation, if they had anything against me.

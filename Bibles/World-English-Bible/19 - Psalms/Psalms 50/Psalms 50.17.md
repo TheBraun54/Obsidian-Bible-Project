@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing thou hatest instruction, And castest my words behind thee?
+since you hate instruction, and throw my words behind you?

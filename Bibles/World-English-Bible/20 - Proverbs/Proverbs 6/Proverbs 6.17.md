@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Haughty eyes, a lying tongue, And hands that shed innocent blood;
+haughty eyes, a lying tongue, hands that shed innocent blood;

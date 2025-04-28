@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they asked him to abide a longer time, he consented not;
+When they asked him to stay with them a longer time, he declined;

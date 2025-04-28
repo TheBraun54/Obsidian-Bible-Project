@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their word will eat as doth a gangrene: or whom is Hymenaeus an Philetus;
+and their word will consume like gangrene, of whom is Hymenaeus and Philetus;

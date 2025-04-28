@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is that Benaiah, who was the mighty man of the thirty, and over the thirty: and [of] his course was Ammizabad his son.
+This is that Benaiah, who was the mighty man of the thirty, and over the thirty: and [of] his division was Ammizabad his son.

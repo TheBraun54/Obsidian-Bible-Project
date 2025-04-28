@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Which way shall we go up? And he answered, The way of the wilderness of Edom.
+He said, "Which way shall we go up?" He answered, "The way of the wilderness of Edom."

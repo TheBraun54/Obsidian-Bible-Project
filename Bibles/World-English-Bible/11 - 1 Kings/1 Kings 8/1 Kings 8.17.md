@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it was in the heart of David my father to build a house for the name of Jehovah, the God of Israel.
+"Now it was in the heart of David my father to build a house for the name of Yahweh, the God of Israel.

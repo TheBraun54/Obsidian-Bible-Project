@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the word that thou hast spoken unto us in the name of Jehovah, we will not hearken unto thee.
+As for the word that you have spoken to us in the name of Yahweh, we will not listen to you.

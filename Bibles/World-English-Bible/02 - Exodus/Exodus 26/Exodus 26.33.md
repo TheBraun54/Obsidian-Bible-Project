@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt hang up the veil under the clasps, and shalt bring in thither within the veil the ark of the testimony: and the veil shall separate unto you between the holy place and the most holy.
+You shall hang up the veil under the clasps, and shall bring the ark of the testimony in there within the veil: and the veil shall separate the holy place from the most holy for you.

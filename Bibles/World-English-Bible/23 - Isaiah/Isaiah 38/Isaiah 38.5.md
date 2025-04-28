@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go, and say to Hezekiah, Thus saith Jehovah, the God of David thy father, I have heard thy prayer, I have seen thy tears: behold, I will add unto thy days fifteen years.
+"Go, and tell Hezekiah, 'Thus says Yahweh, the God of David your father, "I have heard your prayer. I have seen your tears. Behold, I will add fifteen years to your life.

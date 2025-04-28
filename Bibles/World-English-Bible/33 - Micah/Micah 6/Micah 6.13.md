@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I also have smitten thee with a grievous wound; I have made thee desolate because of thy sins.
+Therefore I also have struck you with a grievous wound. I have made you desolate because of your sins.

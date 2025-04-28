@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will magnify myself, and sanctify myself, and I will make myself known in the eyes of many nations; and they shall know that I am Jehovah.
+I will magnify myself, and sanctify myself, and I will make myself known in the eyes of many nations; and they shall know that I am Yahweh.

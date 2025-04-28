@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous taketh knowledge of the cause of the poor; The wicked hath not understanding to know [it] .
+The righteous care about justice for the poor. The wicked aren't concerned about knowledge.

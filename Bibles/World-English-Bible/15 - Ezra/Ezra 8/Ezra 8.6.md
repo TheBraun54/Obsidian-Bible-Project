@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Adin, Ebed the son of Jonathan; and with him fifty males.
+Of the sons of Adin, Ebed the son of Jonathan; and with him fifty males.

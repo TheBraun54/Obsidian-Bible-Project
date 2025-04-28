@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as yet they knew not the scripture, that he must rise from the dead.
+For as yet they didn't know the Scripture, that he must rise from the dead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim is oppressed, he is crushed in judgment; because he was content to walk after [man's] command.
+Ephraim is oppressed, he is crushed in judgment; Because he is intent in his pursuit of idols.

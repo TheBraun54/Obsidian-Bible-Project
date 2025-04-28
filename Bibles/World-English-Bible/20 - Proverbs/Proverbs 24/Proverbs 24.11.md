@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver them that are carried away unto death, And those that are ready to be slain see that thou hold back.
+Rescue those who are being led away to death! Indeed, hold back those who are staggering to the slaughter!

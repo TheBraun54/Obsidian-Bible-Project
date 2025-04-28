@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the rich men thereof are full of violence, and the inhabitants thereof have spoken lies, and their tongue is deceitful in their mouth.
+Her rich men are full of violence, her inhabitants speak lies, and their tongue is deceitful in their speech.

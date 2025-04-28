@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the time of the offering of the [evening] oblation, that Elijah the prophet came near, and said, O Jehovah, the God of Abraham, of Isaac, and of Israel, let it be known this day that thou art God in Israel, and that I am thy servant, and that I have done all these things at thy word.
+It happened at the time of the offering of the offering, that Elijah the prophet came near, and said, "Yahweh, the God of Abraham, of Isaac, and of Israel, let it be known this day that you are God in Israel, and that I am your servant, and that I have done all these things at your word.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I see that thou art in the gall of bitterness and in the bond of iniquity.
+For I see that you are in the gall of bitterness and in the bondage of iniquity."

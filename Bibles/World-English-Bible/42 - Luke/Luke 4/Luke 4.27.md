@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were many lepers in Israel in the time of Elisha the prophet; and none of them was cleansed, but only Naaman the Syrian.
+There were many lepers in Israel in the time of Elisha the prophet, yet not one of them was cleansed, except Naaman, the Syrian."

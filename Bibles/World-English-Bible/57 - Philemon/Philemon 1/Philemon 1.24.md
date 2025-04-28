@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ and so do] Mark, Aristarchus, Demas, Luke, my fellow-workers.
+as do Mark, Aristarchus, Demas, and Luke, my fellow workers.

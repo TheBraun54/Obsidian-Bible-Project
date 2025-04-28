@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye shall hear of wars and rumors of wars, be not troubled: [these things] must needs come to pass; but the end is not yet.
+"When you hear of wars and rumors of wars, don't be troubled. For those must happen, but the end is not yet.

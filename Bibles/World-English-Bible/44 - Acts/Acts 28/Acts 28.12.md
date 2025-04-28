@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And touching at Syracuse, we tarried there three days.
+Touching at Syracuse, we stayed there three days.

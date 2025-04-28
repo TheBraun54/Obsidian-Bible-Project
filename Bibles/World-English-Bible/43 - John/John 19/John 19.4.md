@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate went out again, and saith unto them, Behold, I bring him out to you, that ye may know that I find no crime in him.
+Then Pilate went out again, and said to them, "Behold, I bring him out to you, that you may know that I find no basis for a charge against him."

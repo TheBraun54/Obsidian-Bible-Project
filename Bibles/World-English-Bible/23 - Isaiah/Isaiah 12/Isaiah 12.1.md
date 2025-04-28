@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day thou shalt say, I will give thanks unto thee, O Jehovah; for though thou wast angry with me, thine anger is turned away and thou comfortest me.
+In that day you will say, "I will give thanks to you, Yahweh; for though you were angry with me, your anger has turned away and you comfort me.

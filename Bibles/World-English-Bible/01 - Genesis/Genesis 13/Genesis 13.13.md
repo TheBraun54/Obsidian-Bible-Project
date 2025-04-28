@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the men of Sodom were wicked and sinners against Jehovah exceedingly.
+Now the men of Sodom were exceedingly wicked and sinners against Yahweh.

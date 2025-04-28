@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My defence to them that examine me is this.
+My defense to those who examine me is this.

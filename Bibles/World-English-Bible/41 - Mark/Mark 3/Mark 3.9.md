@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake to his disciples, that a little boat should wait on him because of the crowd, lest they should throng him:
+He spoke to his disciples that a little boat should stay near him because of the crowd, so that they wouldn't press on him.

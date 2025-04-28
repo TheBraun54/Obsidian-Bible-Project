@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he spreadeth his light around him; And he covereth the bottom of the sea.
+Behold, he spreads his light around him. He covers the bottom of the sea.

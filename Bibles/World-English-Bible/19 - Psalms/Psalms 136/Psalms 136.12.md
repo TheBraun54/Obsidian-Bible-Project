@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With a strong hand, and with an outstretched arm; For his lovingkindness [endureth] for ever:
+With a strong hand, and with an outstretched arm; for his loving kindness endures forever:

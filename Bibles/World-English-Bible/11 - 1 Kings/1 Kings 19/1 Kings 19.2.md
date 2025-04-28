@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jezebel send a messenger unto Elijah, saying, So let the gods do to me, and more also, if I make not thy life as the life of one of them by to-morrow about this time.
+Then Jezebel sent a messenger to Elijah, saying, "So let the gods do to me, and more also, if I don't make your life as the life of one of them by tomorrow about this time!"

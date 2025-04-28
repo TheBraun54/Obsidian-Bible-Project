@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came forth, and saw a great multitude, and he had compassion on them, and healed their sick.
+Jesus went out, and he saw a great multitude. He had compassion on them, and healed their sick.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Beforetime in Israel, when a man went to inquire of God, thus he said, Come, and let us go to the seer; for he that is now called a Prophet was beforetime called a Seer.)
+(In earlier times in Israel, when a man went to inquire of God, thus he said, "Come, and let us go to the seer;" for he who is now called a prophet was before called a Seer.)

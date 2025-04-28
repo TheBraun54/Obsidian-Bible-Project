@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when Jehovah thy God shall bring thee into the land whither thou goest to possess it, that thou shalt set the blessing upon mount Gerizim, and the curse upon mount Ebal.
+It shall happen, when Yahweh your God shall bring you into the land where you go to possess it, that you shall set the blessing on Mount Gerizim, and the curse on Mount Ebal.

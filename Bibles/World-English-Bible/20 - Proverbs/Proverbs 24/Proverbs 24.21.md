@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, fear thou Jehovah and the king; [And] company not with them that are given to change:
+My son, fear Yahweh and the king. Don't join those who are rebellious:

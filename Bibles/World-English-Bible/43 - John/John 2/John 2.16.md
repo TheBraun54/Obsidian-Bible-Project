@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to them that sold the doves he said, Take these things hence; make not my Father's house a house of merchandise.
+To those who sold the doves, he said, "Take these things out of here! Don't make my Father's house a marketplace!"

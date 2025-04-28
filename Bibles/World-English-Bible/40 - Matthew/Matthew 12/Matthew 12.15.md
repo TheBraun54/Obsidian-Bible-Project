@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus perceiving [it] withdrew from thence: and many followed him; and he healed them all,
+Jesus, perceiving that, withdrew from there. Great multitudes followed him; and he healed them all,

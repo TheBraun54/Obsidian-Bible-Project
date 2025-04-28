@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went up, and lay upon the child, and put his mouth upon his mouth, and his eyes upon his eyes, and his hands upon his hands: and he stretched himself upon him; and the flesh of the child waxed warm.
+He went up, and lay on the child, and put his mouth on his mouth, and his eyes on his eyes, and his hands on his hands. He stretched himself on him; and the flesh of the child grew warm.

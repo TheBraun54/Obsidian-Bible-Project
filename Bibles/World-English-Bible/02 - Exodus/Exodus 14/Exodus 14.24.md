@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the morning watch, that Jehovah looked forth upon the host of the Egyptians through the pillar of fire and of cloud, and discomfited the host of the Egyptians.
+It happened in the morning watch, that Yahweh looked out on the Egyptian army through the pillar of fire and of cloud, and confused the Egyptian army.

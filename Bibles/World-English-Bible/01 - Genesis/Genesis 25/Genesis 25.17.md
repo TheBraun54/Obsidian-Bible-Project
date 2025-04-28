@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the years of the life of Ishmael, a hundred and thirty and seven years: and he gave up the ghost and died, and was gathered unto his people.
+These are the years of the life of Ishmael: one hundred thirty-seven years. He gave up the spirit and died, and was gathered to his people.

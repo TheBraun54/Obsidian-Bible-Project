@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-forsaking the right way, they went astray, having followed the way of Balaam the [son] of Beor, who loved the hire of wrong-doing;
+forsaking the right way, they went astray, having followed the way of Balaam the son of Beor, who loved the wages of wrongdoing;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My face will I turn also from them, and they shall profane my secret [place] ; and robbers shall enter into it, and profane it.
+My face will I turn also from them, and they shall profane my secret [place]; and robbers shall enter into it, and profane it.

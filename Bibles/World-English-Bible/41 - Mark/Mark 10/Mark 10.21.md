@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus looking upon him loved him, and said unto him, One thing thou lackest: go, sell whatsoever thou hast, and give to the poor, and thou shalt have treasure in heaven: and come, follow me.
+Jesus looking at him loved him, and said to him, "One thing you lack. Go, sell whatever you have, and give to the poor, and you will have treasure in heaven; and come, follow me, taking up the cross."

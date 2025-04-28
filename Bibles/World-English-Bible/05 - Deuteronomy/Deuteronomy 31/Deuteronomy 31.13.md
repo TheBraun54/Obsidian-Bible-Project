@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that their children, who have not known, may hear, and learn to fear Jehovah your God, as long as ye live in the land whither ye go over the Jordan to possess it.
+and that their children, who have not known, may hear, and learn to fear Yahweh your God, as long as you live in the land where you go over the Jordan to possess it."

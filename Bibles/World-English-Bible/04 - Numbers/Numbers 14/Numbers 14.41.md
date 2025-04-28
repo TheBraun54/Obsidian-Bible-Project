@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, Wherefore now do ye transgress the commandment of Jehovah, seeing it shall not prosper?
+Moses said, "Why now do you disobey the commandment of Yahweh, since it shall not prosper?

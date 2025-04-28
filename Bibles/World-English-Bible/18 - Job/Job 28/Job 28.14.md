@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The deep saith, It is not in me; And the sea saith, It is not with me.
+The deep says, 'It isn't in me.' The sea says, 'It isn't with me.'

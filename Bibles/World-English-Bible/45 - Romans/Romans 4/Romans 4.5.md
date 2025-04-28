@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to him that worketh not, but believeth on him that justifieth the ungodly, his faith is reckoned for righteousness.
+But to him who doesn't work, but believes in him who justifies the ungodly, his faith is accounted for righteousness.

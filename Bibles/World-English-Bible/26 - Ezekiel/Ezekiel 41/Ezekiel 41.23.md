@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the temple and the sanctuary had two doors.
+The temple and the sanctuary had two doors.

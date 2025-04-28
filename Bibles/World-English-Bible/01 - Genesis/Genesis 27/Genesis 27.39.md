@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac his father answered and said unto him, Behold, of the fatness of the earth shall be thy dwelling, And of the dew of heaven from above;
+Isaac his father answered him, "Behold, of the fatness of the earth will be your dwelling, and of the dew of the sky from above.

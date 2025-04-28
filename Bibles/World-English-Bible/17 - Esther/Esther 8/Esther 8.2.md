@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king took off his ring, which he had taken from Haman, and gave it unto Mordecai. And Esther set Mordecai over the house of Haman.
+The king took off his ring, which he had taken from Haman, and gave it to Mordecai. Esther set Mordecai over the house of Haman.

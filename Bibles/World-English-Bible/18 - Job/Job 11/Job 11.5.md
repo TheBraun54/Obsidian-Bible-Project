@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But oh that God would speak, And open his lips against thee,
+But oh that God would speak, and open his lips against you,

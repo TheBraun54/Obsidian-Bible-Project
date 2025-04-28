@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt behold the affliction of [my] habitation, in all the wealth which [God] shall give Israel; and there shall not be an old man in thy house for ever.
+You shall see the affliction of [my] habitation, in all the wealth which [God] shall give Israel; and there shall not be an old man in your house forever.

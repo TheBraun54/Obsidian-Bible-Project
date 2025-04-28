@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Saul that David was come to Keilah. And Saul said, God hath delivered him into my hand; for he is shut in, by entering into a town that hath gates and bars.
+It was told Saul that David had come to Keilah. Saul said, "God has delivered him into my hand; for he is shut in, by entering into a town that has gates and bars."

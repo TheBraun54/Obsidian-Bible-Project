@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and have cast lots for my people, and have given a boy for a harlot, and sold a girl for wine, that they may drink.
+and have cast lots for my people, and have given a boy for a prostitute, and sold a girl for wine, that they may drink.

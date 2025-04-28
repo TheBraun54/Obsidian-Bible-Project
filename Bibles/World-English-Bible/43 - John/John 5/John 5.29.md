@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall come forth; they that have done good, unto the resurrection of life; and they that have done evil, unto the resurrection of judgment.
+and will come out; those who have done good, to the resurrection of life; and those who have done evil, to the resurrection of judgment.

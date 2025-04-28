@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See with how large letters I write unto you with mine own hand.
+See with what large letters I write to you with my own hand.

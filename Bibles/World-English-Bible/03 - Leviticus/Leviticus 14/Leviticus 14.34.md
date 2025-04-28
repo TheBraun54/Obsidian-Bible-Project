@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When ye are come into the land of Canaan, which I give to you for a possession, and I put the plague of leprosy in a house of the land of your possession;
+"When you have come into the land of Canaan, which I give to you for a possession, and I put a spreading mildew in a house in the land of your possession,

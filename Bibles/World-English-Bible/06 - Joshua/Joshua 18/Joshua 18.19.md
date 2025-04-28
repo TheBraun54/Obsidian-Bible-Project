@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border passed along to the side of Beth-hoglah northward; and the goings out of the border were at the north bay of the Salt Sea, at the south end of the Jordan: this was the south border.
+The border passed along to the side of Beth Hoglah northward; and the border ended at the north bay of the Salt Sea, at the south end of the Jordan. This was the south border.

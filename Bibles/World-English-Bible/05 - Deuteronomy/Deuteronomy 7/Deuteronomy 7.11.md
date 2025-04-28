@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt therefore keep the commandment, and the statutes, and the ordinances, which I command thee this day, to do them.
+You shall therefore keep the commandment, and the statutes, and the ordinances, which I command you this day, to do them.

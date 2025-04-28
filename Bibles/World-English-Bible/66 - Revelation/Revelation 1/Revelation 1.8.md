@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the Alpha and the Omega, saith the Lord God, who is and who was and who is to come, the Almighty.
+"I am the Alpha and the Omega," says the Lord God, "who is and who was and who is to come, the Almighty."

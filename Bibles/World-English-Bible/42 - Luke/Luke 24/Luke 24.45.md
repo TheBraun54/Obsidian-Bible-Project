@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then opened he their mind, that they might understand the scriptures;
+Then he opened their minds, that they might understand the Scriptures.

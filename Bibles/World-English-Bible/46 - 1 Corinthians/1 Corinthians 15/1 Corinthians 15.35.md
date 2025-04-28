@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But some one will say, How are the dead raised? and with what manner of body do they come?
+But someone will say, "How are the dead raised?" and, "With what kind of body do they come?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou afflicted, tossed with tempest, and not comforted, behold, I will set thy stones in fair colors, and lay thy foundations with sapphires.
+"You afflicted, tossed with storms, and not comforted, behold, I will set your stones in beautiful colors, and lay your foundations with sapphires.

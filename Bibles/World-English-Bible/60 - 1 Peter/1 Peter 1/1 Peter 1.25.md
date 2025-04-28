@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the word of the Lord abideth for ever. And this is the word of good tidings which was preached unto you.
+but the Lord's word endures forever." This is the word of Good News which was preached to you.

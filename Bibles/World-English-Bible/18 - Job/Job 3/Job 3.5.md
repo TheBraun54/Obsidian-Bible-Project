@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let darkness and the shadow of death claim it for their own; Let a cloud dwell upon it; Let all that maketh black the day terrify it.
+Let darkness and the shadow of death claim it for their own. Let a cloud dwell on it. Let all that makes black the day terrify it.

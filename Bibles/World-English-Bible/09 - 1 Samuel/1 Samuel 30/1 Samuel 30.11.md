@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they found an Egyptian in the field, and brought him to David, and gave him bread, and he did eat; and they gave him water to drink.
+They found an Egyptian in the field, and brought him to David, and gave him bread, and he ate; and they gave him water to drink.

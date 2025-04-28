@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye search the scriptures, because ye think that in them ye have eternal life; and these are they which bear witness of me;
+"You search the Scriptures, because you think that in them you have eternal life; and these are they which testify about me.

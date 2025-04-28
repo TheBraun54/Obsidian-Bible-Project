@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea and thou, child, shalt be called the prophet of the Most High: For thou shalt go before the face of the Lord to make ready his ways;
+And you, child, will be called a prophet of the Most High, for you will go before the face of the Lord to prepare his ways,

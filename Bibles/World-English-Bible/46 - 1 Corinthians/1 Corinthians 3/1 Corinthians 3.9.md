@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we are God's fellow-workers: ye are God's husbandry, God's building.
+For we are God's fellow workers. You are God's farming, God's building.

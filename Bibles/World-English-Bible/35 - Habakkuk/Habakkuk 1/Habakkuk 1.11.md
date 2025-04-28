@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall he sweep by [as] a wind, and shall pass over, and be guilty, [even] he whose might is his god.
+Then he sweeps by like the wind, and goes on. He is indeed guilty, whose strength is his god."

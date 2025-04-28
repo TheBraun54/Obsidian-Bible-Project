@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be no curse any more: and the throne of God and of the Lamb shall be therein: and his servants shall serve him;
+There will be no curse any more. The throne of God and of the Lamb will be in it, and his servants serve him.

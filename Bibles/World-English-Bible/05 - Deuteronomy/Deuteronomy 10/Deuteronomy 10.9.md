@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Levi hath no portion nor inheritance with his brethren; Jehovah is his inheritance, according as Jehovah thy God spake unto him.)
+Therefore Levi has no portion nor inheritance with his brothers; Yahweh is his inheritance, according as Yahweh your God spoke to him.)

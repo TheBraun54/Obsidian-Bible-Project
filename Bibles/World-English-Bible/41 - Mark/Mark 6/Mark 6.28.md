@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and brought his head on a platter, and gave it to the damsel; and the damsel gave it to her mother.
+and brought his head on a platter, and gave it to the young lady; and the young lady gave it to her mother.

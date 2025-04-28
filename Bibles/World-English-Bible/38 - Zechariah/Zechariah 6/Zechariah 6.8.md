@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then cried he to me, and spake unto me, saying, Behold, they that go toward the north country have quieted my spirit in the north country.
+Then he called to me, and spoke to me, saying, "Behold, those who go toward the north country have quieted my spirit in the north country."

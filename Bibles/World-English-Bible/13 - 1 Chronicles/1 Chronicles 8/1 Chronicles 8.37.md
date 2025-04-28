@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moza begat Binea; Raphah was his son, Eleasah his son, Azel his son.
+Moza became the father of Binea; Raphah was his son, Eleasah his son, Azel his son.

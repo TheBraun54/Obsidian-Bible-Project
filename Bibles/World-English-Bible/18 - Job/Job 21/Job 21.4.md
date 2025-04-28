@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for me, is my complaint to man? And why should I not be impatient?
+As for me, is my complaint to man? Why shouldn't I be impatient?

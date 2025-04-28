@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as it is written, There is none righteous, no, not one;
+As it is written, "There is no one righteous; no, not one.

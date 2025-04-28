@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were astonished exceedingly, saying unto him, Then who can be saved?
+They were exceedingly astonished, saying to him, "Then who can be saved?"

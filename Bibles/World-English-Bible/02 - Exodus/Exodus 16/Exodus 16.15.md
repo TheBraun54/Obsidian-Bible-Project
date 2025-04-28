@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the children of Israel saw it, they said one to another, What is it? for they knew not what it was. And Moses said unto them, It is the bread which Jehovah hath given you to eat.
+When the children of Israel saw it, they said one to another, "What is it?" For they didn't know what it was. Moses said to them, "It is the bread which Yahweh has given you to eat."

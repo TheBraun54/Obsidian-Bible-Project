@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall have one manner of law, as well for the sojourner, as for the home-born: for I am Jehovah your God.
+You shall have one kind of law, for the foreigner as well as the native-born: for I am Yahweh your God.'"

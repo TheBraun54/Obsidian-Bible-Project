@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye know that even when he afterward desired to inherit the blessing, he was rejected; for he found no place for a change of mind [in his father], though he sought it diligently with tears.
+For you know that even when he afterward desired to inherit the blessing, he was rejected, for he found no place for a change of mind though he sought it diligently with tears.

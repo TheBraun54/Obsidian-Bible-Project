@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, when thou art made desolate, what wilt thou do? Though thou clothest thyself with scarlet, though thou deckest thee with ornaments of gold, though thou enlargest thine eyes with paint, in vain dost thou make thyself fair; [thy] lovers despise thee, they seek thy life.
+You, when you are made desolate, what will you do? Though you clothe yourself with scarlet, though you deck you with ornaments of gold, though you enlarge your eyes with paint, in vain do you make yourself beautiful; [your] lovers despise you, they seek your life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the wicked rise, men hide themselves; But when they perish, the righteous increase.
+When the wicked rise, men hide themselves; but when they perish, the righteous thrive.

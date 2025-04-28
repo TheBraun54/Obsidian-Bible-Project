@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Caleb the son of Jephunneh he gave a portion among the children of Judah, according to the commandment of Jehovah to Joshua, even Kiriath-arba, [which Arba was] the father of Anak (the same is Hebron).
+To Caleb the son of Jephunneh he gave a portion among the children of Judah, according to the commandment of Yahweh to Joshua, even Kiriath Arba, named after the father of Anak (the same is Hebron).

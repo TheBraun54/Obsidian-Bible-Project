@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if I say thus unto the boy, Behold, the arrows are beyond thee; go thy way; for Jehovah hath sent thee away.
+But if I say this to the boy, 'Behold, the arrows are beyond you;' then go your way; for Yahweh has sent you away.

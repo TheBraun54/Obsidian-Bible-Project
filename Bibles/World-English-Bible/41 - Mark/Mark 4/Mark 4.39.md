@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he awoke, and rebuked the wind, and said unto the sea, Peace, be still. And the wind ceased, and there was a great calm.
+He awoke, and rebuked the wind, and said to the sea, "Peace! Be still!" The wind ceased, and there was a great calm.

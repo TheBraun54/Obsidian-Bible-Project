@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua the son of Nun sent out of Shittim two men as spies secretly, saying, Go, view the land, and Jericho. And they went and came into the house of a harlot whose name was Rahab, and lay there.
+Joshua the son of Nun secretly sent two men out of Shittim as spies, saying, "Go, view the land, including Jericho." They went and came into the house of a prostitute whose name was Rahab, and slept there.

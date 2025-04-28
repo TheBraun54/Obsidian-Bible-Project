@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will run the way of thy commandments, When thou shalt enlarge my heart.
+I run in the path of your commandments, for you have set my heart free. HEY

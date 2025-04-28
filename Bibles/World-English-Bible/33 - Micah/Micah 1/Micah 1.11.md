@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pass away, O inhabitant of Shaphir, in nakedness and shame: the inhabitant of Zaanan is not come forth; the wailing of Beth-ezel shall take from you the stay thereof.
+Pass on, inhabitant of Shaphir, in nakedness and shame. The inhabitant of Zaanan won't come out. The wailing of Beth Ezel will take from you his protection.

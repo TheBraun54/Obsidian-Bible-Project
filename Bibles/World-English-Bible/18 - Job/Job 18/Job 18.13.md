@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The members of his body shall be devoured, [Yea], the first-born of death shall devour his members.
+The members of his body shall be devoured. The firstborn of death shall devour his members.

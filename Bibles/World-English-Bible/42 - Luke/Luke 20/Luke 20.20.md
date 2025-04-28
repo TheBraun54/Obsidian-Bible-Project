@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they watched him, and sent forth spies, who feigned themselves to be righteous, that they might take hold of his speech, so as to deliver him up to the rule and to the authority of the governor.
+They watched him, and sent out spies, who pretended to be righteous, that they might trap him in something he said, so as to deliver him up to the power and authority of the governor.

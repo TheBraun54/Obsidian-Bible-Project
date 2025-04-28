@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-nor do ye take account that it is expedient for you that one man should die for the people, and that the whole nation perish not.
+nor do you consider that it is advantageous for us that one man should die for the people, and that the whole nation not perish."

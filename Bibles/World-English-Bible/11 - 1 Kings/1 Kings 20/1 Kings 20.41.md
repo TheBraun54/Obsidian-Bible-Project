@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hasted, and took the headband away from his eyes; and the king of Israel discerned him that he was of the prophets.
+He hurried, and took the headband away from his eyes; and the king of Israel recognized that he was of the prophets.

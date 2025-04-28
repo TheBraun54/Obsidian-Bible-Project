@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How trimmest thou thy way to seek love! therefore even the wicked women hast thou taught thy ways.
+How well you prepare your way to seek love! Therefore you have taught even the wicked women your ways.

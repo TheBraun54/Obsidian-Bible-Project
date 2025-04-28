@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the morrow the multitude that stood on the other side of the sea saw that there was no other boat there, save one, and that Jesus entered not with his disciples into the boat, but [that] his disciples went away alone
+On the next day, the multitude that stood on the other side of the sea saw that there was no other boat there, except the one in which his disciples had embarked, and that Jesus hadn't entered with his disciples into the boat, but his disciples had gone away alone.

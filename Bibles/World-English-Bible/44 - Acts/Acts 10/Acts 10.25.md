@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it came to pass that Peter entered, Cornelius met him, and fell down at his feet, and worshipped him.
+When it happened that Peter entered, Cornelius met him, fell down at his feet, and worshiped him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Elijah unto the people, I, even I only, am left a prophet of Jehovah; but Baal's prophets are four hundred and fifty men.
+Then Elijah said to the people, "I, even I only, am left a prophet of Yahweh; but Baal's prophets are four hundred fifty men.

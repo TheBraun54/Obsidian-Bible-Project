@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now late on the sabbath day, as it began to dawn toward the first [day] of the week, came Mary Magdalene and the other Mary to see the sepulchre.
+Now after the Sabbath, as it began to dawn on the first day of the week, Mary Magdalene and the other Mary came to see the tomb.

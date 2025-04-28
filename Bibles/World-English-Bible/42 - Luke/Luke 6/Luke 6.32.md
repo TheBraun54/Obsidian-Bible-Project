@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye love them that love you, what thank have ye? for even sinners love those that love them.
+If you love those who love you, what credit is that to you? For even sinners love those who love them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye say, How we will persecute him! And that the root of the matter is found in me;
+If you say, 'How we will persecute him!' because the root of the matter is found in me,

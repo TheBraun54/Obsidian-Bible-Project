@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will restore health unto thee, and I will heal thee of thy wounds, saith Jehovah; because they have called thee an outcast, [saying], It is Zion, whom no man seeketh after.
+For I will restore health to you, and I will heal you of your wounds, says Yahweh; because they have called you an outcast, [saying], It is Zion, whom no man seeks after.

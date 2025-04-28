@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the same Sheshbazzar, and laid the foundations of the house of God which is in Jerusalem: and since that time even until now hath it been in building, and yet it is not completed.
+Then the same Sheshbazzar came, and laid the foundations of the house of God which is in Jerusalem: and since that time even until now has it been in building, and yet it is not completed.

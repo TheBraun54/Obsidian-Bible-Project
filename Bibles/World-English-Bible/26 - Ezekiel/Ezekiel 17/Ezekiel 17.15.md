@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he rebelled against him in sending his ambassadors into Egypt, that they might give him horses and much people. Shall he prosper? shall he escape that doeth such things? shall he break the covenant, and yet escape?
+But he rebelled against him in sending his ambassadors into Egypt, that they might give him horses and many people. Shall he prosper? shall he escape who does such things? shall he break the covenant, and yet escape?

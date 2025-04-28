@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David built there an altar unto Jehovah, and offered burnt-offerings and peace-offerings, and called upon Jehovah; and he answered him from heaven by fire upon the altar of burnt-offering.
+David built an altar to Yahweh there, and offered burnt offerings and peace offerings, and called on Yahweh; and he answered him from the sky by fire on the altar of burnt offering.

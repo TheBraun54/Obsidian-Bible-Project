@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he went another way, and returned not by the way that he came to Beth-el.
+So he went another way, and didn't return by the way that he came to Bethel.

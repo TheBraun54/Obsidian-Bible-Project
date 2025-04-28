@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any man obeyeth not our word by this epistle, note that man, that ye have no company with him, to the end that he may be ashamed.
+If any man doesn't obey our word in this letter, note that man, that you have no company with him, to the end that he may be ashamed.

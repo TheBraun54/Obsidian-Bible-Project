@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had made an end of offering, the king and all that were present with him bowed themselves and worshipped.
+When they had made an end of offering, the king and all who were present with him bowed themselves and worshiped.

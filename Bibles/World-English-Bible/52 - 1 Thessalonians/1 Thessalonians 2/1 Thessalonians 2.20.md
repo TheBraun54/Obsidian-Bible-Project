@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye are our glory and our joy.
+For you are our glory and our joy.

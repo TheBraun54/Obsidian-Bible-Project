@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah came to Jeremiah, saying,
+The word of Yahweh came to Jeremiah, saying,

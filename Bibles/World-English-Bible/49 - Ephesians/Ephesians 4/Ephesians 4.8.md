@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore he saith, When he ascended on high, he led captivity captive, And gave gifts unto men.
+Therefore he says, "When he ascended on high, he led captivity captive, and gave gifts to men."

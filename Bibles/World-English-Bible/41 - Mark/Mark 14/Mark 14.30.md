@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus saith unto him, Verily I say unto thee, that thou to-day, [even] this night, before the cock crow twice, shalt deny me thrice.
+Jesus said to him, "Most certainly I tell you, that you today, even this night, before the rooster crows twice, you will deny me three times."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he knocked at the door of the gate, a maid came to answer, named Rhoda.
+When Peter knocked at the door of the gate, a maid named Rhoda came to answer.

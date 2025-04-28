@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the men of my tent have not said, Who can find one that hath not been filled with his meat?
+if the men of my tent have not said, 'Who can find one who has not been filled with his meat?'

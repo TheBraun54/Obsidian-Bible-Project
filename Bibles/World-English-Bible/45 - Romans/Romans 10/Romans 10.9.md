@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because if thou shalt confess with thy mouth Jesus [as] Lord, and shalt believe in thy heart that God raised him from the dead, thou shalt be saved:
+that if you will confess with your mouth that Jesus is Lord, and believe in your heart that God raised him from the dead, you will be saved.

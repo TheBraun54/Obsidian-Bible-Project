@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But, O Jehovah of hosts, that triest the righteous, that seest the heart and the mind, let me see thy vengeance on them; for unto thee have I revealed my cause.
+But, Yahweh of Armies, who tests the righteous, who sees the heart and the mind, let me see your vengeance on them; for to you have I revealed my cause.

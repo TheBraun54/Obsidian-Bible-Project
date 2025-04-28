@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she doted upon their paramours, whose flesh is as the flesh of asses, and whose issue is like the issue of horses.
+She doted on their paramours, whose flesh is as the flesh of donkeys, and whose issue is like the issue of horses.

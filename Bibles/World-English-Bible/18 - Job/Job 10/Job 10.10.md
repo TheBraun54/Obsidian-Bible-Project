@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou not poured me out as milk, And curdled me like cheese?
+Haven't you poured me out like milk, and curdled me like cheese?

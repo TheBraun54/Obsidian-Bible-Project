@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now will I uncover her lewdness in the sight of her lovers, and none shall deliver her out of my hand.
+Now I will uncover her lewdness in the sight of her lovers, and no one will deliver her out of my hand.

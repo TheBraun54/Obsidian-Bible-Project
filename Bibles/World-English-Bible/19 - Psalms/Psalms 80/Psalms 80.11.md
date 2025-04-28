@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It sent out its branches unto the sea, And its shoots unto the River.
+It sent out its branches to the sea, Its shoots to the River.

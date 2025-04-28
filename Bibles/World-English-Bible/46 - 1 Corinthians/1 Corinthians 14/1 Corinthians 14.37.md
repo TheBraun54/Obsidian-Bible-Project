@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man thinketh himself to be a prophet, or spiritual, let him take knowledge of the things which I write unto you, that they are the commandment of the Lord.
+If any man thinks himself to be a prophet, or spiritual, let him recognize the things which I write to you, that they are the commandment of the Lord.

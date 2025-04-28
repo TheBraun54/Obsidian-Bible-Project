@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many are my persecutors and mine adversaries; [Yet] have I not swerved from thy testimonies.
+Many are my persecutors and my adversaries. I haven't swerved from your testimonies.

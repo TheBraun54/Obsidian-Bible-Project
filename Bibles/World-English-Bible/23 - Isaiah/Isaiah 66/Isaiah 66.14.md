@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall see [it], and your heart shall rejoice, and your bones shall flourish like the tender grass: and the hand of Jehovah shall be known toward his servants; and he will have indignation against his enemies.
+You will see [it], and your heart shall rejoice, and your bones shall flourish like the tender grass: and the hand of Yahweh shall be known toward his servants; and he will have indignation against his enemies.

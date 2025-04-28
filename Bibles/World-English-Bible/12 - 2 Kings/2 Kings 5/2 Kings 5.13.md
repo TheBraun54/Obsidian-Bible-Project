@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his servants came near, and spake unto him, and said, My father, if the prophet had bid thee do some great thing, wouldest thou not have done it? how much rather then, when he saith to thee, Wash, and be clean?
+His servants came near, and spoke to him, and said, "My father, if the prophet had asked you do some great thing, wouldn't you have done it? How much rather then, when he says to you, 'Wash, and be clean?'"

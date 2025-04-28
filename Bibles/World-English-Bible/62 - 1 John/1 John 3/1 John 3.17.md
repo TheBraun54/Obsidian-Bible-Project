@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But whoso hath the world's goods, and beholdeth his brother in need, and shutteth up his compassion from him, how doth the love of God abide in him?
+But whoever has the world's goods, and sees his brother in need, and closes his heart of compassion against him, how does the love of God remain in him?

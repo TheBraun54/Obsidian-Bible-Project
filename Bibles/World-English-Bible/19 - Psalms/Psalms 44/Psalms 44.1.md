@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. [A Psalm] of the sons of Korah. Maschil]. We have heard with our ears, O God, Our fathers have told us, What work thou didst in their days, In the days of old.
+We have heard with our ears, God; our fathers have told us, what work you did in their days, in the days of old.

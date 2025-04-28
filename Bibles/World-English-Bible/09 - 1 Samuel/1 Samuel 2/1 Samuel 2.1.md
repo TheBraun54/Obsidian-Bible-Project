@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hannah prayed, and said: My heart exulteth in Jehovah; My horn is exalted in Jehovah; My mouth is enlarged over mine enemies; Because I rejoice in thy salvation.
+Hannah prayed, and said: "My heart exults in Yahweh! My horn is exalted in Yahweh. My mouth is enlarged over my enemies, because I rejoice in your salvation.

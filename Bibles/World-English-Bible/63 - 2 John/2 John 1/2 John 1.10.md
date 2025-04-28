@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any one cometh unto you, and bringeth not this teaching, receive him not into [your] house, and give him no greeting:
+If anyone comes to you, and doesn't bring this teaching, don't receive him into your house, and don't welcome him,

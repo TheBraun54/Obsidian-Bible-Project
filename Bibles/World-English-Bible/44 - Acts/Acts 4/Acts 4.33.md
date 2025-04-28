@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with great power gave the apostles their witness of the resurrection of the Lord Jesus: and great grace was upon them all.
+With great power, the apostles gave their testimony of the resurrection of the Lord Jesus. Great grace was on them all.

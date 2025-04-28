@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, attend unto my wisdom; Incline thine ear to my understanding:
+My son, pay attention to my wisdom. Turn your ear to my understanding:

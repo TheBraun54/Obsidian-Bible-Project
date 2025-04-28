@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall I testify unto thee? what shall I liken to thee, O daughter of Jerusalem? What shall I compare to thee, that I may comfort thee, O virgin daughter of Zion? For thy breach is great like the sea: who can heal thee?
+What shall I testify to you? what shall I liken to you, daughter of Jerusalem? What shall I compare to you, that I may comfort you, virgin daughter of Zion? For your breach is great like the sea: who can heal you?

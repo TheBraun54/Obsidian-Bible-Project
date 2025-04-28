@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy brother be waxed poor, and his hand fail with thee; then thou shalt uphold him: [as] a stranger and a sojourner shall he live with thee.
+"'If your brother has become poor, and his hand can't support him among you; then you shall uphold him. He shall live with you like an alien and a temporary resident.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Continue stedfastly in prayer, watching therein with thanksgiving;
+Continue steadfastly in prayer, watching therein with thanksgiving;

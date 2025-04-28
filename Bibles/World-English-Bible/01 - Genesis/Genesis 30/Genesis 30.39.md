@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the flocks conceived before the rods, and the flocks brought forth ringstreaked, speckled, and spotted.
+The flocks conceived before the rods, and the flocks brought forth streaked, speckled, and spotted.

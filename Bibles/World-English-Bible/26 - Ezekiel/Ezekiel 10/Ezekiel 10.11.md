@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they went, they went in their four directions: they turned not as they went, but to the place whither the head looked they followed it; they turned not as they went.
+When they went, they went in their four directions: they didn't turn as they went, but to the place where the head looked they followed it; they didn't turn as they went.

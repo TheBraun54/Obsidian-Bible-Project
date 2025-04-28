@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if we are faithless, he abideth faithful; for he cannot deny himself.
+If we are faithless, he remains faithful. He can't deny himself."

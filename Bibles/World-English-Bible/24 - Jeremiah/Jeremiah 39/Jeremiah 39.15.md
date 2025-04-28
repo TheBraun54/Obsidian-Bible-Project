@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the word of Jehovah came unto Jeremiah, while he was shut up in the court of the guard, saying,
+Now the word of Yahweh came to Jeremiah, while he was shut up in the court of the guard, saying,

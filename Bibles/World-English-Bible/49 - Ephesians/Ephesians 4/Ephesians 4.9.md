@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Now this, He ascended, what is it but that he also descended into the lower parts of the earth?
+Now this, "He ascended," what is it but that he also first descended into the lower parts of the earth?

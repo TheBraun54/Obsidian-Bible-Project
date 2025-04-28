@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt be hid from the scourge of the tongue; Neither shalt thou be afraid of destruction when it cometh.
+You shall be hidden from the scourge of the tongue, neither shall you be afraid of destruction when it comes.

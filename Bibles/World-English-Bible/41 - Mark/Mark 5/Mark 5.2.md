@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come out of the boat, straightway there met him out of the tombs a man with an unclean spirit,
+When he had come out of the boat, immediately a man with an unclean spirit met him out of the tombs.

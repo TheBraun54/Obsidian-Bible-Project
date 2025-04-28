@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it came to pass, when the judge was dead, that they turned back, and dealt more corruptly than their fathers, in following other gods to serve them, and to bow down unto them; they ceased not from their doings, nor from their stubborn way.
+But it happened, when the judge was dead, that they turned back, and dealt more corruptly than their fathers, in following other gods to serve them, and to bow down to them; they didn't cease from their doings, nor from their stubborn way.

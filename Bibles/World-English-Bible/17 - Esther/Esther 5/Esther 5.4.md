@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esther said, If it seem good unto the king, let the king and Haman come this day unto the banquet that I have prepared for him.
+Esther said, "If it seems good to the king, let the king and Haman come today to the banquet that I have prepared for him."

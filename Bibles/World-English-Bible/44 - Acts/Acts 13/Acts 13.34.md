@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as concerning that he raised him up from the dead, now no more to return to corruption, he hath spoken on this wise, I will give you the holy and sure [blessings] of David.
+"Concerning that he raised him up from the dead, now no more to return to corruption, he has spoken thus: 'I will give you the holy and sure blessings of David.'

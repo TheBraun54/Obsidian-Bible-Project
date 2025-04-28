@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-there went in two and two unto Noah into the ark, male and female, as God commanded Noah.
+went by pairs to Noah into the ship, male and female, as God commanded Noah.

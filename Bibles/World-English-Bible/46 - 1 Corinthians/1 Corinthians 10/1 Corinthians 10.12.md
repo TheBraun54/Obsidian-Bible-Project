@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore let him that thinketh he standeth take heed lest he fall.
+Therefore let him who thinks he stands be careful that he doesn't fall.

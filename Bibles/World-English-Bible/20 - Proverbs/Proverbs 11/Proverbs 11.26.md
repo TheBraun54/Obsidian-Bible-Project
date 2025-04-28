@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that withholdeth grain, the people shall curse him; But blessing shall be upon the head of him that selleth it.
+People curse someone who withholds grain, but blessing will be on the head of him who sells it.

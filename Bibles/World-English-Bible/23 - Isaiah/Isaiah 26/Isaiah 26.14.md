@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[They are] dead, they shall not live; [they are] deceased, they shall not rise: therefore hast thou visited and destroyed them, and made all remembrance of them to perish.
+The dead shall not live. The deceased shall not rise. Therefore have you visited and destroyed them, and caused all memory of them to perish.

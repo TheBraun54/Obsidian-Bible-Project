@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lifted up his face to the window, and said, Who is on my side? who? And there looked out to him two or three eunuchs.
+He lifted up his face to the window, and said, "Who is on my side? Who?" Two or three eunuchs looked out at him.

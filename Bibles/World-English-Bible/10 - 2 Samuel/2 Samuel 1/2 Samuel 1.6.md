@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the young man that told him said, As I happened by chance upon mount Gilboa, behold, Saul was leaning upon his spear; and, lo, the chariots and the horsemen followed hard after him.
+The young man who told him said, "As I happened by chance on Mount Gilboa, behold, Saul was leaning on his spear; and behold, the chariots and the horsemen followed hard after him.

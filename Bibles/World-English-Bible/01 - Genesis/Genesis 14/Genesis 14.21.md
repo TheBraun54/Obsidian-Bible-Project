@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Sodom said unto Abram, Give me the persons, and take the goods to thyself.
+The king of Sodom said to Abram, "Give me the people, and take the goods to yourself."

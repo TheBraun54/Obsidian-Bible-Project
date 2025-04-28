@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when her masters saw that the hope of their gain was gone, they laid hold on Paul and Silas, and dragged them into the marketplace before the rulers,
+But when her masters saw that the hope of their gain was gone, they seized Paul and Silas, and dragged them into the marketplace before the rulers.

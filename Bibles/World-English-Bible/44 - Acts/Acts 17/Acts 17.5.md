@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Jews, being moved with jealousy, took unto them certain vile fellows of the rabble, and gathering a crowd, set the city on an uproar; and assaulting the house of Jason, they sought to bring them forth to the people.
+But the unpersuaded Jews took along some wicked men from the marketplace, and gathering a crowd, set the city in an uproar. Assaulting the house of Jason, they sought to bring them out to the people.

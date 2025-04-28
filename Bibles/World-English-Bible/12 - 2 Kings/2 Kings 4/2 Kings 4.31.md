@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gehazi passed on before them, and laid the staff upon the face of the child; but there was neither voice, nor hearing. Wherefore he returned to meet him, and told him, saying, The child is not awaked.
+Gehazi passed on before them, and laid the staff on the face of the child; but there was neither voice, nor hearing. Therefore he returned to meet him, and told him, saying, "The child has not awakened."

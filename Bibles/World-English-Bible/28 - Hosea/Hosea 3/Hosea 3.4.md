@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the children of Israel shall abide many days without king, and without prince, and without sacrifice, and without pillar, and without ephod or teraphim:
+For the children of Israel shall live many days without king, and without prince, and without sacrifice, and without sacred stone, and without ephod or idols.

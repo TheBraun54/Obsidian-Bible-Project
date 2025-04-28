@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah redeemeth the soul of his servants; And none of them that take refuge in him shall be condemned.
+Yahweh redeems the soul of his servants. None of those who take refuge in him shall be condemned. By David.

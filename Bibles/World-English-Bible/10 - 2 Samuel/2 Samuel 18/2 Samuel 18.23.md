@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But come what may, [said he], I will run. And he said unto him, Run. Then Ahimaaz ran by the way of the Plain, and outran the Cushite.
+"But come what may," he said, "I will run." He said to him, "Run!" Then Ahimaaz ran by the way of the Plain, and outran the Cushite.

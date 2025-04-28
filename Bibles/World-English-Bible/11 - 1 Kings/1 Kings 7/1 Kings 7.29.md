@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and on the panels that were between the ledges were lions, oxen, and cherubim; and upon the ledges there was a pedestal above; and beneath the lions and oxen were wreaths of hanging work.
+and on the panels that were between the ledges were lions, oxen, and cherubim; and on the ledges there was a pedestal above; and beneath the lions and oxen were wreaths of hanging work.

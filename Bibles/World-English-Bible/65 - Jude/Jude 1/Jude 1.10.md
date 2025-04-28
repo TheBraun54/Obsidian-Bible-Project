@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But these rail at whatsoever things they know not: and what they understand naturally, like the creatures without reason, in these things are they destroyed.
+But these speak evil of whatever things they don't know. What they understand naturally, like the creatures without reason, they are destroyed in these things.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came thither to the hill, behold, a band of prophets met him; and the Spirit of God came mightily upon him, and he prophesied among them.
+When they came there to the hill, behold, a band of prophets met him; and the Spirit of God came mightily on him, and he prophesied among them.

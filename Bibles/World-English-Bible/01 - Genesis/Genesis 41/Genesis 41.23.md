@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and, behold, seven ears, withered, thin, [and] blasted with the east wind, sprung up after them:
+and behold, seven heads of grain, withered, thin, and blasted with the east wind, sprung up after them.

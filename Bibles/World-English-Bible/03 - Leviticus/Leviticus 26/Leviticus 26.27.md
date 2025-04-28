@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye will not for all this hearken unto me, but walk contrary unto me;
+"'If you in spite of this won't listen to me, but walk contrary to me;

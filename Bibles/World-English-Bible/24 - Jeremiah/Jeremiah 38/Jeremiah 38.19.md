@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zedekiah the king said unto Jeremiah, I am afraid of the Jews that are fallen away to the Chaldeans, lest they deliver me into their hand, and they mock me.
+Zedekiah the king said to Jeremiah, I am afraid of the Jews who are fallen away to the Chaldeans, lest they deliver me into their hand, and they mock me.

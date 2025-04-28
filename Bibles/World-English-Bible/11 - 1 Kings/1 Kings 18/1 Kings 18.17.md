@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Ahab saw Elijah, that Ahab said unto him, Is it thou, thou troubler of Israel?
+It happened, when Ahab saw Elijah, that Ahab said to him, "Is that you, you troubler of Israel?"

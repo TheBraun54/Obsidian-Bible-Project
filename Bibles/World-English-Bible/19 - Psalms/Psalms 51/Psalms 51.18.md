@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do good in thy good pleasure unto Zion: Build thou the walls of Jerusalem.
+Do well in your good pleasure to Zion. Build the walls of Jerusalem.

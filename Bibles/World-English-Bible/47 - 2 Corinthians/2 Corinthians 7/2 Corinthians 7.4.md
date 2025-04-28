@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Great is my boldness of speech toward you, great is my glorying on your behalf: I am filled with comfort, I overflow with joy in all our affliction.
+Great is my boldness of speech toward you. Great is my boasting on your behalf. I am filled with comfort. I overflow with joy in all our affliction.

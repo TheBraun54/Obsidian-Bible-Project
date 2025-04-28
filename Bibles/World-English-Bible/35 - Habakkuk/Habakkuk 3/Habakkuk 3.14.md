@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst pierce with his own staves the head of his warriors: They came as a whirlwind to scatter me; Their rejoicing was as to devour the poor secretly.
+You pierced the heads of his warriors with their own spears. They came as a whirlwind to scatter me, gloating as if to devour the wretched in secret.

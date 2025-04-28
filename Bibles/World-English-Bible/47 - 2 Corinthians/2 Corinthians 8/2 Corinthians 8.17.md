@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he accepted indeed our exhortation; but being himself very earnest, he went forth unto you of his own accord.
+For he indeed accepted our exhortation, but being himself very earnest, he went out to you of his own accord.

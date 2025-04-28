@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As one that bindeth a stone in a sling, So is he that giveth honor to a fool.
+As one who binds a stone in a sling, so is he who gives honor to a fool.

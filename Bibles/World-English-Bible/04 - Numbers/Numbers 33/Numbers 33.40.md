@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Canaanite, the king of Arad, who dwelt in the South in the land of Canaan, heard of the coming of the children of Israel.
+The Canaanite, the king of Arad, who lived in the South in the land of Canaan, heard of the coming of the children of Israel.

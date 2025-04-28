@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For his lovingkindness is great toward us; And the truth of Jehovah [endureth] for ever. Praise ye Jehovah.
+For his loving kindness is great toward us. Yahweh's faithfulness endures forever. Praise Yah!

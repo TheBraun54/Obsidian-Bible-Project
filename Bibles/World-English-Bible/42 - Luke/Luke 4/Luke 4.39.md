@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stood over her, and rebuked the fever; and it left her: and immediately she rose up and ministered unto them.
+He stood over her, and rebuked the fever; and it left her. Immediately she rose up and served them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest, when thou hast eaten and art full, and hast built goodly houses, and dwelt therein;
+lest, when you have eaten and are full, and have built goodly houses, and lived therein;

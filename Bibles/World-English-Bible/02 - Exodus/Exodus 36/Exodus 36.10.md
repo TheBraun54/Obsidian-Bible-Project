@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he coupled five curtains one to another: and [the other] five curtains he coupled one to another.
+He coupled five curtains to one another, and the other five curtains he coupled one to another.

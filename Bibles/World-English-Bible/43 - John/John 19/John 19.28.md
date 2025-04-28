@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this Jesus, knowing that all things are now finished, that the scripture might be accomplished, saith, I thirst.
+After this, Jesus, seeing that all things were now finished, that the Scripture might be fulfilled, said, "I am thirsty."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We are bound to give thanks to God always for you, brethren, even as it is meet, for that your faith groweth exceedingly, and the love of each one of you all toward one another aboundeth;
+We are bound to always give thanks to God for you, brothers, even as it is appropriate, because your faith grows exceedingly, and the love of each and every one of you towards one another abounds;

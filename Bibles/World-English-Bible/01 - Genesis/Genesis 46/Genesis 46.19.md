@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Rachel Jacob's wife: Joseph and Benjamin.
+The sons of Rachel, Jacob's wife: Joseph and Benjamin.

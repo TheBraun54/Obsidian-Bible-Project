@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Ater, of Hezekiah, ninety and eight.
+The children of Ater, of Hezekiah, ninety-eight.

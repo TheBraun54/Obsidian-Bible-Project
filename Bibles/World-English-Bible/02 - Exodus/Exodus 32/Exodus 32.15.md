@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses turned, and went down from the mount, with the two tables of the testimony in his hand; tables that were written on both their sides; on the one side and on the other were they written.
+Moses turned, and went down from the mountain, with the two tablets of the testimony in his hand; tablets that were written on both their sides; on the one side and on the other they were written.

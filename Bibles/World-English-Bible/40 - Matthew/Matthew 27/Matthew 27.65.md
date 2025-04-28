@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate said unto them, Ye have a guard: go, make it [as] sure as ye can.
+Pilate said to them, "You have a guard. Go, make it as secure as you can."

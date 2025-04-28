@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for except we had lingered, surely we had now returned a second time.
+for if we hadn't delayed, surely we would have returned a second time by now."

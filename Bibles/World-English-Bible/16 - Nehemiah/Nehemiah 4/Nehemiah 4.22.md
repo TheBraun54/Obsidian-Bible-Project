@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Likewise at the same time said I unto the people, Let every one with his servant lodge within Jerusalem, that in the night they may be a guard to us, and may labor in the day.
+Likewise at the same time said I to the people, "Let everyone with his servant lodge within Jerusalem, that in the night they may be a guard to us, and may labor in the day."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, he had power over the angel, and prevailed; he wept, and made supplication unto him: he found him at Beth-el, and there he spake with us,
+Indeed, he struggled with the angel, and prevailed; he wept, and made supplication to him. He found him at Bethel, and there he spoke with us,

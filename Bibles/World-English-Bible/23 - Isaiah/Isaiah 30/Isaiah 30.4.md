@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their princes are at Zoan, and their ambassadors are come to Hanes.
+For their princes are at Zoan, and their ambassadors have come to Hanes.

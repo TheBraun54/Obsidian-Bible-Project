@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be circumcised in the flesh of your foreskin; and it shall be a token of a covenant betwixt me and you.
+You shall be circumcised in the flesh of your foreskin. It will be a token of the covenant between me and you.

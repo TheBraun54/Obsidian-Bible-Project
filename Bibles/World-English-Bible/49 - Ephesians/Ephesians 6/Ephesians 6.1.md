@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Children, obey your parents in the Lord: for this is right.
+Children, obey your parents in the Lord, for this is right.

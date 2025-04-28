@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days Hezekiah was sick even unto death: and he prayed unto Jehovah; and he spake unto him, and gave him a sign.
+In those days Hezekiah was sick even to death: and he prayed to Yahweh; and he spoke to him, and gave him a sign.

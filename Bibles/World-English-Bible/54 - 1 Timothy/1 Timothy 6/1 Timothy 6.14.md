@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou keep the commandment, without spot, without reproach, until the appearing of our Lord Jesus Christ:
+that you keep the commandment without spot, blameless, until the appearing of our Lord Jesus Christ;

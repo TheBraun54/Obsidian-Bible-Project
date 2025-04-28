@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah also shall save the tents of Judah first, that the glory of the house of David and the glory of the inhabitants of Jerusalem be not magnified above Judah.
+Yahweh also will save the tents of Judah first, that the glory of the house of David and the glory of the inhabitants of Jerusalem not be magnified above Judah.

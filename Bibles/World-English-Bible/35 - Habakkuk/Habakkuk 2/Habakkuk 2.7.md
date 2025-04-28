@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall they not rise up suddenly that shall bite thee, and awake that shall vex thee, and thou shalt be for booty unto them?
+Won't your debtors rise up suddenly, and wake up those who make you tremble, and you will be their victim?

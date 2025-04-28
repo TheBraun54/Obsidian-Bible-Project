@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Barley also and straw for the horses and swift steeds brought they unto the place where [the officers] were, every man according to his charge.
+Barley also and straw for the horses and swift steeds brought they to the place where [the officers] were, every man according to his duty.

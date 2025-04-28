@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy food which thou shalt eat shall be by weight, twenty shekels a day: from time to time shalt thou eat it.
+Your food which you shall eat shall be by weight, twenty shekels a day: from time to time you shall eat it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then went up Moses, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel:
+Then Moses, Aaron, Nadab, Abihu, and seventy of the elders of Israel went up.

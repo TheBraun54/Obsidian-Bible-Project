@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put garrisons in Edom; and all the Edomites became servants to David. And Jehovah gave victory to David whithersoever he went.
+He put garrisons in Edom; and all the Edomites became servants to David. Yahweh gave victory to David wherever he went.

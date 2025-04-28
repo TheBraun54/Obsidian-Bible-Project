@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ His] strong scales are [his] pride, Shut up together [as with] a close seal.
+Strong scales are his pride, shut up together with a close seal.

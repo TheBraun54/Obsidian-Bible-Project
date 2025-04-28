@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall bring a ram without blemish out of the flock, according to thy estimation, for a trespass-offering, unto the priest; and the priest shall make atonement for him concerning the thing wherein he erred unwittingly and knew it not, and he shall be forgiven.
+He shall bring a ram without blemish from of the flock, according to your estimation, for a trespass offering, to the priest; and the priest shall make atonement for him concerning the thing in which he sinned and didn't know it, and he will be forgiven.

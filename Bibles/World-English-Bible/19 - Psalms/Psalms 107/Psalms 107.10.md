@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Such as sat in darkness and in the shadow of death, Being bound in affliction and iron,
+Some sat in darkness and in the shadow of death, being bound in affliction and iron,

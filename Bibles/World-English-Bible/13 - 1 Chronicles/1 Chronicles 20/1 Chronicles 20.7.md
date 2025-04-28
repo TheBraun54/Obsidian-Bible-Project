@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he defied Israel, Jonathan the son of Shimea David's brother slew him.
+When he defied Israel, Jonathan the son of Shimea David's brother killed him.

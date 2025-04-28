@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make thy seed as the dust of the earth: so that if a man can number the dust of the earth, then may thy seed also be numbered.
+I will make your offspring as the dust of the earth, so that if a man can number the dust of the earth, then your seed may also be numbered.

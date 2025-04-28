@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And certain men came down from Judaea and taught the brethren, [saying], Except ye be circumcised after the custom of Moses, ye cannot be saved.
+Some men came down from Judea and taught the brothers, "Unless you are circumcised after the custom of Moses, you can't be saved."

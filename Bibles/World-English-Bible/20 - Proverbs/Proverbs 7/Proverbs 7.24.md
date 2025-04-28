@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, [my] sons, hearken unto me, And attend to the words of my mouth.
+Now therefore, sons, listen to me. Pay attention to the words of my mouth.

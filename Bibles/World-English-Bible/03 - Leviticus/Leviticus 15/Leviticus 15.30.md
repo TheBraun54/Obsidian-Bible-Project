@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall offer the one for a sin-offering, and the other for a burnt-offering; and the priest shall make atonement for her before Jehovah for the issue of her uncleanness.
+The priest shall offer the one for a sin offering, and the other for a burnt offering; and the priest shall make atonement for her before Yahweh for the uncleanness of her discharge.

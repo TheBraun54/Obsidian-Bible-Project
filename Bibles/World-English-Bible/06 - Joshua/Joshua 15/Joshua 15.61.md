@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the wilderness, Beth-arabah, Middin, and Secacah,
+In the wilderness, Beth Arabah, Middin, Secacah,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The oath which he spake unto Abraham our father,
+the oath which he spoke to Abraham, our father,

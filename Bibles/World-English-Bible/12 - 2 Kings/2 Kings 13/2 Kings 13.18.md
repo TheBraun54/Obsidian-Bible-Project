@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Take the arrows; and he took them. And he said unto the king of Israel, Smite upon the ground; and he smote thrice, and stayed.
+He said, "Take the arrows;" and he took them. He said to the king of Israel, "Strike the ground;" and he struck three times, and stopped.

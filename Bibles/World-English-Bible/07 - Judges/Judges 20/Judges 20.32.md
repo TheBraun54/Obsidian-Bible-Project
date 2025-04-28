@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Benjamin said, They are smitten down before us, as at the first. But the children of Israel said, Let us flee, and draw them away from the city unto the highways.
+The children of Benjamin said, "They are struck down before us, as at the first." But the children of Israel said, "Let us flee, and draw them away from the city to the highways."

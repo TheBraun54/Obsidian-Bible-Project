@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh spare me, that I may recover strength, Before I go hence, and be no more.
+Oh spare me, that I may recover strength, before I go away, and exist no more." For the Chief Musician. A Psalm by David.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the watchman said, I think the running of the foremost is like the running of Ahimaaz the son of Zadok. And the king said, He is a good man, and cometh with good tidings.
+The watchman said, "I think the running of the first one is like the running of Ahimaaz the son of Zadok." The king said, "He is a good man, and comes with good news."

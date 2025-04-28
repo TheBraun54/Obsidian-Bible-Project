@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are the workers of iniquity fallen: They are thrust down, and shall not be able to rise.
+There the workers of iniquity are fallen. They are thrust down, and shall not be able to rise. By David.

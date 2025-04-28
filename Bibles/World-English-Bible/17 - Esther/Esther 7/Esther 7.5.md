@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake the king Ahasuerus and said unto Esther the queen, Who is he, and where is he, that durst presume in his heart to do so?
+Then King Ahasuerus said to Esther the queen, "Who is he, and where is he who dared presume in his heart to do so?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thy people go out to battle against their enemies, by whatsoever way thou shalt send them, and they pray unto thee toward this city which thou hast chosen, and the house which I have built for thy name;
+"If your people go out to battle against their enemies, by whatever way you shall send them, and they pray to you toward this city which you have chosen, and the house which I have built for your name;

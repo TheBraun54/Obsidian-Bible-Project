@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How oft did they rebel against him in the wilderness, And grieve him in the desert!
+How often they rebelled against him in the wilderness, and grieved him in the desert!

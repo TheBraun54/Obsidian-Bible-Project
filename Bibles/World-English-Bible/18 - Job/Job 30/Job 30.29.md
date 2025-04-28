@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am a brother to jackals, And a companion to ostriches.
+I am a brother to jackals, and a companion to ostriches.

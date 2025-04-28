@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore command thou that they cut me cedar-trees out of Lebanon; and my servants shall be with thy servants; and I will give thee hire for thy servants according to all that thou shalt say: for thou knowest that there is not among us any that knoweth how to cut timber like unto the Sidonians.
+Now therefore command that they cut me cedar trees out of Lebanon. My servants shall be with your servants; and I will give you wages for your servants according to all that you shall say. For you know that there is not among us any who knows how to cut timber like the Sidonians."

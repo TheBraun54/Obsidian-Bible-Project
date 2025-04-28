@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute one another with a holy kiss. All the churches of Christ salute you.
+Greet one another with a holy kiss. The assemblies of Christ greet you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If then God gave unto them the like gift as [he did] also unto us, when we believed on the Lord Jesus Christ, who was I, that I could withstand God?
+If then God gave to them the same gift as us, when we believed in the Lord Jesus Christ, who was I, that I could withstand God?"

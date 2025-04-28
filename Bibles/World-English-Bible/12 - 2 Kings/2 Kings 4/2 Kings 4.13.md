@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Say now unto her, Behold, thou hast been careful for us with all this care; what is to be done for thee? wouldest thou be spoken for to the king, or to the captain of the host? And she answered, I dwell among mine own people.
+He said to him, "Say now to her, 'Behold, you have cared for us with all this care. What is to be done for you? Would you like to be spoken for to the king, or to the captain of the army?'" She answered, "I dwell among my own people."

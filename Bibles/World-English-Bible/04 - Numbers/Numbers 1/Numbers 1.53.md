@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Levites shall encamp round about the tabernacle of the testimony, that there be no wrath upon the congregation of the children of Israel: and the Levites shall keep the charge of the tabernacle of the testimony.
+But the Levites shall encamp around the Tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel: and the Levites shall be responsible for the Tabernacle of the Testimony."

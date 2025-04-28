@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did ever a people hear the voice of God speaking out of the midst of the fire, as thou hast heard, and live?
+Did ever a people hear the voice of God speaking out of the midst of the fire, as you have heard, and live?

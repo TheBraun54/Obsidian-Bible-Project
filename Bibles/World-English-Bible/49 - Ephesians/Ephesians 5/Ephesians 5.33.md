@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless do ye also severally love each one his own wife even as himself; and [let] the wife [see] that she fear her husband.
+Nevertheless each of you must also love his own wife even as himself; and let the wife see that she respects her husband.

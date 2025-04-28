@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob told Rachel that he was her father's brother, and that he was Rebekah's son: and she ran and told her father.
+Jacob told Rachel that he was her father's brother, and that he was Rebekah's son. She ran and told her father.

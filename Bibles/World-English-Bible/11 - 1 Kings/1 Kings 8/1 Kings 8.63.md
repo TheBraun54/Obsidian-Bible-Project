@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon offered for the sacrifice of peace-offerings, which he offered unto Jehovah, two and twenty thousand oxen, and a hundred and twenty thousand sheep. So the king and all the children of Israel dedicated the house of Jehovah.
+Solomon offered for the sacrifice of peace offerings, which he offered to Yahweh, two and twenty thousand head of cattle, and one hundred twenty thousand sheep. So the king and all the children of Israel dedicated the house of Yahweh.

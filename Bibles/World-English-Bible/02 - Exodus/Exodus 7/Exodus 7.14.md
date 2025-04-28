@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Pharaoh's heart is stubborn, he refuseth to let the people go.
+Yahweh said to Moses, "Pharaoh's heart is stubborn. He refuses to let the people go.

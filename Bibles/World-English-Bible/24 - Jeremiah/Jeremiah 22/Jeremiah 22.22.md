@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wind shall feed all thy shepherds, and thy lovers shall go into captivity: surely then shalt thou be ashamed and confounded for all thy wickedness.
+The wind shall feed all your shepherds, and your lovers shall go into captivity: surely then you will be ashamed and confounded for all your wickedness.

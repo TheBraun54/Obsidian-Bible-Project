@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make unto it a border of a handbreadth round about; and thou shalt make a golden crown to the border thereof round about.
+You shall make a rim of a handbreadth around it. You shall make a golden molding on its rim around it.

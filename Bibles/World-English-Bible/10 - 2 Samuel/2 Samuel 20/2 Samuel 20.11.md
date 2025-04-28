@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there stood by him one of Joab's young men, and said, He that favoreth Joab, and he that is for David, let him follow Joab.
+There stood by him one of Joab's young men, and said, "He who favors Joab, and he who is for David, let him follow Joab!"

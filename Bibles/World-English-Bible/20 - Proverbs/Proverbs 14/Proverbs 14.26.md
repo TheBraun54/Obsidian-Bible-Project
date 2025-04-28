@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the fear of Jehovah is strong confidence; And his children shall have a place of refuge.
+In the fear of Yahweh is a secure fortress, and he will be a refuge for his children.

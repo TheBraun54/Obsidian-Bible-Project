@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was casting out a demon [that was] dumb. And it came to pass, when the demon was gone out, the dumb man spake; and the multitudes marvelled.
+He was casting out a demon, and it was mute. It happened, when the demon had gone out, the mute man spoke; and the multitudes marveled.

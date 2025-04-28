@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and with them Heman and Jeduthun, and the rest that were chosen, who were mentioned by name, to give thanks to Jehovah, because his lovingkindness [endureth] for ever;
+and with them Heman and Jeduthun, and the rest who were chosen, who were mentioned by name, to give thanks to Yahweh, because his loving kindness endures forever;

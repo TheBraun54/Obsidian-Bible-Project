@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not this that in which my lord drinketh, and whereby he indeed divineth? ye have done evil in so doing.
+Isn't this that from which my lord drinks, and by which he indeed divines? You have done evil in so doing.'"

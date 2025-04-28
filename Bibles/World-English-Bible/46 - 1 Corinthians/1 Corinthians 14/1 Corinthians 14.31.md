@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye all can prophesy one by one, that all may learn, and all may be exhorted;
+For you all can prophesy one by one, that all may learn, and all may be exhorted.

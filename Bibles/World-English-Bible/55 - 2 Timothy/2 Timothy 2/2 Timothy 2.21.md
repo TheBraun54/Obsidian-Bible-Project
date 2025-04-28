@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man therefore purge himself from these, he shall be a vessel unto honor, sanctified, meet for the master's use, prepared unto every good work.
+If anyone therefore purges himself from these, he will be a vessel for honor, sanctified, and suitable for the master's use, prepared for every good work.

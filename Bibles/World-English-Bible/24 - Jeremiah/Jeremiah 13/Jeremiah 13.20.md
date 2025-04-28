@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up your eyes, and behold them that come from the north: where is the flock that was given thee, thy beautiful flock?
+Lift up your eyes, and see those who come from the north: where is the flock that was given you, your beautiful flock?

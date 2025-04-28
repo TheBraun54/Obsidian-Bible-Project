@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto my master, Peradventure the woman will not follow me.
+I asked my master, 'What if the woman will not follow me?'

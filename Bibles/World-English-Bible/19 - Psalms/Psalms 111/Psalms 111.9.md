@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath sent redemption unto his people; He hath commanded his covenant for ever: Holy and reverend is his name.
+He has sent redemption to his people. He has ordained his covenant forever. His name is holy and awesome!

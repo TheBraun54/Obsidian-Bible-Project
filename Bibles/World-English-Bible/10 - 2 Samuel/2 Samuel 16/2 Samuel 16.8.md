@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath returned upon thee all the blood of the house of Saul, in whose stead thou hast reigned; and Jehovah hath delivered the kingdom into the hand of Absalom thy son; and, behold, thou art [taken] in thine own mischief, because thou art a man of blood.
+Yahweh has returned on you all the blood of the house of Saul, in whose place you have reigned! Yahweh has delivered the kingdom into the hand of Absalom your son! Behold, you are caught by your own mischief, because you are a man of blood!"

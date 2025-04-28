@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not be afraid for the terror by night, Nor for the arrow that flieth by day;
+You shall not be afraid of the terror by night, nor of the arrow that flies by day;

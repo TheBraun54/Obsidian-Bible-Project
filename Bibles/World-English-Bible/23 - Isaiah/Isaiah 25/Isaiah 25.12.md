@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the high fortress of thy walls hath he brought down, laid low, and brought to the ground, even to the dust.
+He has brought the high fortress of your walls down, laid low, and brought to the ground, even to the dust.

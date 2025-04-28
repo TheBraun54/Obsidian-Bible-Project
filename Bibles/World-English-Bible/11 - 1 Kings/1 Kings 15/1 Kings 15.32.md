@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was war between Asa and Baasha king of Israel all their days.
+There was war between Asa and Baasha king of Israel all their days.

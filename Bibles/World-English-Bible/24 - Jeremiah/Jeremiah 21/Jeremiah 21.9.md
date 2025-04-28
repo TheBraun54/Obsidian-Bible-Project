@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that abideth in this city shall die by the sword, and by the famine, and by the pestilence; but he that goeth out, and passeth over to the Chaldeans that besiege you, he shall live, and his life shall be unto him for a prey.
+He who remains in this city shall die by the sword, and by the famine, and by the pestilence; but he who goes out, and passes over to the Chaldeans who besiege you, he shall live, and his life shall be to him for a prey.

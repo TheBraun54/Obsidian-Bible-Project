@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Sarai, Abram's wife, bare him no children: and she had a handmaid, an Egyptian, whose name was Hagar.
+Now Sarai, Abram's wife, bore him no children. She had a handmaid, an Egyptian, whose name was Hagar.

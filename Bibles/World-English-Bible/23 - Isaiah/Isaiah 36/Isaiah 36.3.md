@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came forth unto him Eliakim the son of Hilkiah, who was over the household, and Shebna the scribe, and Joah, the son of Asaph, the recorder.
+Then Eliakim the son of Hilkiah, who was over the household, and Shebna the scribe, and Joah, the son of Asaph, the recorder came out to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after the death of Abraham, that God blessed Isaac his son: and Isaac dwelt by Beer-lahai-roi.
+It happened after the death of Abraham that God blessed Isaac, his son. Isaac lived by Beer Lahai Roi.

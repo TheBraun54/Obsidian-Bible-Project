@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and his garments became glistering, exceeding white, so as no fuller on earth can whiten them.
+His clothing became glistening, exceedingly white, like snow, such as no launderer on earth can whiten them.

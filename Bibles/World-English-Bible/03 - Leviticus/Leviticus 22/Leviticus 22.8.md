@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which dieth of itself, or is torn of beasts, he shall not eat, to defile himself therewith: I am Jehovah.
+That which dies of itself, or is torn by animals, he shall not eat, defiling himself by it. I am Yahweh.

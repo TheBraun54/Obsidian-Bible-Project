@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah was put to the worse before Israel; and they fled every man to his tent.
+Judah was defeated by Israel; and they fled every man to his tent.

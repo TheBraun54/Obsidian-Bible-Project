@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Reuben, were forty and six thousand and five hundred.
+those who were numbered of them, of the tribe of Reuben, were forty-six thousand five hundred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which also they did, sending it to the elders by the hand of Barnabas and Saul.
+which they also did, sending it to the elders by the hands of Barnabas and Saul.

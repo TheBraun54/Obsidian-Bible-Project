@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Son of man, seest thou what they do? even the great abominations that the house of Israel do commit here, that I should go far off from my sanctuary? But thou shalt again see yet other great abominations.
+He said to me, Son of man, do you see what they do? even the great abominations that the house of Israel do commit here, that I should go far off from my sanctuary? But you shall again see yet other great abominations.

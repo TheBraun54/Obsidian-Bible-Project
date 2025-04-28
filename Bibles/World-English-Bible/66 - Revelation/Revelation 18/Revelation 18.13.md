@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and cinnamon, and spice, and incense, and ointment, and frankincense, and wine, and oil, and fine flour, and wheat, and cattle, and sheep; and [merchandise] of horses and chariots and [ slaves; and souls of men.
+and cinnamon, incense, perfume, frankincense, wine, olive oil, fine flour, wheat, sheep, horses, chariots, and people's bodies and souls.

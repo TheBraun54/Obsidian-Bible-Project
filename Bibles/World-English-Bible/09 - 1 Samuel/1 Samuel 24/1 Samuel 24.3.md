@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came to the sheepcotes by the way, where was a cave; and Saul went in to cover his feet. Now David and his men were abiding in the innermost parts of the cave.
+He came to the sheep pens by the way, where there was a cave; and Saul went in to relieve himself. Now David and his men were abiding in the innermost parts of the cave.

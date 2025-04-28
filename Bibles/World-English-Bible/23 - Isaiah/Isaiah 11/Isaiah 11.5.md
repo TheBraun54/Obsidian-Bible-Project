@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And righteousness shall be the girdle of his waist, and faithfulness the girdle of his loins.
+Righteousness will be the belt of his waist, and faithfulness the belt of his waist.

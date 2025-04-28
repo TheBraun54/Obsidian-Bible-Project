@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Should he reason with unprofitable talk, Or with speeches wherewith he can do no good?
+Should he reason with unprofitable talk, or with speeches with which he can do no good?

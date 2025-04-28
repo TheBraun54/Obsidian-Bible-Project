@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also cause all her mirth to cease, her feasts, her new moons, and her sabbaths, and all her solemn assemblies.
+I will also cause all her celebrations to cease: her feasts, her new moons, her Sabbaths, and all her solemn assemblies.

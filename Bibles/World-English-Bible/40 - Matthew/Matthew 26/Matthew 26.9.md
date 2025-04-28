@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this [ointment] might have been sold for much, and given to the poor.
+For this ointment might have been sold for much, and given to the poor."

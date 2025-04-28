@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered one of the young men, and said, Behold, I have seen a son of Jesse the Beth-lehemite, that is skilful in playing, and a mighty man of valor, and a man of war, and prudent in speech, and a comely person; and Jehovah is with him.
+Then one of the young men answered, and said, "Behold, I have seen a son of Jesse the Bethlehemite, who is skillful in playing, a mighty man of valor, a man of war, prudent in speech, and a comely person; and Yahweh is with him."

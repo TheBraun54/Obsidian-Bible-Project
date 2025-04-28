@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And three of the thirty chief men went down to the rock to David, into the cave of Adullam; and the host of the Philistines were encamped in the valley of Rephaim.
+Three of the thirty chief men went down to the rock to David, into the cave of Adullam; and the army of the Philistines were encamped in the valley of Rephaim.

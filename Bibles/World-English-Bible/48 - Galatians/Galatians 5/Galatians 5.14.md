@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the whole law is fulfilled in one word, [even] in this: Thou shalt love thy neighbor as thyself.
+For the whole law is fulfilled in one word, in this: "You shall love your neighbor as yourself."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-sound speech, that cannot be condemned; that he that is of the contrary part may be ashamed, having no evil thing to say of us.
+and soundness of speech that can't be condemned; that he who opposes you may be ashamed, having no evil thing to say about us.

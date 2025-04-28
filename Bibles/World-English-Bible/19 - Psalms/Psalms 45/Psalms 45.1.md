@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to Shoshannim. [A Psalm] of the sons of Korah. Maschil. A Song of loves]. My heart overfloweth with a goodly matter; I speak the things which I have made touching the king: My tongue is the pen of a ready writer.
+My heart overflows with a noble theme. I recite my verses for the king. My tongue is like the pen of a skillful writer.

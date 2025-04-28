@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto him, Because thou hast not obeyed the voice of Jehovah, behold, as soon as thou art departed from me, a lion shall slay thee. And as soon as he was departed from him, a lion found him, and slew him.
+Then he said to him, "Because you have not obeyed the voice of Yahweh, behold, as soon as you are departed from me, a lion shall kill you." As soon as he was departed from him, a lion found him, and killed him.

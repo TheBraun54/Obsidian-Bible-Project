@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab the son of Zeruiah was over the host; and Jehoshaphat the son of Ahilud was recorder;
+Joab the son of Zeruiah was over the army; and Jehoshaphat the son of Ahilud was recorder;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that their rulers and elders and scribes were gathered together in Jerusalem;
+It happened in the morning, that their rulers, elders, and scribes were gathered together in Jerusalem.

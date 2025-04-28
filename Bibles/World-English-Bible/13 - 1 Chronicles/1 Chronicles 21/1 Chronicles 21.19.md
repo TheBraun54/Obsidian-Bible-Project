@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went up at the saying of Gad, which he spake in the name of Jehovah.
+David went up at the saying of Gad, which he spoke in the name of Yahweh.

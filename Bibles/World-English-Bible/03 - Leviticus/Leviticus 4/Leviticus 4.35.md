@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the fat thereof shall he take away, as the fat of the lamb is taken away from the sacrifice of peace-offerings; and the priest shall burn them on the altar, upon the offerings of Jehovah made by fire; and the priest shall make atonement for him as touching his sin that he hath sinned, and he shall be forgiven.
+All its fat he shall take away, like the fat of the lamb is taken away from the sacrifice of peace offerings; and the priest shall burn them on the altar, on the offerings of Yahweh made by fire; and the priest shall make atonement for him concerning his sin that he has sinned, and he will be forgiven.

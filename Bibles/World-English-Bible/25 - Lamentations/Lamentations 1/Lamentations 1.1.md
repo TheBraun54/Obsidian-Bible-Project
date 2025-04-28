@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How doth the city sit solitary, that was full of people! She is become as a widow, that was great among the nations! She that was a princess among the provinces is become tributary!
+How the city sits solitary, that was full of people! She has become as a widow, who was great among the nations! She who was a princess among the provinces is become tributary!

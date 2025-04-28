@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came unto him great multitudes, having with them the lame, blind, dumb, maimed, and many others, and they cast them down at this feet; and he healed them:
+Great multitudes came to him, having with them the lame, blind, mute, maimed, and many others, and they put them down at his feet. He healed them,

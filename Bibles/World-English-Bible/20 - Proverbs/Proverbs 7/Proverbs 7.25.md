@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not thy heart decline to her ways; Go not astray in her paths.
+Don't let your heart turn to her ways. Don't go astray in her paths,

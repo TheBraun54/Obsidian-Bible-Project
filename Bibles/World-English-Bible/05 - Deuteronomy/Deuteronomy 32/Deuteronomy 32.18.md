@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the Rock that begat thee thou art unmindful, And hast forgotten God that gave thee birth.
+Of the Rock who became your father, you are unmindful, and have forgotten God who gave you birth.

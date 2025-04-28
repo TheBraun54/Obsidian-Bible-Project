@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the hand-mirrors, and the fine linen, and the turbans, and the veils.
+the hand mirrors, the fine linen garments, the tiaras, and the shawls.

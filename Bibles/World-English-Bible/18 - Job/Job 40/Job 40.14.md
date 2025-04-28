@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will I also confess of thee That thine own right hand can save thee.
+Then I will also admit to you that your own right hand can save you.

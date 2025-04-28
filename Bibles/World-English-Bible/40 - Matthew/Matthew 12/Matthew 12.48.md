@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said unto him that told him, Who is my mother? and who are my brethren?
+But he answered him who spoke to him, "Who is my mother? Who are my brothers?"

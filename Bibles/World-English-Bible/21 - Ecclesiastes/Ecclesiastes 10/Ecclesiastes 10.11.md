@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the serpent bite before it is charmed, then is there no advantage in the charmer.
+If the snake bites before it is charmed, then is there no profit for the charmer's tongue.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not ashamed therefore of the testimony of our Lord, nor of me his prisoner: but suffer hardship with the gospel according to the power of God;
+Therefore don't be ashamed of the testimony of our Lord, nor of me his prisoner; but endure hardship for the Good News according to the power of God,

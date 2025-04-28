@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt consume all the peoples that Jehovah thy God shall deliver unto thee; thine eye shall not pity them: neither shalt thou serve their gods; for that will be a snare unto thee.
+You shall consume all the peoples whom Yahweh your God shall deliver to you; your eye shall not pity them: neither shall you serve their gods; for that will be a snare to you.

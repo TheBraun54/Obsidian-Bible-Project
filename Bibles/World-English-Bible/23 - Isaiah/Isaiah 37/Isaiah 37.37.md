@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Sennacherib king of Assyria departed, and went and returned, and dwelt at Nineveh.
+So Sennacherib king of Assyria departed, went away, returned to Nineveh, and stayed there.

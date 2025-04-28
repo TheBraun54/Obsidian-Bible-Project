@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when he had spoken unto me according to these words, I set my face toward the ground, and was dumb.
+and when he had spoken to me according to these words, I set my face toward the ground, and was mute.

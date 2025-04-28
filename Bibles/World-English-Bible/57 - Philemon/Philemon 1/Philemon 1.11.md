@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who once was unprofitable to thee, but now is profitable to thee and to me:
+who once was useless to you, but now is useful to you and to me.

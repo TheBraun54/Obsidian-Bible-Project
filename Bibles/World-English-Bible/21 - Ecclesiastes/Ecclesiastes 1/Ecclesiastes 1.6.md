@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wind goeth toward the south, and turneth about unto the north; it turneth about continually in its course, and the wind returneth again to its circuits.
+The wind goes toward the south, and turns around to the north. It turns around continually as it goes, and the wind returns again to its courses.

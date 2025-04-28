@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jesse begat David the king. And David begat Solomon of her [that had been the wife] of Uriah;
+Jesse became the father of King David. David became the father of Solomon by her who had been the wife of Uriah.

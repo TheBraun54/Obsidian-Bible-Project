@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now from the time that Amaziah did turn away from following Jehovah they made a conspiracy against him in Jerusalem; and he fled to Lachish: but they sent after him to Lachish, and slew him there.
+Now from the time that Amaziah did turn away from following Yahweh they made a conspiracy against him in Jerusalem; and he fled to Lachish: but they sent after him to Lachish, and killed him there.

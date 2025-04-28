@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who in the skies can be compared unto Jehovah? Who among the sons of the mighty is like unto Jehovah,
+For who in the skies can be compared to Yahweh? Who among the sons of the heavenly beings is like Yahweh,

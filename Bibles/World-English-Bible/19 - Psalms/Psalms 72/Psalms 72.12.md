@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he will deliver the needy when he crieth, And the poor, that hath no helper.
+For he will deliver the needy when he cries; the poor, who has no helper.

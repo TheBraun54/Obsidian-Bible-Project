@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it is a rare thing that the king requireth, and there is no other that can show it before the king, except the gods, whose dwelling is not with flesh.
+It is a rare thing that the king requires, and there is no other who can show it before the king, except the gods, whose dwelling is not with flesh.

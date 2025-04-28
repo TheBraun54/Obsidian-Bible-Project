@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And served their idols, Which became a snare unto them.
+They served their idols, which became a snare to them.

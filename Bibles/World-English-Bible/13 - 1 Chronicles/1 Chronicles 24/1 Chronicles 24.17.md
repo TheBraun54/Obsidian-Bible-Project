@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the one and twentieth to Jachin, the two and twentieth to Gamul,
+the twenty-first to Jachin, the twenty-second to Gamul,

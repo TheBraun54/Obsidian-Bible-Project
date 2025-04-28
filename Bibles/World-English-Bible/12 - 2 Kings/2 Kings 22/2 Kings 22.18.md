@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto the king of Judah, who sent you to inquire of Jehovah, thus shall ye say to him, Thus saith Jehovah, the God of Israel: As touching the words which thou hast heard,
+But to the king of Judah, who sent you to inquire of Yahweh, thus you shall tell him, "Thus says Yahweh, the God of Israel: 'Concerning the words which you have heard,

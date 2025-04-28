@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sluggard is wiser in his own conceit Than seven men that can render a reason.
+The sluggard is wiser in his own eyes than seven men who answer with discretion.

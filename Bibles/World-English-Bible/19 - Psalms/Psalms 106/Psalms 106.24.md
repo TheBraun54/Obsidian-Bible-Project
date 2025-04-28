@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they despised the pleasant land, They believed not his word,
+Yes, they despised the pleasant land. They didn't believe his word,

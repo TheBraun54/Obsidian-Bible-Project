@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the staves into the rings on the sides of the ark, to bear the ark.
+He put the poles into the rings on the sides of the ark, to bear the ark.

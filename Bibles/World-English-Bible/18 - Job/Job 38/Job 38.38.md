@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the dust runneth into a mass, And the clods cleave fast together?
+when the dust runs into a mass, and the clods of earth stick together?

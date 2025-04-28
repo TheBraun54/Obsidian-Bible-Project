@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have respect unto the covenant; For the dark places of the earth are full of the habitations of violence.
+Honor your covenant, for haunts of violence fill the dark places of the earth.

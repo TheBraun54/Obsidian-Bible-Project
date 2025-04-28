@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [Ben-hadad] said unto him, The cities which my father took from thy father I will restore; and thou shalt make streets for thee in Damascus, as my father made in Samaria. And I, [said Ahab], will let thee go with this covenant. So he made a covenant with him, and let him go.
+Ben Hadad said to him, "The cities which my father took from your father I will restore. You shall make streets for yourself in Damascus, as my father made in Samaria." "I," said Ahab, "will let you go with this covenant." So he made a covenant with him, and let him go.

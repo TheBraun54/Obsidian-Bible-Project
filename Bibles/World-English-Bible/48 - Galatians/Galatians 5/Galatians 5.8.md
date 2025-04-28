@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This persuasion [came] not of him that calleth you.
+This persuasion is not from him who calls you.

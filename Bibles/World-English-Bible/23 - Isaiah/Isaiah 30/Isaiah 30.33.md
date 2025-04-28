@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a Topheth is prepared of old; yea, for the king it is made ready; he hath made it deep and large; the pile thereof is fire and much wood; the breath of Jehovah, like a stream of brimstone, doth kindle it.
+For his burning place has long been ready. Yes, for the king it is prepared. He has made its pyre deep and large with fire and much wood. Yahweh's breath, like a stream of sulfur, kindles it.

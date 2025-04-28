@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I said, I have labored in vain, I have spent my strength for nought and vanity; yet surely the justice [due] to me is with Jehovah, and my recompense with my God.
+But I said, "I have labored in vain, I have spent my strength for nothing and vanity; yet surely the justice [due] to me is with Yahweh, and my reward with my God."

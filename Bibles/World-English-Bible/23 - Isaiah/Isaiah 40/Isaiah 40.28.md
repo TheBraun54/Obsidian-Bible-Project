@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou not known? hast thou not heard? The everlasting God, Jehovah, the Creator of the ends of the earth, fainteth not, neither is weary; there is no searching of his understanding.
+Haven't you known? Haven't you heard? The everlasting God, Yahweh, The Creator of the ends of the earth, doesn't faint. He isn't weary. His understanding is unsearchable.

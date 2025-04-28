@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Pharaoh said unto him, But what hast thou lacked with me, that, behold, thou seekest to go to thine own country? And he answered, Nothing: howbeit only let me depart.
+Then Pharaoh said to him, "But what have you lacked with me, that behold, you seek to go to your own country?" He answered, "Nothing, however only let me depart."

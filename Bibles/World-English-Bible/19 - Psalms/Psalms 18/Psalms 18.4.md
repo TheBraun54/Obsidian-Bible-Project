@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The cords of death compassed me, And the floods of ungodliness made me afraid.
+The cords of death surrounded me. The floods of ungodliness made me afraid.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath remembered his lovingkindness and his faithfulness toward the house of Israel: All the ends of the earth have seen the salvation of our God.
+He has remembered his loving kindness and his faithfulness toward the house of Israel. All the ends of the earth have seen the salvation of our God.

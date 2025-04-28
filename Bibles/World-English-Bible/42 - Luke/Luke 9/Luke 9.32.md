@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Peter and they that were with him were heavy with sleep: but when they were fully awake, they saw his glory, and the two men that stood with him.
+Now Peter and those who were with him were heavy with sleep, but when they were fully awake, they saw his glory, and the two men who stood with him.

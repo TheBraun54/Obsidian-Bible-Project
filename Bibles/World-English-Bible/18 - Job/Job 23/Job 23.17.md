@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because I was not cut off before the darkness, Neither did he cover the thick darkness from my face.
+Because I was not cut off before the darkness, neither did he cover the thick darkness from my face.

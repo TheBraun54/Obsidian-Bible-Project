@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eyes fail for thy salvation, And for thy righteous word.
+My eyes fail looking for your salvation, for your righteous word.

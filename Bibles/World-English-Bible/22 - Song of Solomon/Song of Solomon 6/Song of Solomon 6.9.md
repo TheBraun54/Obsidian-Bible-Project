@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My dove, my undefiled, is [but] one; She is the only one of her mother; She is the choice one of her that bare her. The daughters saw her, and called her blessed; [Yea], the queens and the concubines, and they praised her.
+My dove, my perfect one, is unique. She is her mother's only daughter. She is the favorite one of her who bore her. The daughters saw her, and called her blessed; the queens and the concubines, and they praised her.

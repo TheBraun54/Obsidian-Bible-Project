@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah gave me knowledge of it, and I knew it: then thou showedst me their doings.
+Yahweh gave me knowledge of it, and I knew it: then you showed me their doings.

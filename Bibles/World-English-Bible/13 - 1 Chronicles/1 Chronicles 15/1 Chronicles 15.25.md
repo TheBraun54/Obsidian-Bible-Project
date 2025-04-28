@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David, and the elders of Israel, and the captains over thousands, went to bring up the ark of the covenant of Jehovah out of the house of Obed-edom with joy.
+So David, and the elders of Israel, and the captains over thousands, went to bring up the ark of the covenant of Yahweh out of the house of Obed-Edom with joy.

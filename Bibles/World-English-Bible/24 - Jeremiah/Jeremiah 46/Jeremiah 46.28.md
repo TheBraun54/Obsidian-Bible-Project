@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not thou, O Jacob my servant, saith Jehovah; for I am with thee: for I will make a full end of all the nations whither I have driven thee; but I will not make a full end of thee, but I will correct thee in measure, and will in no wise leave thee unpunished.
+Don't you be afraid, O Jacob my servant, says Yahweh; for I am with you: for I will make a full end of all the nations where I have driven you; but I will not make a full end of you, but I will correct you in measure, and will in no way leave you unpunished.

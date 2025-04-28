@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thus shall the man be blessed That feareth Jehovah.
+Behold, thus is the man blessed who fears Yahweh.

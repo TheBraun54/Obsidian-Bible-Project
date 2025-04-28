@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is gone up with a shout, Jehovah with the sound of a trumpet.
+God has gone up with a shout, Yahweh with the sound of a trumpet.

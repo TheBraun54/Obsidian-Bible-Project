@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having the same conflict which ye saw in me, and now hear to be in me.
+having the same conflict which you saw in me, and now hear is in me.

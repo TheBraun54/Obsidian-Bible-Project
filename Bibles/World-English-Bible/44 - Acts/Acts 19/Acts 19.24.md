@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a certain man named Demetrius, a silversmith, who made silver shrines of Diana, brought no little business unto the craftsmen;
+For a certain man named Demetrius, a silversmith, who made silver shrines of Artemis, brought no little business to the craftsmen,

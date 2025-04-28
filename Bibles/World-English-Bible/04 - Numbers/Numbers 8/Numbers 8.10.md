@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt present the Levites before Jehovah. And the children of Israel shall lay their hands upon the Levites:
+You shall present the Levites before Yahweh. The children of Israel shall lay their hands on the Levites,

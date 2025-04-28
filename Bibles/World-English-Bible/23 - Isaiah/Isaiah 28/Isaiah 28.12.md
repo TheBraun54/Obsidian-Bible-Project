@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to whom he said, This is the rest, give ye rest to him that is weary; and this is the refreshing: yet they would not hear.
+to whom he said, "This is the resting place. Give rest to weary;" and "This is the refreshing;" yet they would not hear.

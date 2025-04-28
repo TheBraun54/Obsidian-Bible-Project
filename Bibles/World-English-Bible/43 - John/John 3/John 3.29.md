@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath the bride is the bridegroom: but the friend of the bridegroom, that standeth and heareth him, rejoiceth greatly because of the bridegroom's voice: this my joy therefore is made full.
+He who has the bride is the bridegroom; but the friend of the bridegroom, who stands and hears him, rejoices greatly because of the bridegroom's voice. This, my joy, therefore is made full.

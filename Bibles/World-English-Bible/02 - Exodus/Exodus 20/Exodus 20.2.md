@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am Jehovah thy God, who brought thee out of the land of Egypt, out of the house of bondage.
+"I am Yahweh your God, who brought you out of the land of Egypt, out of the house of bondage.

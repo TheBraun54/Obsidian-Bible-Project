@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Asa cried unto Jehovah his God, and said, Jehovah, there is none besides thee to help, between the mighty and him that hath no strength: help us, O Jehovah our God; for we rely on thee, and in thy name are we come against this multitude. O Jehovah, thou art our God; let not man prevail against thee.
+Asa cried to Yahweh his God, and said, "Yahweh, there is none besides you to help, between the mighty and him who has no strength. Help us, Yahweh our God; for we rely on you, and in your name are we come against this multitude. Yahweh, you are our God. Don't let man prevail against you."

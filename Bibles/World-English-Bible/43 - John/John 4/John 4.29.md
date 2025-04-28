@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, see a man, who told me all things that [ever] I did: can this be the Christ?
+"Come, see a man who told me everything that I did. Can this be the Christ?"

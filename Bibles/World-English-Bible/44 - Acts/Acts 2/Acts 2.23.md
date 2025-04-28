@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-him, being delivered up by the determinate counsel and foreknowledge of God, ye by the hand of lawless men did crucify and slay:
+him, being delivered up by the determined counsel and foreknowledge of God, you have taken by the hand of lawless men, crucified and killed;

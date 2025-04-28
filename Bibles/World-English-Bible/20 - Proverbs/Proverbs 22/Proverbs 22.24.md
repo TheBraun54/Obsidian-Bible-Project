@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make no friendship with a man that is given to anger; And with a wrathful man thou shalt not go:
+Don't befriend a hot-tempered man, and don't associate with one who harbors anger:

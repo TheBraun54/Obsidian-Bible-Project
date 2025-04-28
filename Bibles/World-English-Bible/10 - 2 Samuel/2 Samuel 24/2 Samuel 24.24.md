@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Araunah, Nay; but I will verily buy it of thee at a price. Neither will I offer burnt-offerings unto Jehovah my God which cost me nothing. So David bought the threshing-floor and the oxen for fifty shekels of silver.
+The king said to Araunah, "No; but I will most certainly buy it from you for a price. I will not offer burnt offerings to Yahweh my God which cost me nothing." So David bought the threshing floor and the oxen for fifty shekels of silver.

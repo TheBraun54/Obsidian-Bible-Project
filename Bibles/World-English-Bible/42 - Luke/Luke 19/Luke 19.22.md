@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith unto him, Out of thine own mouth will I judge thee, thou wicked servant. Thou knewest that I am an austere man, taking up that which I laid not down, and reaping that which I did not sow;
+"He said to him, 'Out of your own mouth will I judge you, you wicked servant! You knew that I am an exacting man, taking up that which I didn't lay down, and reaping that which I didn't sow.

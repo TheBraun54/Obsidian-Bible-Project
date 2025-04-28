@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is my strength, that I should wait? And what is mine end, that I should be patient?
+What is my strength, that I should wait? What is my end, that I should be patient?

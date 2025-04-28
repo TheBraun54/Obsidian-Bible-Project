@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I have heard that thou hast shearers: thy shepherds have now been with us, and we did them no hurt, neither was there aught missing unto them, all the while they were in Carmel.
+Now I have heard that you have shearers. Your shepherds have now been with us, and we did them no hurt, neither was there anything missing to them, all the while they were in Carmel.

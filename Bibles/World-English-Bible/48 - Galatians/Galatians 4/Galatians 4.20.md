@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I could wish to be present with you now, and to change my tone; for I am perplexed about you.
+but I could wish to be present with you now, and to change my tone, for I am perplexed about you.

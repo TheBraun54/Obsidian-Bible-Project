@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David took the head of the Philistine, and brought it to Jerusalem; but he put his armor in his tent.
+David took the head of the Philistine, and brought it to Jerusalem; but he put his armor in his tent.

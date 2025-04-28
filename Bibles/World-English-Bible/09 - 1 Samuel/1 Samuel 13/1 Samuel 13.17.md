@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the spoilers came out of the camp of the Philistines in three companies: one company turned unto the way that leadeth to Ophrah, unto the land of Shual;
+The spoilers came out of the camp of the Philistines in three companies: one company turned to the way that leads to Ophrah, to the land of Shual;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they obeyed not the voice of Jehovah their God, but transgressed his covenant, even all that Moses the servant of Jehovah commanded, and would not hear it, nor do it.
+because they didn't obey the voice of Yahweh their God, but transgressed his covenant, even all that Moses the servant of Yahweh commanded, and would not hear it, nor do it.

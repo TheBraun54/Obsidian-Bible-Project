@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I am come to make thee understand what shall befall thy people in the latter days; for the vision is yet for [many] days:
+Now I have come to make you understand what shall happen to your people in the latter days; for the vision is yet for [many] days:

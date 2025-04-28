@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear came upon me, and trembling, Which made all my bones to shake.
+fear came on me, and trembling, which made all my bones shake.

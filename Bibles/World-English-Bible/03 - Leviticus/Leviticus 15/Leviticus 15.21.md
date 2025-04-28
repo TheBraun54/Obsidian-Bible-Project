@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever toucheth her bed shall wash his clothes, and bathe himself in water, and be unclean until the even.
+Whoever touches her bed shall wash his clothes, and bathe himself in water, and be unclean until the evening.

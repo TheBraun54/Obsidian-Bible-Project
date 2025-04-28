@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My help [cometh] from Jehovah, Who made heaven and earth.
+My help comes from Yahweh, who made heaven and earth.

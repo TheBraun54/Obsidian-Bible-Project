@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will offer unto thee burnt-offerings of fatlings, With the incense of rams; I will offer bullocks with goats. {{Selah
+I will offer to you burnt offerings of fat animals, with the offering of rams, I will offer bulls with goats. Selah.

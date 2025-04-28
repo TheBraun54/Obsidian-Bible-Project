@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then let my wife grind unto another, And let others bow down upon her.
+then let my wife grind for another, and let others sleep with her.

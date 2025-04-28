@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Jehovah thy God in the midst of thee is a jealous God; lest the anger of Jehovah thy God be kindled against thee, and he destroy thee from off the face of the earth.
+for Yahweh your God in the midst of you is a jealous God; lest the anger of Yahweh your God be kindled against you, and he destroy you from off the face of the earth.

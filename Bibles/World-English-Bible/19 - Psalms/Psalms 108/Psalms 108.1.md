@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song, a Psalm of David]. My heart is fixed, O God; I will sing, yea, I will sing praises, even with my glory.
+My heart is steadfast, God. I will sing and I will make music with my soul.

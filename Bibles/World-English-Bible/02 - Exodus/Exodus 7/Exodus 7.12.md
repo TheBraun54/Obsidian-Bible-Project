@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they cast down every man his rod, and they became serpents: but Aaron's rod swallowed up their rods.
+For they each cast down their rods, and they became serpents: but Aaron's rod swallowed up their rods.

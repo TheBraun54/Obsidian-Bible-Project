@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the people riseth up as a lioness, And as a lion doth he lift himself up: He shall not lie down until he eat of the prey, And drink the blood of the slain.
+Behold, the people rises up as a lioness, As a lion he lifts himself up. He shall not lie down until he eat of the prey, and drinks the blood of the slain."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses wrote this law, and delivered it unto the priests the sons of Levi, that bare the ark of the covenant of Jehovah, and unto all the elders of Israel.
+Moses wrote this law, and delivered it to the priests the sons of Levi, who bore the ark of the covenant of Yahweh, and to all the elders of Israel.

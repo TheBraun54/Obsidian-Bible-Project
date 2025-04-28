@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto Saul, I will not return with thee; for thou hast rejected the word of Jehovah, and Jehovah hath rejected thee from being king over Israel.
+Samuel said to Saul, "I will not return with you; for you have rejected the word of Yahweh, and Yahweh has rejected you from being king over Israel."

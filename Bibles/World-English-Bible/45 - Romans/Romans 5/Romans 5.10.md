@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if, while we were enemies, we were reconciled to God through the death of his Son, much more, being reconciled, shall we be saved by his life;
+For if, while we were enemies, we were reconciled to God through the death of his Son, much more, being reconciled, we will be saved by his life.

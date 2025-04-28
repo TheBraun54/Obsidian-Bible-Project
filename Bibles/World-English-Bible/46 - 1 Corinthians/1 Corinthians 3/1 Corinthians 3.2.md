@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I fed you with milk, not with meat; for ye were not yet able [to bear it] : nay, not even now are ye able;
+I fed you with milk, not with meat; for you weren't yet ready. Indeed, not even now are you ready,

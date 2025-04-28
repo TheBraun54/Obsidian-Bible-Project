@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And taking the child by the hand, he saith unto her, Talitha cumi; which is, being interpreted, Damsel, I say unto thee, Arise.
+Taking the child by the hand, he said to her, "Talitha cumi!" which means, being interpreted, "Girl, I tell you, get up!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [from] the forefront of the gate at the entrance unto the forefront of the inner porch of the gate were fifty cubits.
+[From] the forefront of the gate at the entrance to the forefront of the inner porch of the gate were fifty cubits.

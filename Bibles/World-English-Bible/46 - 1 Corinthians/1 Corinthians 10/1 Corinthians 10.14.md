@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, my beloved, flee from idolatry.
+Therefore, my beloved, flee from idolatry.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake unto the congregation, saying, Depart, I pray you, from the tents of these wicked men, and touch nothing of theirs, lest ye be consumed in all their sins.
+He spoke to the congregation, saying, "Depart, please, from the tents of these wicked men, and touch nothing of theirs, lest you be consumed in all their sins!"

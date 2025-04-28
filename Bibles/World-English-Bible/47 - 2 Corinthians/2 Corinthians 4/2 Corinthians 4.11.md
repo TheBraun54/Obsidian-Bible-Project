@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we who live are always delivered unto death for Jesus' sake, that the life also of Jesus may be manifested in our mortal flesh.
+For we who live are always delivered to death for Jesus' sake, that the life also of Jesus may be revealed in our mortal flesh.

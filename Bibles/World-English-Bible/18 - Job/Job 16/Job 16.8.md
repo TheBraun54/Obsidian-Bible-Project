@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou hast laid fast hold on me, [which] is a witness [against me] : And my leanness riseth up against me, It testifieth to my face.
+You have shriveled me up. This is a witness against me. My leanness rises up against me. It testifies to my face.

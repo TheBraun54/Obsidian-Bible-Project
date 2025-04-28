@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look on the plague in the skin of the flesh: and if the hair in the plague be turned white, and the appearance of the plague be deeper than the skin of his flesh, it is the plague of leprosy; and the priest shall look on him, and pronounce him unclean.
+and the priest shall examine the plague in the skin of the body: and if the hair in the plague has turned white, and the appearance of the plague is deeper than the body's skin, it is the plague of leprosy; and the priest shall examine him, and pronounce him unclean.

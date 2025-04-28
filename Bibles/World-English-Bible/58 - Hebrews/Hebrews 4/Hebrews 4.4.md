@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath said somewhere of the seventh [day] on this wise, And God rested on the seventh day from all his works;
+For he has said this somewhere about the seventh day, "God rested on the seventh day from all his works;"

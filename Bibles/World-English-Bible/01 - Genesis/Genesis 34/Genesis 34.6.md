@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hamor the father of Shechem went out unto Jacob to commune with him.
+Hamor the father of Shechem went out to Jacob to talk with him.

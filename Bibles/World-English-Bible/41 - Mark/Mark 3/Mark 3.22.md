@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scribes that came down from Jerusalem said, He hath Beelzebub, and, By the prince of the demons casteth he out the demons.
+The scribes who came down from Jerusalem said, "He has Beelzebul," and, "By the prince of the demons he casts out the demons."

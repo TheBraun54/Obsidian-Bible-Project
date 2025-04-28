@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Abishua begat Bukki, and Bukki begat Uzzi,
+and Abishua became the father of Bukki, and Bukki became the father of Uzzi,

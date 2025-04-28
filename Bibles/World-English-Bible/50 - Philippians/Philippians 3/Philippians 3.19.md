@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose end is perdition, whose god is the belly, and [whose] glory is in their shame, who mind earthly things.
+whose end is destruction, whose god is the belly, and whose glory is in their shame, who think about earthly things.

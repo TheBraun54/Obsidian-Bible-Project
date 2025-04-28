@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he began to speak unto the people this parable: A man planted a vineyard, and let it out to husbandmen, and went into another country for a long time.
+He began to tell the people this parable. "A man planted a vineyard, and rented it out to some farmers, and went into another country for a long time.

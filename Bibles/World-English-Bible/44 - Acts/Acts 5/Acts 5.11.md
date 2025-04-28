@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And great fear came upon the whole church, and upon all that heard these things.
+Great fear came on the whole assembly, and on all who heard these things.

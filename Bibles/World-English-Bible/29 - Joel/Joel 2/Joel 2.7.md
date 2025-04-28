@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They run like mighty men; they climb the wall like men of war; and they march every one on his ways, and they break not their ranks.
+They run like mighty men. They climb the wall like warriors. They each march in his line, and they don't swerve off course.

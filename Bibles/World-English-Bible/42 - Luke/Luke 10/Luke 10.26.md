@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, What is written in the law? how readest thou?
+He said to him, "What is written in the law? How do you read it?"

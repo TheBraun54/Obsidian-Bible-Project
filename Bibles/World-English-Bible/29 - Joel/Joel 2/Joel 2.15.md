@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blow the trumpet in Zion, sanctify a fast, call a solemn assembly;
+Blow the trumpet in Zion! Sanctify a fast. Call a solemn assembly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all his acquaintance, and the women that followed with him from Galilee, stood afar off, seeing these things.
+All his acquaintances, and the women who followed with him from Galilee, stood at a distance, watching these things.

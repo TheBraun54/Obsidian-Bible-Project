@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things are lawful; but not all things are expedient. All things are lawful; but not all things edify.
+"All things are lawful for me," but not all things are profitable. "All things are lawful for me," but not all things build up.

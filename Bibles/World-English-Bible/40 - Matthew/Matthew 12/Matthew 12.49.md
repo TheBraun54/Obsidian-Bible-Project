@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stretched forth his hand towards his disciples, and said, Behold, my mother and my brethren!
+He stretched out his hand towards his disciples, and said, "Behold, my mother and my brothers!

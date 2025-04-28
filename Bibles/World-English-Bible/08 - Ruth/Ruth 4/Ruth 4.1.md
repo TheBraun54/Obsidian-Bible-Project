@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Boaz went up to the gate, and sat him down there: and, behold, the near kinsman of whom Boaz spake came by; unto whom he said, Ho, such a one! turn aside, sit down here. And he turned aside, and sat down.
+Now Boaz went up to the gate, and sat down there. Behold, the near kinsman of whom Boaz spoke came by; to whom he said, "Come over here, friend, and sit down!" He turned aside, and sat down.

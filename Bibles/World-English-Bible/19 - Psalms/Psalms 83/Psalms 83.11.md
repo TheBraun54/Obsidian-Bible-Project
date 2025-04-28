@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make their nobles like Oreb and Zeeb; Yea, all their princes like Zebah and Zalmunna;
+Make their nobles like Oreb and Zeeb; yes, all their princes like Zebah and Zalmunna;

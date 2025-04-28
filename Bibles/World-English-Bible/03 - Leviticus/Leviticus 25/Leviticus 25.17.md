@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall not wrong one another; but thou shalt fear thy God: for I am Jehovah your God.
+You shall not wrong one another; but you shall fear your God: for I am Yahweh your God.

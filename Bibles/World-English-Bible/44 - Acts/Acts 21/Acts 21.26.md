@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Paul took the men, and the next day purifying himself with them went into the temple, declaring the fulfilment of the days of purification, until the offering was offered for every one of them.
+Then Paul took the men, and the next day, purified himself and went with them into the temple, declaring the fulfillment of the days of purification, until the offering was offered for every one of them.

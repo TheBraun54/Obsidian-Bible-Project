@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forasmuch then as Christ suffered in the flesh, arm ye yourselves also with the same mind; for he that hath suffered in the flesh hath ceased from sin;
+Forasmuch then as Christ suffered for us in the flesh, arm yourselves also with the same mind; for he who has suffered in the flesh has ceased from sin;

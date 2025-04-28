@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be it known unto the king, that the Jews that came up from thee are come to us unto Jerusalem; they are building the rebellious and the bad city, and have finished the walls, and repaired the foundations.
+Be it known to the king, that the Jews who came up from you are come to us to Jerusalem; they are building the rebellious and the bad city, and have finished the walls, and repaired the foundations.

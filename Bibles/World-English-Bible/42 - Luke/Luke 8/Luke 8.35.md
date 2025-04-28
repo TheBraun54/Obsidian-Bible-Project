@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went out to see what had come to pass; and they came to Jesus, and found the man, from whom the demons were gone out, sitting, clothed and in his right mind, at the feet of Jesus: and they were afraid.
+People went out to see what had happened. They came to Jesus, and found the man from whom the demons had gone out, sitting at Jesus' feet, clothed and in his right mind; and they were afraid.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Instead of thy fathers shall be thy children, Whom thou shalt make princes in all the earth.
+Your sons will take the place of your fathers. You shall make them princes in all the earth.

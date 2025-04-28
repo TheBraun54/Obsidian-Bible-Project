@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Weep ye not for the dead, neither bemoan him; but weep sore for him that goeth away; for he shall return no more, nor see his native country.
+Don't weep for the dead, neither bemoan him; but weep bitterly for him who goes away; for he shall return no more, nor see his native country.

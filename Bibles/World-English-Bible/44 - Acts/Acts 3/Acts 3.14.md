@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye denied the Holy and Righteous One, and asked for a murderer to be granted unto you,
+But you denied the Holy and Righteous One, and asked for a murderer to be granted to you,

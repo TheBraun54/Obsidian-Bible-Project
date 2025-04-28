@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, The harvest indeed is plenteous, but the laborers are few: pray ye therefore the Lord of the harvest, that he send forth laborers into his harvest.
+Then he said to them, "The harvest is indeed plentiful, but the laborers are few. Pray therefore to the Lord of the harvest, that he may send out laborers into his harvest.

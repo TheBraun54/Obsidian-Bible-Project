@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They part my garments among them, And upon my vesture do they cast lots.
+They divide my garments among them. They cast lots for my clothing.

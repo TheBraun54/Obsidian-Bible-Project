@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and, behold, seven other kine came up after them, poor and very ill-favored and lean-fleshed, such as I never saw in all the land of Egypt for badness:
+and behold, seven other cattle came up after them, poor and very ugly and thin, such as I never saw in all the land of Egypt for ugliness.

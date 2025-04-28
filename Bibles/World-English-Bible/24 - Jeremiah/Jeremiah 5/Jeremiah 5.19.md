@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when ye shall say, Wherefore hath Jehovah our God done all these things unto us? then shalt thou say unto them, Like as ye have forsaken me, and served foreign gods in your land, so shall ye serve strangers in a land that is not yours.
+It will happen, when you say, 'Why has Yahweh our God done all these things to us?' Then you shall say to them, 'Just like you have forsaken me, and served foreign gods in your land, so you shall serve strangers in a land that is not yours.'

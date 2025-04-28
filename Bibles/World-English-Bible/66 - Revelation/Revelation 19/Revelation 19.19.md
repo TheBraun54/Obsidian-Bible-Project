@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw the beast, and the kings of the earth, and their armies, gathered together to make war against him that sat upon the horse, and against his army.
+I saw the beast, and the kings of the earth, and their armies, gathered together to make war against him who sat on the horse, and against his army.

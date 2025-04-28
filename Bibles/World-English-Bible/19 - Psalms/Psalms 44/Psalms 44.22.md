@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, for thy sake are we killed all the day long; We are accounted as sheep for the slaughter.
+Yes, for your sake we are killed all day long. We are regarded as sheep for the slaughter.

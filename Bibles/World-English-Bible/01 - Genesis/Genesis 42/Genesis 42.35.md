@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass as they emptied their sacks, that, behold, every man's bundle of money was in his sack: and when they and their father saw their bundles of money, they were afraid.
+It happened as they emptied their sacks, that behold, each man's bundle of money was in his sack. When they and their father saw their bundles of money, they were afraid.

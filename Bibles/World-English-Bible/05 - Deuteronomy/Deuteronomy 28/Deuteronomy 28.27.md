@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will smite thee with the boil of Egypt, and with the emerods, and with the scurvy, and with the itch, whereof thou canst not be healed.
+Yahweh will strike you with the boil of Egypt, and with the tumors, and with the scurvy, and with the itch, of which you can not be healed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will bless them that fear Jehovah, Both small and great.
+He will bless those who fear Yahweh, both small and great.

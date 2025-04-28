@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As often as it passeth though, it shall take you; for morning by morning shall it pass through, by day and by night: and it shall be nought but terror to understand the message.
+As often as it passes through, it will seize you; for morning by morning it will pass through, by day and by night; and it will be nothing but terror to understand the message."

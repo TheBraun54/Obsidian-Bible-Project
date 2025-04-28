@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman that hath an unbelieving husband, and he is content to dwell with her, let her not leave her husband.
+The woman who has an unbelieving husband, and he is content to live with her, let her not leave her husband.

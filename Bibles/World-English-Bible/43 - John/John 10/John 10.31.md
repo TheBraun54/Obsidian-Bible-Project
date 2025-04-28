@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews took up stones again to stone him.
+Therefore Jews took up stones again to stone him.

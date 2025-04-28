@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he wash them not, nor bathe his flesh, then he shall bear his iniquity.
+But if he doesn't wash them, or bathe his flesh, then he shall bear his iniquity.'"

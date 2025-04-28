@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The quiver rattleth against him, The flashing spear and the javelin.
+The quiver rattles against him, the flashing spear and the javelin.

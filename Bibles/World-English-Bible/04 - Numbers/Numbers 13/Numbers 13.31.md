@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the men that went up with him said, We are not able to go up against the people; for they are stronger than we.
+But the men who went up with him said, "We aren't able to go up against the people; for they are stronger than we."

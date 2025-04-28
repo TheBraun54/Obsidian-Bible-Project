@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why gaddest thou about so much to change thy way? thou shalt be ashamed of Egypt also, as thou wast ashamed of Assyria.
+Why do you go about so much to change your way? You will be ashamed of Egypt also, as you were ashamed of Assyria.

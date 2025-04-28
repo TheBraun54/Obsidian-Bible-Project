@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The chariots of God are twenty thousand, even thousands upon thousands; The Lord is among them, [as in] Sinai, in the sanctuary.
+The chariots of God are tens of thousands and thousands of thousands. The Lord is among them, from Sinai, into the sanctuary.

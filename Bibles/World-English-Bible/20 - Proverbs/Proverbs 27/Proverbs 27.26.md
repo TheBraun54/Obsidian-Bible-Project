@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lambs are for thy clothing, And the goats are the price of the field;
+The lambs are for your clothing, and the goats are the price of a field.

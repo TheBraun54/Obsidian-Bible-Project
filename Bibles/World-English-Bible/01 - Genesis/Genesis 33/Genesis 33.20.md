@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he erected there an altar, and called it El-Elohe-Israel.
+He erected an altar there, and called it El Elohe Israel.

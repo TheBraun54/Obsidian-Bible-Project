@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, our God, the great, the mighty, and the terrible God, who keepest covenant and lovingkindness, let not all the travail seem little before thee, that hath come upon us, on our kings, on our princes, and on our priests, and on our prophets, and on our fathers, and on all thy people, since the time of the kings of Assyria unto this day.
+Now therefore, our God, the great, the mighty, and the awesome God, who keeps covenant and loving kindness, don't let all the travail seem little before you, that has come on us, on our kings, on our princes, and on our priests, and on our prophets, and on our fathers, and on all your people, since the time of the kings of Assyria to this day.

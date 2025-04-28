@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David and all Israel played before God with all their might, even with songs, and with harps, and with psalteries, and with timbrels, and with cymbals, and with trumpets.
+David and all Israel played before God with all their might, even with songs, and with harps, and with stringed instruments, and with tambourines, and with cymbals, and with trumpets.

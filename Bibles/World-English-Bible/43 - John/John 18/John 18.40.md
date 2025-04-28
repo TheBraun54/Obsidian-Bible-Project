@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They cried out therefore again, saying, Not this man, but Barabbas. Now Barabbas was a robber.)
+Then they all shouted again, saying, "Not this man, but Barabbas!" Now Barabbas was a robber.

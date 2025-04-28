@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he fell upon the earth, and heard a voice saying unto him, Saul, Saul, why persecutest thou me?
+He fell on the earth, and heard a voice saying to him, "Saul, Saul, why do you persecute me?"

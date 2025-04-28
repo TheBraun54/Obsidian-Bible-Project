@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children struggled together within her; and she said, If it be so, wherefore do I live? And she went to inquire of Jehovah.
+The children struggled together within her. She said, "If it be so, why do I live?" She went to inquire of Yahweh.

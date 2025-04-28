@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because they rebelled against the words of God, And contemned the counsel of the Most High:
+because they rebelled against the words of God, and condemned the counsel of the Most High.

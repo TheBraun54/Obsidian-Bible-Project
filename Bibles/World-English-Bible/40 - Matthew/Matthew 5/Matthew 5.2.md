@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he opened his mouth and taught them, saying,
+He opened his mouth and taught them, saying,

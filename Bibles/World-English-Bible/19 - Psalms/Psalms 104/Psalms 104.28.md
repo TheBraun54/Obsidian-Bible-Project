@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou givest unto them, they gather; Thou openest thy hand, they are satisfied with good.
+You give to them; they gather. You open your hand; they are satisfied with good.

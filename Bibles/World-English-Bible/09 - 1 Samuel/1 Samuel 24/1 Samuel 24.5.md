@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass afterward, that David's heart smote him, because he had cut off Saul's skirt.
+It happened afterward, that David's heart struck him, because he had cut off Saul's skirt.

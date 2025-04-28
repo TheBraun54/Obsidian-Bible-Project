@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul breaketh for the longing That it hath unto thine ordinances at all times.
+My soul is consumed with longing for your ordinances at all times.

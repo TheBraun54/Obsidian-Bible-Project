@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as many as are led by the Spirit of God, these are sons of God.
+For as many as are led by the Spirit of God, these are children of God.

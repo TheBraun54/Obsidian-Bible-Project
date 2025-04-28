@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham ran unto the herd, and fetched a calf tender and good, and gave it unto the servant; and he hasted to dress it.
+Abraham ran to the herd, and fetched a tender and good calf, and gave it to the servant. He hurried to dress it.

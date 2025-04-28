@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the earth opened its mouth, and swallowed them up, and their households, and all the men that appertained unto Korah, and all their goods.
+and the earth opened its mouth, and swallowed them up, and their households, and all the men who appertained to Korah, and all their goods.

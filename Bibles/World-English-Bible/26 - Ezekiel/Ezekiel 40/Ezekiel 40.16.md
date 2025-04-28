@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were closed windows to the lodges, and to their posts within the gate round about, and likewise to the arches; and windows were round about inward; and upon [each] post were palm-trees.
+There were closed windows to the lodges, and to their posts within the gate all around, and likewise to the arches; and windows were around inward; and on [each] post were palm trees.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the flock for sacrifice, as the flock of Jerusalem in her appointed feasts, so shall the waste cities be filled with flocks of men; and they shall know that I am Jehovah.
+As the flock for sacrifice, as the flock of Jerusalem in her appointed feasts, so shall the waste cities be filled with flocks of men; and they shall know that I am Yahweh.

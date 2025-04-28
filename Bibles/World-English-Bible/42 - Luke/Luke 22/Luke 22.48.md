@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said unto him, Judas, betrayest thou the Son of man with a kiss?
+But Jesus said to him, "Judas, do you betray the Son of Man with a kiss?"

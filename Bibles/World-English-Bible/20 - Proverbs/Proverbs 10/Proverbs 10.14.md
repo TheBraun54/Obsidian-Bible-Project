@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wise men lay up knowledge; But the mouth of the foolish is a present destruction.
+Wise men lay up knowledge, but the mouth of the foolish is near ruin.

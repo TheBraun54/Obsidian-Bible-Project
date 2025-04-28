@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naaman said, If not, yet, I pray thee, let there be given to thy servant two mules' burden of earth; for thy servant will henceforth offer neither burnt-offering nor sacrifice unto other gods, but unto Jehovah.
+Naaman said, "If not, then, please let there be given to your servant two mules' burden of earth; for your servant will from now on offer neither burnt offering nor sacrifice to other gods, but to Yahweh.

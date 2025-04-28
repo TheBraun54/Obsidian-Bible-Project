@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will send pestilence into her, and blood into her streets; and the wounded shall fall in the midst of her, with the sword upon her on every side; and they shall know that I am Jehovah. [
+For I will send pestilence into her, and blood into her streets; and the wounded shall fall in the midst of her, with the sword on her on every side; and they shall know that I am Yahweh.

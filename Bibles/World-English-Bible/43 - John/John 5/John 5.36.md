@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the witness which I have is greater than [that of] John; for the works which the Father hath given me to accomplish, the very works that I do, bear witness of me, that the Father hath sent me.
+But the testimony which I have is greater than that of John, for the works which the Father gave me to accomplish, the very works that I do, testify about me, that the Father has sent me.

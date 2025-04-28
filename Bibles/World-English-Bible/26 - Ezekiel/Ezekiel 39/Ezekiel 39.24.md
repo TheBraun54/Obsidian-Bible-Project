@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to their uncleanness and according to their transgressions did I unto them; and I hid my face from them.
+According to their uncleanness and according to their transgressions did I to them; and I hid my face from them.

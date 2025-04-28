@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Uriah, Go down to thy house, and wash thy feet. And Uriah departed out of the king's house, and there followed him a mess [of food] from the king.
+David said to Uriah, "Go down to your house, and wash your feet." Uriah departed out of the king's house, and a gift from the king was sent after him.

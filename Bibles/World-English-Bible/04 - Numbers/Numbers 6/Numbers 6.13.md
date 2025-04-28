@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the law of the Nazirite, when the days of his separation are fulfilled: he shall be brought unto the door of the tent of meeting:
+"'This is the law of the Nazirite: when the days of his separation are fulfilled, he shall be brought to the door of the Tent of Meeting,

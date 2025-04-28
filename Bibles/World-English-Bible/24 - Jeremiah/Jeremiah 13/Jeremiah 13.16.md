@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give glory to Jehovah your God, before he cause darkness, and before your feet stumble upon the dark mountains, and, while ye look for light, he turn it into the shadow of death, and make it gross darkness.
+Give glory to Yahweh your God, before he causes darkness, and before your feet stumble on the dark mountains, and, while you look for light, he turns it into the shadow of death, and makes it gross darkness.

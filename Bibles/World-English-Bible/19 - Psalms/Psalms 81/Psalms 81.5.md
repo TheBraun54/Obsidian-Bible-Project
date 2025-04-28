@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He appointed it in Joseph for a testimony, When he went out over the land of Egypt, [Where] I heard a language that I knew not.
+He appointed it in Joseph for a testimony, when he went out over the land of Egypt, I heard a language that I didn't know.

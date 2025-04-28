@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take the other ram; and Aaron and his sons shall lay their hands upon the head of the ram.
+"You shall take the other ram; and Aaron and his sons shall lay their hands on the head of the ram.

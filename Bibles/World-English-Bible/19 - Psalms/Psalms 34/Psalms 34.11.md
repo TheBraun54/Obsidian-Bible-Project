@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, ye children, hearken unto me: I will teach you the fear of Jehovah.
+Come, you children, listen to me. I will teach you the fear of Yahweh.

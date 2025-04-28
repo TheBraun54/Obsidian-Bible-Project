@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For judgment shall return unto righteousness; And all the upright in heart shall follow it.
+For judgment will return to righteousness. All the upright in heart shall follow it.

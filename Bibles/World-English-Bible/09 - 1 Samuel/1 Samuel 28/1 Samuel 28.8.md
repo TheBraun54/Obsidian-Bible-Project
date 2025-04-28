@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul disguised himself, and put on other raiment, and went, he and two men with him, and they came to the woman by night: and he said, Divine unto me, I pray thee, by the familiar spirit, and bring me up whomsoever I shall name unto thee.
+Saul disguised himself, and put on other clothing, and went, he and two men with him, and they came to the woman by night: and he said, "Please divine to me by the familiar spirit, and bring me up whoever I shall name to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So belief [cometh] of hearing, and hearing by the word of Christ.
+So faith comes by hearing, and hearing by the word of God.

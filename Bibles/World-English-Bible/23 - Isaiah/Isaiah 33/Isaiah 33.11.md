@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall conceive chaff, ye shall bring forth stubble: your breath is a fire that shall devour you.
+You will conceive chaff. You will bring forth stubble. Your breath is a fire that will devour you.

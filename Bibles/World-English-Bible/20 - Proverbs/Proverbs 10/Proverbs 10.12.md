@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hatred stirreth up strifes; But love covereth all transgressions.
+Hatred stirs up strife, but love covers all wrongs.

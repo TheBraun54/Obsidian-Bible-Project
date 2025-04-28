@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but we speak God's wisdom in a mystery, [even] the [wisdom] that hath been hidden, which God foreordained before the worlds unto our glory:
+But we speak God's wisdom in a mystery, the wisdom that has been hidden, which God foreordained before the worlds for our glory,

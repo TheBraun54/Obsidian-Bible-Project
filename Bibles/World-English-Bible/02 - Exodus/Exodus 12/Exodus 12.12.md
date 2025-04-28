@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will go through the land of Egypt in that night, and will smite all the first-born in the land of Egypt, both man and beast; and against all the gods of Egypt I will execute judgments: I am Jehovah.
+For I will go through the land of Egypt in that night, and will strike all the firstborn in the land of Egypt, both man and animal. Against all the gods of Egypt I will execute judgments: I am Yahweh.

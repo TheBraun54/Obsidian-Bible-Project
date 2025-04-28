@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the chief of the mighty men whom David had, who showed themselves strong with him in his kingdom, together with all Israel, to make him king, according to the word of Jehovah concerning Israel.
+Now these are the chief of the mighty men whom David had, who showed themselves strong with him in his kingdom, together with all Israel, to make him king, according to the word of Yahweh concerning Israel.

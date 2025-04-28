@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And slew famous kings; For his lovingkindness [endureth] for ever:
+And killed mighty kings; for his loving kindness endures forever:

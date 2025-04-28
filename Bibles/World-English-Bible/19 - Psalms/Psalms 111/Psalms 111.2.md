@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The works of Jehovah are great, Sought out of all them that have pleasure therein.
+Yahweh's works are great, pondered by all those who delight in them.

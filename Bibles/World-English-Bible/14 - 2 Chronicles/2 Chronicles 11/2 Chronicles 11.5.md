@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rehoboam dwelt in Jerusalem, and built cities for defence in Judah.
+Rehoboam lived in Jerusalem, and built cities for defense in Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which having no chief, Overseer, or ruler,
+which having no chief, overseer, or ruler,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast me not away from thy presence; And take not thy holy Spirit from me.
+Don't throw me from your presence, and don't take your holy Spirit from me.

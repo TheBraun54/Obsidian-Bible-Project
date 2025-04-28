@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the gate of the outer court whose prospect is toward the north, he measured the length thereof and the breadth thereof.
+The gate of the outer court whose prospect is toward the north, he measured its length and its breadth.

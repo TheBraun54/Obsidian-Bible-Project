@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now that faith is come, we are no longer under a tutor.
+But now that faith has come, we are no longer under a tutor.

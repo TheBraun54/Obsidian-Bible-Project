@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Darius the Mede received the kingdom, being about threescore and two years old.
+Darius the Mede received the kingdom, being about sixty-two years old.

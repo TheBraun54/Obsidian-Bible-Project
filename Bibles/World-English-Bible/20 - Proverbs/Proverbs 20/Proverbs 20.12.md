@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hearing ear, and the seeing eye, Jehovah hath made even both of them.
+The hearing ear, and the seeing eye, Yahweh has made even both of them.

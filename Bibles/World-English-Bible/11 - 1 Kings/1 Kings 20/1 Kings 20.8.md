@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the elders and all the people said unto him, Hearken thou not, neither consent.
+All the elders and all the people said to him, "Don't listen, neither consent."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He increaseth the nations, and he destroyeth them: He enlargeth the nations, and he leadeth them captive.
+He increases the nations, and he destroys them. He enlarges the nations, and he leads them captive.

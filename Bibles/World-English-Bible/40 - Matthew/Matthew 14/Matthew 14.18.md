@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Bring them hither to me.
+He said, "Bring them here to me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But certain worthless fellows said, How shall this man save us? And they despised him, and brought him no present. But he held his peace.
+But certain worthless fellows said, "How shall this man save us?" They despised him, and brought him no present. But he held his peace.

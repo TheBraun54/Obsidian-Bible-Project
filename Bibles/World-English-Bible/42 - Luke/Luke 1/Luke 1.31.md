@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, thou shalt conceive in thy womb, and bring forth a son, and shalt call his name JESUS.
+Behold, you will conceive in your womb, and bring forth a son, and will call his name 'Jesus.'

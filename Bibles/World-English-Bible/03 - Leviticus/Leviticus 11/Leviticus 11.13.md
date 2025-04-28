@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these ye shall have in abomination among the birds; they shall not be eaten, they are an abomination: the eagle, and the gier-eagle, and the ospray,
+"'These you shall detest among the birds; they shall not be eaten, they are an abomination: the eagle, and the vulture, and the black vulture,

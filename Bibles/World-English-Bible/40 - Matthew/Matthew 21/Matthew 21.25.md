@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The baptism of John, whence was it? from heaven or from men? And they reasoned with themselves, saying, If we shall say, From heaven; he will say unto us, Why then did ye not believe him?
+The baptism of John, where was it from? From heaven or from men?" They reasoned with themselves, saying, "If we say, 'From heaven,' he will ask us, 'Why then did you not believe him?'

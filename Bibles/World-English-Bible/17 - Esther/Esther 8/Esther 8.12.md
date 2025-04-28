@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-upon one day in all the provinces of king Ahasuerus, [namely], upon the thirteenth [day] of the twelfth month, which is the month Adar.
+on one day in all the provinces of King Ahasuerus, on the thirteenth day of the twelfth month, which is the month Adar.

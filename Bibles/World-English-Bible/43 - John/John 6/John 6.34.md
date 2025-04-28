@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, Lord, evermore give us this bread.
+They said therefore to him, "Lord, always give us this bread."

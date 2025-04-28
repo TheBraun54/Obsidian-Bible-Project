@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They also that err in spirit shall come to understanding, and they that murmur shall receive instruction.
+They also who err in spirit will come to understanding, and those who grumble will receive instruction."

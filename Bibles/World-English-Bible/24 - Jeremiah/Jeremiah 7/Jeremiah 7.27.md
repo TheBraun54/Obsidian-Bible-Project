@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt speak all these words unto them; but they will not hearken to thee: thou shalt also call unto them; but they will not answer thee.
+You shall speak all these words to them; but they will not listen to you: you shall also call to them; but they will not answer you.

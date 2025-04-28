@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for they indeed have been made priests without an oath; but he with an oath by him that saith of him, The Lord sware and will not repent himself, Thou art a priest for ever);
+(for they indeed have been made priests without an oath), but he with an oath by him that says of him, "The Lord swore and will not change his mind, 'You are a priest forever, according to the order of Melchizedek.'"

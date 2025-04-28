@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-giving no occasion of stumbling in anything, that our ministration be not blamed;
+We give no occasion of stumbling in anything, that our service may not be blamed,

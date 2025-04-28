@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt beat him with the rod, And shalt deliver his soul from Sheol.
+Punish him with the rod, and save his soul from Sheol.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto his servants, This is John the Baptist; he is risen from the dead; and therefore do these powers work in him.
+and said to his servants, "This is John the Baptizer. He is risen from the dead. That is why these powers work in him."

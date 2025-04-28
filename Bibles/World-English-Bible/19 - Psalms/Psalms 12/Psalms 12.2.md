@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They speak falsehood every one with his neighbor: With flattering lip, and with a double heart, do they speak.
+Everyone lies to his neighbor. They speak with flattering lips, and with a double heart.

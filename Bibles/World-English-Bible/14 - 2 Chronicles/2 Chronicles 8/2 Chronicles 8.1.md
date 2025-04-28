@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of twenty years, wherein Solomon had built the house of Jehovah, and his own house,
+It happened at the end of twenty years, in which Solomon had built the house of Yahweh, and his own house,

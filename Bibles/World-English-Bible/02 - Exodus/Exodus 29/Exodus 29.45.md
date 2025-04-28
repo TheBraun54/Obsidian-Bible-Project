@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will dwell among the children of Israel, and will be their God.
+I will dwell among the children of Israel, and will be their God.

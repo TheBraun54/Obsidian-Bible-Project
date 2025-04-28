@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah thy God will raise up unto thee a prophet from the midst of thee, of thy brethren, like unto me; unto him ye shall hearken;
+Yahweh your God will raise up to you a prophet from the midst of you, of your brothers, like me. You shall listen to him.

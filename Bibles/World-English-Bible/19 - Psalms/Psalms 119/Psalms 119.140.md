@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy word is very pure; Therefore thy servant loveth it.
+Your promises have been thoroughly tested, and your servant loves them.

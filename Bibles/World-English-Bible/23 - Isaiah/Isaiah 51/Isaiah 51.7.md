@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken unto me, ye that know righteousness, the people in whose heart is my law; fear ye not the reproach of men, neither be ye dismayed at their revilings.
+"Listen to me, you who know righteousness, the people in whose heart is my law; don't fear the reproach of men, neither be dismayed at their insults.

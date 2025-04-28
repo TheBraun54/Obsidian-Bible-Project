@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things have I spoken unto you, that in me ye may have peace. In the world ye have tribulation: but be of good cheer; I have overcome the world.
+I have told you these things, that in me you may have peace. In the world you have oppression; but cheer up! I have overcome the world."

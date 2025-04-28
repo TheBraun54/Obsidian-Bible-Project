@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took bread, and when he had given thanks, he brake it, and gave to them, saying, This is my body which is given for you: this do in remembrance of me.
+He took bread, and when he had given thanks, he broke it, and gave to them, saying, "This is my body which is given for you. Do this in memory of me."

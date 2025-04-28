@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, I tell you that, if these shall hold their peace, the stones will cry out.
+He answered them, "I tell you that if these were silent, the stones would cry out."

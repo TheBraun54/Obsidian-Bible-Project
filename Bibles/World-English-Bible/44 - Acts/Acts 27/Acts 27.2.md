@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And embarking in a ship of Adramyttium, which was about to sail unto the places on the coast of Asia, we put to sea, Aristarchus, a Macedonian of Thessalonica, being with us.
+Embarking in a ship of Adramyttium, which was about to sail to places on the coast of Asia, we put to sea; Aristarchus, a Macedonian of Thessalonica, being with us.

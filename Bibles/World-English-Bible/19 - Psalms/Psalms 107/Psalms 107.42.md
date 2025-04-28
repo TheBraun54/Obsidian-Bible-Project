@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The upright shall see it, and be glad; And all iniquity shall stop her mouth.
+The upright will see it, and be glad. All the wicked will shut their mouths.

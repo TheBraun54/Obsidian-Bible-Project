@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of the other Elam, a thousand two hundred fifty and four.
+The children of the other Elam, one thousand two hundred fifty-four.

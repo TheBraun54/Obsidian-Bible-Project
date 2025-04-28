@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the sons of Shecaniah, of the sons of Parosh, Zechariah; and with him were reckoned by genealogy of the males a hundred and fifty.
+Of the sons of Shecaniah, of the sons of Parosh, Zechariah; and with him were reckoned by genealogy of the males one hundred fifty.

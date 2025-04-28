@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus began to say unto them, Take heed that no man lead you astray.
+Jesus, answering, began to tell them, "Be careful that no one leads you astray.

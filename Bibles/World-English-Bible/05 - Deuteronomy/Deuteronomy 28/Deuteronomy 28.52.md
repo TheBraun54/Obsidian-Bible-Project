@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall besiege thee in all thy gates, until thy high and fortified walls come down, wherein thou trustedst, throughout all thy land; and they shall besiege thee in all thy gates throughout all thy land, which Jehovah thy God hath given thee.
+They shall besiege you in all your gates, until your high and fortified walls come down, in which you trusted, throughout all your land; and they shall besiege you in all your gates throughout all your land, which Yahweh your God has given you.

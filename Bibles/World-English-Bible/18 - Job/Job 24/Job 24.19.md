@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Drought and heat consume the snow waters: [So doth] Sheol [those that] have sinned.
+Drought and heat consume the snow waters, so does Sheol those who have sinned.

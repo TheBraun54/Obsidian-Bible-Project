@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bless Jehovah, all ye his hosts, Ye ministers of his, that do his pleasure.
+Praise Yahweh, all you armies of his, you servants of his, who do his pleasure.

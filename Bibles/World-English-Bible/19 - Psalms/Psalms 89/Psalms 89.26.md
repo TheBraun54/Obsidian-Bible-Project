@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall cry unto me, Thou art my Father, My God, and the rock of my salvation.
+He will call to me, 'You are my Father, my God, and the rock of my salvation!'

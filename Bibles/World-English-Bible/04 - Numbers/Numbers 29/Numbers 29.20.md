@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the third day eleven bullocks, two rams, fourteen he-lambs a year old without blemish;
+"'On the third day eleven bulls, two rams, fourteen male lambs a year old without blemish;

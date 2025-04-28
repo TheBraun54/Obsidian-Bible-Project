@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses gave Gilead unto Machir the son of Manasseh; and he dwelt therein.
+Moses gave Gilead to Machir the son of Manasseh; and he lived therein.

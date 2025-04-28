@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto him, How wast thou not afraid to put forth thy hand to destroy Jehovah's anointed?
+David said to him, "How were you not afraid to put forth your hand to destroy Yahweh's anointed?"

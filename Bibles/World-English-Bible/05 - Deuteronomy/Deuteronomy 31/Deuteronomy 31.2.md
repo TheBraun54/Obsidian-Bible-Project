@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, I am a hundred and twenty years old this day; I can no more go out and come in: and Jehovah hath said unto me, Thou shalt not go over this Jordan.
+He said to them, "I am one hundred twenty years old this day; I can no more go out and come in: and Yahweh has said to me, 'You shall not go over this Jordan.'

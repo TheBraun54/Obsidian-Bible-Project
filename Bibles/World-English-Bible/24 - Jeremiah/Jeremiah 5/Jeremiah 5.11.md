@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the house of Israel and the house of Judah have dealt very treacherously against me, saith Jehovah.
+For the house of Israel and the house of Judah have dealt very treacherously against me," says Yahweh.

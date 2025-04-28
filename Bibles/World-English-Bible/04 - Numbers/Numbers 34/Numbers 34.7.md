@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be your north border: from the great sea ye shall mark out for you mount Hor;
+"'This shall be your north border: from the great sea you shall mark out for you Mount Hor;

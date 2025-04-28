@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made proclamation and published through Nineveh by the decree of the king and his nobles, saying, Let neither man nor beast, herd nor flock, taste anything; let them not feed, nor drink water;
+He made a proclamation and published through Nineveh by the decree of the king and his nobles, saying, "Let neither man nor animal, herd nor flock, taste anything; let them not feed, nor drink water;

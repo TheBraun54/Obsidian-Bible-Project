@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the messenger said unto David, The men prevailed against us, and came out unto us into the field, and we were upon them even unto the entrance of the gate.
+The messenger said to David, "The men prevailed against us, and came out to us into the field, and we were on them even to the entrance of the gate.

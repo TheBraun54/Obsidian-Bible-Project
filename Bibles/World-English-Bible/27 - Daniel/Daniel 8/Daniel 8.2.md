@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw in the vision; now it was so, that when I saw, I was in Shushan the palace, which is in the province of Elam; and I saw in the vision, and I was by the river Ulai.
+I saw in the vision; now it was so, that when I saw, I was in the citadel of Susa, which is in the province of Elam; and I saw in the vision, and I was by the river Ulai.

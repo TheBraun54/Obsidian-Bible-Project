@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let now our princes be appointed for all the assembly, and let all them that are in our cities that have married foreign women come at appointed times, and with them the elders of every city, and the judges thereof, until the fierce wrath of our God be turned from us, until this matter be despatched.
+Let now our princes be appointed for all the assembly, and let all those who are in our cities who have married foreign women come at appointed times, and with them the elders of every city, and its judges, until the fierce wrath of our God be turned from us, until this matter is resolved."

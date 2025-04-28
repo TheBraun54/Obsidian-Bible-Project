@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he measured the wall thereof, a hundred and forty and four cubits, [according to] the measure of a man, that is, of an angel.
+Its wall is one hundred forty-four cubits, by the measure of a man, that is, of an angel.

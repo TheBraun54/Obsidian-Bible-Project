@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the lodges thereof, and the posts thereof, and the arches thereof, according to these measures: and there were windows in it and in the arches thereof round about; it was fifty cubits long, and five and twenty cubits broad.
+and its lodges, and its posts, and its arches, according to these measures: and there were windows in it and in its arches all around; it was fifty cubits long, and twenty-five cubits broad.

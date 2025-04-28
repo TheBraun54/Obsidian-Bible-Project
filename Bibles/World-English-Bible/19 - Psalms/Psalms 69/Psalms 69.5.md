@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O God, thou knowest my foolishness; And my sins are not hid from thee.
+God, you know my foolishness. My sins aren't hidden from you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salt is good: but if the salt have lost its saltness, wherewith will ye season it? Have salt in yourselves, and be at peace one with another.
+Salt is good, but if the salt has lost its saltiness, with what will you season it? Have salt in yourselves, and be at peace with one another."

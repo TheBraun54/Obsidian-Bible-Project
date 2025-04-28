@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith in his heart, I shall not be moved; To all generations I shall not be in adversity.
+He says in his heart, "I shall not be shaken. For generations I shall have no trouble."

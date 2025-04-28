@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Israel rebelled against the house of David unto this day.
+So Israel rebelled against the house of David to this day.

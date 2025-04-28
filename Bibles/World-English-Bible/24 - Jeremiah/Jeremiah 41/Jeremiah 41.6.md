@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ishmael the son of Nethaniah went forth from Mizpah to meet them, weeping all along as he went: and it came to pass, as he met them, he said unto them, Come to Gedaliah the son of Ahikam.
+Ishmael the son of Nethaniah went forth from Mizpah to meet them, weeping all along as he went: and it happened, as he met them, he said to them, Come to Gedaliah the son of Ahikam.

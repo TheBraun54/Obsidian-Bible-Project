@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abner sent messengers to David on his behalf, saying, Whose is the land? saying [also], Make thy league with me, and, behold, my hand shall be with thee, to bring about all Israel unto thee.
+Abner sent messengers to David on his behalf, saying, "Whose is the land?" and saying, "Make your alliance with me, and behold, my hand shall be with you, to bring all Israel around to you."

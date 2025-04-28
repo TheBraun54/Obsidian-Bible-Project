@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in his teaching he said, Beware of the scribes, who desire to walk in long robes, and [to have] salutations in the marketplaces,
+In his teaching he said to them, "Beware of the scribes, who like to walk in long robes, and to get greetings in the marketplaces,

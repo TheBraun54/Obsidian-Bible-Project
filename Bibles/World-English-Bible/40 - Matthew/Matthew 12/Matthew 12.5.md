@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or have ye not read in the law, that on the sabbath day the priests in the temple profane the sabbath, and are guiltless?
+Or have you not read in the law, that on the Sabbath day, the priests in the temple profane the Sabbath, and are guiltless?

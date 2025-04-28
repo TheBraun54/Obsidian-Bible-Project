@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when two years were fulfilled, Felix was succeeded by Porcius Festus; and desiring to gain favor with the Jews, Felix left Paul in bonds.
+But when two years were fulfilled, Felix was succeeded by Porcius Festus, and desiring to gain favor with the Jews, Felix left Paul in bonds.

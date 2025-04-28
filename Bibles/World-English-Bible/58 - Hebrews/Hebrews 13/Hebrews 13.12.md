@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Jesus also, that he might sanctify the people through his own blood, suffered without the gate.
+Therefore Jesus also, that he might sanctify the people through his own blood, suffered outside of the gate.

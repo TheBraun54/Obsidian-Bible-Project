@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they were baptized of him in the river Jordan, confessing their sins.
+They were baptized by him in the Jordan, confessing their sins.

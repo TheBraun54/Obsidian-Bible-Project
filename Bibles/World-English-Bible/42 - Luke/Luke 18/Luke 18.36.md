@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and hearing a multitude going by, he inquired what this meant.
+Hearing a multitude going by, he asked what this meant.

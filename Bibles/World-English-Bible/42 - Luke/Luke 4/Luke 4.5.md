@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he led him up, and showed him all the kingdoms of the world in a moment of time.
+The devil, leading him up on a high mountain, showed him all the kingdoms of the world in a moment of time.

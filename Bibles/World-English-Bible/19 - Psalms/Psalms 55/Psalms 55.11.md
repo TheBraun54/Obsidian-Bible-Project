@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wickedness is in the midst thereof: Oppression and guile depart not from its streets.
+Destructive forces are within her. Threats and lies don't depart from her streets.

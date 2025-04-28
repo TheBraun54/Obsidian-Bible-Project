@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt offer thy burnt-offerings, the flesh and the blood, upon the altar of Jehovah thy God; and the blood of thy sacrifices shall be poured out upon the altar of Jehovah thy God; and thou shalt eat the flesh.
+and you shall offer your burnt offerings, the flesh and the blood, on the altar of Yahweh your God; and the blood of your sacrifices shall be poured out on the altar of Yahweh your God; and you shall eat the flesh.

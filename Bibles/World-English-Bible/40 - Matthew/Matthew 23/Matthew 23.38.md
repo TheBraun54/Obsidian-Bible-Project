@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, your house is left unto you desolate.
+Behold, your house is left to you desolate.

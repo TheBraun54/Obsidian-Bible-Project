@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they came up against Judah, and brake into it, and carried away all the substance that was found in the king's house, and his sons also, and his wives; so that there was never a son left him, save Jehoahaz, the youngest of his sons.
+and they came up against Judah, and broke into it, and carried away all the substance that was found in the king's house, and his sons also, and his wives; so that there was never a son left him, except Jehoahaz, the youngest of his sons.

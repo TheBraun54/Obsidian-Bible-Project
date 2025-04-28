@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make fifty clasps of gold, and couple the curtains one to another with the clasps: and the tabernacle shall be one [whole] .
+You shall make fifty clasps of gold, and couple the curtains one to another with the clasps: and the tabernacle shall be a unit.

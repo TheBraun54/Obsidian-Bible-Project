@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and from the age of fifty years they shall cease waiting upon the work, and shall serve no more,
+and from the age of fifty years they shall cease waiting on the work, and shall serve no more,

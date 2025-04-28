@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let each man abide in that calling wherein he was called.
+Let each man stay in that calling in which he was called.

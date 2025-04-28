@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass from the time that he made him overseer in his house, and over all that he had, that Jehovah blessed the Egyptian's house for Joseph's sake; and the blessing of Jehovah was upon all that he had, in the house and in the field.
+It happened from the time that he made him overseer in his house, and over all that he had, that Yahweh blessed the Egyptian's house for Joseph's sake; and the blessing of Yahweh was on all that he had, in the house and in the field.

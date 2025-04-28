@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying with a great voice, Worthy is the Lamb that hath been slain to receive the power, and riches, and wisdom, and might and honor, and glory, and blessing.
+saying with a loud voice, "Worthy is the Lamb who has been killed to receive the power, wealth, wisdom, strength, honor, glory, and blessing!"

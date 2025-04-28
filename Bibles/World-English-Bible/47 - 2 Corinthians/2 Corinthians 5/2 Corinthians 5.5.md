@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he that wrought us for this very thing is God, who gave unto us the earnest of the Spirit.
+Now he who made us for this very thing is God, who also gave to us the down payment of the Spirit.

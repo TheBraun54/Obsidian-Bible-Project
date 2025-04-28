@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon earth there is not his like, That is made without fear.
+On earth there is not his equal, that is made without fear.

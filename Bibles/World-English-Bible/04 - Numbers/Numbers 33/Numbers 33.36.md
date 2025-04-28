@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Ezion-geber, and encamped in the wilderness of Zin (the same is Kadesh).
+They traveled from Ezion Geber, and encamped in the wilderness of Zin (the same is Kadesh).

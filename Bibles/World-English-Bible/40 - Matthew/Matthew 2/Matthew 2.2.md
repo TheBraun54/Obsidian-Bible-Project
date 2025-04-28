@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where is he that is born King of the Jews? for we saw his star in the east, and are come to worship him.
+"Where is he who is born King of the Jews? For we saw his star in the east, and have come to worship him."

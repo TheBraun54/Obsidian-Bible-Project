@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For then shalt thou delight thyself in the Almighty, And shalt lift up thy face unto God.
+For then you will delight yourself in the Almighty, and shall lift up your face to God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things I saw another angel coming down out of heaven, having great authority; and the earth was lightened with his glory.
+After these things, I saw another angel coming down out of the sky, having great authority. The earth was illuminated with his glory.

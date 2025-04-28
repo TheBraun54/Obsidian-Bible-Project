@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will establish my covenant with you; neither shall all flesh be cut off any more by the waters of the flood; neither shall there any more be a flood to destroy the earth.
+I will establish my covenant with you: all flesh will not be cut off any more by the waters of the flood, neither will there ever again be a flood to destroy the earth."

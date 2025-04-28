@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus will I do unto this place, saith Jehovah, and to the inhabitants thereof, even making this city as Topheth:
+Thus will I do to this place, says Yahweh, and to its inhabitants, even making this city as Topheth:

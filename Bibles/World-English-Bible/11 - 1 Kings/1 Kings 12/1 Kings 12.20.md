@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when all Israel heard that Jeroboam was returned, that they sent and called him unto the congregation, and made him king over all Israel: there was none that followed the house of David, but the tribe of Judah only.
+It happened, when all Israel heard that Jeroboam was returned, that they sent and called him to the congregation, and made him king over all Israel: there was none who followed the house of David, but the tribe of Judah only.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou to me a rock of habitation, whereunto I may continually resort: Thou hast given commandment to save me; For thou art my rock and my fortress.
+Be to me a rock of refuge to which I may always go. Give the command to save me, for you are my rock and my fortress.

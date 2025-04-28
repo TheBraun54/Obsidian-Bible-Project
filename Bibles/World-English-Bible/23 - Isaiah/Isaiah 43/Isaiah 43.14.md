@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, your Redeemer, the Holy One of Israel: For your sake I have sent to Babylon, and I will bring down all of them as fugitives, even the Chaldeans, in the ships of their rejoicing.
+Thus says Yahweh, your Redeemer, the Holy One of Israel: "For your sake, I have sent to Babylon, and I will bring all of them down as fugitives, even the Chaldeans, in the ships of their rejoicing.

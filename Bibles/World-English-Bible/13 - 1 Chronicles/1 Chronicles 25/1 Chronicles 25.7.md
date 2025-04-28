@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the number of them, with their brethren that were instructed in singing unto Jehovah, even all that were skilful, was two hundred fourscore and eight.
+The number of them, with their brothers who were instructed in singing to Yahweh, even all who were skillful, was two hundred eighty-eight.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-remembering without ceasing your work of faith and labor of love and patience of hope in our Lord Jesus Christ, before our God and Father;
+remembering without ceasing your work of faith and labor of love and patience of hope in our Lord Jesus Christ, before our God and Father.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the body is one, and hath many members, and all the members of the body, being many, are one body; so also is Christ.
+For as the body is one, and has many members, and all the members of the body, being many, are one body; so also is Christ.

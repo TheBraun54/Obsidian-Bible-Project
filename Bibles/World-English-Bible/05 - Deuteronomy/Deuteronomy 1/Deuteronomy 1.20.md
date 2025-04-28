@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto you, Ye are come unto the hill-country of the Amorites, which Jehovah our God giveth unto us.
+I said to you, "You have come to the hill country of the Amorites, which Yahweh our God gives to us.

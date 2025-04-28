@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made fifty loops on the edge of the curtain that was outmost in the coupling, and fifty loops made he upon the edge of the curtain which was [outmost in] the second coupling.
+He made fifty loops on the edge of the curtain that was outmost in the coupling, and he made fifty loops on the edge of the curtain which was outmost in the second coupling.

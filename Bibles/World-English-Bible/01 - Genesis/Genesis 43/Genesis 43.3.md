@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah spake unto him, saying, The man did solemnly protest unto us, saying, Ye shall not see my face, except your brother be with you.
+Judah spoke to him, saying, "The man solemnly warned us, saying, 'You shall not see my face, unless your brother is with you.'

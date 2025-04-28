@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all those that seek thee rejoice and be glad in thee: Let such as love thy salvation say continually, Jehovah be magnified.
+Let all those who seek you rejoice and be glad in you. Let such as love your salvation say continually, "Let Yahweh be exalted!"

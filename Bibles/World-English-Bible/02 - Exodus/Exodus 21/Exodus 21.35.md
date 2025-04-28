@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if one man's ox hurt another's, so that it dieth, then they shall sell the live ox, and divide the price of it; and the dead also they shall divide.
+"If one man's bull injures another's, so that it dies, then they shall sell the live bull, and divide its price; and they shall also divide the dead animal.

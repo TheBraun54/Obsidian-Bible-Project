@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought out the Asherah from the house of Jehovah, without Jerusalem, unto the brook Kidron, and burned it at the brook Kidron, and beat it to dust, and cast the dust thereof upon the graves of the common people.
+He brought out the Asherah from the house of Yahweh, outside of Jerusalem, to the brook Kidron, and burned it at the brook Kidron, and beat it to dust, and cast its dust on the graves of the common people.

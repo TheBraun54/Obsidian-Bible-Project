@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When my father and my mother forsake me, Then Jehovah will take me up.
+When my father and my mother forsake me, then Yahweh will take me up.

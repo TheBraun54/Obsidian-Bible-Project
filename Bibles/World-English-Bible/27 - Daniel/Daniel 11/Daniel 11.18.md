@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this shall he turn his face unto the isles, and shall take many: but a prince shall cause the reproach offered by him to cease; yea, moreover, he shall cause his reproach to turn upon him.
+After this shall he turn his face to the islands, and shall take many: but a prince shall cause the reproach offered by him to cease; yes, moreover, he shall cause his reproach to turn on him.

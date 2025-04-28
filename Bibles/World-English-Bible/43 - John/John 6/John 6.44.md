@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No man can come to me, except the Father that sent me draw him: and I will raise him up in the last day.
+No one can come to me unless the Father who sent me draws him, and I will raise him up in the last day.

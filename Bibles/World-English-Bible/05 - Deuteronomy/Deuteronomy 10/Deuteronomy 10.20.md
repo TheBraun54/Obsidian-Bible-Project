@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt fear Jehovah thy God; him shalt thou serve; and to him shalt thou cleave, and by his name shalt thou swear.
+You shall fear Yahweh your God; you shall serve him; and you shall cling to him, and you shall swear by his name.

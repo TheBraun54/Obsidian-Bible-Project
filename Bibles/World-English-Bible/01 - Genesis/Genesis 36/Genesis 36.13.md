@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the sons of Reuel: Nahath, and Zerah, Shammah, and Mizzah: these were the sons of Basemath, Esau's wife.
+These are the sons of Reuel: Nahath, Zerah, Shammah, and Mizzah. These were the sons of Basemath, Esau's wife.

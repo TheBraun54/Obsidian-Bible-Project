@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A mountain of God is the mountain of Bashan; A high mountain is the mountain of Bashan.
+The mountains of Bashan are majestic mountains. The mountains of Bashan are rugged.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whence then cometh wisdom? And where is the place of understanding?
+Where then does wisdom come from? Where is the place of understanding?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as touching the ministering to the saints, it is superfluous for me to write to you:
+It is indeed unnecessary for me to write to you concerning the service to the saints,

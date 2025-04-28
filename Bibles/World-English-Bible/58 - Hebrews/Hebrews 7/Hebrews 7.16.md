@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who hath been made, not after the law of a carnal commandment, but after the power of an endless life:
+who has been made, not after the law of a fleshly commandment, but after the power of an endless life:

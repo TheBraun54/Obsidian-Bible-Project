@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he humbled thee, and suffered thee to hunger, and fed thee with manna, which thou knewest not, neither did thy fathers know; that he might make thee know that man doth not live by bread only, but by everything that proceedeth out of the mouth of Jehovah doth man live.
+He humbled you, and allowed you to hunger, and fed you with manna, which you didn't know, neither did your fathers know; that he might make you know that man does not live by bread only, but by everything that proceeds out of the mouth of Yahweh does man live.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the soul that eateth of the flesh of the sacrifice of peace-offerings, that pertain unto Jehovah, having his uncleanness upon him, that soul shall be cut off from his people.
+but the soul who eats of the flesh of the sacrifice of peace offerings, that belongs to Yahweh, having his uncleanness on him, that soul shall be cut off from his people.

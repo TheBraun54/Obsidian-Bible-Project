@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As oft as the trumpet [soundeth] he saith, Aha! And he smelleth the battle afar off, The thunder of the captains, and the shouting.
+As often as the trumpet sounds he snorts, 'Aha!' He smells the battle afar off, the thunder of the captains, and the shouting.

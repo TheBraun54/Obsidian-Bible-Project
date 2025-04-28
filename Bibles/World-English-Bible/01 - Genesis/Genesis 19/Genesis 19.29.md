@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when God destroyed the cities of the Plain, that God remembered Abraham, and sent Lot out of the midst of the overthrow, when he overthrew the cities in which Lot dwelt.
+It happened, when God destroyed the cities of the plain, that God remembered Abraham, and sent Lot out of the middle of the overthrow, when he overthrew the cities in which Lot lived.

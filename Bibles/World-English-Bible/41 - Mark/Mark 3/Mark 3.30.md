@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they said, He hath an unclean spirit.
+--because they said, "He has an unclean spirit."

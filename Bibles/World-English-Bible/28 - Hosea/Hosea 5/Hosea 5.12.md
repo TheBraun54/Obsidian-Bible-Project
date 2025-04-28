@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore am I unto Ephraim as a moth, and to the house of Judah as rottenness.
+Therefore I am to Ephraim like a moth, and to the house of Judah like rottenness.

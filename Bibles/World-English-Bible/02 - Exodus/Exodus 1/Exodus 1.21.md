@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, because the midwives feared God, that he made them households.
+It happened, because the midwives feared God, that he gave them families.

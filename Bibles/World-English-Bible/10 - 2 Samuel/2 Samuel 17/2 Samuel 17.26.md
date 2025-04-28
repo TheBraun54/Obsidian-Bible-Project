@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel and Absalom encamped in the land of Gilead.
+Israel and Absalom encamped in the land of Gilead.

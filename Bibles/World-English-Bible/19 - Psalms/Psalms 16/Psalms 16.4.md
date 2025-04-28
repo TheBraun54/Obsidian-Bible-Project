@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their sorrows shall be multiplied that give gifts for another [god] : Their drink-offerings of blood will I not offer, Nor take their names upon my lips.
+Their sorrows shall be multiplied who give gifts to another god. Their drink offerings of blood I will not offer, nor take their names on my lips.

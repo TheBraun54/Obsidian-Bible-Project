@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man shall open a pit, or if a man shall dig a pit and not cover it, and an ox or an ass fall therein,
+"If a man opens a pit, or if a man digs a pit and doesn't cover it, and a bull or a donkey falls into it,

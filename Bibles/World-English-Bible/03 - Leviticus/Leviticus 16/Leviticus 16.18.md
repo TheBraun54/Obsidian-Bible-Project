@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall go out unto the altar that is before Jehovah, and make atonement for it, and shall take of the blood of the bullock, and of the blood of the goat, and put it upon the horns of the altar round about.
+"He shall go out to the altar that is before Yahweh and make atonement for it, and shall take some of the bull's blood, and some of the goat's blood, and put it around on the horns of the altar.

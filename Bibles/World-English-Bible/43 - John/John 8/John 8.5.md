@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in the law Moses commanded us to stone such: what then sayest thou of her?
+Now in our law, Moses commanded us to stone such. What then do you say about her?"

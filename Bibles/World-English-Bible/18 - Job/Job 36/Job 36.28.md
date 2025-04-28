@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which the skies pour down And drop upon man abundantly.
+Which the skies pour down and which drop on man abundantly.

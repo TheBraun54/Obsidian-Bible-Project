@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Reuben and the children of Gad called the altar [Ed] : For, [said they], it is a witness between us that Jehovah is God.
+The children of Reuben and the children of Gad named the altar "A Witness Between Us that Yahweh is God."

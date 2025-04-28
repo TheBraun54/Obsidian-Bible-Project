@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ He shall be] as the light of the morning, when the sun riseth, A morning without clouds, [When] the tender grass [springeth] out of the earth, Through clear shining after rain.
+shall be as the light of the morning, when the sun rises, a morning without clouds, when the tender grass springs out of the earth, through clear shining after rain.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ner begat Kish; and Kish begat Saul; and Saul begat Jonathan, and Malchi-shua, and Abinadab, and Eshbaal.
+Ner became the father of Kish; and Kish became the father of Saul; and Saul became the father of Jonathan, and Malchishua, and Abinadab, and Eshbaal.

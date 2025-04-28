@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they are my servants, whom I brought forth out of the land of Egypt: they shall not be sold as bondmen.
+For they are my servants, whom I brought forth out of the land of Egypt. They shall not be sold as slaves.

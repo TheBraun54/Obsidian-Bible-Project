@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they have not served thee in their kingdom, and in thy great goodness that thou gavest them, and in the large and fat land which thou gavest before them, neither turned they from their wicked works.
+For they have not served you in their kingdom, and in your great goodness that you gave them, and in the large and rich land which you gave before them, neither did they turn from their wicked works.

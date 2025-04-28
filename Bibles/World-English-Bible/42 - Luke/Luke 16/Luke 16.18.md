@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one that putteth away his wife, and marrieth another, committeth adultery: and he that marrieth one that is put away from a husband committeth adultery.
+Everyone who divorces his wife, and marries another, commits adultery. He who marries one who is divorced from a husband commits adultery.

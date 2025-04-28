@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they shall sing of the ways of Jehovah; For great is the glory of Jehovah.
+Yes, they will sing of the ways of Yahweh; for great is Yahweh's glory.

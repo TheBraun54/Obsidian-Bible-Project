@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man bowed his head, and worshipped Jehovah.
+The man bowed his head, and worshiped Yahweh.

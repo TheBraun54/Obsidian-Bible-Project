@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for, Whosoever shall call upon the name of the Lord shall be saved.
+For, "Whoever will call on the name of the Lord will be saved."

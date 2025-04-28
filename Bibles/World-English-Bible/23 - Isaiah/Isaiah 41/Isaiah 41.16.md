@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt winnow them, and the wind shall carry them away, and the whirlwind shall scatter them; and thou shalt rejoice in Jehovah, thou shalt glory in the Holy One of Israel.
+You will winnow them, and the wind will carry them away, and the whirlwind will scatter them. You will rejoice in Yahweh. You will glory in the Holy One of Israel.

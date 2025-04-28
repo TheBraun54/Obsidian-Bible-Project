@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Balaam saw that it pleased Jehovah to bless Israel, he went not, as at the other times, to meet with enchantments, but he set his face toward the wilderness.
+When Balaam saw that it pleased Yahweh to bless Israel, he didn't go, as at the other times, to meet with enchantments, but he set his face toward the wilderness.

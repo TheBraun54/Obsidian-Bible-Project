@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nebuchadnezzar answered and said unto them, Is it of purpose, O Shadrach, Meshach, and Abed-nego, that ye serve not my god, nor worship the golden image which I have set up?
+Nebuchadnezzar answered them, Is it on purpose, Shadrach, Meshach, and Abednego, that you don't serve my god, nor worship the golden image which I have set up?

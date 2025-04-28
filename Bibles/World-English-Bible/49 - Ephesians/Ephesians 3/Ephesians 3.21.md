@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto him [be] the glory in the church and in Christ Jesus unto all generations for ever and ever. Amen.
+to him be the glory in the assembly and in Christ Jesus to all generations forever and ever. Amen.

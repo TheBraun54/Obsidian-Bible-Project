@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of thy thunder was in the whirlwind; The lightnings lightened the world: The earth trembled and shook.
+The voice of your thunder was in the whirlwind. The lightnings lit up the world. The earth trembled and shook.

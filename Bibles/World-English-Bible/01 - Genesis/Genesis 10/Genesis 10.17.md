@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Hivite, and the Arkite, and the Sinite,
+the Hivite, the Arkite, the Sinite,

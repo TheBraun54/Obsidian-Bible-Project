@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the sons of Seir the Horite, the inhabitants of the land: Lotan and Shobal and Zibeon and Anah,
+These are the sons of Seir the Horite, the inhabitants of the land: Lotan, Shobal, Zibeon, Anah,

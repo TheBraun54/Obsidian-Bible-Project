@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet many years didst thou bear with them, and testifiedst against them by thy Spirit through thy prophets: yet would they not give ear: therefore gavest thou them into the hand of the peoples of the lands.
+Yet many years you put up with them, and testified against them by your Spirit through your prophets. Yet would they not give ear. Therefore you gave them into the hand of the peoples of the lands.

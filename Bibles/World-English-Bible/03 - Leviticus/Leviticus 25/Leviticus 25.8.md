@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt number seven sabbaths of years unto thee, seven times seven years; and there shall be unto thee the days of seven sabbaths of years, even forty and nine years.
+"'You shall count off seven Sabbaths of years, seven times seven years; and there shall be to you the days of seven Sabbaths of years, even forty-nine years.

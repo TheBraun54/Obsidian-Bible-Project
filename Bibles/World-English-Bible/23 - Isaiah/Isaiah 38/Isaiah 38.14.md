@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Like a swallow [or] a crane, so did I chatter; I did moan as a dove; mine eyes fail [with looking] upward: O Lord, I am oppressed, be thou my surety.
+I chattered like a swallow or a crane. I moaned like a dove. My eyes weaken looking upward. Lord, I am oppressed. Be my security."

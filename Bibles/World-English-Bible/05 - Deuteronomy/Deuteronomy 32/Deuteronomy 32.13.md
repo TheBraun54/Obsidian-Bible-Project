@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made him ride on the high places of the earth, And he did eat the increase of the field; And he made him to suck honey out of the rock, And oil out of the flinty rock;
+He made him ride on the high places of the earth. He ate the increase of the field. He caused him to suck honey out of the rock, oil out of the flinty rock;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have not eaten thereof in my mourning, neither have I put away thereof, being unclean, nor given thereof for the dead: I have hearkened to the voice of Jehovah my God; I have done according to all that thou hast commanded me.
+I have not eaten of it in my mourning, neither have I put away of it, being unclean, nor given of it for the dead: I have listened to the voice of Yahweh my God; I have done according to all that you have commanded me.

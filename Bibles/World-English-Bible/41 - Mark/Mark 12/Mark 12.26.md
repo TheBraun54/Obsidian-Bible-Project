@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as touching the dead, that they are raised; have ye not read in the book of Moses, in [the place concerning] the Bush, how God spake unto him, saying, I [am] the God of Abraham, and the God of Isaac, and the God of Jacob?
+But about the dead, that they are raised; haven't you read in the book of Moses, about the Bush, how God spoke to him, saying, 'I am the God of Abraham, the God of Isaac, and the God of Jacob'?

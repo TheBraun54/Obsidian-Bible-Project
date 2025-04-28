@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And because he loved thy fathers, therefore he chose their seed after them, and brought thee out with his presence, with his great power, out of Egypt;
+Because he loved your fathers, therefore he chose their seed after them, and brought you out with his presence, with his great power, out of Egypt;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a fire is gone out of Heshbon, A flame from the city of Sihon: It hath devoured Ar of Moab, The lords of the high places of the Arnon.
+for a fire has gone out of Heshbon, a flame from the city of Sihon. It has devoured Ar of Moab, The lords of the high places of the Arnon.

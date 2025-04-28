@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of the south shall be strong, and [one] of his princes; and he shall be strong above him, and have dominion; his dominion shall be a great dominion.
+The king of the south shall be strong, and [one] of his princes; and he shall be strong above him, and have dominion; his dominion shall be a great dominion.

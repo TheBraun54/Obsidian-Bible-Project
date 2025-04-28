@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But one passed by, and, lo, he was not: Yea, I sought him, but he could not be found.
+But he passed away, and behold, he was not. Yes, I sought him, but he could not be found.

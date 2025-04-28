@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the judgment, that the light is come into the world, and men loved the darkness rather than the light; for their works were evil.
+This is the judgment, that the light has come into the world, and men loved the darkness rather than the light; for their works were evil.

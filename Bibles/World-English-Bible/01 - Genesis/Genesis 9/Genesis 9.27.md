@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God enlarge Japheth, And let him dwell in the tents of Shem; And let Canaan be his servant.
+May God enlarge Japheth. Let him dwell in the tents of Shem. Let Canaan be his servant."

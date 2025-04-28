@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he saw her, that he rent his clothes, and said, Alas, my daughter! thou hast brought me very low, and thou art one of them that trouble me; for I have opened my mouth unto Jehovah, and I cannot go back.
+It happened, when he saw her, that he tore his clothes, and said, "Alas, my daughter! You have brought me very low, and you are one of those who trouble me; for I have opened my mouth to Yahweh, and I can't go back."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Kinah, and Dimonah, and Adadah,
+Kinah, Dimonah, Adadah,

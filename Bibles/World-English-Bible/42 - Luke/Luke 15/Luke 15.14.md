@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had spent all, there arose a mighty famine in that country; and he began to be in want.
+When he had spent all of it, there arose a severe famine in that country, and he began to be in need.

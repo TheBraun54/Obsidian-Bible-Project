@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we say, We will enter into the city, then the famine is in the city, and we shall die there; and if we sit still here, we die also. Now therefore come, and let us fall unto the host of the Syrians: if they save us alive, we shall live; and if they kill us, we shall but die.
+If we say, 'We will enter into the city,' then the famine is in the city, and we shall die there. If we sit still here, we also die. Now therefore come, and let us surrender to the army of the Syrians. If they save us alive, we will live; and if they kill us, we will only die."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any beast, of which ye may eat, die; he that toucheth the carcass thereof shall be unclean until the even.
+"'If any animal, of which you may eat, dies; he who touches its carcass shall be unclean until the evening.

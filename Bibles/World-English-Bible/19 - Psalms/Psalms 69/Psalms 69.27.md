@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Add iniquity unto their iniquity; And let them not come into thy righteousness.
+Charge them with crime upon crime. Don't let them come into your righteousness.

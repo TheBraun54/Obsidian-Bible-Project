@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that your generations may know that I made the children of Israel to dwell in booths, when I brought them out of the land of Egypt: I am Jehovah your God.
+that your generations may know that I made the children of Israel to dwell in booths, when I brought them out of the land of Egypt. I am Yahweh your God.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say unto you that it shall be more tolerable for the land of Sodom in the day of judgment, than for thee.
+But I tell you that it will be more tolerable for the land of Sodom, on the day of judgment, than for you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or speak to the earth, and it shall teach thee; And the fishes of the sea shall declare unto thee.
+Or speak to the earth, and it shall teach you. The fish of the sea shall declare to you.

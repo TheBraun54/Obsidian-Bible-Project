@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the end that ye should walk worthily of God, who calleth you into his own kingdom and glory.
+to the end that you should walk worthily of God, who calls you into his own Kingdom and glory.

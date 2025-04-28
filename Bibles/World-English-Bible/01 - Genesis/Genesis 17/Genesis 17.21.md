@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But my covenant will I establish with Isaac, whom Sarah shall bear unto thee at this set time in the next year.
+But my covenant I establish with Isaac, whom Sarah will bear to you at this set time next year."

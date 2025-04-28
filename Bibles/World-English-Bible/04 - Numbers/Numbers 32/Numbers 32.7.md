@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And wherefore discourage ye the heart of the children of Israel from going over into the land which Jehovah hath given them?
+Why do you discourage the heart of the children of Israel from going over into the land which Yahweh has given them?

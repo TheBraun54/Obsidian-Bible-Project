@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they passed through Pisidia, and came to Pamphylia.
+They passed through Pisidia, and came to Pamphylia.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Is the lamp brought to be put under the bushel, or under the bed, [and] not to be put on the stand?
+He said to them, "Is the lamp brought to be put under a basket or under a bed? Isn't it put on a stand?

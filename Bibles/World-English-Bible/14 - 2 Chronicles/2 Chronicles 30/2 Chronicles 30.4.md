@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the thing was right in the eyes of the king and of all the assembly.
+The thing was right in the eyes of the king and of all the assembly.

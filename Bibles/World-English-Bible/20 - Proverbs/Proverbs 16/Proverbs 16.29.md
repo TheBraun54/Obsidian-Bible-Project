@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man of violence enticeth his neighbor, And leadeth him in a way that is not good.
+A man of violence entices his neighbor, and leads him in a way that is not good.

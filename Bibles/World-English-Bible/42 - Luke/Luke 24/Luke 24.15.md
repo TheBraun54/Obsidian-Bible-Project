@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while they communed and questioned together, that Jesus himself drew near, and went with them.
+It happened, while they talked and questioned together, that Jesus himself came near, and went with them.

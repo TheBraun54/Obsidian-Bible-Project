@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause also the multitude went and met him, for that they heard that he had done this sign.
+For this cause also the multitude went and met him, because they heard that he had done this sign.

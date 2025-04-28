@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My anguish, my anguish! I am pained at my very heart; my heart is disquieted in me; I cannot hold my peace; because thou hast heard, O my soul, the sound of the trumpet, the alarm of war.
+My anguish, my anguish! I am pained at my very heart; my heart is disquieted in me; I can't hold my peace; because you have heard, O my soul, the sound of the trumpet, the alarm of war.

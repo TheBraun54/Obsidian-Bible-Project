@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the princes of the provinces, and the satraps, and the governors, and they that did the king's business, helped the Jews; because the fear of Mordecai was fallen upon them.
+All the princes of the provinces, the satraps, the governors, and those who did the king's business helped the Jews, because the fear of Mordecai had fallen on them.

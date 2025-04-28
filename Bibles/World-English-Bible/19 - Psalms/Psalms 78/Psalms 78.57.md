@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But turned back, and dealt treacherously like their fathers: They were turned aside like a deceitful bow.
+but turned back, and dealt treacherously like their fathers. They were turned aside like a deceitful bow.

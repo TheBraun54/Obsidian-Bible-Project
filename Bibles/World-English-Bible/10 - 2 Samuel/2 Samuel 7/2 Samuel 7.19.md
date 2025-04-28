@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this was yet a small thing in thine eyes, O Lord Jehovah; but thou hast spoken also of thy servant's house for a great while to come; and this [too] after the manner of men, O Lord Jehovah!
+This was yet a small thing in your eyes, Lord Yahweh; but you have spoken also of your servant's house for a great while to come; and this after the way of men, Lord Yahweh!

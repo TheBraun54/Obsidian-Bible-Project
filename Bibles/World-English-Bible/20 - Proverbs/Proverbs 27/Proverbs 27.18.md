@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso keepeth the fig-tree shall eat the fruit thereof; And he that regardeth his master shall be honored.
+Whoever tends the fig tree shall eat its fruit. He who looks after his master shall be honored.

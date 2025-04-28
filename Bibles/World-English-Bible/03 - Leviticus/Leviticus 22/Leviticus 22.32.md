@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall not profane my holy name; but I will be hallowed among the children of Israel: I am Jehovah who halloweth you,
+You shall not profane my holy name, but I will be made holy among the children of Israel. I am Yahweh who makes you holy,

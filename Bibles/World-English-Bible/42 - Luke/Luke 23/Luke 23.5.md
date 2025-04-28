@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they were the more urgent, saying, He stirreth up the people, teaching throughout all Judaea, and beginning from Galilee even unto this place.
+But they insisted, saying, "He stirs up the people, teaching throughout all Judea, beginning from Galilee even to this place."

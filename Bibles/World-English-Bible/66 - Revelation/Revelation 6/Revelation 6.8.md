@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw, and behold, a pale horse: and he that sat upon him, his name was Death; and Hades followed with him. And there was given unto them authority over the fourth part of the earth, to kill with sword, and with famine, and with death, and by the wild beasts of the earth.
+And behold, a pale horse, and he who sat on it, his name was Death. Hades followed with him. Authority over one fourth of the earth, to kill with the sword, with famine, with death, and by the wild animals of the earth was given to him.

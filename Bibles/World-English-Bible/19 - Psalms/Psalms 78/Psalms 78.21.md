@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Jehovah heard, and was wroth; And a fire was kindled against Jacob, And anger also went up against Israel;
+Therefore Yahweh heard, and was angry. A fire was kindled against Jacob, anger also went up against Israel,

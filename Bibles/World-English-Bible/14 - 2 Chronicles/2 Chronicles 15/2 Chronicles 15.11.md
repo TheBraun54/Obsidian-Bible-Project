@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sacrificed unto Jehovah in that day, of the spoil which they had brought, seven hundred oxen and seven thousand sheep.
+They sacrificed to Yahweh in that day, of the spoil which they had brought, seven hundred head of cattle and seven thousand sheep.

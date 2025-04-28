@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The unclean spirit when he is gone out of the man, passeth through waterless places, seeking rest, and finding none, he saith, I will turn back unto my house whence I came out.
+The unclean spirit, when he has gone out of the man, passes through dry places, seeking rest, and finding none, he says, 'I will turn back to my house from which I came out.'

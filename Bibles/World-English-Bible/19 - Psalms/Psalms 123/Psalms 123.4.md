@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our soul is exceedingly filled With the scoffing of those that are at ease, And with the contempt of the proud.
+Our soul is exceedingly filled with the scoffing of those who are at ease, with the contempt of the proud. A Song of Ascents. By David.

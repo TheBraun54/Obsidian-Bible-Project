@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And grieve not the Holy Spirit of God, in whom ye were sealed unto the day of redemption.
+Don't grieve the Holy Spirit of God, in whom you were sealed for the day of redemption.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when thou hast seen it, thou also shalt be gathered unto thy people, as Aaron thy brother was gathered;
+When you have seen it, you also shall be gathered to your people, as Aaron your brother was gathered;

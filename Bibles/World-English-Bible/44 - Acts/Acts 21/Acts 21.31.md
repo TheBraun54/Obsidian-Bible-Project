@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they were seeking to kill him, tidings came up to the chief captain of the band, that all Jerusalem was in confusion.
+As they were trying to kill him, news came up to the commanding officer of the regiment that all Jerusalem was in an uproar.

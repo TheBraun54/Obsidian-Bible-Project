@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make me to understand the way of thy precepts: So shall I meditate on thy wondrous works.
+Let me understand the teaching of your precepts! Then I will meditate on your wondrous works.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and having found a ship crossing over unto Phoenicia, we went aboard, and set sail.
+Having found a ship crossing over to Phoenicia, we went aboard, and set sail.

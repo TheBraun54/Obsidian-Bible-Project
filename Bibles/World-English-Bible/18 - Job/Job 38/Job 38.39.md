@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou hunt the prey for the lioness, Or satisfy the appetite of the young lions,
+"Can you hunt the prey for the lioness, or satisfy the appetite of the young lions,

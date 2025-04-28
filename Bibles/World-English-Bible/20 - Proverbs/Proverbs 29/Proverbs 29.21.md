@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that delicately bringeth up his servant from a child Shall have him become a son at the last.
+He who pampers his servant from youth will have him become a son in the end.

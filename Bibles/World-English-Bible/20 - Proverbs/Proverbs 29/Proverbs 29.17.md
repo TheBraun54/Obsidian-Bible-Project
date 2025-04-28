@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Correct thy son, and he will give thee rest; Yea, he will give delight unto thy soul.
+Correct your son, and he will give you peace; yes, he will bring delight to your soul.

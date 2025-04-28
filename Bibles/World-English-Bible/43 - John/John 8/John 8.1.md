@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Jesus went unto the mount of Olives.
+but Jesus went to the Mount of Olives.

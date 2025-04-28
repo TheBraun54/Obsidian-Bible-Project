@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give children to be their princes, and babes shall rule over them.
+I will give boys to be their princes, and children shall rule over them.

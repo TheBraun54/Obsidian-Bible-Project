@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that it might be fulfilled which was spoken through the prophet, saying, I will open my mouth in parables; I will utter things hidden from the foundation of the world. [
+that it might be fulfilled which was spoken through the prophet, saying, "I will open my mouth in parables; I will utter things hidden from the foundation of the world."

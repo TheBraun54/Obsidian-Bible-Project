@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king made of the algum-trees terraces for the house of Jehovah, and for the king's house, and harps and psalteries for the singers: and there were none such seen before in the land of Judah.
+The king made of the algum trees terraces for the house of Yahweh, and for the king's house, and harps and stringed instruments for the singers: and there were none like these seen before in the land of Judah.

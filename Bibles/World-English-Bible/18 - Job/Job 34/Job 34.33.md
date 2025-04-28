@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall his recompense be as thou wilt, that thou refusest it? For thou must choose, and not I: Therefore speak what thou knowest.
+Shall his recompense be as you desire, that you refuse it? For you must choose, and not I. Therefore speak what you know.

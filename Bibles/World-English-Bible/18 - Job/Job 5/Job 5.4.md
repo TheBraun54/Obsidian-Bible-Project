@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His children are far from safety, And they are crushed in the gate, Neither is there any to deliver them:
+His children are far from safety. They are crushed in the gate. Neither is there any to deliver them,

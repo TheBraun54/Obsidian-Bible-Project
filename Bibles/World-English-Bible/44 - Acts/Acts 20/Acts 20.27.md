@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I shrank not from declaring unto you the whole counsel of God.
+for I didn't shrink from declaring to you the whole counsel of God.

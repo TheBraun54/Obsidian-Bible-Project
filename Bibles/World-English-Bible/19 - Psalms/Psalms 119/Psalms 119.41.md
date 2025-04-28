@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-VAV. Let thy lovingkindnesses also come unto me, O Jehovah, Even thy salvation, according to thy word.
+Let your loving kindness also come to me, Yahweh, your salvation, according to your word.

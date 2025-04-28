@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Moses heard [that], it was well-pleasing in his sight.
+When Moses heard that, it was pleasing in his sight.

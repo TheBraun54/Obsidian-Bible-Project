@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the poor will never cease out of the land: therefore I command thee, saying, Thou shalt surely open thy hand unto thy brother, to thy needy, and to thy poor, in thy land.
+For the poor will never cease out of the land: therefore I command you, saying, You shall surely open your hand to your brother, to your needy, and to your poor, in your land.

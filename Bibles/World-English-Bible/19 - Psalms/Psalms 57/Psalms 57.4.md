@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul is among lions; I lie among them that are set on fire, Even the sons of men, whose teeth are spears and arrows, And their tongue a sharp sword.
+My soul is among lions. I lie among those who are set on fire, even the sons of men, whose teeth are spears and arrows, and their tongue a sharp sword.

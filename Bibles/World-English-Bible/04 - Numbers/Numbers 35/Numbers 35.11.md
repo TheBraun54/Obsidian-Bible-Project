@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then ye shall appoint you cities to be cities of refuge for you, that the manslayer that killeth any person unwittingly may flee thither.
+then you shall appoint you cities to be cities of refuge for you, that the manslayer who kills any person unwittingly may flee there.

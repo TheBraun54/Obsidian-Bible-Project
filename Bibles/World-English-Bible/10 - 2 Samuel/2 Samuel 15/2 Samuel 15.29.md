@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zadok therefore and Abiathar carried the ark of God again to Jerusalem: and they abode there.
+Zadok therefore and Abiathar carried the ark of God again to Jerusalem; and they stayed there.

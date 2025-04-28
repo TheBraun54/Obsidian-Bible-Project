@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that hate me without a cause are more than the hairs of my head: They that would cut me off, being mine enemies wrongfully, are mighty: That which I took not away I have to restore.
+Those who hate me without a cause are more than the hairs of my head. Those who want to cut me off, being my enemies wrongfully, are mighty. I have to restore what I didn't take away.

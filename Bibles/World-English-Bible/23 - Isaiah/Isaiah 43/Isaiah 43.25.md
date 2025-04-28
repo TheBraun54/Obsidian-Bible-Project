@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I, even I, am he that blotteth out thy transgressions for mine own sake; and I will not remember thy sins.
+I, even I, am he who blots out your transgressions for my own sake; and I will not remember your sins.

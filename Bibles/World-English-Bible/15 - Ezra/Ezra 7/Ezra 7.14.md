@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forasmuch as thou art sent of the king and his seven counsellors, to inquire concerning Judah and Jerusalem, according to the law of thy God which is in thy hand,
+Because you are sent of the king and his seven counselors, to inquire concerning Judah and Jerusalem, according to the law of your God which is in your hand,

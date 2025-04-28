@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much better is it to get wisdom than gold! Yea, to get understanding is rather to be chosen than silver.
+How much better it is to get wisdom than gold! Yes, to get understanding is to be chosen rather than silver.

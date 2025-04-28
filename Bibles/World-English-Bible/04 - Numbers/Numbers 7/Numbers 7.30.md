@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the fourth day Elizur the son of Shedeur, prince of the children of Reuben:
+On the fourth day Elizur the son of Shedeur, prince of the children of Reuben

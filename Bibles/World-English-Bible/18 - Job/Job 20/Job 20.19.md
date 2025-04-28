@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath oppressed and forsaken the poor; He hath violently taken away a house, and he shall not build it up.
+For he has oppressed and forsaken the poor. He has violently taken away a house, and he shall not build it up.

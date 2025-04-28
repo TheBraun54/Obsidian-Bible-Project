@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Saul, who is also [called] Paul, filled with the Holy Spirit, fastened his eyes on him,
+But Saul, who is also called Paul, filled with the Holy Spirit, fastened his eyes on him,

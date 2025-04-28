@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Jesus heard it, he said, This sickness is not unto death, but for the glory of God, that the Son of God may be glorified thereby.
+But when Jesus heard it, he said, "This sickness is not to death, but for the glory of God, that God's Son may be glorified by it."

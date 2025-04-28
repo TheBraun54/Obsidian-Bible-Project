@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the man would not tarry that night, but he rose up and departed, and came over against Jebus (the same is Jerusalem): and there were with him a couple of asses saddled; his concubine also was with him.
+But the man wouldn't stay that night, but he rose up and departed, and came over against Jebus (the same is Jerusalem): and there were with him a couple of donkeys saddled; his concubine also was with him.

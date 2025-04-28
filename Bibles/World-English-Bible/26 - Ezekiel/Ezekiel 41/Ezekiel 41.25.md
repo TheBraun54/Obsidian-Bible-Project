@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were made on them, on the doors of the temple, cherubim and palm-trees, like as were made upon the walls; and there was a threshold of wood upon the face of the porch without.
+There were made on them, on the doors of the temple, cherubim and palm trees, like as were made on the walls; and there was a threshold of wood on the face of the porch outside.

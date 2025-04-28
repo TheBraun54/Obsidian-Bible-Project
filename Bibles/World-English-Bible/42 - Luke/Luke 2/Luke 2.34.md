@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Simeon blessed them, and said unto Mary his mother, Behold, this [child] is set for the falling and the rising of many in Israel; and for a sign which is spoken against;
+and Simeon blessed them, and said to Mary, his mother, "Behold, this child is set for the falling and the rising of many in Israel, and for a sign which is spoken against.

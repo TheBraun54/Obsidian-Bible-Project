@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she beholdeth two angels in white sitting, one at the head, and one at the feet, where the body of Jesus had lain.
+and she saw two angels in white sitting, one at the head, and one at the feet, where the body of Jesus had lain.

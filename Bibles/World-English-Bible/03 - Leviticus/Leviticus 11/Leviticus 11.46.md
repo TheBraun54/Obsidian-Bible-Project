@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of the beast, and of the bird, and of every living creature that moveth in the waters, and of every creature that creepeth upon the earth;
+"'This is the law of the animal, and of the bird, and of every living creature that moves in the waters, and of every creature that creeps on the earth,

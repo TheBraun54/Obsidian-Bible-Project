@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank God that I baptized none of you, save Crispus and Gaius;
+I thank God that I baptized none of you, except Crispus and Gaius,

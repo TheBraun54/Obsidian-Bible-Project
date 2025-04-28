@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom is a strength to the wise man more than ten rulers that are in a city.
+Wisdom is a strength to the wise man more than ten rulers who are in a city.

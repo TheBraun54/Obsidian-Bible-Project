@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While it remained, did it not remain thine own? and after it was sold, was it not in thy power? How is it that thou hast conceived this thing in thy heart? thou has not lied unto men, but unto God.
+While you kept it, didn't it remain your own? After it was sold, wasn't it in your power? How is it that you have conceived this thing in your heart? You haven't lied to men, but to God."

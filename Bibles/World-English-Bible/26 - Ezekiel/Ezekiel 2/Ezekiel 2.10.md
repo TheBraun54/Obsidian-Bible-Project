@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spread it before me: and it was written within and without; and there were written therein lamentations, and mourning, and woe.
+He spread it before me: and it was written within and without; and there were written therein lamentations, and mourning, and woe.

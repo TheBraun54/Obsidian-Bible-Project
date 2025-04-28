@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I must die in this land, I must not go over the Jordan; but ye shall go over, and possess that good land.
+but I must die in this land, I must not go over the Jordan; but you shall go over, and possess that good land.

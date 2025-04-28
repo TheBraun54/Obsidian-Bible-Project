@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I commended mirth, because a man hath no better thing under the sun, than to eat, and to drink, and to be joyful: for that shall abide with him in his labor [all] the days of his life which God hath given him under the sun.
+Then I commended mirth, because a man has no better thing under the sun, than to eat, and to drink, and to be joyful: for that will accompany him in his labor all the days of his life which God has given him under the sun.

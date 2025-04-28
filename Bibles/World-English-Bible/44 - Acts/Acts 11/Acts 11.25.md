@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went forth to Tarsus to seek for Saul;
+Barnabas went out to Tarsus to look for Saul.

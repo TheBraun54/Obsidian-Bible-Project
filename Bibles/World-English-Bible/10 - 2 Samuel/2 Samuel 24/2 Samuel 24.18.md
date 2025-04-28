@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gad came that day to David, and said unto him, Go up, rear an altar unto Jehovah in the threshing-floor of Araunah the Jebusite.
+Gad came that day to David, and said to him, "Go up, build an altar to Yahweh on the threshing floor of Araunah the Jebusite."

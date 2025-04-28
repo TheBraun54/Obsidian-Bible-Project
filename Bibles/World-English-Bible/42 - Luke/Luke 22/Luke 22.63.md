@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men that held [Jesus] mocked him, and beat him.
+The men who held Jesus mocked him and beat him.

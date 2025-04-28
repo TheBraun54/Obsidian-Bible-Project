@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh how great is thy goodness, Which thou hast laid up for them that fear thee, Which thou hast wrought for them that take refuge in thee, Before the sons of men!
+Oh how great is your goodness, which you have laid up for those who fear you, which you have worked for those who take refuge in you, before the sons of men!

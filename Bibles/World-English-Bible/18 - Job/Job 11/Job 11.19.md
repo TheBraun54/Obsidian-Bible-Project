@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also thou shalt lie down, and none shall make thee afraid; Yea, many shall make suit unto thee.
+Also you shall lie down, and none shall make you afraid. Yes, many shall court your favor.

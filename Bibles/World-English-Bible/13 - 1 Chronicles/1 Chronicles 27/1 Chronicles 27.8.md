@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fifth captain for this fifth month was Shamhuth the Izrahite: and in his course were twenty and four thousand.
+The fifth captain for this fifth month was Shamhuth the Izrahite: and in his division were twenty-four thousand.

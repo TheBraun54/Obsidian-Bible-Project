@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the priests the Levites arose and blessed the people: and their voice was heard, and their prayer came up to his holy habitation, even unto heaven.
+Then the priests the Levites arose and blessed the people: and their voice was heard, and their prayer came up to his holy habitation, even to heaven.

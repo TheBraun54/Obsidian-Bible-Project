@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the sun's light failing: and the veil of the temple was rent in the midst.
+The sun was darkened, and the veil of the temple was torn in two.

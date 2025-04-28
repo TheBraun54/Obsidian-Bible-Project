@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus perceived their wickedness, and said, Why make ye trial of me, ye hypocrites?
+But Jesus perceived their wickedness, and said, "Why do you test me, you hypocrites?

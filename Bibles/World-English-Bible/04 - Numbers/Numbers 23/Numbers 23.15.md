@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto Balak, Stand here by thy burnt-offering, while I meet [Jehovah] yonder.
+He said to Balak, "Stand here by your burnt offering, while I meet [Yahweh] yonder."

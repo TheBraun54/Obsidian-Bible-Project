@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jerubbaal the son of Joash went and dwelt in his own house.
+Jerubbaal the son of Joash went and lived in his own house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that taketh a bribe to slay an innocent person. And all the people shall say, Amen.
+'Cursed is he who takes a bribe to kill an innocent person.' All the people shall say, 'Amen.'

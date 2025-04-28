@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jabez was more honorable than his brethren: and his mother called his name Jabez, saying, Because I bare him with sorrow.
+Jabez was more honorable than his brothers: and his mother named him Jabez, saying, "Because I bore him with sorrow."

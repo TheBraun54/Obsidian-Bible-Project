@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I went unto the prophetess; and she conceived, and bare a son. Then said Jehovah unto me, Call his name Maher-shalal-hash-baz.
+I went to the prophetess, and she conceived, and bore a son. Then Yahweh said to me, "Call his name 'Maher Shalal Hash Baz.'

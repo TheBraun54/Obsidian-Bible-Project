@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fulfil the week of this one, and we will give thee the other also for the service which thou shalt serve with me yet seven other years.
+Fulfill the week of this one, and we will give you the other also for the service which you will serve with me yet seven other years."

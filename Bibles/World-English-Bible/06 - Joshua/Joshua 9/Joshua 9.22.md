@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua called for them, and he spake unto them, saying, Wherefore have ye beguiled us, saying, We are very far from you; when ye dwell among us?
+Joshua called for them, and he spoke to them, saying, "Why have you deceived us, saying, 'We are very far from you,' when you live among us?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo now, his strength is in his loins, And his force is in the muscles of his belly.
+Look now, his strength is in his thighs. His force is in the muscles of his belly.

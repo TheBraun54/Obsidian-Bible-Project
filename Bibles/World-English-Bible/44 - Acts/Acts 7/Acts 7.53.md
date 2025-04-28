@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye who received the law as it was ordained by angels, and kept it not.
+You received the law as it was ordained by angels, and didn't keep it!"

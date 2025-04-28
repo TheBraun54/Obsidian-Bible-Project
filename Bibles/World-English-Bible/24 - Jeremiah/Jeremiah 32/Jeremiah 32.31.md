@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this city hath been to me a provocation of mine anger and of my wrath from the day that they built it even unto this day; that I should remove it from before my face,
+For this city has been to me a provocation of my anger and of my wrath from the day that they built it even to this day; that I should remove it from before my face,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And what shall I more say? for the time will fail me if I tell of Gideon, Barak, Samson, Jephthah; of David and Samuel and the prophets:
+What more shall I say? For the time would fail me if I told of Gideon, Barak, Samson, Jephthah, David, Samuel, and the prophets;

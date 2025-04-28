@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and came to the stronghold of Tyre, and to all the cities of the Hivites, and of the Canaanites; and they went out to the south of Judah, at Beer-sheba.
+and came to the stronghold of Tyre, and to all the cities of the Hivites, and of the Canaanites; and they went out to the south of Judah, at Beersheba.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When pride cometh, then cometh shame; But with the lowly is wisdom.
+When pride comes, then comes shame, but with humility comes wisdom.

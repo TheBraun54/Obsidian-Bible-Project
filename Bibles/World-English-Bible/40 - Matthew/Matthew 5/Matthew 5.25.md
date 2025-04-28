@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Agree with thine adversary quickly, while thou art with him in the way; lest haply the adversary deliver thee to the judge, and the judge deliver thee to the officer, and thou be cast into prison.
+Agree with your adversary quickly, while you are with him in the way; lest perhaps the prosecutor deliver you to the judge, and the judge deliver you to the officer, and you be cast into prison.

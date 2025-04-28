@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore for your sake the heavens withhold the dew, and the earth withholdeth its fruit.
+Therefore for your sake the heavens withhold the dew, and the earth withholds its fruit.

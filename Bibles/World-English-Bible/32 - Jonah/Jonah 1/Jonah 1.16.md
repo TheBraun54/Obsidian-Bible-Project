@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the men feared Jehovah exceedingly; and they offered a sacrifice unto Jehovah, and made vows.
+Then the men feared Yahweh exceedingly; and they offered a sacrifice to Yahweh, and made vows.

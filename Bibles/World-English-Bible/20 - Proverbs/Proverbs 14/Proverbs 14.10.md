@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heart knoweth its own bitterness; And a stranger doth not intermeddle with its joy.
+The heart knows its own bitterness and joy; he will not share these with a stranger.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A father of the fatherless, and a judge of the widows, Is God in his holy habitation.
+A father of the fatherless, and a defender of the widows, is God in his holy habitation.

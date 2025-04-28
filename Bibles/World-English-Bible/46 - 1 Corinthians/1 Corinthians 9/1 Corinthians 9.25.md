@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every man that striveth in the games exerciseth self-control in all things. Now they [do it] to receive a corruptible crown; but we an incorruptible.
+Every man who strives in the games exercises self-control in all things. Now they do it to receive a corruptible crown, but we an incorruptible.

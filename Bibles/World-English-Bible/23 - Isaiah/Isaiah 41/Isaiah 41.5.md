@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The isles have seen, and fear; the ends of the earth tremble; they draw near, and come.
+The islands have seen, and fear. The ends of the earth tremble. They approach, and come.

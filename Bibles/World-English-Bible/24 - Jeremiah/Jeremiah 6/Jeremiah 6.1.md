@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Flee for safety, ye children of Benjamin, out of the midst of Jerusalem, and blow the trumpet in Tekoa, and raise up a signal on Beth-haccherem; for evil looketh forth from the north, and a great destruction.
+"Flee for safety, you children of Benjamin, out of the midst of Jerusalem, and blow the trumpet in Tekoa, and raise up a signal on Beth Haccherem; for evil looks forth from the north, and a great destruction.

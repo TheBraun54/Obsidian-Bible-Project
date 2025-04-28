@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is Jehovah our God; His judgments are in all the earth.
+He is Yahweh our God. His judgments are in all the earth.

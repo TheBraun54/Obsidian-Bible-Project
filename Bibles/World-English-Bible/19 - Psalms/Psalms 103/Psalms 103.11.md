@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the heavens are high above the earth, So great is his lovingkindness toward them that fear him.
+For as the heavens are high above the earth, so great is his loving kindness toward those who fear him.

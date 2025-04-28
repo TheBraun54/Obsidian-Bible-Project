@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day, saith Jehovah of hosts, shall ye invite every man his neighbor under the vine and under the fig-tree.
+In that day,' says Yahweh of Armies, 'you will invite every man his neighbor under the vine and under the fig tree.'"

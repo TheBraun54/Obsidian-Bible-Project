@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while the day was coming on, Paul besought them all to take some food, saying, This day is the fourteenth day that ye wait and continue fasting, having taken nothing.
+While the day was coming on, Paul begged them all to take some food, saying, "This day is the fourteenth day that you wait and continue fasting, having taken nothing.

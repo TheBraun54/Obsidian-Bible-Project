@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Chaldea shall be a prey: all that prey upon her shall be satisfied, saith Jehovah.
+Chaldea shall be a prey: all who prey on her shall be satisfied, says Yahweh.

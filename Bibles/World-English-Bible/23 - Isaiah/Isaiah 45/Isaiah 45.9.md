@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto him that striveth with his Maker! a potsherd among the potsherds of the earth! Shall the clay say to him that fashioneth it, What makest thou? or thy work, He hath no hands?
+Woe to him who strives with his Maker-- a clay pot among the clay pots of the earth! Shall the clay ask him who fashions it, 'What are you making?' or your work, 'He has no hands?'

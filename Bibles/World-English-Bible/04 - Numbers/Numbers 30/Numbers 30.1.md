@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake unto the heads of the tribes of the children of Israel, saying, This is the thing which Jehovah hath commanded.
+Moses spoke to the heads of the tribes of the children of Israel, saying, "This is the thing which Yahweh has commanded.

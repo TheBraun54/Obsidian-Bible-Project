@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the gates thereof shall in no wise be shut by day (for there shall be no night there):
+Its gates will in no way be shut by day (for there will be no night there),

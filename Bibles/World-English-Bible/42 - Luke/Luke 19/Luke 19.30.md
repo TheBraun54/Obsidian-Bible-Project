@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Go your way into the village over against [you] ; in which as ye enter ye shall find a colt tied, whereon no man ever yet sat: loose him, and bring him.
+saying, "Go your way into the village on the other side, in which, as you enter, you will find a colt tied, whereon no man ever yet sat. Untie it, and bring it.

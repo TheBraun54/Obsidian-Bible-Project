@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince of Jehovah's host said unto Joshua, Put off thy shoe from off thy foot; for the place whereon thou standest is holy. And Joshua did so.
+The prince of Yahweh's army said to Joshua, "Take your shoes off of your feet; for the place on which you stand is holy." Joshua did so.

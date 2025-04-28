@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all those that seek thee rejoice and be glad in thee; And let such as love thy salvation say continually, Let God be magnified.
+Let all those who seek you rejoice and be glad in you. Let those who love your salvation continually say, "Let God be exalted!"

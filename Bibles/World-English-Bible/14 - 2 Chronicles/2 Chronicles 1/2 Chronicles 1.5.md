@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the brazen altar, that Bezalel the son of Uri, the son of Hur, had made, was there before the tabernacle of Jehovah: and Solomon and the assembly sought unto it.
+Moreover the bronze altar, that Bezalel the son of Uri, the son of Hur, had made, was there before the tabernacle of Yahweh: and Solomon and the assembly were seeking counsel there.

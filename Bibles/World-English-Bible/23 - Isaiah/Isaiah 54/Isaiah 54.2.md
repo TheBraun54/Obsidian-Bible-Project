@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Enlarge the place of thy tent, and let them stretch forth the curtains of thy habitations; spare not: lengthen thy cords, and strengthen thy stakes.
+"Enlarge the place of your tent, and let them stretch forth the curtains of your habitations; don't spare: lengthen your cords, and strengthen your stakes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the other answered, and rebuking him said, Dost thou not even fear God, seeing thou art in the same condemnation?
+But the other answered, and rebuking him said, "Don't you even fear God, seeing you are under the same condemnation?

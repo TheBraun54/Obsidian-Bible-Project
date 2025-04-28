@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The woman saith unto him, I know that Messiah cometh (he that is called Christ): when he is come, he will declare unto us all things.
+The woman said to him, "I know that Messiah comes," (he who is called Christ). "When he has come, he will declare to us all things."

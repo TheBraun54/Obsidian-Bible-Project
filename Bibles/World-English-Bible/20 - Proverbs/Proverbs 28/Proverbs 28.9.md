@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that turneth away his ear from hearing the law, Even his prayer is an abomination.
+He who turns away his ear from hearing the law, even his prayer is an abomination.

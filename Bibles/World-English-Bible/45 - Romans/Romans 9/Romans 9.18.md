@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then he hath mercy on whom he will, and whom he will be hardeneth.
+So then, he has mercy on whom he desires, and he hardens whom he desires.

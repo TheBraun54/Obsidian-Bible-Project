@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the days of Pekah king of Israel came Tiglath-pileser king of Assyria, and took Ijon, and Abel-beth-maacah, and Janoah, and Kedesh, and Hazor, and Gilead, and Galilee, all the land of Naphtali; and he carried them captive to Assyria.
+In the days of Pekah king of Israel came Tiglath Pileser king of Assyria, and took Ijon, and Abel Beth Maacah, and Janoah, and Kedesh, and Hazor, and Gilead, and Galilee, all the land of Naphtali; and he carried them captive to Assyria.

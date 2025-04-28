@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Depart not hence, I pray thee, until I come unto thee, and bring forth my present, and lay it before thee. And he said, I will tarry until thou come again.
+Please don't go away, until I come to you, and bring out my present, and lay it before you." He said, "I will wait until you come back."

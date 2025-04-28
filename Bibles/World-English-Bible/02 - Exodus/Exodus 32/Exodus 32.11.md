@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses besought Jehovah his God, and said, Jehovah, why doth thy wrath wax hot against thy people, that thou hast brought forth out of the land of Egypt with great power and with a mighty hand?
+Moses begged Yahweh his God, and said, "Yahweh, why does your wrath burn hot against your people, that you have brought forth out of the land of Egypt with great power and with a mighty hand?

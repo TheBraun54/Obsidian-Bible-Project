@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron and his sons did all the things which Jehovah commanded by Moses.
+Aaron and his sons did all the things which Yahweh commanded by Moses.

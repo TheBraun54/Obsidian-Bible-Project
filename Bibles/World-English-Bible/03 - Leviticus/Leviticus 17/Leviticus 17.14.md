@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as to the life of all flesh, the blood thereof is [all one] with the life thereof: therefore I said unto the children of Israel, Ye shall eat the blood of no manner of flesh; for the life of all flesh is the blood thereof: whosoever eateth it shall be cut off.
+For as to the life of all flesh, its blood is with its life: therefore I said to the children of Israel, "You shall not eat the blood of any kind of flesh; for the life of all flesh is its blood. Whoever eats it shall be cut off."

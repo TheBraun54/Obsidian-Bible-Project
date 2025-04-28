@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be laid on him a ransom, then he shall give for the redemption of his life whatsoever is laid upon him.
+If a ransom is laid on him, then he shall give for the redemption of his life whatever is laid on him.

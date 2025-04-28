@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is the covenant that I will make with the house of Israel After those days, saith the Lord; I will put my laws into their mind, And on their heart also will I write them: And I will be to them a God, And they shall be to me a people:
+"For this is the covenant that I will make with the house of Israel. After those days," says the Lord; "I will put my laws into their mind, I will also write them on their heart. I will be their God, and they will be my people.

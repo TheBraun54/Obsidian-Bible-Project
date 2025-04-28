@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the thirteenth year of Josiah the son of Amon, king of Judah, even unto this day, these three and twenty years, the word of Jehovah hath come unto me, and I have spoken unto you, rising up early and speaking; but ye have not hearkened.
+From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, these twenty-three years, the word of Yahweh has come to me, and I have spoken to you, rising up early and speaking; but you have not listened.

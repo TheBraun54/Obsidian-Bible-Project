@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hiram sent to Solomon, saying, I have heard [the message] which thou hast sent unto me: I will do all thy desire concerning timber of cedar, and concerning timber of fir.
+Hiram sent to Solomon, saying, "I have heard the message which you have sent to me. I will do all your desire concerning timber of cedar, and concerning timber of fir.

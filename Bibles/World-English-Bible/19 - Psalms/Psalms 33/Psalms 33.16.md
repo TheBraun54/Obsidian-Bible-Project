@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no king saved by the multitude of a host: A mighty man is not delivered by great strength.
+There is no king saved by the multitude of an army. A mighty man is not delivered by great strength.

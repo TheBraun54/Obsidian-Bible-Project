@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when thou preparest a bullock for a burnt-offering, or for a sacrifice, to accomplish a vow, or for peace-offerings unto Jehovah;
+When you prepare a bull for a burnt offering, or for a sacrifice, to accomplish a vow, or for peace offerings to Yahweh;

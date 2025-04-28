@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that is ready to faint kindness [should be showed] from his friend; Even to him that forsaketh the fear of the Almighty.
+"To him who is ready to faint, kindness should be shown from his friend; even to him who forsakes the fear of the Almighty.

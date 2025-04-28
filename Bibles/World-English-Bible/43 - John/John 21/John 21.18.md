@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto thee, When thou wast young, thou girdedst thyself, and walkedst whither thou wouldest: but when thou shalt be old, thou shalt stretch forth thy hands, and another shall gird thee, and carry thee whither thou wouldest not.
+Most certainly I tell you, when you were young, you dressed yourself, and walked where you wanted to. But when you are old, you will stretch out your hands, and another will dress you, and carry you where you don't want to go."

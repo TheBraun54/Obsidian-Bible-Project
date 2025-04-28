@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt make it a holy anointing oil, a perfume compounded after the art of the perfumer: it shall be a holy anointing oil.
+You shall make it a holy anointing oil, a perfume compounded after the art of the perfumer: it shall be a holy anointing oil.

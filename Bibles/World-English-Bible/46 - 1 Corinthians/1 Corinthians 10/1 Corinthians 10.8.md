@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither let us commit fornication, as some of them committed, and fell in one day three and twenty thousand.
+Neither let us commit sexual immorality, as some of them committed, and in one day twenty-three thousand fell.

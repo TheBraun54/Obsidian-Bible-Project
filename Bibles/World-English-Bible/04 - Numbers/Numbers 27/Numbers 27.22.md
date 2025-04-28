@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses did as Jehovah commanded him; and he took Joshua, and set him before Eleazar the priest, and before all the congregation:
+Moses did as Yahweh commanded him; and he took Joshua, and set him before Eleazar the priest, and before all the congregation:

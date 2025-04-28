@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto her, Said I not unto thee, that, if thou believedst, thou shouldest see the glory of God?
+Jesus said to her, "Didn't I tell you that if you believed, you would see God's glory?"

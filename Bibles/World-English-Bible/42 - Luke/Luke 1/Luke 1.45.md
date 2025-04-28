@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And blessed [is] she that believed; for there shall be a fulfilment of the things which have been spoken to her from the Lord.
+Blessed is she who believed, for there will be a fulfillment of the things which have been spoken to her from the Lord!"

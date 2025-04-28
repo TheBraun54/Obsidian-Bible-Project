@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they heard them speak with tongues, and magnify God. Then answered Peter,
+For they heard them speaking in other languages and magnifying God. Then Peter answered,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that is to be cleansed shall wash his clothes, and shave off all his hair, and bathe himself in water; and he shall be clean: and after that he shall come into the camp, but shall dwell outside his tent seven days.
+"He who is to be cleansed shall wash his clothes, and shave off all his hair, and bathe himself in water; and he shall be clean. After that he shall come into the camp, but shall dwell outside his tent seven days.

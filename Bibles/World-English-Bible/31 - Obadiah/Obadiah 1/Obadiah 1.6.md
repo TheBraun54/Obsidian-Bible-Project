@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How are [the things of] Esau searched! how are his hidden treasures sought out!
+How Esau will be ransacked! How his hidden treasures are sought out!

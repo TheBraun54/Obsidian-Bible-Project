@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye say, whosoever shall say to his father or his mother, That wherewith thou mightest have been profited by me is given [to God] ;
+But you say, 'Whoever may tell his father or his mother, "Whatever help you might otherwise have gotten from me is a gift devoted to God,"

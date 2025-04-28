@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, God is mighty, and despiseth not any: He is mighty in strength of understanding.
+"Behold, God is mighty, and doesn't despise anyone. He is mighty in strength of understanding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eye of him that seeth me shall behold me no more; Thine eyes shall be upon me, but I shall not be.
+The eye of him who sees me shall see me no more. Your eyes shall be on me, but I shall not be.

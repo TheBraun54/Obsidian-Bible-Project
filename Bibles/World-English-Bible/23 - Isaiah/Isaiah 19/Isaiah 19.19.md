@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall there be an altar to Jehovah in the midst of the land of Egypt, and a pillar at the border thereof to Jehovah.
+In that day, there will be an altar to Yahweh in the midst of the land of Egypt, and a pillar to Yahweh at its border.

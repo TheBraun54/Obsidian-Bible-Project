@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but while men slept, his enemy came and sowed tares also among the wheat, and went away.
+but while people slept, his enemy came and sowed darnel weeds also among the wheat, and went away.

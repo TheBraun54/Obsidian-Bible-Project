@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deceit is in the heart of them that devise evil; But to the counsellors of peace is joy.
+Deceit is in the heart of those who plot evil, but joy comes to the promoters of peace.

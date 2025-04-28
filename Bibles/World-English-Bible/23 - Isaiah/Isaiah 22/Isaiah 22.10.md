@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye numbered the houses of Jerusalem, and ye brake down the houses to fortify the wall;
+You numbered the houses of Jerusalem, and you broke down the houses to fortify the wall.

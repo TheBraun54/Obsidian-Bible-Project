@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall not the uncircumcision which is by nature, if it fulfil the law, judge thee, who with the letter and circumcision art a transgressor of the law?
+Won't the uncircumcision which is by nature, if it fulfills the law, judge you, who with the letter and circumcision are a transgressor of the law?

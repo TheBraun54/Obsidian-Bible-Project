@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the breasts and the right thigh Aaron waved for a wave-offering before Jehovah; as Moses commanded.
+and the breasts and the right thigh Aaron waved for a wave offering before Yahweh, as Moses commanded.

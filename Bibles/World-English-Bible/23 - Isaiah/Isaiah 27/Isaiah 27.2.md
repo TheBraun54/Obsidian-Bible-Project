@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day: A vineyard of wine, sing ye unto it.
+In that day, sing to her, "A pleasant vineyard!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sacrifices of God are a broken spirit: A broken and contrite heart, O God, thou wilt not despise.
+The sacrifices of God are a broken spirit. A broken and contrite heart, O God, you will not despise.

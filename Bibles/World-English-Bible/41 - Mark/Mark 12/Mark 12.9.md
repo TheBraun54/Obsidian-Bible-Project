@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What therefore will the lord of the vineyard do? he will come and destroy the husbandmen, and will give the vineyard unto others.
+What therefore will the lord of the vineyard do? He will come and destroy the farmers, and will give the vineyard to others.

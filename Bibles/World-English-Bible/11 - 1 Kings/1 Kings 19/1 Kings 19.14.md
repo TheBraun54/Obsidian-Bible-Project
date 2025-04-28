@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I have been very jealous for Jehovah, the God of hosts; for the children of Israel have forsaken thy covenant, thrown down thine altars, and slain thy prophets with the sword; and I, even I only, am left; and they seek my life, to take it away.
+He said, "I have been very jealous for Yahweh, the God of Armies; for the children of Israel have forsaken your covenant, thrown down your altars, and slain your prophets with the sword. I, even I only, am left; and they seek my life, to take it away."

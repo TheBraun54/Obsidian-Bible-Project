@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For from Israel is even this; the workman made it, and it is no God; yea, the calf of Samaria shall be broken in pieces.
+For this is even from Israel! The workman made it, and it is no God; indeed, the calf of Samaria shall be broken in pieces.

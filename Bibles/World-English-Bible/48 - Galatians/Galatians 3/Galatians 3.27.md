@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as many of you as were baptized into Christ did put on Christ.
+For as many of you as were baptized into Christ have put on Christ.

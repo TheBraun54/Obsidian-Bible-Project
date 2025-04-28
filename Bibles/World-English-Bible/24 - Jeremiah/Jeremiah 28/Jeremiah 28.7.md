@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless hear thou now this word that I speak in thine ears, and in the ears of all the people:
+Nevertheless hear you now this word that I speak in your ears, and in the ears of all the people:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy hand will find out all thine enemies; Thy right hand will find out those that hate thee.
+Your hand will find out all of your enemies. Your right hand will find out those who hate you.

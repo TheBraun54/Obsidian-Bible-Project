@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what have I to do with judging them that are without? Do not ye judge them that are within?
+For what have I to do with also judging those who are outside? Don't you judge those who are within?

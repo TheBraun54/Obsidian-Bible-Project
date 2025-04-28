@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Do ye not yet understand?
+He asked them, "Don't you understand, yet?"

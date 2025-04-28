@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that there shall not be light; the bright ones shall withdraw themselves:
+It will happen in that day, that there will not be light, cold, or frost.

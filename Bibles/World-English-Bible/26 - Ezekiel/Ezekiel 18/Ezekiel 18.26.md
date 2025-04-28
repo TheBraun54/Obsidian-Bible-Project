@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the righteous man turneth away from his righteousness, and committeth iniquity, and dieth therein; in his iniquity that he hath done shall he die.
+When the righteous man turns away from his righteousness, and commits iniquity, and dies therein; in his iniquity that he has done shall he die.

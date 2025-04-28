@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but stay not ye; pursue after your enemies, and smite the hindmost of them; suffer them not to enter into their cities: for Jehovah your God hath delivered them into your hand.
+but don't stay. Pursue your enemies, and them from the rear. Don't allow them to enter into their cities; for Yahweh your God has delivered them into your hand."

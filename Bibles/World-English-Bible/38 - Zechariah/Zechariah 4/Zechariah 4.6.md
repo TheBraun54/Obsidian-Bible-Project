@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he answered and spake unto me, saying, This is the word of Jehovah unto Zerubbabel, saying, Not by might, nor by power, but by my Spirit, saith Jehovah of hosts.
+Then he answered and spoke to me, saying, "This is the word of Yahweh to Zerubbabel, saying, 'Not by might, nor by power, but by my Spirit,' says Yahweh of Armies.

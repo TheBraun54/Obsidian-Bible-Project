@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not, O land, be glad and rejoice; for Jehovah hath done great things.
+Land, don't be afraid. Be glad and rejoice, for Yahweh has done great things.

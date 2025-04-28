@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Speak unto the priests, the sons of Aaron, and say unto them, There shall none defile himself for the dead among his people;
+Yahweh said to Moses, "Speak to the priests, the sons of Aaron, and say to them, 'A priest shall not defile himself for the dead among his people;

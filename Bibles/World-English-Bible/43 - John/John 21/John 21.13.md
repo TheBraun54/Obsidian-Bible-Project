@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus cometh, and taketh the bread, and giveth them, and the fish likewise.
+Then Jesus came and took the bread, gave it to them, and the fish likewise.

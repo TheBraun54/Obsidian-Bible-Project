@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O inhabitants of Jerusalem and men of Judah, judge, I pray you, betwixt me and my vineyard.
+"Now, inhabitants of Jerusalem and men of Judah, please judge between me and my vineyard.

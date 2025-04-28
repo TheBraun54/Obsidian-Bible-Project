@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord hath cast off his altar, he hath abhorred his sanctuary; He hath given up into the hand of the enemy the walls of her palaces: They have made a noise in the house of Jehovah, as in the day of a solemn assembly.
+The Lord has cast off his altar, he has abhorred his sanctuary; He has given up into the hand of the enemy the walls of her palaces: They have made a noise in the house of Yahweh, as in the day of a solemn assembly.

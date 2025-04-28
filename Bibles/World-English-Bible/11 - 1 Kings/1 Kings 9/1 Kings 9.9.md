@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall answer, Because they forsook Jehovah their God, who brought forth their fathers out of the land of Egypt, and laid hold on other gods, and worshipped them, and served them: therefore hath Jehovah brought all this evil upon them.
+and they shall answer, 'Because they forsook Yahweh their God, who brought forth their fathers out of the land of Egypt, and laid hold of other gods, and worshiped them, and served them. Therefore Yahweh has brought all this evil on them.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An evil disease, [say they], cleaveth fast unto him; And now that he lieth he shall rise up no more.
+"An evil disease," they say, "has afflicted him. Now that he lies he shall rise up no more."

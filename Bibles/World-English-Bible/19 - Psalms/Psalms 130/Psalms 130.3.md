@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou, Jehovah, shouldest mark iniquities, O Lord, who could stand?
+If you, Yah, kept a record of sins, Lord, who could stand?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to take the place in this ministry and apostleship from which Judas fell away, that he might go to his own place.
+to take part in this ministry and apostleship from which Judas fell away, that he might go to his own place."

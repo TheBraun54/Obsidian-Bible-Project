@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God having provided some better thing concerning us, that apart from us they should not be made perfect.
+God having provided some better thing concerning us, so that apart from us they should not be made perfect.

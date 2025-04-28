@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fervent lips and a wicked heart Are [like] an earthen vessel overlaid with silver dross.
+Like silver dross on an earthen vessel are the lips of a fervent one with an evil heart.

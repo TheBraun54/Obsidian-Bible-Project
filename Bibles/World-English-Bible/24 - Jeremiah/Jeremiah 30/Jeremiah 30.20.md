@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their children also shall be as aforetime, and their congregation shall be established before me; and I will punish all that oppress them.
+Their children also shall be as before, and their congregation shall be established before me; and I will punish all who oppress them.

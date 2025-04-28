@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast called, as in the day of a solemn assembly, my terrors on every side; And there was none that escaped or remained in the day of Jehovah's anger: Those that I have dandled and brought up hath mine enemy consumed.
+You have called, as in the day of a solemn assembly, my terrors on every side; There was none that escaped or remained in the day of Yahweh's anger: Those that I have dandled and brought up has my enemy consumed.

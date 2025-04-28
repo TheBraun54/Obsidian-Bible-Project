@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and madest known unto them thy holy sabbath, and commandedst them commandments, and statutes, and a law, by Moses thy servant,
+and made known to them your holy Sabbath, and commanded them commandments, and statutes, and a law, by Moses your servant,

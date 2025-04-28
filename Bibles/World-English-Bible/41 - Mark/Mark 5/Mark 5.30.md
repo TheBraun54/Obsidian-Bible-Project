@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway Jesus, perceiving in himself that the power [proceeding] from him had gone forth, turned him about in the crowd, and said, Who touched my garments?
+Immediately Jesus, perceiving in himself that the power had gone out from him, turned around in the crowd, and asked, "Who touched my clothes?"

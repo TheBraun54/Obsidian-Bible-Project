@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet thou hast not called upon me, O Jacob; but thou hast been weary of me, O Israel.
+Yet you have not called on me, Jacob; but you have been weary of me, Israel.

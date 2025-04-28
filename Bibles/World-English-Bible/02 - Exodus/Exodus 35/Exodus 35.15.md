@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the altar of incense, and its staves, and the anointing oil, and the sweet incense, and the screen for the door, at the door of the tabernacle;
+and the altar of incense with its poles, the anointing oil, the sweet incense, the screen for the door, at the door of the tabernacle;

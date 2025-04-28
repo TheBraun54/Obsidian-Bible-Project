@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from mount Hor, and encamped in Zalmonah.
+They traveled from Mount Hor, and encamped in Zalmonah.

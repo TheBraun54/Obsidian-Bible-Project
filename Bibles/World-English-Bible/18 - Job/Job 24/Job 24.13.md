@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are of them that rebel against the light; They know not the ways thereof, Nor abide in the paths thereof.
+"These are of those who rebel against the light. They don't know its ways, nor stay in its paths.

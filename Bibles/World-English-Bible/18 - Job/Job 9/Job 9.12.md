@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he seizeth [the prey], who can hinder him? Who will say unto him, What doest thou?
+Behold, he snatches away. Who can hinder him? Who will ask him, 'What are you doing?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the earthen vessel wherein it is boiled shall be broken; and if it be boiled in a brazen vessel, it shall be scoured, and rinsed in water.
+But the earthen vessel in which it is boiled shall be broken; and if it is boiled in a bronze vessel, it shall be scoured, and rinsed in water.

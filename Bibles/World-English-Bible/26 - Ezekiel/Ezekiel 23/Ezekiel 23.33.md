@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt be filled with drunkenness and sorrow, with the cup of astonishment and desolation, with the cup of thy sister Samaria.
+You shall be filled with drunkenness and sorrow, with the cup of astonishment and desolation, with the cup of your sister Samaria.

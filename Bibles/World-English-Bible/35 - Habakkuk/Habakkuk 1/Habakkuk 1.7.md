@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are terrible and dreadful; their judgment and their dignity proceed from themselves.
+They are feared and dreaded. Their judgment and their dignity proceed from themselves.

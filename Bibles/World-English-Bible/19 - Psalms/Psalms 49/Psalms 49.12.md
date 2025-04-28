@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But man [being] in honor abideth not: He is like the beasts that perish.
+But man, despite his riches, doesn't endure. He is like the animals that perish.

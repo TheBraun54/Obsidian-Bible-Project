@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, all kings shall fall down before him; All nations shall serve him.
+Yes, all kings shall fall down before him. All nations shall serve him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, O God, hast proved us: Thou hast tried us, as silver is tried.
+For you, God, have tested us. You have refined us, as silver is refined.

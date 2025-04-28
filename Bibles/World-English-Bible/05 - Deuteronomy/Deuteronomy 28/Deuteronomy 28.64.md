@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will scatter thee among all peoples, from the one end of the earth even unto the other end of the earth; and there thou shalt serve other gods, which thou hast not known, thou nor thy fathers, even wood and stone.
+Yahweh will scatter you among all peoples, from the one end of the earth even to the other end of the earth; and there you shall serve other gods, which you have not known, you nor your fathers, even wood and stone.

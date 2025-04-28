@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art a holy people unto Jehovah thy God: Jehovah thy God hath chosen thee to be a people for his own possession, above all peoples that are upon the face of the earth.
+For you are a holy people to Yahweh your God: Yahweh your God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth.

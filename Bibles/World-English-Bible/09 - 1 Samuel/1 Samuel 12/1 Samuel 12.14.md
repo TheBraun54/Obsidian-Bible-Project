@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye will fear Jehovah, and serve him, and hearken unto his voice, and not rebel against the commandment of Jehovah, and both ye and also the king that reigneth over you be followers of Jehovah your God, [well] :
+If you will fear Yahweh, and serve him, and listen to his voice, and not rebel against the commandment of Yahweh, and both you and also the king who reigns over you are followers of Yahweh your God, [well]:

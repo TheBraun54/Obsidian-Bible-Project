@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, the hope of Israel, all that forsake thee shall be put to shame. They that depart from me shall be written in the earth, because they have forsaken Jehovah, the fountain of living waters.
+Yahweh, the hope of Israel, all who forsake you shall be disappointed. Those who depart from me shall be written in the earth, because they have forsaken Yahweh, the spring of living waters.

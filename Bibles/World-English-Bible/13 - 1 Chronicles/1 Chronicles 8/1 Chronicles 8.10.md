@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jeuz, and Shachia, and Mirmah. These were his sons, heads of fathers' [houses] .
+and Jeuz, and Shachia, and Mirmah. These were his sons, heads of fathers' [houses].

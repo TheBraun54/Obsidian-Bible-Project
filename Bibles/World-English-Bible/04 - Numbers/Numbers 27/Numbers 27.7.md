@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The daughters of Zelophehad speak right: thou shalt surely give them a possession of an inheritance among their father's brethren; and thou shalt cause the inheritance of their father to pass unto them.
+"The daughters of Zelophehad speak right: you shall surely give them a possession of an inheritance among their father's brothers; and you shall cause the inheritance of their father to pass to them.

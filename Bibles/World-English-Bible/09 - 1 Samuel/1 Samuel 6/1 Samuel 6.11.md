@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they put the ark of Jehovah upon the cart, and the coffer with the mice of gold and the images of their tumors.
+and they put the ark of Yahweh on the cart, and the coffer with the mice of gold and the images of their tumors.

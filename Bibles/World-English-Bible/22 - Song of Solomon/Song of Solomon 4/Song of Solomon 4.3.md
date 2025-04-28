@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy lips are like a thread of scarlet, And thy mouth is comely. Thy temples are like a piece of a pomegranate Behind thy veil.
+Your lips are like scarlet thread. Your mouth is lovely. Your temples are like a piece of a pomegranate behind your veil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we must needs die, and are as water split on the ground, which cannot be gathered up again; neither doth God take away life, but deviseth means, that he that is banished be not an outcast from him.
+For we must die, and are as water split on the ground, which can't be gathered up again; neither does God take away life, but devises means, that he who is banished not be an outcast from him.

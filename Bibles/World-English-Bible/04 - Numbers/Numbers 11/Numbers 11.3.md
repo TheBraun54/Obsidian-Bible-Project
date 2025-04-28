@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of that place was called Taberah, because the fire of Jehovah burnt among them.
+The name of that place was called Taberah, because Yahweh's fire burnt among them.

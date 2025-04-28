@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I called upon thy name, O Jehovah, out of the lowest dungeon.
+I called on your name, Yahweh, out of the lowest dungeon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Delilah said unto Samson, Behold, thou hast mocked me, and told me lies: now tell me, I pray thee, wherewith thou mightest be bound.
+Delilah said to Samson, "Behold, you have mocked me, and told me lies: now please tell me with which you might be bound."

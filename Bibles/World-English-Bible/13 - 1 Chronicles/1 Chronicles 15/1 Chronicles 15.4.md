@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David gathered together the sons of Aaron, and the Levites:
+David gathered together the sons of Aaron, and the Levites:

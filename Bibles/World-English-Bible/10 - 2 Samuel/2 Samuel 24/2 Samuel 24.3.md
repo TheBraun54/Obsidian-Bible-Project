@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab said unto the king, Now Jehovah thy God add unto the people, how many soever they may be, a hundredfold; and may the eyes of my lord the king see it: but why doth my lord the king delight in this thing?
+Joab said to the king, "Now may Yahweh your God add to the people, however many they may be, one hundred times; and may the eyes of my lord the king see it. But why does my lord the king delight in this thing?"

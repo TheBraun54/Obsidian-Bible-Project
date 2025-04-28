@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou renewest thy witnesses against me, And increasest thine indignation upon me: Changes and warfare are with me.
+You renew your witnesses against me, and increase your indignation on me. Changes and warfare are with me.

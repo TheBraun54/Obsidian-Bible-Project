@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, ye fathers, provoke not your children to wrath: but nurture them in the chastening and admonition of the Lord.
+You fathers, don't provoke your children to wrath, but nurture them in the discipline and instruction of the Lord.

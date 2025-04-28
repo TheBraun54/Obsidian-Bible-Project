@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is Meshech, Tubal, and all their multitude; their graves are round about them; all of them uncircumcised, slain by the sword; for they caused their terror in the land of the living.
+There is Meshech, Tubal, and all their multitude; their graves are around them; all of them uncircumcised, slain by the sword; for they caused their terror in the land of the living.

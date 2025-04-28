@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make [them] to pass with thine enemies into a land which thou knowest not; for a fire is kindled in mine anger, which shall burn upon you.
+I will make [them] to pass with your enemies into a land which you don't know; for a fire is kindled in my anger, which shall burn on you.

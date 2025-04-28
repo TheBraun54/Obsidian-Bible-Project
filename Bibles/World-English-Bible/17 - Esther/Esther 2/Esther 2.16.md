@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Esther was taken unto king Ahasuerus into his house royal in the tenth month, which is the month Tebeth, in the seventh year of his reign.
+So Esther was taken to King Ahasuerus into his royal house in the tenth month, which is the month Tebeth, in the seventh year of his reign.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore because the king's commandment was urgent, and the furnace exceeding hot, the flame of the fire slew those men that took up Shadrach, Meshach, and Abed-nego.
+Therefore because the king's commandment was urgent, and the furnace exceeding hot, the flame of the fire killed those men who took up Shadrach, Meshach, and Abednego.

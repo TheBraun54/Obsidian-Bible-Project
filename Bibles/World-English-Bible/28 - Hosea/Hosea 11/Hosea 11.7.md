@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my people are bent on backsliding from me: though they call them to [him that is] on high, none at all will exalt [him] .
+My people are determined to turn from me. Though they call to the Most High, he certainly won't exalt them.

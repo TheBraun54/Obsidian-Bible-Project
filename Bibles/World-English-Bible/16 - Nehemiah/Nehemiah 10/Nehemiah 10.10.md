@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their brethren, Shebaniah, Hodiah, Kelita, Pelaiah, Hanan,
+and their brothers, Shebaniah, Hodiah, Kelita, Pelaiah, Hanan,

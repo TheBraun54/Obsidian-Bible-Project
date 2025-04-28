@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall kill one of the birds in an earthen vessel over running water:
+He shall kill one of the birds in an earthen vessel over running water.

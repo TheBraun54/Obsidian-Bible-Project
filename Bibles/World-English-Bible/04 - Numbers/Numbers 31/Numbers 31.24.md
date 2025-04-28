@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall wash your clothes on the seventh day, and ye shall be clean; and afterward ye shall come into the camp.
+You shall wash your clothes on the seventh day, and you shall be clean; and afterward you shall come into the camp."

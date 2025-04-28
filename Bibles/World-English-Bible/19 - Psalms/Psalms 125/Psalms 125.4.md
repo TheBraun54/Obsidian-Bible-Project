@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do good, O Jehovah, unto those that are good, And to them that are upright in their hearts.
+Do good, Yahweh, to those who are good, to those who are upright in their hearts.

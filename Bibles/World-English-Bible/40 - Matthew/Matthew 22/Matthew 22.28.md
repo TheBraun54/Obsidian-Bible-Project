@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the resurrection therefore whose wife shall she be of the seven? for they all had her.
+In the resurrection therefore, whose wife will she be of the seven? For they all had her."

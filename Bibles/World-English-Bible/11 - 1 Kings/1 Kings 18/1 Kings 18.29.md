@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, when midday was past, that they prophesied until the time of the offering of the [evening] oblation; but there was neither voice, nor any to answer, nor any that regarded. [
+It was so, when midday was past, that they prophesied until the time of the offering of the offering; but there was neither voice, nor any to answer, nor any who regarded.

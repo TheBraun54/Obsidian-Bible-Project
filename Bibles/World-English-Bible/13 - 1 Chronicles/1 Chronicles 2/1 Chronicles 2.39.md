@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Azariah begat Helez, and Helez begat Eleasah,
+and Azariah became the father of Helez, and Helez became the father of Eleasah,

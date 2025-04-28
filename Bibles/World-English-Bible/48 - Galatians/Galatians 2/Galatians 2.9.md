@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they perceived the grace that was given unto me, James and Cephas and John, they who were reputed to be pillars, gave to me and Barnabas the right hands of fellowship, that we should go unto the Gentiles, and they unto the circumcision;
+and when they perceived the grace that was given to me, James and Cephas and John, they who were reputed to be pillars, gave to me and Barnabas the right hand of fellowship, that we should go to the Gentiles, and they to the circumcision.

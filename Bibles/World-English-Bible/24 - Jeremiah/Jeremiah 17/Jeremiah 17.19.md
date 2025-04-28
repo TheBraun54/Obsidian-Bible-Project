@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus said Jehovah unto me: Go, and stand in the gate of the children of the people, whereby the kings of Judah come in, and by which they go out, and in all the gates of Jerusalem;
+Thus said Yahweh to me: Go, and stand in the gate of the children of the people, through which the kings of Judah come in, and by which they go out, and in all the gates of Jerusalem;

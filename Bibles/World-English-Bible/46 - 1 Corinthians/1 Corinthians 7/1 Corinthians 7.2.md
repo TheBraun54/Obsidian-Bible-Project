@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But, because of fornications, let each man have his own wife, and let each woman have her own husband.
+But, because of sexual immoralities, let each man have his own wife, and let each woman have her own husband.

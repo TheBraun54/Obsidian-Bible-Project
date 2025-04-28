@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say not, I will do so to him as he hath done to me; I will render to the man according to his work.
+Don't say, "I will do to him as he has done to me; I will render to the man according to his work."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when thy days are fulfilled that thou must go to be with thy fathers, that I will set up thy seed after thee, who shall be of thy sons; and I will establish his kingdom.
+It shall happen, when your days are fulfilled that you must go to be with your fathers, that I will set up your seed after you, who shall be of your sons; and I will establish his kingdom.

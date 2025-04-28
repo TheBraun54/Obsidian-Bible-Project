@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is not the great that are wise, Nor the aged that understand justice.
+It is not the great who are wise, nor the aged who understand justice.

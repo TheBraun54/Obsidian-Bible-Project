@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The multitude therefore answered him, We have heard out of the law that the Christ abideth for ever: and how sayest thou, The Son of man must be lifted up? who is this Son of man?
+The multitude answered him, "We have heard out of the law that the Christ remains forever. How do you say, 'The Son of Man must be lifted up?' Who is this Son of Man?"

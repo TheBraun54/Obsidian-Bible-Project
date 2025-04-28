@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Fear not, Paul; thou must stand before Caesar: and lo, God hath granted thee all them that sail with thee.
+saying, 'Don't be afraid, Paul. You must stand before Caesar. Behold, God has granted you all those who sail with you.'

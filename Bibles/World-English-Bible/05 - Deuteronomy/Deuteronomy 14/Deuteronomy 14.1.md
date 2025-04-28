@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are the children of Jehovah your God: ye shall not cut yourselves, nor make any baldness between your eyes for the dead.
+You are the children of Yahweh your God: you shall not cut yourselves, nor make any baldness between your eyes for the dead.

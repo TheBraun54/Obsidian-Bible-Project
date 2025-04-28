@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan told David, saying, Saul my father seeketh to slay thee: now therefore, I pray thee, take heed to thyself in the morning, and abide in a secret place, and hide thyself:
+Jonathan told David, saying, "Saul my father seeks to kill you. Now therefore, please take care of yourself in the morning, and live in a secret place, and hide yourself.

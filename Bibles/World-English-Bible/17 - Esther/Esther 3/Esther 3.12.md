@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were the king's scribes called in the first month, on the thirteenth day thereof; and there was written according to all that Haman commanded unto the king's satraps, and to the governors that were over every province, and to the princes of every people, to every province according to the writing thereof, and to every people after their language; in the name of king Ahasuerus was it written, and it was sealed with the king's ring. [
+Then the king's scribes were called in on the first month, on the thirteenth day of the month; and all that Haman commanded was written to the king's satraps, and to the governors who were over every province, and to the princes of every people, to every province according its writing, and to every people in their language. It was written in the name of King Ahasuerus, and it was sealed with the king's ring.

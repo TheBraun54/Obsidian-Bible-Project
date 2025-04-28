@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a letter unto Asaph the keeper of the king's forest, that he may give me timber to make beams for the gates of the castle which appertaineth to the house, and for the wall of the city, and for the house that I shall enter into. And the king granted me, according to the good hand of my God upon me.
+and a letter to Asaph the keeper of the king's forest, that he may give me timber to make beams for the gates of the citadel by the temple, for the wall of the city, and for the house that I shall enter into." The king granted my requests, because of the good hand of my God on me.

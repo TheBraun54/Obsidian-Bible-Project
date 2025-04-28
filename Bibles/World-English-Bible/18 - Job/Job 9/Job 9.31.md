@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet wilt thou plunge me in the ditch, And mine own clothes shall abhor me.
+yet you will plunge me in the ditch. My own clothes shall abhor me.

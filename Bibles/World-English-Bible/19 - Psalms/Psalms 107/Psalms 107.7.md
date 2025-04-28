@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He led them also by a straight way, That they might go to a city of habitation.
+he led them also by a straight way, that they might go to a city to live in.

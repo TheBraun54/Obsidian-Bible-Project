@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my God, my soul is cast down within me: Therefore do I remember thee from the land of the Jordan, And the Hermons, from the hill Mizar.
+My God, my soul is in despair within me. Therefore I remember you from the land of the Jordan, the heights of Hermon, from the hill Mizar.

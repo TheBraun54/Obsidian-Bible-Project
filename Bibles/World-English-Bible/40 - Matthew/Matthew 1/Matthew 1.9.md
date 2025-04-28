@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Uzziah begat Jotham; and Jotham begat Ahaz; and Ahaz begat Hezekiah;
+Uzziah became the father of Jotham. Jotham became the father of Ahaz. Ahaz became the father of Hezekiah.

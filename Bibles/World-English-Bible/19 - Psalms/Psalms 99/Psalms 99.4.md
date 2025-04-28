@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king's strength also loveth justice; Thou dost establish equity; Thou executest justice and righteousness in Jacob.
+The King's strength also loves justice. You do establish equity. You execute justice and righteousness in Jacob.

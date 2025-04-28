@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover there are workmen with thee in abundance, hewers and workers of stone and timber, and all men that are skilful in every manner of work:
+There are also workmen with you in abundance, cutters and workers of stone and timber, and all kinds of men who are skillful in every kind of work:

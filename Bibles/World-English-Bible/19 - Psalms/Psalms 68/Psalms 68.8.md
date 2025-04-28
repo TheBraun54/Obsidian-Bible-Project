@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth trembled, The heavens also dropped [rain] at the presence of God: Yon Sinai [trembled] at the presence of God, the God of Israel.
+The earth trembled. The sky also poured down rain at the presence of the God of Sinai-- at the presence of God, the God of Israel.

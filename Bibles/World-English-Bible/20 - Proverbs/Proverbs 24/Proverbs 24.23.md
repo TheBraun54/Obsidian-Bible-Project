@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These also are [sayings] of the wise. To have respect of persons in judgment is not good.
+These also are sayings of the wise. To show partiality in judgment is not good.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the feasts and in the solemnities the meal-offering shall be an ephah for a bullock, and an ephah for a ram, and for the lambs as he is able to give, and a hin of oil to an ephah.
+In the feasts and in the solemnities the meal offering shall be an ephah for a bull, and an ephah for a ram, and for the lambs as he is able to give, and a hin of oil to an ephah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A garden shut up is my sister, [my] bride; A spring shut up, a fountain sealed.
+A locked up garden is my sister, my bride; a locked up spring, a sealed fountain.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he made high places in the mountains of Judah, and made the inhabitants of Jerusalem to play the harlot, and led Judah astray.
+Moreover he made high places in the mountains of Judah, and made the inhabitants of Jerusalem to play the prostitute, and led Judah astray.

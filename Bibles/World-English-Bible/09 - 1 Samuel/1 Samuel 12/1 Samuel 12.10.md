@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cried unto Jehovah, and said, We have sinned, because we have forsaken Jehovah, and have served the Baalim and the Ashtaroth: but now deliver us out of the hand of our enemies, and we will serve thee.
+They cried to Yahweh, and said, 'We have sinned, because we have forsaken Yahweh, and have served the Baals and the Ashtaroth: but now deliver us out of the hand of our enemies, and we will serve you.'

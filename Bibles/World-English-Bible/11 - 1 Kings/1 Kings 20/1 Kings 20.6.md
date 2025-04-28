@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will send my servants unto thee to-morrow about this time, and they shall search thy house, and the houses of thy servants; and it shall be, that whatsoever is pleasant in thine eyes, they shall put it in their hand, and take it away.
+but I will send my servants to you tomorrow about this time, and they shall search your house, and the houses of your servants; and it shall be, that whatever is pleasant in your eyes, they shall put it in their hand, and take it away."'"

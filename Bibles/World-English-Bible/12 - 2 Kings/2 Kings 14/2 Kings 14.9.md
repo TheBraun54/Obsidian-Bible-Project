@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoash the king of Israel sent to Amaziah king of Judah, saying, The thistle that was in Lebanon sent to the cedar that was in Lebanon, saying, Give thy daughter to my son to wife: and there passed by a wild beast that was in Lebanon, and trod down the thistle.
+Jehoash the king of Israel sent to Amaziah king of Judah, saying, "The thistle that was in Lebanon sent to the cedar that was in Lebanon, saying, 'Give your daughter to my son as wife. Then a wild animal that was in Lebanon passed by, and trampled down the thistle.

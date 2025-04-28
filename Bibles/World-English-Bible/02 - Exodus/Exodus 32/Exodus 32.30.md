@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that Moses said unto the people, Ye have sinned a great sin: and now I will go up unto Jehovah; peradventure I shall make atonement for your sin.
+It happened on the next day, that Moses said to the people, "You have sinned a great sin. Now I will go up to Yahweh. Perhaps I shall make atonement for your sin."

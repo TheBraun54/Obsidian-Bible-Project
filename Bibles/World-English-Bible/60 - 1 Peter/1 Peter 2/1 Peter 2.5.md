@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye also, as living stones, are built up a spiritual house, to be a holy priesthood, to offer up spiritual sacrifices, acceptable to God through Jesus Christ.
+You also, as living stones, are built up as a spiritual house, to be a holy priesthood, to offer up spiritual sacrifices, acceptable to God through Jesus Christ.

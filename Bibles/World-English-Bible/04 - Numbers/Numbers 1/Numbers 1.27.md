@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Judah, were threescore and fourteen thousand and six hundred.
+those who were numbered of them, of the tribe of Judah, were sixty-four thousand six hundred.

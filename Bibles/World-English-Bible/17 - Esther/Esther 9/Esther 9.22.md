@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as the days wherein the Jews had rest from their enemies, and the month which was turned unto them from sorrow to gladness, and from mourning into a good day; that they should make them days of feasting and gladness, and of sending portions one to another, and gifts to the poor.
+as the days in which the Jews had rest from their enemies, and the month which was turned to them from sorrow to gladness, and from mourning into a good day; that they should make them days of feasting and gladness, and of sending presents of food to one another, and gifts to the needy.

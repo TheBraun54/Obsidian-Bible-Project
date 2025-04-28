@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah thy God will bring thee into the land which thy fathers possessed, and thou shalt possess it; and he will do thee good, and multiply thee above thy fathers.
+and Yahweh your God will bring you into the land which your fathers possessed, and you shall possess it; and he will do you good, and multiply you above your fathers.

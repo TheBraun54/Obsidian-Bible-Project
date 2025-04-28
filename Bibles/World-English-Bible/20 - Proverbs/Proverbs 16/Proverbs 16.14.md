@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wrath of a king is [as] messengers of death; But a wise man will pacify it.
+The king's wrath is a messenger of death, but a wise man will pacify it.

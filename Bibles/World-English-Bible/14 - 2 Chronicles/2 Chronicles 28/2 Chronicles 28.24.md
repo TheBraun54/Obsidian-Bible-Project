@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahaz gathered together the vessels of the house of God, and cut in pieces the vessels of the house of God, and shut up the doors of the house of Jehovah; and he made him altars in every corner of Jerusalem.
+Ahaz gathered together the vessels of the house of God, and cut in pieces the vessels of the house of God, and shut up the doors of the house of Yahweh; and he made him altars in every corner of Jerusalem.

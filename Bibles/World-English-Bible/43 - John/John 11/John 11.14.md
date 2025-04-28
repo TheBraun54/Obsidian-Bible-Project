@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jesus therefore said unto them plainly, Lazarus is dead.
+So Jesus said to them plainly then, "Lazarus is dead.

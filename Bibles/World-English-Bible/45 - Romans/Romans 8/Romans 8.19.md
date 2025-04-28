@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the earnest expectation of the creation waiteth for the revealing of the sons of God.
+For the creation waits with eager expectation for the children of God to be revealed.

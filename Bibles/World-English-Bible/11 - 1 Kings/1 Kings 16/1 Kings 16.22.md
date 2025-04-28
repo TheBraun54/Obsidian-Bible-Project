@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the people that followed Omri prevailed against the people that followed Tibni the son of Ginath: so Tibni died, and Omri reigned.
+But the people who followed Omri prevailed against the people who followed Tibni the son of Ginath: so Tibni died, and Omri reigned.

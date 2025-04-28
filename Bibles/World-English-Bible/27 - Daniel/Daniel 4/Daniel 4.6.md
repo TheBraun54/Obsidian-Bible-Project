@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore made I a decree to bring in all the wise men of Babylon before me, that they might make known unto me the interpretation of the dream.
+Therefore made I a decree to bring in all the wise men of Babylon before me, that they might make known to me the interpretation of the dream.

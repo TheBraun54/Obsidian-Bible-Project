@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye have dishonored the poor man. Do not the rich oppress you, and themselves drag you before the judgment-seats?
+But you have dishonored the poor man. Don't the rich oppress you, and personally drag you before the courts?

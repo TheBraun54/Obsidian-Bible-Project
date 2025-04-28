@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, What honor and dignity hath been bestowed on Mordecai for this? Then said the king's servants that ministered unto him, There is nothing done for him.
+The king said, "What honor and dignity has been bestowed on Mordecai for this?" Then the king's servants who attended him said, "Nothing has been done for him."

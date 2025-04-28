@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What if God, willing to show his wrath, and to make his power known, endured with much longsuffering vessels of wrath fitted unto destruction:
+What if God, willing to show his wrath, and to make his power known, endured with much patience vessels of wrath made for destruction,

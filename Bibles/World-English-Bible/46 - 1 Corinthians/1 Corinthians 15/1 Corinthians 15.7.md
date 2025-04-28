@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then he appeared to James; then to all the apostles;
+Then he appeared to James, then to all the apostles,

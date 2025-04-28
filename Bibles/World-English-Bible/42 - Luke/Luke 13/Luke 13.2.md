@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said unto them, Think ye that these Galilaeans were sinners above all the Galilaeans, because they have suffered these things?
+Jesus answered them, "Do you think that these Galileans were worse sinners than all the other Galileans, because they suffered such things?

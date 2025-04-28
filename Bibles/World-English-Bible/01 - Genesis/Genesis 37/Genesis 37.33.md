@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he knew it, and said, It is my son's coat; an evil beast hath devoured him; Joseph is without doubt torn in pieces.
+He recognized it, and said, "It is my son's coat. An evil animal has devoured him. Joseph is without doubt torn in pieces."

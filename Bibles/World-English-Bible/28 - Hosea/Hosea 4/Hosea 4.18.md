@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their drink is become sour; they play the harlot continually; her rulers dearly love shame.
+Their drink has become sour. They play the prostitute continually. Her rulers dearly love their shameful way.

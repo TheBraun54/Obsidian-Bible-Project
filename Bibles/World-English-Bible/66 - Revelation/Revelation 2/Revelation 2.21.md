@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I gave her time that she should repent; and she willeth not to repent of her fornication.
+I gave her time to repent, but she refuses to repent of her sexual immorality.

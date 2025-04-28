@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In whose hands is wickedness, And their right hand is full of bribes.
+in whose hands is wickedness, their right hand is full of bribes.

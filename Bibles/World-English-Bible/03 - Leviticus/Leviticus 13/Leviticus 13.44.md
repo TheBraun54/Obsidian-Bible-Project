@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he is a leprous man, he is unclean: the priest shall surely pronounce him unclean; his plague is in his head.
+he is a leprous man. He is unclean. The priest shall surely pronounce him unclean. His plague is on his head.

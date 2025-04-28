@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is but a light thing in the sight of Jehovah: he will also deliver the Moabites into your hand.
+This is but a light thing in the sight of Yahweh. He will also deliver the Moabites into your hand.

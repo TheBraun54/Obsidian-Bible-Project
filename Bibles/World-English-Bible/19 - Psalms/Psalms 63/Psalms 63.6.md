@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I remember thee upon my bed, [And] meditate on thee in the night-watches.
+when I remember you on my bed, and think about you in the night watches.

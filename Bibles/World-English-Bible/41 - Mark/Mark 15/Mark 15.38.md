@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the veil of the temple was rent in two from the top to the bottom.
+The veil of the temple was torn in two from the top to the bottom.

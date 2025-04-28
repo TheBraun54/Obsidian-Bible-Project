@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saved others; himself he cannot save. He is the King of Israel; let him now come down from the cross, and we will believe on him.
+"He saved others, but he can't save himself. If he is the King of Israel, let him come down from the cross now, and we will believe in him.

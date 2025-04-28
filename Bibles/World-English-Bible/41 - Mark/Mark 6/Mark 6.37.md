@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said unto them, Give ye them to eat. And they say unto him, Shall we go and buy two hundred shillings' worth of bread, and give them to eat?
+But he answered them, "You give them something to eat." They asked him, "Shall we go and buy two hundred denarii worth of bread, and give them something to eat?"

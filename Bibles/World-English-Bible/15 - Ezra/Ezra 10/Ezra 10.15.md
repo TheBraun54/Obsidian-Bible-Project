@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only Jonathan the son of Asahel and Jahzeiah the son of Tikvah stood up against this [matter] : and Meshullam and Shabbethai the Levite helped them.
+Only Jonathan the son of Asahel and Jahzeiah the son of Tikvah stood up against this; and Meshullam and Shabbethai the Levite helped them.

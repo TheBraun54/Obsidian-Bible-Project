@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: Behold, I myself, even I, will search for my sheep, and will seek them out.
+For thus says the Lord Yahweh: Behold, I myself, even I, will search for my sheep, and will seek them out.

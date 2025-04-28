@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jesus had thus said, he was troubled in the spirit, and testified, and said, Verily, verily, I say unto you, that one of you shall betray me.
+When Jesus had said this, he was troubled in spirit, and testified, "Most certainly I tell you that one of you will betray me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go unto the house of the Rechabites, and speak unto them, and bring them into the house of Jehovah, into one of the chambers, and give them wine to drink.
+Go to the house of the Rechabites, and speak to them, and bring them into the house of Yahweh, into one of the rooms, and give them wine to drink.

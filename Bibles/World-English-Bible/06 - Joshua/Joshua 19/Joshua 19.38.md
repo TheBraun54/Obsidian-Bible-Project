@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Iron, and Migdal-el, Horem, and Beth-anath, and Beth-shemesh; nineteen cities with their villages.
+Iron, Migdal El, Horem, Beth Anath, and Beth Shemesh; nineteen cities with their villages.

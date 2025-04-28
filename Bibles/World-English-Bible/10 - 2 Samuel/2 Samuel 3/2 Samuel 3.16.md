@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her husband went with her, weeping as he went, and followed her to Bahurim. Then said Abner unto him, Go, return: and he returned.
+Her husband went with her, weeping as he went, and followed her to Bahurim. Then Abner said to him, "Go! Return!" and he returned.

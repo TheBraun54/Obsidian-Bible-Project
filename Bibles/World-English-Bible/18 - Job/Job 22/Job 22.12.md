@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not God in the height of heaven? And behold the height of the stars, how high they are!
+"Isn't God in the heights of heaven? See the height of the stars, how high they are!

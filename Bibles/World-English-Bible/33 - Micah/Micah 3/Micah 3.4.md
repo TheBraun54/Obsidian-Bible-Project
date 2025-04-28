@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall they cry unto Jehovah, but he will not answer them; yea, he will hide his face from them at that time, according as they have wrought evil in their doings.
+Then they will cry to Yahweh, but he will not answer them. Yes, he will hide his face from them at that time, because they made their deeds evil."

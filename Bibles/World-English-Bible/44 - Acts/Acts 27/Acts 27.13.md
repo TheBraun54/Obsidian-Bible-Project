@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the south wind blew softly, supposing that they had obtained their purpose, they weighed anchor and sailed along Crete, close in shore.
+When the south wind blew softly, supposing that they had obtained their purpose, they weighed anchor and sailed along Crete, close to shore.

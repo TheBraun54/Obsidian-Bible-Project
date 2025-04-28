@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things have been delivered unto me of my Father: and no one knoweth who the Son is, save the Father; and who the Father is, save the Son, and he to whomsoever the Son willeth to reveal [him] .
+Turning to the disciples, he said, "All things have been delivered to me by my Father. No one knows who the Son is, except the Father, and who the Father is, except the Son, and he to whomever the Son desires to reveal him."

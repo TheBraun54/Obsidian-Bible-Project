@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who giveth food to all flesh; For his lovingkindness [endureth] for ever.
+Who gives food to every creature; for his loving kindness endures forever.

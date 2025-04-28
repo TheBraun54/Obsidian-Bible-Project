@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time Jehovah said unto me, Hew thee two tables of stone like unto the first, and come up unto me into the mount, and make thee an ark of wood.
+At that time Yahweh said to me, "Cut two tables of stone like the first, and come up to me onto the mountain, and make an ark of wood.

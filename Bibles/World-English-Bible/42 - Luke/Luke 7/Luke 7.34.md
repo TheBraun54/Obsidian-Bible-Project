@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Son of man is come eating and drinking; and ye say, Behold, a gluttonous man, and a winebibber, a friend of publicans and sinners!
+The Son of Man has come eating and drinking, and you say, 'Behold, a gluttonous man, and a drunkard; a friend of tax collectors and sinners!'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After that thou shalt come to the hill of God, where is the garrison of the Philistines: and it shall come to pass, when thou art come thither to the city, that thou shalt meet a band of prophets coming down from the high place with a psaltery, and a timbrel, and a pipe, and a harp, before them; and they will be prophesying:
+"After that you shall come to the hill of God, where is the garrison of the Philistines: and it shall happen, when you have come there to the city, that you shall meet a band of prophets coming down from the high place with a psaltery, and a tambourine, and a pipe, and a harp, before them; and they will be prophesying:

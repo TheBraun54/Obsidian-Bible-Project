@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that are to be redeemed of them from a month old shalt thou redeem, according to thine estimation, for the money of five shekels, after the shekel of the sanctuary (the same is twenty gerahs).
+You shall redeem those who are to be redeemed of them from a month old, according to your estimation, for five shekels of money, after the shekel of the sanctuary (the same is twenty gerahs).

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man that is laden with the blood of any person Shall flee unto the pit; Let no man stay him.
+A man who is tormented by life blood will be a fugitive until death; no one will support him.

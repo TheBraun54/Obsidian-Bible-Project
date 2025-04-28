@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while he yet spake, lo, Judas, one of the twelve, came, and with him a great multitude with swords and staves, from the chief priest and elders of the people.
+While he was still speaking, behold, Judas, one of the twelve, came, and with him a great multitude with swords and clubs, from the chief priest and elders of the people.

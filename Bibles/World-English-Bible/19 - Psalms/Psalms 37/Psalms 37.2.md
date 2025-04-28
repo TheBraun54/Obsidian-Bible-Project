@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they shall soon be cut down like the grass, And wither as the green herb.
+For they shall soon be cut down like the grass, and wither like the green herb.

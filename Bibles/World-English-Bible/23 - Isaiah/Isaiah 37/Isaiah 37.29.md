@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of thy raging against me, and because thine arrogancy is come up into mine ears, therefore will I put my hook in thy nose, and my bridle in thy lips, and I will turn thee back by the way by which thou camest.
+Because of your raging against me, and because your arrogance has come up into my ears, therefore will I put my hook in your nose and my bridle in your lips, and I will turn you back by the way by which you came.

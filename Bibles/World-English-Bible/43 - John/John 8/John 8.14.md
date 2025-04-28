@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto them, Even if I bear witness of myself, my witness is true; for I know whence I came, and whither I go; but ye know not whence I come, or whither I go.
+Jesus answered them, "Even if I testify about myself, my testimony is true, for I know where I came from, and where I am going; but you don't know where I came from, or where I am going.

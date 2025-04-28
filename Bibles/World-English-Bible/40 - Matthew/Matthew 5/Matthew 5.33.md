@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, ye have heard that it was said to them of old time, Thou shalt not forswear thyself, but shalt perform unto the Lord thine oaths:
+"Again you have heard that it was said to them of old time, 'You shall not make false vows, but shall perform to the Lord your vows,'

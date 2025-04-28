@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the mouth of the wicked and the mouth of deceit have they opened against me: They have spoken unto me with a lying tongue.
+for they have opened the mouth of the wicked and the mouth of deceit against me. They have spoken to me with a lying tongue.

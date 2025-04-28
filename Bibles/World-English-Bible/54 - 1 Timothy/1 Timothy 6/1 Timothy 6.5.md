@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wranglings of men corrupted in mind and bereft of the truth, supposing that godliness is a way of gain.
+constant friction of people of corrupt minds and destitute of the truth, who suppose that godliness is a means of gain. Withdraw yourself from such.

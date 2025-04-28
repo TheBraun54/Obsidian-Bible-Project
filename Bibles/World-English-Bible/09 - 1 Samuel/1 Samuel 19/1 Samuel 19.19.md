@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Saul, saying, Behold, David is at Naioth in Ramah.
+It was told Saul, saying, "Behold, David is at Naioth in Ramah."

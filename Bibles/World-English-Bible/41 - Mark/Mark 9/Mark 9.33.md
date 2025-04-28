@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to Capernaum: and when he was in the house he asked them, What were ye reasoning on the way?
+He came to Capernaum, and when he was in the house he asked them, "What were you arguing among yourselves on the way?"

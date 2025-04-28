@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the foundations be destroyed, What can the righteous do?
+If the foundations are destroyed, what can the righteous do?

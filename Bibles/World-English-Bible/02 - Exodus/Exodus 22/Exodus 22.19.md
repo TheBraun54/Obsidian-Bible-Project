@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever lieth with a beast shall surely be put to death.
+"Whoever has sex with an animal shall surely be put to death.

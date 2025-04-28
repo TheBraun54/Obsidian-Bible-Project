@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ruler of the synagogue, being moved with indignation because Jesus had healed on the sabbath, answered and said to the multitude, There are six days in which men ought to work: in them therefore come and be healed, and not on the day of the sabbath.
+The ruler of the synagogue, being indignant because Jesus had healed on the Sabbath, said to the multitude, "There are six days in which men ought to work. Therefore come on those days and be healed, and not on the Sabbath day!"

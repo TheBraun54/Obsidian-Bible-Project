@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now all the publicans and sinners were drawing near unto him to hear him.
+Now all the tax collectors and sinners were coming close to him to hear him.

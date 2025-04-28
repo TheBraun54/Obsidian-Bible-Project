@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go forth from the ark, thou, and thy wife, and thy sons, and thy sons' wives with thee.
+"Go out of the ship, you, and your wife, and your sons, and your sons' wives with you.

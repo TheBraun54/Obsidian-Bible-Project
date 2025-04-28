@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he will not redeem the field, or if he have sold the field to another man, it shall not be redeemed any more:
+If he will not redeem the field, or if he has sold the field to another man, it shall not be redeemed any more;

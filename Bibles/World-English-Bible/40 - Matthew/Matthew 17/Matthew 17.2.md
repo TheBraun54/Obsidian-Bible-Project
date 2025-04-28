@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he was transfigured before them; and his face did shine as the sun, and his garments became white as the light.
+He was transfigured before them. His face shone like the sun, and his garments became as white as the light.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not return into the land of Egypt; but the Assyrian shall be their king, because they refused to return [to me] .
+"They won't return into the land of Egypt; but the Assyrian will be their king, because they refused to repent.

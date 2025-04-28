@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, think it not strange concerning the fiery trial among you, which cometh upon you to prove you, as though a strange thing happened unto you:
+Beloved, don't be astonished at the fiery trial which has come upon you, to test you, as though a strange thing happened to you.

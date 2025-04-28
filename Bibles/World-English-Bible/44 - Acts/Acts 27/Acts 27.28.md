@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they sounded, and found twenty fathoms; and after a little space, they sounded again, and found fifteen fathoms.
+They took soundings, and found twenty fathoms. After a little while, they took soundings again, and found fifteen fathoms.

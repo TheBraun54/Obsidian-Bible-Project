@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God raised up [another] adversary unto him, Rezon the son of Eliada, who had fled from his lord Hadadezer king of Zobah.
+God raised up [another] adversary to him, Rezon the son of Eliada, who had fled from his lord Hadadezer king of Zobah.

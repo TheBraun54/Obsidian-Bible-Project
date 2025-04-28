@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a strong angel took up a stone as it were a great millstone and cast it into the sea, saying, Thus with a mighty fall shall Babylon, the great city, be cast down, and shall be found no more at all.
+A mighty angel took up a stone like a great millstone and cast it into the sea, saying, "Thus with violence will Babylon, the great city, be thrown down, and will be found no more at all.

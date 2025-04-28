@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus Israel dwelt in the land of the Amorites.
+Thus Israel lived in the land of the Amorites.

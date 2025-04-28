@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his countenance fell at the saying, and he went away sorrowful: for he was one that had great possessions.
+But his face fell at that saying, and he went away sorrowful, for he was one who had great possessions.

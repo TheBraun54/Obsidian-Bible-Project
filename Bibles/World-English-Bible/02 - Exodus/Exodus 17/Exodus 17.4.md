@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses cried unto Jehovah, saying, What shall I do unto this people? They are almost ready to stone me.
+Moses cried to Yahweh, saying, "What shall I do with these people? They are almost ready to stone me."

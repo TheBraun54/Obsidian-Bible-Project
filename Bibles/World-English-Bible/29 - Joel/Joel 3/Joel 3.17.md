@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall ye know that I am Jehovah your God, dwelling in Zion my holy mountain: then shall Jerusalem be holy, and there shall no strangers pass through her any more.
+"So you will know that I am Yahweh, your God, dwelling in Zion, my holy mountain. Then Jerusalem will be holy, and no strangers will pass through her any more.

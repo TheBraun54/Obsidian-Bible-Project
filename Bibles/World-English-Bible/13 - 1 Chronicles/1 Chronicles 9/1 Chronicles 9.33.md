@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the singers, heads of fathers' [houses] of the Levites, [who dwelt] in the chambers [and were] free [from other service] ; for they were employed in their work day and night.
+These are the singers, heads of fathers' [houses] of the Levites, [who lived] in the rooms [and were] free [from other service]; for they were employed in their work day and night.

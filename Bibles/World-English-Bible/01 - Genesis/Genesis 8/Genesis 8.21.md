@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah smelled the sweet savor; and Jehovah said in his heart, I will not again curse the ground any more for man's sake, for that the imagination of man's heart is evil from his youth; neither will I again smite any more everything living, as I have done.
+Yahweh smelled the pleasant aroma. Yahweh said in his heart, "I will not again curse the ground any more for man's sake, because the imagination of man's heart is evil from his youth; neither will I ever again strike everything living, as I have done.

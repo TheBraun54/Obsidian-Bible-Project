@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who were clothed with blue, governors and rulers, all of them desirable young men, horsemen riding upon horses.
+who were clothed with blue, governors and rulers, all of them desirable young men, horsemen riding on horses.

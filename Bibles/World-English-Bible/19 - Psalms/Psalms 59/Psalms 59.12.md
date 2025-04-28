@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ For] the sin of their mouth, [and] the words of their lips, Let them even be taken in their pride, And for cursing and lying which they speak.
+For the sin of their mouth, and the words of their lips, let them be caught in their pride, for the curses and lies which they utter.

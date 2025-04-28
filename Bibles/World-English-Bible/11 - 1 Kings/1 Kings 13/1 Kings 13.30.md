@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he laid his body in his own grave; and they mourned over him, [saying], Alas, my brother!
+He laid his body in his own grave; and they mourned over him, saying, "Alas, my brother!"

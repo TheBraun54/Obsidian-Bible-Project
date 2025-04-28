@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy are thy men, happy are these thy servants, that stand continually before thee, [and] that hear thy wisdom.
+Happy are your men, happy are these your servants, who stand continually before you, who hear your wisdom.

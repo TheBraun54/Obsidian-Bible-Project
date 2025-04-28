@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall they eat of the fruit of their own way, And be filled with their own devices.
+Therefore they will eat of the fruit of their own way, and be filled with their own schemes.

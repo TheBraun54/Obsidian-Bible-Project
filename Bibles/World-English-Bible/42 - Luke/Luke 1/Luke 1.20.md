@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, thou shalt be silent and not able to speak, until the day that these things shall come to pass, because thou believedst not my words, which shall be fulfilled in their season.
+Behold, you will be silent and not able to speak, until the day that these things will happen, because you didn't believe my words, which will be fulfilled in their proper time."

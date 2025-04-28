@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then thy heart be lifted up, and thou forget Jehovah thy God, who brought thee forth out of the land of Egypt, out of the house of bondage;
+then your heart be lifted up, and you forget Yahweh your God, who brought you forth out of the land of Egypt, out of the house of bondage;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was delivered unto him the book of the prophet Isaiah. And he opened the book, and found the place where it was written,
+The book of the prophet Isaiah was handed to him. He opened the book, and found the place where it was written,

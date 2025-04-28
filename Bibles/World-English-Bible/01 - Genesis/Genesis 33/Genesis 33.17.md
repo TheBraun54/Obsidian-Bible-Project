@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob journeyed to Succoth, and built him a house, and made booths for his cattle: therefore the name of the place is called Succoth.
+Jacob traveled to Succoth, built himself a house, and made shelters for his livestock. Therefore the name of the place is called Succoth.

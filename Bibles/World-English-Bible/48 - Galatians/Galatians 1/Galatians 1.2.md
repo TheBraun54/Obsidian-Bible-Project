@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the brethren that are with me, unto the churches of Galatia:
+and all the brothers who are with me, to the assemblies of Galatia:

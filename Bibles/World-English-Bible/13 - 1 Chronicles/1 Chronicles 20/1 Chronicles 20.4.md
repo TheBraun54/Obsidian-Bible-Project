@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after this, that there arose war at Gezer with the Philistines: then Sibbecai the Hushathite slew Sippai, of the sons of the giant; and they were subdued.
+It happened after this, that there arose war at Gezer with the Philistines: then Sibbecai the Hushathite killed Sippai, of the sons of the giant; and they were subdued.

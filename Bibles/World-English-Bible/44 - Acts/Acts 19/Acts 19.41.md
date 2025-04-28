@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had thus spoken, he dismissed the assembly.
+When he had thus spoken, he dismissed the assembly.

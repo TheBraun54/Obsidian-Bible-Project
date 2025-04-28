@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many times did he deliver them; But they were rebellious in their counsel, And were brought low in their iniquity.
+Many times he delivered them, but they were rebellious in their counsel, and were brought low in their iniquity.

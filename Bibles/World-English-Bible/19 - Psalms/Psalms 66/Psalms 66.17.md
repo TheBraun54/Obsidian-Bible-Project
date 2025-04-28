@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I cried unto him with my mouth, And he was extolled with my tongue.
+I cried to him with my mouth. He was extolled with my tongue.

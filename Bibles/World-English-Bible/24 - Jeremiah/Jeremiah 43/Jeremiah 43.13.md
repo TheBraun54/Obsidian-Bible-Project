@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall also break the pillars of Beth-shemesh, that is in the land of Egypt; and the houses of the gods of Egypt shall he burn with fire.
+He shall also break the pillars of Beth Shemesh, that is in the land of Egypt; and the houses of the gods of Egypt shall he burn with fire.

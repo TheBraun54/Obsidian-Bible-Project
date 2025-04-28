@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Dophkah, and encamped in Alush.
+They traveled from Dophkah, and encamped in Alush.

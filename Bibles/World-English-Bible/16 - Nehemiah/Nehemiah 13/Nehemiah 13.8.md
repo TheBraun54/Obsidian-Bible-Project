@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it grieved me sore: therefore I cast forth all the household stuff of Tobiah out of the chamber.
+It grieved me severely: therefore I cast forth all the household stuff of Tobiah out of the room.

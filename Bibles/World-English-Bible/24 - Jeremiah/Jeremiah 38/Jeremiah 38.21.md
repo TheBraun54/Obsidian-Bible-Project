@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou refuse to go forth, this is the word that Jehovah hath showed me:
+But if you refuse to go forth, this is the word that Yahweh has shown me:

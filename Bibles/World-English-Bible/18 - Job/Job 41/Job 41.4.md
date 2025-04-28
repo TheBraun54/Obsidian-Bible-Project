@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will he make a covenant with thee, That thou shouldest take him for a servant for ever?
+Will he make a covenant with you, that you should take him for a servant forever?

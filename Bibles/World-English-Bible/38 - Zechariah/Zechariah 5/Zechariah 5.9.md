@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then lifted I up mine eyes, and saw, and, behold, there came forth two women, and the wind was in their wings; now they had wings like the wings of a stork; and they lifted up the ephah between earth and heaven.
+Then lifted I up my eyes, and saw, and behold, there were two women, and the wind was in their wings. Now they had wings like the wings of a stork, and they lifted up the ephah basket between earth and the sky.

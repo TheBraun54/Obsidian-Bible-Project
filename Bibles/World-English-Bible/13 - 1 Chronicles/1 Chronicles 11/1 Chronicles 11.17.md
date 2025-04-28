@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David longed, and said, Oh that one would give me water to drink of the well of Beth-lehem, which is by the gate!
+David longed, and said, "Oh that one would give me water to drink of the well of Bethlehem, which is by the gate!"

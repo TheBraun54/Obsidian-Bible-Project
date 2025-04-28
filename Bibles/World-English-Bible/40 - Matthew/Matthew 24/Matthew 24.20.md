@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And pray ye that your flight be not in the winter, neither on a sabbath:
+Pray that your flight will not be in the winter, nor on a Sabbath,

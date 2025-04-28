@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, The man shall surely be put to death: all the congregation shall stone him with stones without the camp.
+Yahweh said to Moses, "The man shall surely be put to death: all the congregation shall stone him with stones outside of the camp."

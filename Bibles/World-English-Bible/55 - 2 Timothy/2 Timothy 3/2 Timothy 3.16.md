@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every scripture inspired of God [is] also profitable for teaching, for reproof, for correction, for instruction which is in righteousness.
+Every Scripture is God-breathed and profitable for teaching, for reproof, for correction, and for instruction in righteousness,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David spake unto Jehovah the words of this song in the day that Jehovah delivered him out of the hand of all his enemies, and out of the hand of Saul:
+David spoke to Yahweh the words of this song in the day that Yahweh delivered him out of the hand of all his enemies, and out of the hand of Saul:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and them that worship the host of heaven upon the housetops; and them that worship, that swear to Jehovah and swear by Malcam;
+those who worship the army of the sky on the housetops, those who worship and swear by Yahweh and also swear by Malcam,

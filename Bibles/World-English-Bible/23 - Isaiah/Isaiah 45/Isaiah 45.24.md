@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only in Jehovah, it is said of me, is righteousness and strength; even to him shall men come; and all they that were incensed against him shall be put to shame.
+They will say of me, 'There is righteousness and strength only in Yahweh.'" Even to him shall men come; and all those who were incensed against him shall be disappointed.

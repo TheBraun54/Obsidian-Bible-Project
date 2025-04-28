@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that as the chased roe, and as sheep that no man gathereth, they shall turn every man to his own people, and shall flee every man to his own land.
+It will happen that like a hunted gazelle, and like sheep that no one gathers, they will each turn to their own people, and will each flee to their own land.

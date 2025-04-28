@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elam bare the quiver, with chariots of men [and] horsemen; and Kir uncovered the shield.
+Elam carried his quiver, with chariots of men and horsemen; and Kir uncovered the shield.

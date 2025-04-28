@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for these things which ye behold, the days will come, in which there shall not be left here one stone upon another, that shall not be thrown down.
+"As for these things which you see, the days will come, in which there will not be left here one stone on another that will not be thrown down."

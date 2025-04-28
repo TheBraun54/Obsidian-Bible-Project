@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came unto the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, unto the land of Gilead, and they spake with them, saying,
+They came to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, to the land of Gilead, and they spoke with them, saying,

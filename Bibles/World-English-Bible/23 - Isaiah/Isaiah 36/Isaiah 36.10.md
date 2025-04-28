@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And am I now come up without Jehovah against this land to destroy it? Jehovah said unto me, Go up against this land, and destroy it.
+Have I come up now without Yahweh against this land to destroy it? Yahweh said to me, "Go up against this land, and destroy it."'"

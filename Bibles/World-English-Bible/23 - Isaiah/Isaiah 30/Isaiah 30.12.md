@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore thus saith the Holy One of Israel, Because ye despise this word, and trust in oppression and perverseness, and rely thereon;
+Therefore thus says the Holy One of Israel, "Because you despise this word, and trust in oppression and perverseness, and rely on it;

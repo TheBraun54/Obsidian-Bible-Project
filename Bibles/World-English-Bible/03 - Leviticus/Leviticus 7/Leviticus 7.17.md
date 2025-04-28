@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but that which remaineth of the flesh of the sacrifice on the third day shall be burnt with fire.
+but what remains of the flesh of the sacrifice on the third day shall be burned with fire.

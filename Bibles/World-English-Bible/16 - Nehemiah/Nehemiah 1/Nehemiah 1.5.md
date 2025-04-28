@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, I beseech thee, O Jehovah, the God of heaven, the great and terrible God, that keepeth covenant and lovingkindness with them that love him and keep his commandments:
+and said, "I beg you, Yahweh, the God of heaven, the great and awesome God, who keeps covenant and loving kindness with those who love him and keep his commandments:

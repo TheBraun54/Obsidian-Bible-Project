@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is nothing hid, save that it should be manifested; neither was [anything] made secret, but that it should come to light.
+For there is nothing hidden, except that it should be made known; neither was anything made secret, but that it should come to light.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mary Magdalene was there, and the other Mary, sitting over against the sepulchre.
+Mary Magdalene was there, and the other Mary, sitting opposite the tomb.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to devise skilful works, to work in gold, and in silver, and in brass,
+to devise skillful works, to work in gold, and in silver, and in brass,

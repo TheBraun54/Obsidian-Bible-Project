@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the days of Noah were nine hundred and fifty years: And he died.
+All the days of Noah were nine hundred fifty years, then he died.

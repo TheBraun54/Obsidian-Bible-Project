@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-praising God, and having favor with all the people. And the Lord added to them day by day those that were saved.
+praising God, and having favor with all the people. The Lord added to the assembly day by day those who were being saved.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Symeon hath rehearsed how first God visited the Gentiles, to take out of them a people for his name.
+Simeon has reported how God first visited the nations, to take out of them a people for his name.

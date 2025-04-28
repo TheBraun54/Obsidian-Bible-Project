@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that dwelt at Lydda and in Sharon saw him, and they turned to the Lord.
+All who lived at Lydda and in Sharon saw him, and they turned to the Lord.

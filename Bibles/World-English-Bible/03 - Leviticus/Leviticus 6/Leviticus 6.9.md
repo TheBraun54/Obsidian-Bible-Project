@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Command Aaron and his sons, saying, This is the law of the burnt-offering: the burnt-offering shall be on the hearth upon the altar all night unto the morning; and the fire of the altar shall be kept burning thereon.
+"Command Aaron and his sons, saying, 'This is the law of the burnt offering: the burnt offering shall be on the hearth on the altar all night until the morning; and the fire of the altar shall be kept burning on it.

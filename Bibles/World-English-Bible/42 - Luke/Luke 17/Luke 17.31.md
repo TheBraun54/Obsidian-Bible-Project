@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day, he that shall be on the housetop, and his goods in the house, let him not go down to take them away: and let him that is in the field likewise not return back.
+In that day, he who will be on the housetop, and his goods in the house, let him not go down to take them away. Let him who is in the field likewise not turn back.

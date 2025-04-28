@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he began to speak unto them in parables. A man planted a vineyard, and set a hedge about it, and digged a pit for the winepress, and built a tower, and let it out to husbandmen, and went into another country.
+He began to speak to them in parables. "A man planted a vineyard, put a hedge around it, dug a pit for the winepress, built a tower, rented it out to a farmer, and went into another country.

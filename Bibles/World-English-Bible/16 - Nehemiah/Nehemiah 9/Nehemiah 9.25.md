@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took fortified cities, and a fat land, and possessed houses full of all good things, cisterns hewn out, vineyards, and oliveyards, and fruit-trees in abundance: so they did eat, and were filled, and became fat, and delighted themselves in thy great goodness.
+They took fortified cities, and a rich land, and possessed houses full of all good things, cisterns dug out, vineyards, and olive groves, and fruit trees in abundance. So they ate, were filled, became fat, and delighted themselves in your great goodness.

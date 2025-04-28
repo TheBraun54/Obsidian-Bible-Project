@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that walketh in his uprightness feareth Jehovah; But he that is perverse in his ways despiseth him.
+He who walks in his uprightness fears Yahweh, but he who is perverse in his ways despises him.

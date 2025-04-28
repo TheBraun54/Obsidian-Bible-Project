@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-seeing that Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed in him?
+since Abraham has surely become a great and mighty nation, and all the nations of the earth will be blessed in him?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever doth not bear his own cross, and come after me, cannot be my disciple.
+Whoever doesn't bear his own cross, and come after me, can't be my disciple.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He turneth a wilderness into a pool of water, And a dry land into watersprings.
+He turns a desert into a pool of water, and a dry land into water springs.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn us again, O God; And cause thy face to shine, and we shall be saved.
+Turn us again, God. Cause your face to shine, and we will be saved.

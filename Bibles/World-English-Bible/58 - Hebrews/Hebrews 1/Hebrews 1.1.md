@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God, having of old time spoken unto the fathers in the prophets by divers portions and in divers manners,
+God, having in the past spoken to the fathers through the prophets at many times and in various ways,

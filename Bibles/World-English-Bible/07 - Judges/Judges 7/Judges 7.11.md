@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt hear what they say; and afterward shall thy hands be strengthened to go down into the camp. Then went he down with Purah his servant unto the outermost part of the armed men that were in the camp.
+and you shall hear what they say; and afterward your hands will be strengthened to go down into the camp." Then went he down with Purah his servant to the outermost part of the armed men who were in the camp.

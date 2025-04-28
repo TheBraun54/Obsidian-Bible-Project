@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, that all the people in Jerusalem, and all the people that came from the cities of Judah unto Jerusalem, proclaimed a fast before Jehovah.
+Now it happened in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, that all the people in Jerusalem, and all the people who came from the cities of Judah to Jerusalem, proclaimed a fast before Yahweh.

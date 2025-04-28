@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there are some of you that believe not. For Jesus knew from the beginning who they were that believed not, and who it was that should betray him.
+But there are some of you who don't believe." For Jesus knew from the beginning who they were who didn't believe, and who it was who would betray him.

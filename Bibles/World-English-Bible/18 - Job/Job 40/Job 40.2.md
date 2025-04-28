@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall he that cavilleth contend with the Almighty? He that argueth with God, let him answer it.
+"Shall he who argues contend with the Almighty? He who argues with God, let him answer it."

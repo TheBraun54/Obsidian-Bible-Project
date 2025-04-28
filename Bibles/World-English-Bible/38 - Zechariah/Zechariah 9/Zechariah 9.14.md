@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah shall be seen over them; and his arrow shall go forth as the lightning; and the Lord Jehovah will blow the trumpet, and will go with whirlwinds of the south.
+Yahweh will be seen over them; and his arrow will go flash like lightning; and the Lord Yahweh will blow the trumpet, and will go with whirlwinds of the south.

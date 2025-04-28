@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the man that lay with her shall give unto the damsel's father fifty [shekels] of silver, and she shall be his wife, because he hath humbled her; he may not put her away all his days.
+then the man who lay with her shall give to the lady's father fifty [shekels] of silver, and she shall be his wife, because he has humbled her; he may not put her away all his days.

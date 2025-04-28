@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that was dead came forth, bound hand and foot with grave-clothes; and his face was bound about with a napkin. Jesus saith unto them, Loose him, and let him go.
+He who was dead came out, bound hand and foot with wrappings, and his face was wrapped around with a cloth. Jesus said to them, "Free him, and let him go."

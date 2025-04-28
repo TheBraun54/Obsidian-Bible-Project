@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Benaiah the son of Jehoiada was over the host; and Zadok and Abiathar were priests;
+and Benaiah the son of Jehoiada was over the army; and Zadok and Abiathar were priests;

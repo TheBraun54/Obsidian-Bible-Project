@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Israel is a hunted sheep; the lions have driven him away: first, the king of Assyria devoured him; and now at last Nebuchadrezzar king of Babylon hath broken his bones.
+Israel is a hunted sheep; the lions have driven him away: first, the king of Assyria devoured him; and now at last Nebuchadnezzar king of Babylon has broken his bones.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We heard him say, I will destroy this temple that is made with hands, and in three days I will build another made without hands.
+"We heard him say, 'I will destroy this temple that is made with hands, and in three days I will build another made without hands.'"

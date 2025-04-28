@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In Damascus the governor under Aretas the king guarded the city of the Damascenes in order to take me:
+In Damascus the governor under King Aretas guarded the city of the Damascenes desiring to arrest me.

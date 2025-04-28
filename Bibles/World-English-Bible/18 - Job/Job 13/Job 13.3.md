@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely I would speak to the Almighty, And I desire to reason with God.
+"Surely I would speak to the Almighty. I desire to reason with God.

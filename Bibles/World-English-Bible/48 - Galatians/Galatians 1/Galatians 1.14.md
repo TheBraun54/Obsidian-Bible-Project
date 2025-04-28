@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I advanced in the Jews' religion beyond many of mine own age among my countrymen, being more exceedingly zealous for the traditions of my fathers.
+I advanced in the Jews' religion beyond many of my own age among my countrymen, being more exceedingly zealous for the traditions of my fathers.

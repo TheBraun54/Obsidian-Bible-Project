@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover concerning the foreigner, that is not of thy people Israel, when he shall come out of a far country for thy name's sake
+"Moreover concerning the foreigner, who is not of your people Israel, when he shall come out of a far country for your name's sake

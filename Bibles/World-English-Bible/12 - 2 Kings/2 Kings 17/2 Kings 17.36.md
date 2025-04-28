@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Jehovah, who brought you up out of the land of Egypt with great power and with an outstretched arm, him shall ye fear, and unto him shall ye bow yourselves, and to him shall ye sacrifice:
+but you shall fear Yahweh, who brought you up out of the land of Egypt with great power and with an outstretched arm, and you shall bow yourselves to him, and you shall sacrifice to him.

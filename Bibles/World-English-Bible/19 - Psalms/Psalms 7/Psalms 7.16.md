@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His mischief shall return upon his own head, And his violence shall come down upon his own pate.
+The trouble he causes shall return to his own head. His violence shall come down on the crown of his own head.

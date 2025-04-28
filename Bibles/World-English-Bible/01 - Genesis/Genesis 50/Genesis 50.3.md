@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And forty days were fulfilled for him; for so are fulfilled the days of embalming: and the Egyptians wept for him three-score and ten days.
+Forty days were fulfilled for him, for that is how many the days it takes to embalm. The Egyptians wept for him for seventy days.

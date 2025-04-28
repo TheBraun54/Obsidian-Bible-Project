@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have set up kings, but not by me; they have made princes, and I knew it not: of their silver and their gold have they made them idols, that they may be cut off.
+They have set up kings, but not by me. They have made princes, and I didn't approve. Of their silver and their gold they have made themselves idols, that they may be cut off.

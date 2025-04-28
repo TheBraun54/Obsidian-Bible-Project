@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she was risen up to glean, Boaz commanded his young men, saying, Let her glean even among the sheaves, and reproach her not.
+When she had risen up to glean, Boaz commanded his young men, saying, "Let her glean even among the sheaves, and don't reproach her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as the gazelle and as the hart is eaten, so thou shalt eat thereof: the unclean and the clean may eat thereof alike.
+Even as the gazelle and as the hart is eaten, so you shall eat of it: the unclean and the clean may eat of it alike.

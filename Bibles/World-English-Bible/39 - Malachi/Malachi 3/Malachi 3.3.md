@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he will sit as a refiner and purifier of silver, and he will purify the sons of Levi, and refine them as gold and silver; and they shall offer unto Jehovah offerings in righteousness.
+and he will sit as a refiner and purifier of silver, and he will purify the sons of Levi, and refine them as gold and silver; and they shall offer to Yahweh offerings in righteousness.

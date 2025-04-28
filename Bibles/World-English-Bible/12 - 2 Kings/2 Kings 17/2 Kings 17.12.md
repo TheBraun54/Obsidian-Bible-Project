@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they served idols, whereof Jehovah had said unto them, Ye shall not do this thing.
+and they served idols, of which Yahweh had said to them, "You shall not do this thing."

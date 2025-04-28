@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I will make Samaria as a heap of the field, [and] as places for planting vineyards; and I will pour down the stones thereof into the valley, and I will uncover the foundations thereof.
+Therefore I will make Samaria like a rubble heap of the field, like places for planting vineyards; and I will pour down its stones into the valley, and I will uncover its foundations.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the thousand seven hundred seventy and five [shekels] he made hooks for the pillars, and overlaid their capitals, and made fillets for them.
+Of the one thousand seven hundred seventy-five shekels he made hooks for the pillars, overlaid their capitals, and made fillets for them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took the fat, and the fat tail, and all the fat that was upon the inwards, and the caul of the liver, and the two kidneys, and their fat, and the right thigh:
+He took the fat, and the fat tail, and all the fat that was on the innards, and the cover of the liver, and the two kidneys, and their fat, and the right thigh;

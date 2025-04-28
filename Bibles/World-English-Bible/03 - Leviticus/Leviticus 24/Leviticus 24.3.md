@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Without the veil of the testimony, in the tent of meeting, shall Aaron keep it in order from evening to morning before Jehovah continually: it shall be a statute for ever throughout your generations.
+Outside of the veil of the Testimony, in the Tent of Meeting, shall Aaron keep it in order from evening to morning before Yahweh continually: it shall be a statute forever throughout your generations.

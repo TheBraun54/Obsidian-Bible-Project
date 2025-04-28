@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They only consult to thrust him down from his dignity; They delight in lies; They bless with their mouth, but they curse inwardly. {{Selah
+They fully intend to throw him down from his lofty place. They delight in lies. They bless with their mouth, but they curse inwardly. Selah.

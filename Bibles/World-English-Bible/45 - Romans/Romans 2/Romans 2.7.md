@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to them that by patience in well-doing seek for glory and honor and incorruption, eternal life:
+to those who by patience in well-doing seek for glory, honor, and incorruptibility, eternal life;

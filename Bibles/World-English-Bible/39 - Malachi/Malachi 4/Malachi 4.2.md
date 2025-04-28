@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto you that fear my name shall the sun of righteousness arise with healing in its wings; and ye shall go forth, and gambol as calves of the stall.
+But to you who fear my name shall the sun of righteousness arise with healing in its wings. You will go out, and leap like calves of the stall.

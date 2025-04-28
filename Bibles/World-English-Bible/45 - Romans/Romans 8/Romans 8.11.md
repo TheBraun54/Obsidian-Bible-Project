@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the Spirit of him that raised up Jesus from the dead dwelleth in you, he that raised up Christ Jesus from the dead shall give life also to your mortal bodies through his Spirit that dwelleth in you.
+But if the Spirit of him who raised up Jesus from the dead dwells in you, he who raised up Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you.

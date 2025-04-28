@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto all Israel, Behold, I have hearkened unto your voice in all that ye said unto me, and have made a king over you.
+Samuel said to all Israel, "Behold, I have listened to your voice in all that you said to me, and have made a king over you.

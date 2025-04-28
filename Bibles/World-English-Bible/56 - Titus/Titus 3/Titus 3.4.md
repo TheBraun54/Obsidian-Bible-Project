@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the kindness of God our Saviour, and his love toward man, appeared,
+But when the kindness of God our Savior and his love toward mankind appeared,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David the king went in, and sat before Jehovah; and he said, Who am I, O Lord Jehovah, and what is my house, that thou hast brought me thus far?
+Then David the king went in, and sat before Yahweh; and he said, "Who am I, Lord Yahweh, and what is my house, that you have brought me thus far?

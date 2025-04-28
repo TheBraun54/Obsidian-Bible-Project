@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith to him again a second time, Simon, [son] of John, lovest thou me? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Tend my sheep.
+He said to him again a second time, "Simon, son of Jonah, do you love me?" He said to him, "Yes, Lord; you know that I have affection for you." He said to him, "Tend my sheep."

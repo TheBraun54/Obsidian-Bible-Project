@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he thrust him of hatred, or hurled at him, lying in wait, so that he died,
+If he thrust him of hatred, or hurled at him, lying in wait, so that he died,

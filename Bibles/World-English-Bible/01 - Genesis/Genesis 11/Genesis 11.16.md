@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eber lived four and thirty years, and begat Peleg:
+Eber lived thirty-four years, and became the father of Peleg.

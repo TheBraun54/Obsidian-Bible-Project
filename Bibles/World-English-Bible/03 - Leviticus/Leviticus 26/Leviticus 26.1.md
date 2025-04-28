@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall make you no idols, neither shall ye rear you up a graven image, or a pillar, neither shall ye place any figured stone in your land, to bow down unto it: for I am Jehovah your God.
+"'You shall make for yourselves no idols, neither shall you raise up an engraved image or a pillar, neither shall you place any figured stone in your land, to bow down to it: for I am Yahweh your God.

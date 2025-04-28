@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, despise not the chastening of Jehovah; Neither be weary of his reproof:
+My son, don't despise Yahweh's discipline, neither be weary of his reproof:

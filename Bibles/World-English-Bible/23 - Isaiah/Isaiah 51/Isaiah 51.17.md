@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, awake, stand up, O Jerusalem, that hast drunk at the hand of Jehovah the cup of his wrath; thou hast drunken the bowl of the cup of staggering, and drained it.
+Awake, awake, stand up, Jerusalem, that have drunk at the hand of Yahweh the cup of his wrath; you have drunken the bowl of the cup of staggering, and drained it.

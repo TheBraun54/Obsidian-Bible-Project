@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who is God, save Jehovah? And who is a rock, save our God?
+For who is God, besides Yahweh? Who is a rock, besides our God?

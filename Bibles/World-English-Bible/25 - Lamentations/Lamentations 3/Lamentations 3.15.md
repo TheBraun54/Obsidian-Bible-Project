@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath filled me with bitterness, he hath sated me with wormwood.
+He has filled me with bitterness, he has sated me with wormwood.

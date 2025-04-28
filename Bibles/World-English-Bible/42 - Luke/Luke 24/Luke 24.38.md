@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Why are ye troubled? and wherefore do questionings arise in your heart?
+He said to them, "Why are you troubled? Why do doubts arise in your hearts?

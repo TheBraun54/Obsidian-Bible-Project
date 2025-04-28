@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he poured upon him the fierceness of his anger, and the strength of battle; and it set him on fire round about, yet he knew not; and it burned him, yet he laid it not to heart.
+Therefore he poured the fierceness of his anger on him, and the strength of battle; and it set him on fire all around, but he didn't know; and it burned him, but he didn't take it to heart."

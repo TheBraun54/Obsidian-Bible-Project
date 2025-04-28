@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the arms of the wicked shall be broken; But Jehovah upholdeth the righteous.
+For the arms of the wicked shall be broken, but Yahweh upholds the righteous.

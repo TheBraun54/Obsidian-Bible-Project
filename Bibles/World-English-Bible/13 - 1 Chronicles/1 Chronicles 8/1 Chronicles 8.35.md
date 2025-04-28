@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Micah: Pithon, and Melech, and Tarea, and Ahaz.
+The sons of Micah: Pithon, and Melech, and Tarea, and Ahaz.

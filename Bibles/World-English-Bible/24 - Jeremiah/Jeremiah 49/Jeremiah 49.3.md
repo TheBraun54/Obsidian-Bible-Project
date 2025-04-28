@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wail, O Heshbon, for Ai is laid waste; cry, ye daughters of Rabbah, gird you with sackcloth: lament, and run to and fro among the fences; for Malcam shall go into captivity, his priests and his princes together.
+Wail, Heshbon, for Ai is laid waste; cry, you daughters of Rabbah, clothe yourself in sackcloth: lament, and run back and forth among the fences; for Malcam shall go into captivity, his priests and his princes together.

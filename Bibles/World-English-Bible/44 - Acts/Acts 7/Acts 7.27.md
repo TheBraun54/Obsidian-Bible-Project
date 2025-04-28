@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that did his neighbor wrong thrust him away, saying, Who made thee a ruler and a judge over us?
+But he who did his neighbor wrong pushed him away, saying, 'Who made you a ruler and a judge over us?

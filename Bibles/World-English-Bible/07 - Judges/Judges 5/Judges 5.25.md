@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He asked water, [and] she gave him milk; She brought him butter in a lordly dish.
+He asked for water. She gave him milk. She brought him butter in a lordly dish.

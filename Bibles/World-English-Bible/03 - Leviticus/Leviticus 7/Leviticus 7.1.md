@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the law of the trespass-offering: it is most holy.
+"'This is the law of the trespass offering. It is most holy.

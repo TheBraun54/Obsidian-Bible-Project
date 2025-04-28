@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king sent and called for Shimei, and said unto him, Build thee a house in Jerusalem, and dwell there, and go not forth thence any whither.
+The king sent and called for Shimei, and said to him, "Build yourself a house in Jerusalem, and dwell there, and don't go out from there anywhere.

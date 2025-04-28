@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Paul answered, What do ye, weeping and breaking my heart? for I am ready not to be bound only, but also to die at Jerusalem for the name of the Lord Jesus.
+Then Paul answered, "What are you doing, weeping and breaking my heart? For I am ready not only to be bound, but also to die at Jerusalem for the name of the Lord Jesus."

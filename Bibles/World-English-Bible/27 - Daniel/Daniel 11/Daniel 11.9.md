@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall come into the realm of the king of the south, but he shall return into his own land.
+He shall come into the realm of the king of the south, but he shall return into his own land.

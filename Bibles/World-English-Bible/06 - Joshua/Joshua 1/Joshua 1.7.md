@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only be strong and very courageous, to observe to do according to all the law, which Moses my servant commanded thee: turn not from it to the right hand or to the left, that thou mayest have good success whithersoever thou goest.
+Only be strong and very courageous, to observe to do according to all the law, which Moses my servant commanded you. Don't turn from it to the right hand or to the left, that you may have good success wherever you go.

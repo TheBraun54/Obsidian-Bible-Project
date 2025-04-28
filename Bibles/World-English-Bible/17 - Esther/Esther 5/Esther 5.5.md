@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king said, Cause Haman to make haste, that it may be done as Esther hath said. So the king and Haman came to the banquet that Esther had prepared.
+Then the king said, "Bring Haman quickly, so that it may be done as Esther has said." So the king and Haman came to the banquet that Esther had prepared.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And such confidence have we through Christ to God-ward:
+Such confidence we have through Christ toward God;

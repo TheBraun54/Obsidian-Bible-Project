@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Father loveth the Son, and hath given all things into his hand.
+The Father loves the Son, and has given all things into his hand.

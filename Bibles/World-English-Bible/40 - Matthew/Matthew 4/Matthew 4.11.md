@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the devil leaveth him; and behold, angels came and ministered unto him.
+Then the devil left him, and behold, angels came and served him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt smite the house of Ahab thy master, that I may avenge the blood of my servants the prophets, and the blood of all the servants of Jehovah, at the hand of Jezebel.
+You shall strike the house of Ahab your master, that I may avenge the blood of my servants the prophets, and the blood of all the servants of Yahweh, at the hand of Jezebel.

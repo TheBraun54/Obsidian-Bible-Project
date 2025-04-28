@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Most men will proclaim every one his own kindness; But a faithful man who can find?
+Many men claim to be men of unfailing love, but who can find a faithful man?

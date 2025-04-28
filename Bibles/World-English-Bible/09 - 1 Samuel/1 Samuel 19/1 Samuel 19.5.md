@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he put his life in his hand, and smote the Philistine, and Jehovah wrought a great victory for all Israel: thou sawest it, and didst rejoice; wherefore then wilt thou sin against innocent blood, to slay David without a cause?
+for he put his life in his hand, and struck the Philistine, and Yahweh worked a great victory for all Israel. You saw it, and rejoiced. Why then will you sin against innocent blood, to kill David without a cause?"

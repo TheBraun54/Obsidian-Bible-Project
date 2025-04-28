@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye see and hear, that not alone at Ephesus, but almost throughout all Asia, this Paul hath persuaded and turned away much people, saying that they are no gods, that are made with hands:
+You see and hear, that not at Ephesus alone, but almost throughout all Asia, this Paul has persuaded and turned away many people, saying that they are no gods, that are made with hands.

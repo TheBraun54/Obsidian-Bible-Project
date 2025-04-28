@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have heard that it was said, Thou shalt love thy neighbor, and hate thine enemy:
+"You have heard that it was said, 'You shall love your neighbor, and hate your enemy.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If then ye were raised together with Christ, seek the things that are above, where Christ is, seated on the right hand of God.
+If then you were raised together with Christ, seek the things that are above, where Christ is, seated on the right hand of God.

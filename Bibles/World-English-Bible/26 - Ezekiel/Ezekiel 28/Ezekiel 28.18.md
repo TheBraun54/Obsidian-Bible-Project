@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the multitude of thine iniquities, in the unrighteousness of thy traffic, thou hast profaned thy sanctuaries; therefore have I brought forth a fire from the midst of thee; it hath devoured thee, and I have turned thee to ashes upon the earth in the sight of all them that behold thee.
+By the multitude of your iniquities, in the unrighteousness of your traffic, you have profaned your sanctuaries; therefore have I brought forth a fire from the midst of you; it has devoured you, and I have turned you to ashes on the earth in the sight of all those who see you.

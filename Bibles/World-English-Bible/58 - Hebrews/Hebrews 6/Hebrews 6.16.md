@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For men swear by the greater: and in every dispute of theirs the oath is final for confirmation.
+For men indeed swear by a greater one, and in every dispute of theirs the oath is final for confirmation.

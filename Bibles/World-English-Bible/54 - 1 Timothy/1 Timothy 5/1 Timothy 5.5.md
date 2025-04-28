@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now she that is a widow indeed, and desolate, hath her hope set on God, and continueth in supplications and prayers night and day.
+Now she who is a widow indeed, and desolate, has her hope set on God, and continues in petitions and prayers night and day.

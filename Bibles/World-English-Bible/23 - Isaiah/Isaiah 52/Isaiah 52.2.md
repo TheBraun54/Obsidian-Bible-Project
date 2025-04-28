@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shake thyself from the dust; arise, sit [on thy throne], O Jerusalem: loose thyself from the bonds of thy neck, O captive daughter of Zion.
+Shake yourself from the dust; arise, sit [on your throne], Jerusalem: release yourself from the bonds of your neck, captive daughter of Zion.

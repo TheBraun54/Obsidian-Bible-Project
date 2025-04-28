@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though the root thereof wax old in the earth, And the stock thereof die in the ground;
+Though its root grows old in the earth, and its stock dies in the ground,

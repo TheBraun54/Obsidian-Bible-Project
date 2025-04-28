@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will send a fire upon Judah, and it shall devour the palaces of Jerusalem.
+But I will send a fire on Judah, and it will devour the palaces of Jerusalem."

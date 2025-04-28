@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the slain of Jehovah shall be at that day from one end of the earth even unto the other end of the earth: they shall not be lamented, neither gathered, nor buried; they shall be dung upon the face of the ground.
+The slain of Yahweh shall be at that day from one end of the earth even to the other end of the earth: they shall not be lamented, neither gathered, nor buried; they shall be dung on the surface of the ground.

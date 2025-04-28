@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto Jeremiah the prophet, Let, we pray thee, our supplication be presented before thee, and pray for us unto Jehovah thy God, even for all this remnant; for we are left but a few of many, as thine eyes do behold us:
+and said to Jeremiah the prophet, Please let our supplication be presented before you, and pray for us to Yahweh your God, even for all this remnant; for we are left but a few of many, as your eyes do see us:

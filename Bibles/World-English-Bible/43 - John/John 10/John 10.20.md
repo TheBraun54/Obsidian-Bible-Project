@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many of them said, He hath a demon, and is mad; why hear ye him?
+Many of them said, "He has a demon, and is insane! Why do you listen to him?"

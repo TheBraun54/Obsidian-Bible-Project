@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The noise thereof telleth concerning him, The cattle also concerning [the storm] that cometh up.
+Its noise tells about him, and the livestock also concerning the storm that comes up.

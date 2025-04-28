@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous see it, and are glad; And the innocent laugh them to scorn,
+The righteous see it, and are glad. The innocent ridicule them,

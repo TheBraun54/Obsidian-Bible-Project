@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked round about to see her that had done this thing.
+He looked around to see her who had done this thing.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will put enmity between thee and the woman, and between thy seed and her seed: he shall bruise thy head, and thou shalt bruise his heel.
+I will put enmity between you and the woman, and between your offspring and her offspring. He will bruise your head, and you will bruise his heel."

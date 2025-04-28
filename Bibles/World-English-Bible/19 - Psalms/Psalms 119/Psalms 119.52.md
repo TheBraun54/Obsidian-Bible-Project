@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have remembered thine ordinances of old, O Jehovah, And have comforted myself.
+I remember your ordinances of old, Yahweh, and have comforted myself.

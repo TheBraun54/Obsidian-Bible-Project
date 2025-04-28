@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah spake thus to me with a strong hand, and instructed me not to walk in the way of this people, saying,
+For Yahweh spoke thus to me with a strong hand, and instructed me not to walk in the way of this people, saying,

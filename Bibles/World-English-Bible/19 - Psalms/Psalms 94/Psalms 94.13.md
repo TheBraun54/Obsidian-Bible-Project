@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thou mayest give him rest from the days of adversity, Until the pit be digged for the wicked.
+that you may give him rest from the days of adversity, until the pit is dug for the wicked.

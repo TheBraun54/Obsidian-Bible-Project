@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border of the Canaanite was from Sidon, as thou goest toward Gerar, unto Gaza; as thou goest toward Sodom and Gomorrah and Admah and Zeboiim, unto Lasha.
+The border of the Canaanites was from Sidon, as you go toward Gerar, to Gaza; as you go toward Sodom, Gomorrah, Admah, and Zeboiim, to Lasha.

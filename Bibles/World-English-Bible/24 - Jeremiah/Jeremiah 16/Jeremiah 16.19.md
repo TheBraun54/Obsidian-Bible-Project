@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, my strength, and my stronghold, and my refuge in the day of affliction, unto thee shall the nations come from the ends of the earth, and shall say, Our fathers have inherited nought but lies, [even] vanity and things wherein there is no profit.
+Yahweh, my strength, and my stronghold, and my refuge in the day of affliction, to you shall the nations come from the ends of the earth, and shall say, Our fathers have inherited nothing but lies, [even] vanity and things in which there is no profit.

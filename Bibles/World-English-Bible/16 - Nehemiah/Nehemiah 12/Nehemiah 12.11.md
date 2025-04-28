@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Joiada begat Jonathan, and Jonathan begat Jaddua.
+and Joiada became the father of Jonathan, and Jonathan became the father of Jaddua.

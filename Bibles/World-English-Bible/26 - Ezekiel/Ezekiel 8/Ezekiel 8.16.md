@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought me into the inner court of Jehovah's house; and behold, at the door of the temple of Jehovah, between the porch and the altar, were about five and twenty men, with their backs toward the temple of Jehovah, and their faces toward the east; and they were worshipping the sun toward the east.
+He brought me into the inner court of Yahweh's house; and see, at the door of the temple of Yahweh, between the porch and the altar, were about twenty-five men, with their backs toward the temple of Yahweh, and their faces toward the east; and they were worshipping the sun toward the east.

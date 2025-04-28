@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet, Jehovah, thou knowest all their counsel against me to slay me; forgive not their iniquity, neither blot out their sin from thy sight; but let them be overthrown before thee; deal thou with them in the time of thine anger.
+Yet, Yahweh, you know all their counsel against me to kill me; don't forgive their iniquity, neither blot out their sin from your sight; but let them be overthrown before you; deal you with them in the time of your anger.

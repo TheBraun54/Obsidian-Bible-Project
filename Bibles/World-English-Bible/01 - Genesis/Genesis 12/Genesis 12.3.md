@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will bless them that bless thee, and him that curseth thee will I curse: and in thee shall all the families of the earth be blessed.
+I will bless those who bless you, and I will curse him who curses you. All of the families of the earth will be blessed in you."

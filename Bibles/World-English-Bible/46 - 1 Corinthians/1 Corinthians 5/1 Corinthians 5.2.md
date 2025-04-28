@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye are puffed up, and did not rather mourn, that he that had done this deed might be taken away from among you.
+You are puffed up, and didn't rather mourn, that he who had done this deed might be removed from among you.

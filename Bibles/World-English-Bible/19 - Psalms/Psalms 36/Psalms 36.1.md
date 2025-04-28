@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. [A Psalm] of David the servant of Jehovah]. The transgression of the wicked saith within my heart, There is no fear of God before his eyes.
+An oracle is within my heart about the disobedience of the wicked: "There is no fear of God before his eyes."

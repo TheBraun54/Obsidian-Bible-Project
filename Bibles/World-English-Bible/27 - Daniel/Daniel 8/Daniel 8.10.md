@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it waxed great, even to the host of heaven; and some of the host and of the stars it cast down to the ground, and trampled upon them.
+It grew great, even to the army of the sky; and some of the army and of the stars it cast down to the ground, and trampled on them.

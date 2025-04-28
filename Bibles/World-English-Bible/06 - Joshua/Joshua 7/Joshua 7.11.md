@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Israel hath sinned; yea, they have even transgressed my covenant which I commanded them: yea, they have even taken of the devoted thing, and have also stolen, and dissembled also; and they have even put it among their own stuff.
+Israel has sinned. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff.

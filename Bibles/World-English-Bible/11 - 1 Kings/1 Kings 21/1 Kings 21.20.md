@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab said to Elijah, Hast thou found me, O mine enemy? And he answered, I have found thee, because thou hast sold thyself to do that which is evil in the sight of Jehovah.
+Ahab said to Elijah, "Have you found me, my enemy?" He answered, "I have found you, because you have sold yourself to do that which is evil in the sight of Yahweh.

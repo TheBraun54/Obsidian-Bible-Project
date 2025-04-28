@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, [This shall be], when Jehovah shall give you in the evening flesh to eat, and in the morning bread to the full; for that Jehovah heareth your murmurings which ye murmur against him: and what are we? your murmurings are not against us, but against Jehovah.
+Moses said, "Now Yahweh shall give you meat to eat in the evening, and in the morning bread to satisfy you; because Yahweh hears your murmurings which you murmur against him. And who are we? Your murmurings are not against us, but against Yahweh."

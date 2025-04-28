@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore should I fear in the days of evil, When iniquity at my heels compasseth me about?
+Why should I fear in the days of evil, when iniquity at my heels surrounds me?

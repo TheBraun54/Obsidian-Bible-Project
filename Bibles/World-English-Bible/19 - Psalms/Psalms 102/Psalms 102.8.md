@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine enemies reproach me all the day; They that are mad against me do curse by me.
+My enemies reproach me all day. Those who are mad at me use my name as a curse.

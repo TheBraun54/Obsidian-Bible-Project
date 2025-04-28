@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that I were as in the months of old, As in the days when God watched over me;
+"Oh that I were as in the months of old, as in the days when God watched over me;

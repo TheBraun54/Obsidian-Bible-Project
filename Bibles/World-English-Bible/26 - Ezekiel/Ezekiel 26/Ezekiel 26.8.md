@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall slay with the sword thy daughters in the field; and he shall make forts against thee, and cast up a mound against thee, and raise up the buckler against thee.
+He shall kill your daughters in the field with the sword; and he shall make forts against you, and cast up a mound against you, and raise up the buckler against you.

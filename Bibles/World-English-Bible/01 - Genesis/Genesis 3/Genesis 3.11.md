@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Who told thee that thou wast naked? Hast thou eaten of the tree, whereof I commanded thee that thou shouldest not eat?
+God said, "Who told you that you were naked? Have you eaten from the tree that I commanded you not to eat from?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Rameses in the first month, on the fifteenth day of the first month; on the morrow after the passover the children of Israel went out with a high hand in the sight of all the Egyptians,
+They traveled from Rameses in the first month, on the fifteenth day of the first month; on the next day after the Passover the children of Israel went out with a high hand in the sight of all the Egyptians,

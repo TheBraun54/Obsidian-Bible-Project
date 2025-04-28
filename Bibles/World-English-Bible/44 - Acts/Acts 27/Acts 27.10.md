@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Sirs, I perceive that the voyage will be with injury and much loss, not only of the lading and the ship, but also of our lives.
+and said to them, "Sirs, I perceive that the voyage will be with injury and much loss, not only of the cargo and the ship, but also of our lives."

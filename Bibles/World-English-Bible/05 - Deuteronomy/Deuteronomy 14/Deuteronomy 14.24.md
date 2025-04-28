@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the way be too long for thee, so that thou art not able to carry it, because the place is too far from thee, which Jehovah thy God shall choose, to set his name there, when Jehovah thy God shall bless thee;
+If the way is too long for you, so that you are not able to carry it, because the place is too far from you, which Yahweh your God shall choose, to set his name there, when Yahweh your God shall bless you;

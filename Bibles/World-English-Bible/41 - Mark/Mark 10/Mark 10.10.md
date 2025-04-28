@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the house the disciples asked him again of this matter.
+In the house, his disciples asked him again about the same matter.

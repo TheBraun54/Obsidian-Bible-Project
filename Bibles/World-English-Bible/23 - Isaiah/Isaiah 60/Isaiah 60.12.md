@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For that nation and kingdom that will not serve thee shall perish; yea, those nations shall be utterly wasted.
+For that nation and kingdom that will not serve you shall perish; yes, those nations shall be utterly wasted.

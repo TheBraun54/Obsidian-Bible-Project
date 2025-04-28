@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore walked no more openly among the Jews, but departed thence into the country near to the wilderness, into a city called Ephraim; and there he tarried with the disciples.
+Jesus therefore walked no more openly among the Jews, but departed from there into the country near the wilderness, to a city called Ephraim. He stayed there with his disciples.

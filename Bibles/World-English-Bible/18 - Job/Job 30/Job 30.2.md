@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, the strength of their hands, whereto should it profit me? Men in whom ripe age is perished.
+Of what use is the strength of their hands to me, men in whom ripe age has perished?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And did he not make one, although he had the residue of the Spirit? And wherefore one? He sought a godly seed. Therefore take heed to your spirit, and let none deal treacherously against the wife of his youth.
+Did he not make you one, although he had the residue of the Spirit? Why one? He sought a godly seed. Therefore take heed to your spirit, and let no one deal treacherously against the wife of his youth.

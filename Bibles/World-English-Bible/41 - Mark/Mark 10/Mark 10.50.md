@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he, casting away his garment, sprang up, and came to Jesus.
+He, casting away his cloak, sprang up, and came to Jesus.

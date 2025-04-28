@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the head of the living creature there was the likeness of a firmament, like the terrible crystal to look upon, stretched forth over their heads above.
+Over the head of the living creature there was the likeness of an expanse, like the awesome crystal to look on, stretched forth over their heads above.

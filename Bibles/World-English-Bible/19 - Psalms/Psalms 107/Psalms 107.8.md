@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that men would praise Jehovah for his lovingkindness, And for his wonderful works to the children of men!
+Let them praise Yahweh for his loving kindness, for his wonderful works to the children of men!

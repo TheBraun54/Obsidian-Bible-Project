@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It repenteth me that I have set up Saul to be king; for he is turned back from following me, and hath not performed my commandments. And Samuel was wroth; and he cried unto Jehovah all night.
+"It grieves me that I have set up Saul to be king; for he is turned back from following me, and has not performed my commandments." Samuel was angry; and he cried to Yahweh all night.

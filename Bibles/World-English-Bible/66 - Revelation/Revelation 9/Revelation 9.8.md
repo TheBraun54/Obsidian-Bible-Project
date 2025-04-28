@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had hair as the hair of women, and their teeth were as [teeth] of lions.
+They had hair like women's hair, and their teeth were like those of lions.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall flee from the iron weapon, And the bow of brass shall strike him through.
+He shall flee from the iron weapon. The bronze arrow shall strike him through.

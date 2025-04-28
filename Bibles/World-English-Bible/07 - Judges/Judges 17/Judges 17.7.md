@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was a young man out of Beth-lehem-judah, of the family of Judah, who was a Levite; and he sojourned there.
+There was a young man out of Bethlehem Judah, of the family of Judah, who was a Levite; and he lived there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Ahimelech answered the king, and said, And who among all thy servants is so faithful as David, who is the king's son-in-law, and is taken into thy council, and is honorable in thy house?
+Then Ahimelech answered the king, and said, "Who among all your servants is so faithful as David, who is the king's son-in-law, and is taken into your council, and is honorable in your house?

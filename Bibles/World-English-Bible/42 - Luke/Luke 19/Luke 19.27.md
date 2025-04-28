@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But these mine enemies, that would not that I should reign over them, bring hither, and slay them before me.
+But bring those enemies of mine who didn't want me to reign over them here, and kill them before me.'"

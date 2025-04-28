@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they have committed adultery, and blood is in their hands; and with their idols have they committed adultery; and they have also caused their sons, whom they bare unto me, to pass through [the fire] unto them to be devoured.
+For they have committed adultery, and blood is in their hands; and with their idols have they committed adultery; and they have also caused their sons, whom they bore to me, to pass through [the fire] to them to be devoured.

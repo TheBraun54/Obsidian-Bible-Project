@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he stooped down, and with his finger wrote on the ground.
+Again he stooped down, and with his finger wrote on the ground.

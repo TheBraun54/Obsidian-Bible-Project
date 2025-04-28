@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Command the children of Israel, and say unto them, My oblation, my food for my offerings made by fire, of a sweet savor unto me, shall ye observe to offer unto me in their due season.
+"Command the children of Israel, and tell them, 'My offering, my food for my offerings made by fire, of a pleasant aroma to me, you shall observe to offer to me in their due season.'

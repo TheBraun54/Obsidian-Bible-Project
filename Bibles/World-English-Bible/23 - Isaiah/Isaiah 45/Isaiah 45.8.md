@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Distil, ye heavens, from above, and let the skies pour down righteousness: let the earth open, that it may bring forth salvation, and let it cause righteousness to spring up together; I, Jehovah, have created it.
+Distil, you heavens, from above, and let the skies pour down righteousness. Let the earth open, that it may bring forth salvation, and let it cause righteousness to spring up with it. I, Yahweh, have created it.

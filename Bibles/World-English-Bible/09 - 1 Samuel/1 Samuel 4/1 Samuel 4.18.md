@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he made mention of the ark of God, that [Eli] feel from off his seat backward by the side of the gate; and his neck brake, and he died: for he was an old man, and heavy. And he had judged Israel forty years.
+It happened, when he made mention of the ark of God, that Eli fell from off his seat backward by the side of the gate; and his neck broke, and he died; for he was an old man, and heavy. He had judged Israel forty years.

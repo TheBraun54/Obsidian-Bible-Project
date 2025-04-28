@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore know certainly that ye shall die by the sword, by the famine, and by the pestilence, in the place whither ye desire to go to sojourn there.
+Now therefore know certainly that you shall die by the sword, by the famine, and by the pestilence, in the place where you desire to go to live there.

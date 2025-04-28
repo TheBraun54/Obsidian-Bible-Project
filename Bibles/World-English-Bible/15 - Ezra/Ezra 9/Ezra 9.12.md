@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-now therefore give not your daughters unto their sons, neither take their daughters unto your sons, nor seek their peace or their prosperity for ever; that ye may be strong, and eat the good of the land, and leave it for an inheritance to your children for ever.
+Now therefore don't give your daughters to their sons, neither take their daughters to your sons, nor seek their peace or their prosperity forever; that you may be strong, and eat the good of the land, and leave it for an inheritance to your children forever.'

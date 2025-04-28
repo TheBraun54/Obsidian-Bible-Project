@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They cried unto thee, and were delivered: They trusted in thee, and were not put to shame.
+They cried to you, and were delivered. They trusted in you, and were not disappointed.

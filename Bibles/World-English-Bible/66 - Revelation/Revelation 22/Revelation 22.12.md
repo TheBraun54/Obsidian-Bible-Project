@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I come quickly; and my reward is with me, to render to each man according as his work is.
+"Behold, I come quickly. My reward is with me, to repay to each man according to his work.

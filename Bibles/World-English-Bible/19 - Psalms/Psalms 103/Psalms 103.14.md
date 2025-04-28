@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he knoweth our frame; He remembereth that we are dust.
+For he knows how we are made. He remembers that we are dust.

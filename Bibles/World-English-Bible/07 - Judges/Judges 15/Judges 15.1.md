@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it came to pass after a while, in the time of wheat harvest, that Samson visited his wife with a kid; and he said, I will go in to my wife into the chamber. But her father would not suffer him to go in.
+But it happened after a while, in the time of wheat harvest, that Samson visited his wife with a young goat; and he said, "I will go in to my wife into the room." But her father wouldn't allow him to go in.

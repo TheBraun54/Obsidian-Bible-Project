@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou foolish one, that which thou thyself sowest is not quickened except it die:
+You foolish one, that which you yourself sow is not made alive unless it dies.

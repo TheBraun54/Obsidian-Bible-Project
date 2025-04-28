@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the prophet Jeremiah said unto the prophet Hananiah in the presence of the priests, and in the presence of all the people that stood in the house of Jehovah,
+Then the prophet Jeremiah said to the prophet Hananiah in the presence of the priests, and in the presence of all the people who stood in the house of Yahweh,

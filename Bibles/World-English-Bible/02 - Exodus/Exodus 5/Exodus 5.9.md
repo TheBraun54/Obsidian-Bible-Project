@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let heavier work be laid upon the men, that they may labor therein; and let them not regard lying words.
+Let heavier work be laid on the men, that they may labor therein; and don't let them pay any attention to lying words."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall fly down upon the shoulder of the Philistines on the west; together shall they despoil the children of the east: they shall put forth their hand upon Edom and Moab; and the children of Ammon shall obey them.
+They will fly down on the shoulders of the Philistines on the west. Together they will plunder the children of the east. They will extend their power over Edom and Moab, and the children of Ammon will obey them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore the well was called Beer-lahai-roi; behold, it is between Kadesh and Bered.
+Therefore the well was called Beer Lahai Roi. Behold, it is between Kadesh and Bered.

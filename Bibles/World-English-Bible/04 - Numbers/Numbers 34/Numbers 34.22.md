@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the tribe of the children of Dan a prince, Bukki the son of Jogli.
+Of the tribe of the children of Dan a prince, Bukki the son of Jogli.

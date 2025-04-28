@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all their cities in the places wherein they dwelt, and all their encampments, they burnt with fire.
+All their cities in the places in which they lived, and all their encampments, they burnt with fire.

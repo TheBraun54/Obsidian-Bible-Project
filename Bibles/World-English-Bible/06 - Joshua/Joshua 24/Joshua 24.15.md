@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it seem evil unto you to serve Jehovah, choose you this day whom ye will serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land ye dwell: but as for me and my house, we will serve Jehovah.
+If it seems evil to you to serve Yahweh, choose this day whom you will serve; whether the gods which your fathers served that were beyond the River, or the gods of the Amorites, in whose land you dwell: but as for me and my house, we will serve Yahweh."

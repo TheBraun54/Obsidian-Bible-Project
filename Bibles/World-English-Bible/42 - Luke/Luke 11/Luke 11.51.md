@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from the blood of Abel unto the blood of Zachariah, who perished between the altar and the sanctuary: yea, I say unto you, it shall be required of this generation.
+from the blood of Abel to the blood of Zachariah, who perished between the altar and the sanctuary.' Yes, I tell you, it will be required of this generation.

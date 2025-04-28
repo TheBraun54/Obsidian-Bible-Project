@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then it shall be, that, when ye eat of the bread of the land, ye shall offer up a heave-offering unto Jehovah.
+then it shall be that when you eat of the bread of the land, you shall offer up a wave offering to Yahweh.

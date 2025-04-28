@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I made clouds the garment thereof, And thick darkness a swaddling-band for it,
+when I made clouds its garment, and wrapped it in thick darkness,

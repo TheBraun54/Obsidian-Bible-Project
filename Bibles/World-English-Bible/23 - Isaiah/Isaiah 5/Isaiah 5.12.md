@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the harp and the lute, the tabret and the pipe, and wine, are [in] their feasts; but they regard not the work of Jehovah, neither have they considered the operation of his hands.
+The harp, lyre, tambourine, and flute, with wine, are at their feasts; but they don't respect the work of Yahweh, neither have they considered the operation of his hands.

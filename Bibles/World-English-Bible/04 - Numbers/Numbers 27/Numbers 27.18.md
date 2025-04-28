@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Take thee Joshua the son of Nun, a man in whom is the Spirit, and lay thy hand upon him;
+Yahweh said to Moses, "Take Joshua the son of Nun, a man in whom is the Spirit, and lay your hand on him;

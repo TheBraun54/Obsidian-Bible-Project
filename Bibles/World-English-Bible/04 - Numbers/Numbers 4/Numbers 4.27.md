@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the commandment of Aaron and his sons shall be all the service of the sons of the Gershonites, in all their burden, and in all their service; and ye shall appoint unto them in charge all their burden.
+At the commandment of Aaron and his sons shall be all the service of the sons of the Gershonites, in all their burden, and in all their service; and you shall appoint their duty to them in all their responsibilities.

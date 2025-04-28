@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, after they were departed, that they came up out of the well, and went and told king David; and they said unto David, Arise ye, and pass quickly over the water; for thus hath Ahithophel counselled against you.
+It happened, after they had departed, that they came up out of the well, and went and told king David; and they said to David, "Arise and pass quickly over the water; for thus has Ahithophel counseled against you."

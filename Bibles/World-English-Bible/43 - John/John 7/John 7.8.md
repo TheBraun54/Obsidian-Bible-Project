@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye up unto the feast: I go not up unto this feast; because my time is not yet fulfilled.
+You go up to the feast. I am not yet going up to this feast, because my time is not yet fulfilled."

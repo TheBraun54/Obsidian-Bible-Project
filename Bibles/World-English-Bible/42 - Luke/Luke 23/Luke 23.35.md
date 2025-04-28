@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people stood beholding. And the rulers also scoffed at him, saying, He saved others; let him save himself, if this is the Christ of God, his chosen.
+The people stood watching. The rulers with them also scoffed at him, saying, "He saved others. Let him save himself, if this is the Christ of God, his chosen one!"

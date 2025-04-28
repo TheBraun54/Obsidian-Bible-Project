@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will stretch out his hand against the north, and destroy Assyria, and will make Nineveh a desolation, and dry like the wilderness.
+He will stretch out his hand against the north, destroy Assyria, and will make Nineveh a desolation, as dry as the wilderness.

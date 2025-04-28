@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto the woman, Go to thy house, and I will give charge concerning thee.
+The king said to the woman, "Go to your house, and I will give a command concerning you."

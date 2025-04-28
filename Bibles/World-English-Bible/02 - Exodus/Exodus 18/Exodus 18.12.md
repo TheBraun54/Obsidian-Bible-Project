@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jethro, Moses' father-in-law, took a burnt-offering and sacrifices for God: and Aaron came, and all the elders of Israel, to eat bread with Moses' father-in-law before God.
+Jethro, Moses' father-in-law, took a burnt offering and sacrifices for God. Aaron came with all of the elders of Israel, to eat bread with Moses' father-in-law before God.

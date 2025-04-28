@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ethiopia and Egypt were her strength, and it was infinite; Put and Lubim were thy helpers.
+Cush and Egypt were her boundless strength. Put and Libya were her helpers.

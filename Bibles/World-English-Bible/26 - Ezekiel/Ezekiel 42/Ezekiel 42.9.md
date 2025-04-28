@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from under these chambers was the entry on the east side, as one goeth into them from the outer court.
+From under these rooms was the entry on the east side, as one goes into them from the outer court.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that my vexation were but weighed, And all my calamity laid in the balances!
+"Oh that my anguish were weighed, and all my calamity laid in the balances!

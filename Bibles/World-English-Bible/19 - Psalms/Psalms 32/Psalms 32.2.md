@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man unto whom Jehovah imputeth not iniquity, And in whose spirit there is no guile.
+Blessed is the man to whom Yahweh doesn't impute iniquity, in whose spirit there is no deceit.

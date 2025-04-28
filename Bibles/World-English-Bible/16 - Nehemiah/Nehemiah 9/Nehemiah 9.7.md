@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art Jehovah the God, who didst choose Abram, and broughtest him forth out of Ur of the Chaldees, and gavest him the name of Abraham,
+You are Yahweh, the God who chose Abram, and brought him out of Ur of the Chaldees, and gave him the name of Abraham,

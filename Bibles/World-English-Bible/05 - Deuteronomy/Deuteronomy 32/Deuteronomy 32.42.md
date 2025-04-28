@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will make mine arrows drunk with blood, And my sword shall devour flesh; With the blood of the slain and the captives, From the head of the leaders of the enemy.
+I will make my arrows drunk with blood. My sword shall devour flesh with the blood of the slain and the captives, from the head of the leaders of the enemy."

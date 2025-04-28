@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after he is cleansed, they shall reckon unto him seven days.
+After he is cleansed, they shall reckon to him seven days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But man is born unto trouble, As the sparks fly upward.
+but man is born to trouble, as the sparks fly upward.

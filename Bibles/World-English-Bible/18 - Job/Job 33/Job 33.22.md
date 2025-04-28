@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, his soul draweth near unto the pit, And his life to the destroyers.
+Yes, his soul draws near to the pit, and his life to the destroyers.

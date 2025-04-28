@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king and his men went to Jerusalem against the Jebusites, the inhabitants of the land, who spake unto David, saying, Except thou take away the blind and the lame, thou shalt not come in hither; thinking, David cannot come in hither.
+The king and his men went to Jerusalem against the Jebusites, the inhabitants of the land, who spoke to David, saying, "Unless you take away the blind and the lame, you shall not come in here;" thinking, "David can't come in here."

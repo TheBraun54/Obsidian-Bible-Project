@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in the multitude of dreams there are vanities, and in many words: but fear thou God.
+For in the multitude of dreams there are vanities, as well as in many words: but you must fear God.

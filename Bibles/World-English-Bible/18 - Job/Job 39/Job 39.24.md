@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He swalloweth the ground with fierceness and rage; Neither believeth he that it is the voice of the trumpet.
+He eats up the ground with fierceness and rage, neither does he stand still at the sound of the trumpet.

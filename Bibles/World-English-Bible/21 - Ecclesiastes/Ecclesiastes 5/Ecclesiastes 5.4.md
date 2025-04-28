@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou vowest a vow unto God, defer not to pay it; for he hath no pleasure in fools: pay that which thou vowest.
+When you vow a vow to God, don't defer to pay it; for he has no pleasure in fools. Pay that which you vow.

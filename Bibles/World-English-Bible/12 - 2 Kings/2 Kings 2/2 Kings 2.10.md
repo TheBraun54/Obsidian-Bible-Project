@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Thou hast asked a hard thing: [nevertheless], if thou see me when I am taken from thee, it shall be so unto thee; but if not, it shall not be so.
+He said, "You have asked a hard thing. If you see me when I am taken from you, it shall be so for you; but if not, it shall not be so."

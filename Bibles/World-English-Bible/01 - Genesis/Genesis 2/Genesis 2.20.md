@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man gave names to all cattle, and to the birds of the heavens, and to every beast of the field; but for man there was not found a help meet for him.
+The man gave names to all livestock, and to the birds of the sky, and to every animal of the field; but for man there was not found a helper suitable for him.

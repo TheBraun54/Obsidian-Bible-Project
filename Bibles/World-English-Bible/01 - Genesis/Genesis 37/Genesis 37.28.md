@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there passed by Midianites, merchantmen; and they drew and lifted up Joseph out of the pit, and sold Joseph to the Ishmaelites for twenty pieces of silver. And they brought Joseph into Egypt.
+Midianites who were merchants passed by, and they drew and lifted up Joseph out of the pit, and sold Joseph to the Ishmaelites for twenty pieces of silver. They brought Joseph into Egypt.

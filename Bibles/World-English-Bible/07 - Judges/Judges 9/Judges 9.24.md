@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the violence done to the threescore and ten sons of Jerubbaal might come, and that their blood might be laid upon Abimelech their brother, who slew them, and upon the men of Shechem, who strengthened his hands to slay his brethren.
+that the violence done to the seventy sons of Jerubbaal might come, and that their blood might be laid on Abimelech their brother, who killed them, and on the men of Shechem, who strengthened his hands to kill his brothers.

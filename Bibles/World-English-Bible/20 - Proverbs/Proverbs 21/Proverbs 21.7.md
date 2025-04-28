@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The violence of the wicked shall sweep them away, Because they refuse to do justice.
+The violence of the wicked will drive them away, because they refuse to do what is right.

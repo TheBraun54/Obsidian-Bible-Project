@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou art in tribulation, and all these things are come upon thee, in the latter days thou shalt return to Jehovah thy God, and hearken unto his voice:
+When you are in oppression, and all these things are come on you, in the latter days you shall return to Yahweh your God, and listen to his voice:

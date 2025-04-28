@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yonder is the sea, great and wide, Wherein are things creeping innumerable, Both small and great beasts.
+There is the sea, great and wide, in which are innumerable living things, both small and large animals.

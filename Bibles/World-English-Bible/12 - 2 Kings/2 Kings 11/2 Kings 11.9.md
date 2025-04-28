@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the captains over hundreds did according to all that Jehoiada the priest commanded; and they took every man his men, those that were to come in on the sabbath, with those that were to go out on the sabbath, and came to Jehoiada the priest.
+The captains over hundreds did according to all that Jehoiada the priest commanded; and they took every man his men, those who were to come in on the Sabbath, with those who were to go out on the Sabbath, and came to Jehoiada the priest.

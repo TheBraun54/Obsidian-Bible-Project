@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art not sent to a people of a strange speech and of a hard language, but to the house of Israel;
+For you are not sent to a people of a strange speech and of a hard language, but to the house of Israel;

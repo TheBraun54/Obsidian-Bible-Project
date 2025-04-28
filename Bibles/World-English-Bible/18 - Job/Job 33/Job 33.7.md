@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, my terror shall not make thee afraid, Neither shall my pressure be heavy upon thee.
+Behold, my terror shall not make you afraid, neither shall my pressure be heavy on you.

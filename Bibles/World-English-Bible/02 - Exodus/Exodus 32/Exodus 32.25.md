@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Moses saw that the people were broken loose (for Aaron had let them loose for a derision among their enemies),
+When Moses saw that the people had broken loose, (for Aaron had let them loose for a derision among their enemies),

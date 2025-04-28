@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he did that which was evil in the sight of Jehovah his God; he humbled not himself before Jeremiah the prophet [speaking] from the mouth of Jehovah.
+and he did that which was evil in the sight of Yahweh his God; he didn't humble himself before Jeremiah the prophet [speaking] from the mouth of Yahweh.

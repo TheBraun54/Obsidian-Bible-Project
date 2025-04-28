@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-using hospitality one to another without murmuring:
+Be hospitable to one another without grumbling.

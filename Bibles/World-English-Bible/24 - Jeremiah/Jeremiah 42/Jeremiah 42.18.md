@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts, the God of Israel: As mine anger and my wrath hath been poured forth upon the inhabitants of Jerusalem, so shall my wrath be poured forth upon you, when ye shall enter into Egypt; and ye shall be an execration, and an astonishment, and a curse, and a reproach; and ye shall see this place no more.
+For thus says Yahweh of Armies, the God of Israel: As my anger and my wrath has been poured forth on the inhabitants of Jerusalem, so shall my wrath be poured forth on you, when you shall enter into Egypt; and you shall be an object of horror, and an astonishment, and a curse, and a reproach; and you shall see this place no more.

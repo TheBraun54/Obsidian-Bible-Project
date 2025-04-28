@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Abram heard that his brother was taken captive, he led forth his trained men, born in his house, three hundred and eighteen, and pursued as far as Dan.
+When Abram heard that his relative was taken captive, he led forth his trained men, born in his house, three hundred and eighteen, and pursued as far as Dan.

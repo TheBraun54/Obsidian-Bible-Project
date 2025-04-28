@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Know ye not this parable? and how shall ye know all the parables?
+He said to them, "Don't you understand this parable? How will you understand all of the parables?

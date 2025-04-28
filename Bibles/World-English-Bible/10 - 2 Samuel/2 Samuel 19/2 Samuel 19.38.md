@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king answered, Chimham shall go over with me, and I will do to him that which shall seem good unto thee: and whatsoever thou shalt require of me, that will I do for thee.
+The king answered, "Chimham shall go over with me, and I will do to him that which shall seem good to you. Whatever you require of me, that I will do for you."

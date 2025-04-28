@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall cut it into its pieces, with its head and its fat; and the priest shall lay them in order on the wood that is on the fire which is upon the altar:
+He shall cut it into its pieces, with its head and its fat. The priest shall lay them in order on the wood that is on the fire which is on the altar,

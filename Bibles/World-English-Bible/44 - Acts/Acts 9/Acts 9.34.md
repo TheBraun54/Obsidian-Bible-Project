@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter said unto him, Aeneas, Jesus Christ healeth thee: arise and make thy bed. And straightway he arose.
+Peter said to him, "Aeneas, Jesus Christ heals you. Get up and make your bed!" Immediately he arose.

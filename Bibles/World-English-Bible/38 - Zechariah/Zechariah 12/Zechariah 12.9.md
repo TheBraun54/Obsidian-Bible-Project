@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that I will seek to destroy all the nations that come against Jerusalem.
+It will happen in that day, that I will seek to destroy all the nations that come against Jerusalem.

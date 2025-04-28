@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Caleb drove out thence the three sons of Anak: Sheshai, and Ahiman, and Talmai, the children of Anak.
+Caleb drove out the three sons of Anak: Sheshai, and Ahiman, and Talmai, the children of Anak.

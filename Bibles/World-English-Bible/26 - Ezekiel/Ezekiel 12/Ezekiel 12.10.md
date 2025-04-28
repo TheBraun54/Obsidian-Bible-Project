@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say thou unto them, Thus saith the Lord Jehovah: This burden [concerneth] the prince in Jerusalem, and all the house of Israel among whom they are.
+Say to them, Thus says the Lord Yahweh: This burden [concerns] the prince in Jerusalem, and all the house of Israel among whom they are.

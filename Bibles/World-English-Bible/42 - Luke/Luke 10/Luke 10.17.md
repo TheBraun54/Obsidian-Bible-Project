@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seventy returned with joy, saying, Lord, even the demons are subject unto us in thy name.
+The seventy returned with joy, saying, "Lord, even the demons are subject to us in your name!"

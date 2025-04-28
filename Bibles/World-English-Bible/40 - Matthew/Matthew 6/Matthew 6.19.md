@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lay not up for yourselves treasures upon the earth, where moth and rust consume, and where thieves break through and steal:
+"Don't lay up treasures for yourselves on the earth, where moth and rust consume, and where thieves break through and steal;

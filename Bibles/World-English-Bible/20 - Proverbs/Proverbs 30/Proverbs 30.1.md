@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of Agur the son of Jakeh; The oracle. The man saith unto Ithiel, unto Ithiel and Ucal:
+The words of Agur the son of Jakeh, the oracle: the man says to Ithiel, to Ithiel and Ucal:

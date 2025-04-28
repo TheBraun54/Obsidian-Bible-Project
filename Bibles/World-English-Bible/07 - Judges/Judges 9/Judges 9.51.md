@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there was a strong tower within the city, and thither fled all the men and women, and all they of the city, and shut themselves in, and gat them up to the roof of the tower.
+But there was a strong tower within the city, and there fled all the men and women, and all they of the city, and shut themselves in, and went up to the roof of the tower.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your new moons and your appointed feasts my soul hateth; they are a trouble unto me; I am weary of bearing them.
+My soul hates your New Moons and your appointed feasts. They are a burden to me. I am weary of bearing them.

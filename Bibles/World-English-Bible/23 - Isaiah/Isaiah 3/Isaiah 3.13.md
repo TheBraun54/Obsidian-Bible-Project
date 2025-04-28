@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah standeth up to contend, and standeth to judge the peoples.
+Yahweh stands up to contend, and stands to judge the peoples.

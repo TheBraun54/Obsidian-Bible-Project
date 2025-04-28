@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did valiantly, and smote the Amalekites, and delivered Israel out of the hands of them that despoiled them.
+He did valiantly, and struck the Amalekites, and delivered Israel out of the hands of those who despoiled them.

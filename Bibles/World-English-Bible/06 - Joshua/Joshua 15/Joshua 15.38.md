@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Dilean, and Mizpeh, and Joktheel,
+Dilean, Mizpeh, Joktheel,

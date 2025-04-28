@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; with the Nehiloth. A Psalm of David]. Give ear to my words, O Jehovah, Consider my meditation.
+Give ear to my words, Yahweh. Consider my meditation.

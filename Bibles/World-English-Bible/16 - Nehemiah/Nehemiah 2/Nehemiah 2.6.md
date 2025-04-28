@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto me (the queen also sitting by him,) For how long shall thy journey be? and when wilt thou return? So it pleased the king to send me; and I set him a time.
+The king said to me (the queen was also sitting by him), "For how long shall your journey be? And when will you return?" So it pleased the king to send me; and I set him a time.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salvation belongeth unto Jehovah: Thy blessing be upon thy people. {{Selah
+Salvation belongs to Yahweh. Your blessing be on your people. Selah. For the Chief Musician; on stringed instruments. A Psalm by David.

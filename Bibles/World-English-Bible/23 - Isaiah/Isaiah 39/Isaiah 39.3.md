@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came Isaiah the prophet unto king Hezekiah, and said unto him, What said these men? and from whence came they unto thee? And Hezekiah said, They are come from a far country unto me, even from Babylon.
+Then Isaiah the prophet came to king Hezekiah, and asked him, "What did these men say? Where did they come from to you?" Hezekiah said, "They have come from a country far from me, even from Babylon."

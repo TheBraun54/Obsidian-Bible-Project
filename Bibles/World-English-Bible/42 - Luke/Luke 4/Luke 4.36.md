@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And amazement came upon all, and they spake together, one with another, saying, What is this word? for with authority and power he commandeth the unclean spirits, and they come out.
+Amazement came on all, and they spoke together, one with another, saying, "What is this word? For with authority and power he commands the unclean spirits, and they come out!"

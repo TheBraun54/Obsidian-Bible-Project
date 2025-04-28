@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Depart ye, they cried unto them, Unclean! depart, depart, touch not! When they fled away and wandered, men said among the nations, They shall no more sojourn [here] .
+Depart! they cried to them, Unclean! depart, depart, don't touch! When they fled away and wandered, men said among the nations, They shall no more live [here].

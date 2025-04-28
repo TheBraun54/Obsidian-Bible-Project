@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they departed, and went throughout the villages, preaching the gospel, and healing everywhere.
+They departed, and went throughout the villages, preaching the Good News, and healing everywhere.

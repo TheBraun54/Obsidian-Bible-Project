@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the congregation sent thither twelve thousand men of the valiantest, and commanded them, saying, Go and smite the inhabitants of Jabesh-gilead with the edge of the sword, with the women and the little ones.
+The congregation sent there twelve thousand men of the most valiant, and commanded them, saying, "Go and strike the inhabitants of Jabesh Gilead with the edge of the sword, with the women and the little ones.

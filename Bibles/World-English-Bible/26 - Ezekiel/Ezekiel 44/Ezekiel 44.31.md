@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The priests shall not eat of anything that dieth of itself, or is torn, whether it be bird or beast.
+The priests shall not eat of anything that dies of itself, or is torn, whether it be bird or animal.

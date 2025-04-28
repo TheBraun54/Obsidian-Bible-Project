@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the men would not hearken to him: so the man laid hold on his concubine, and brought her forth unto them; and they knew her, and abused her all the night until the morning: and when the day began to spring, they let her go.
+But the men wouldn't listen to him: so the man laid hold of his concubine, and brought her out to them; and they had sex with her, and abused her all night until the morning: and when the day began to dawn, they let her go.

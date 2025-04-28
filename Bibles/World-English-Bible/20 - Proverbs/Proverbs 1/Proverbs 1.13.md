@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We shall find all precious substance; We shall fill our houses with spoil;
+We'll find all valuable wealth. We'll fill our houses with spoil.

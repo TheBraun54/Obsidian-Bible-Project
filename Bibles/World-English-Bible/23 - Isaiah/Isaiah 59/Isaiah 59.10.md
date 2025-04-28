@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We grope for the wall like the blind; yea, we grope as they that have no eyes: we stumble at noonday as in the twilight; among them that are lusty we are as dead men.
+We grope for the wall like the blind; yes, we grope as those who have no eyes: we stumble at noonday as in the twilight; among those who are lusty we are as dead men.

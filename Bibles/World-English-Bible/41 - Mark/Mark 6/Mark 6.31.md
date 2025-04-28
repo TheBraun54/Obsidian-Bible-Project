@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Come ye yourselves apart into a desert place, and rest a while. For there were many coming and going, and they had no leisure so much as to eat.
+He said to them, "You come apart into a deserted place, and rest awhile." For there were many coming and going, and they had no leisure so much as to eat.

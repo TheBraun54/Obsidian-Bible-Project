@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I say unto thee, Her sins, which are many, are forgiven; for she loved much: but to whom little is forgiven, [the same] loveth little.
+Therefore I tell you, her sins, which are many, are forgiven, for she loved much. But to whom little is forgiven, the same loves little."

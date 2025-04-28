@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He subdueth peoples under us, And nations under our feet.
+He subdues nations under us, and peoples under our feet.

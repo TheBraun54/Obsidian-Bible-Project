@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all the cattle, and the spoil of the cities, we took for a prey unto ourselves.
+But all the livestock, and the spoil of the cities, we took for a prey to ourselves.

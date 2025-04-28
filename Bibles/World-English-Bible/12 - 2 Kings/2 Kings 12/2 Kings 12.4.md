@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoash said to the priests, All the money of the hallowed things that is brought into the house of Jehovah, in current money, the money of the persons for whom each man is rated, and all the money that it cometh into any man's heart to bring into the house of Jehovah,
+Jehoash said to the priests, "All the money of the holy things that is brought into the house of Yahweh, in current money, the money of the persons for whom each man is rated, and all the money that it comes into any man's heart to bring into the house of Yahweh,

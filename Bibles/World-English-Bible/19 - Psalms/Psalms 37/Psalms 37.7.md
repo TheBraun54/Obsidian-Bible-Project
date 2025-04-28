@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rest in Jehovah, and wait patiently for him: Fret not thyself because of him who prospereth in his way, Because of the man who bringeth wicked devices to pass.
+Rest in Yahweh, and wait patiently for him. Don't fret because of him who prospers in his way, because of the man who makes wicked plots happen.

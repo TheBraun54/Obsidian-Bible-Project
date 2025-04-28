@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the sons of the prophets that were at Jericho over against him saw him, they said, The spirit of Elijah doth rest on Elisha. And they came to meet him, and bowed themselves to the ground before him.
+When the sons of the prophets who were at Jericho over against him saw him, they said, "The spirit of Elijah rests on Elisha." They came to meet him, and bowed themselves to the ground before him.

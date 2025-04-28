@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I John am he that heard and saw these things. And when I heard and saw, I fell down to worship before the feet of the angel that showed me these things.
+Now I, John, am the one who heard and saw these things. When I heard and saw, I fell down to worship before the feet of the angel who had shown me these things.

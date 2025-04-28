@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, I also am a prophet as thou art; and an angel spake unto me by the word of Jehovah, saying, Bring him back with thee into thy house, that he may eat bread and drink water. [But] he lied unto him.
+He said to him, "I also am a prophet as you are; and an angel spoke to me by the word of Yahweh, saying, 'Bring him back with you into your house, that he may eat bread and drink water.'" He lied to him.

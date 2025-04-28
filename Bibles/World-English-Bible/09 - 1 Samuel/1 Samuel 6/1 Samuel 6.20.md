@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Beth-shemesh said, Who is able to stand before Jehovah, this holy God? and to whom shall he go up from us?
+The men of Beth Shemesh said, "Who is able to stand before Yahweh, this holy God? To whom shall he go up from us?"

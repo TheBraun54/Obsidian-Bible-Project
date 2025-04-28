@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he hath stretched out his hand against God, And behaveth himself proudly against the Almighty;
+Because he has stretched out his hand against God, and behaves himself proudly against the Almighty;

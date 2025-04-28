@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the fourth watch of the night he came unto them, walking upon the sea.
+In the fourth watch of the night, Jesus came to them, walking on the sea.

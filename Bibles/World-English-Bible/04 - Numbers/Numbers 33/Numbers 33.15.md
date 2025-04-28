@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Rephidim, and encamped in the wilderness of Sinai.
+They traveled from Rephidim, and encamped in the wilderness of Sinai.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall answer and say, Our hands have not shed this blood, neither have our eyes seen it.
+and they shall answer and say, "Our hands have not shed this blood, neither have our eyes seen it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram went up out of Egypt, he, and his wife, and all that he had, and Lot with him, into the South.
+Abram went up out of Egypt: he, his wife, all that he had, and Lot with him, into the South.

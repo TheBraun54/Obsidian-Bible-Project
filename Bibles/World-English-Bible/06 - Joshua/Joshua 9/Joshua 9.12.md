@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This our bread we took hot for our provision out of our houses on the day we came forth to go unto you; but now, behold, it is dry, and is become mouldy:
+This our bread we took hot for our provision out of our houses on the day we went out to go to you; but now, behold, it is dry, and has become moldy.

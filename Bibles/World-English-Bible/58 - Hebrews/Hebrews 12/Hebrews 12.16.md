@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest [there be] any fornicator, or profane person, as Esau, who for one mess of meat sold his own birthright.
+lest there be any sexually immoral person, or profane person, like Esau, who sold his birthright for one meal.

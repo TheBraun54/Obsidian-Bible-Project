@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take you wise men, and understanding, and known, according to your tribes, and I will make them heads over you.
+Take wise men of understanding and well known according to your tribes, and I will make them heads over you."

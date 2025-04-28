@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went about from nation to nation, And from one kingdom to another people.
+They went about from nation to nation, from one kingdom to another people.

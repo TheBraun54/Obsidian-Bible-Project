@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye turned and profaned my name, and caused every man his servant, and every man his handmaid, whom ye had let go free at their pleasure, to return; and ye brought them into subjection, to be unto you for servants and for handmaids.
+but you turned and profaned my name, and caused every man his servant, and every man his handmaid, whom you had let go free at their pleasure, to return; and you brought them into subjection, to be to you for servants and for handmaids.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou say unto them, Because your fathers have forsaken me, saith Jehovah, and have walked after other gods, and have served them, and have worshipped them, and have forsaken me, and have not kept my law;
+Then you shall tell them, Because your fathers have forsaken me, says Yahweh, and have walked after other gods, and have served them, and have worshiped them, and have forsaken me, and have not kept my law;

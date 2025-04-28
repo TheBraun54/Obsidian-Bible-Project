@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set thy face toward the siege of Jerusalem, with thine arm uncovered; and thou shalt prophesy against it.
+You shall set your face toward the siege of Jerusalem, with your arm uncovered; and you shall prophesy against it.

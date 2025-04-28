@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tremble before him, all the earth: The world also is established that it cannot be moved.
+Tremble before him, all the earth. The world also is established that it can't be moved.

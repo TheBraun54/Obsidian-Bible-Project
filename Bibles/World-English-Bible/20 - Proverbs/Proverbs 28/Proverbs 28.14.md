@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy is the man that feareth alway; But he that hardeneth his heart shall fall into mischief.
+Blessed is the man who always fears; but one who hardens his heart falls into trouble.

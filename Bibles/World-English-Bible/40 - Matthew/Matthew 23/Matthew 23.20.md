@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He therefore that sweareth by the altar, sweareth by it, and by all things thereon.
+He therefore who swears by the altar, swears by it, and by everything on it.

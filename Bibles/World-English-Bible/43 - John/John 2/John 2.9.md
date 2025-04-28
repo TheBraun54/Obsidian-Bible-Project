@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the ruler of the feast tasted the water now become wine, and knew not whence it was (but the servants that had drawn the water knew), the ruler of the feast calleth the bridegroom,
+When the ruler of the feast tasted the water now become wine, and didn't know where it came from (but the servants who had drawn the water knew), the ruler of the feast called the bridegroom,

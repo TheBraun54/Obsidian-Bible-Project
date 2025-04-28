@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they have made ready their heart like an oven, while they lie in wait: their baker sleepeth all the night; in the morning it burneth as a flaming fire.
+For they have prepared their heart like an oven, while they lie in wait. Their baker sleeps all the night. In the morning it burns as a flaming fire.

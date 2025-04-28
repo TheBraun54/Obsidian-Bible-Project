@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many false prophets shall arise, and shall lead many astray.
+Many false prophets will arise, and will lead many astray.

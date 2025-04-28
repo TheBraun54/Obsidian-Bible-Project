@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that have not fins and scales in the seas, and in the rivers, of all that move in the waters, and of all the living creatures that are in the waters, they are an abomination unto you,
+All that don't have fins and scales in the seas, and in the rivers, of all that move in the waters, and of all the living creatures that are in the waters, they are an abomination to you,

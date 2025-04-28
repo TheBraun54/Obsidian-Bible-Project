@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by weight also for the candlesticks of gold, and for the lamps thereof, of gold, by weight for every candlestick and for the lamps thereof; and for the candlesticks of silver, [silver] by weight for [every] candlestick and for the lamps thereof, according to the use of every candlestick;
+by weight also for the lampstands of gold, and for its lamps, of gold, by weight for every lampstand and for its lamps; and for the lampstands of silver, [silver] by weight for [every] lampstand and for its lamps, according to the use of every lampstand;

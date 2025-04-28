@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every day will I bless thee; And I will praise thy name for ever and ever.
+Every day I will praise you. I will extol your name forever and ever.

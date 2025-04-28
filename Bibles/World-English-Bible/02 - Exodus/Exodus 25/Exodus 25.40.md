@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And see that thou make them after their pattern, which hath been showed thee in the mount.
+See that you make them after their pattern, which has been shown to you on the mountain.

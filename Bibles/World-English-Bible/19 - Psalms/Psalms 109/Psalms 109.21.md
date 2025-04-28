@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But deal thou with me, O Jehovah the Lord, for thy name's sake: Because thy lovingkindness is good, deliver thou me;
+But deal with me, Yahweh the Lord, for your name's sake, because your loving kindness is good, deliver me;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or know ye not that your body is a temple of the Holy Spirit which is in you, which ye have from God? and ye are not your own;
+Or don't you know that your body is a temple of the Holy Spirit which is in you, which you have from God? You are not your own,

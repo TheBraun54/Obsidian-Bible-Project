@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not a terror unto me: thou art my refuge in the day of evil.
+Don't be a terror to me: you are my refuge in the day of evil.

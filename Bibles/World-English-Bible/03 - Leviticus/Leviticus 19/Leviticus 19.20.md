@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever lieth carnally with a woman, that is a bondmaid, betrothed to a husband, and not at all redeemed, nor freedom given her; they shall be punished; they shall not be put to death, because she was not free.
+"'If a man lies carnally with a woman who is a slave girl, pledged to be married to another man, and not ransomed, or given her freedom; they shall be punished. They shall not be put to death, because she was not free.

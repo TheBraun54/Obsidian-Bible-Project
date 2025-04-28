@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was wroth with my people, I profaned mine inheritance, and gave them into thy hand: thou didst show them no mercy; upon the aged hast thou very heavily laid thy yoke.
+I was angry with my people, I profaned my inheritance, and gave them into your hand: you showed them no mercy; on the aged you have very heavily laid your yoke.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Ahimaaz the son of Zadok, Let me now run, and bear the king tidings, how that Jehovah hath avenged him of his enemies.
+Then Ahimaaz the son of Zadok said, "Let me now run, and bear the king news, how that Yahweh has avenged him of his enemies."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They joined themselves also unto Baal-peor, And ate the sacrifices of the dead.
+They joined themselves also to Baal Peor, and ate the sacrifices of the dead.

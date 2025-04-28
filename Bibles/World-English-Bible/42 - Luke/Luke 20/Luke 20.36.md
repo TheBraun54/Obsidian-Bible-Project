@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for neither can they die any more: for they are equal unto the angels; and are sons of God, being sons of the resurrection.
+For they can't die any more, for they are like the angels, and are children of God, being children of the resurrection.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But into whatsoever city ye shall enter, and they receive you not, go out into the streets thereof and say,
+But into whatever city you enter, and they don't receive you, go out into its streets and say,

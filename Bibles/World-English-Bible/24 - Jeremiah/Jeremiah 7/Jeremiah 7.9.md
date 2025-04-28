@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods that ye have not known,
+Will you steal, murder, and commit adultery, and swear falsely, and burn incense to Baal, and walk after other gods that you have not known,

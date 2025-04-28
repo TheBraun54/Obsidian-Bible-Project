@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt therefore obey the voice of Jehovah thy God, and do his commandments and his statutes, which I command thee this day.
+You shall therefore obey the voice of Yahweh your God, and do his commandments and his statutes, which I command you this day."

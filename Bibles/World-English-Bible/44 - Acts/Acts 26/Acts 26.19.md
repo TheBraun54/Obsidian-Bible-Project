@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, O king Agrippa, I was not disobedient unto the heavenly vision:
+"Therefore, King Agrippa, I was not disobedient to the heavenly vision,

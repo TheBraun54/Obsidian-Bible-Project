@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when saw we thee sick, or in prison, and came unto thee?
+When did we see you sick, or in prison, and come to you?'

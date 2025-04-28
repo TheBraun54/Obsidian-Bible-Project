@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that goeth forth and weepeth, bearing seed for sowing, Shall doubtless come again with joy, bringing his sheaves [with him] .
+He who goes out weeping, carrying seed for sowing, will certainly come again with joy, carrying his sheaves. A Song of Ascents. By Solomon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+When he had said these words, the Jews departed, having a great dispute among themselves.

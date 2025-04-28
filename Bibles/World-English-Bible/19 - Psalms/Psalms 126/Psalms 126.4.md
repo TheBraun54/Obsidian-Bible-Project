@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn again our captivity, O Jehovah, As the streams in the South.
+Restore our fortunes again, Yahweh, like the streams in the Negev.

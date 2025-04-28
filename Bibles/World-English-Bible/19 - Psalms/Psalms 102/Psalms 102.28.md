@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of thy servants shall continue, And their seed shall be established before thee.
+The children of your servants will continue. Their seed will be established before you." By David.

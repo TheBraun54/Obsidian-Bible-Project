@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Lord, with thee I am ready to go both to prison and to death.
+He said to him, "Lord, I am ready to go with you both to prison and to death!"

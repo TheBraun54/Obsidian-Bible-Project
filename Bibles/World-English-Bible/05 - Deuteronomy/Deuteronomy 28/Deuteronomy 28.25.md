@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will cause thee to be smitten before thine enemies; thou shalt go out one way against them, and shalt flee seven ways before them: and thou shalt be tossed to and from among all the kingdoms of the earth.
+Yahweh will cause you to be struck before your enemies; you shall go out one way against them, and shall flee seven ways before them: and you shall be tossed back and forth among all the kingdoms of the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The meadows by the Nile, by the brink of the Nile, and all the sown fields of the Nile, shall become dry, be driven away, and be no more.
+The meadows by the Nile, by the brink of the Nile, and all the sown fields of the Nile, will become dry, be driven away, and be no more.

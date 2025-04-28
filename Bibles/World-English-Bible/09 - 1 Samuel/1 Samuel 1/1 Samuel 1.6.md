@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her rival provoked her sore, to make her fret, because Jehovah had shut up her womb.
+Her rival provoked her severely, to make her fret, because Yahweh had shut up her womb.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, The God of the Hebrews hath met with us: let us go, we pray thee, three days' journey into the wilderness, and sacrifice unto Jehovah our God, lest he fall upon us with pestilence, or with the sword.
+They said, "The God of the Hebrews has met with us. Please let us go three days' journey into the wilderness, and sacrifice to Yahweh, our God, lest he fall on us with pestilence, or with the sword."

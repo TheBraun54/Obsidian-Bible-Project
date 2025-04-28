@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the smoke of their torment goeth up for ever and ever; and they have no rest day and night, they that worship the beast and his image, and whoso receiveth the mark of his name.
+The smoke of their torment goes up forever and ever. They have no rest day and night, those who worship the beast and his image, and whoever receives the mark of his name.

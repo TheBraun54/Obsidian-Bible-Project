@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ saying], Blessed are they whose iniquities are forgiven, And whose sins are covered.
+"Blessed are they whose iniquities are forgiven, whose sins are covered.

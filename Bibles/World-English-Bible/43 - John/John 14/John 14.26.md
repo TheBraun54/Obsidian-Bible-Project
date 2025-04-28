@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Comforter, [even] the Holy Spirit, whom the Father will send in my name, he shall teach you all things, and bring to your remembrance all that I said unto you.
+But the Counselor, the Holy Spirit, whom the Father will send in my name, he will teach you all things, and will remind you of all that I said to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king sent and called for Shimei, and said unto him, Did I not adjure thee by Jehovah, and protest unto thee, saying, Know for certain, that on the day thou goest out, and walkest abroad any whither, thou shalt surely die? and thou saidst unto me, The saying that I have heard is good.
+The king sent and called for Shimei, and said to him, "Didn't I adjure you by Yahweh, and warn you, saying, 'Know for certain, that on the day you go out, and walk abroad any where, you shall surely die?' You said to me, 'The saying that I have heard is good.'

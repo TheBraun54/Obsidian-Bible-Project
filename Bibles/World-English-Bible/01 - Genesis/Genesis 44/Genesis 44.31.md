@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it will come to pass, when he seeth that the lad is not [with us], that he will die: and thy servants will bring down the gray hairs of thy servant our father with sorrow to Sheol.
+it will happen, when he sees that the boy is no more, that he will die. Your servants will bring down the gray hairs of your servant, our father, with sorrow to Sheol.

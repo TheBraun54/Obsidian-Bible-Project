@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whom Jehovah loveth he reproveth; Even as a father the son in whom he delighteth.
+for whom Yahweh loves, he reproves; even as a father reproves the son in whom he delights.

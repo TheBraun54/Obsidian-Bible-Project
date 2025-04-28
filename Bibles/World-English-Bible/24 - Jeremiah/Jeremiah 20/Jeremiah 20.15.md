@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be the man who brought tidings to my father, saying, A man-child is born unto thee; making him very glad.
+Cursed is the man who brought news to my father, saying, A boy is born to you; making him very glad.

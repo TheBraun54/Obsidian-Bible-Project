@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold now, this city is near to flee unto, and it is a little one. Oh let me escape thither (is it not a little one?), and my soul shall live.
+See now, this city is near to flee to, and it is a little one. Oh let me escape there (isn't it a little one?), and my soul will live."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is a little, with righteousness, Than great revenues with injustice.
+Better is a little with righteousness, than great revenues with injustice.

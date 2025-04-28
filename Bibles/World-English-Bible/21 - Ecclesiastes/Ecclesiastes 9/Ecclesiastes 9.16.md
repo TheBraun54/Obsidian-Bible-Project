@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Wisdom is better than strength: nevertheless the poor man's wisdom is despised, and his words are not heard.
+Then I said, "Wisdom is better than strength." Nevertheless the poor man's wisdom is despised, and his words are not heard.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, there came a man of God out of Judah by the word of Jehovah unto Beth-el: and Jeroboam was standing by the altar to burn incense.
+Behold, there came a man of God out of Judah by the word of Yahweh to Beth El: and Jeroboam was standing by the altar to burn incense.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came also Nicodemus, he who at the first came to him by night, bringing a mixture of myrrh and aloes, about a hundred pounds.
+Nicodemus, who at first came to Jesus by night, also came bringing a mixture of myrrh and aloes, about a hundred Roman pounds.

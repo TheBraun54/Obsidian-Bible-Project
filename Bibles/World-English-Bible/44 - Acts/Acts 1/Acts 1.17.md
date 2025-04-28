@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he was numbered among us, and received his portion in this ministry.
+For he was numbered with us, and received his portion in this ministry.

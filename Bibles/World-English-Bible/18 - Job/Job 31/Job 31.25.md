@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have rejoiced because my wealth was great, And because my hand had gotten much;
+If I have rejoiced because my wealth was great, and because my hand had gotten much;

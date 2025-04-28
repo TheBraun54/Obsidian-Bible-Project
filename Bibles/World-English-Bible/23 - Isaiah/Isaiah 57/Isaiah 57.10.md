@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wast wearied with the length of thy way; yet saidst thou not, It is in vain: thou didst find a quickening of thy strength; therefore thou wast not faint.
+You were wearied with the length of your way; yet you didn't say, 'It is in vain.' You found a reviving of your strength; therefore you weren't faint.

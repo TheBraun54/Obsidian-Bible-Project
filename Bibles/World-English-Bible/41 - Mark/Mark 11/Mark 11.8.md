@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many spread their garments upon the way; and others branches, which they had cut from the fields.
+Many spread their garments on the way, and others were cutting down branches from the trees, and spreading them on the road.

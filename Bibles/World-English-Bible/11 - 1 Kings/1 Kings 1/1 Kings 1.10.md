@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Nathan the prophet, and Benaiah, and the mighty men, and Solomon his brother, he called not.
+but Nathan the prophet, and Benaiah, and the mighty men, and Solomon his brother, he didn't call.

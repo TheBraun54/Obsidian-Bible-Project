@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am inquired of by them that asked not [for me] ; I am found of them that sought me not: I said, Behold me, behold me, unto a nation that was not called by my name.
+"I am inquired of by those who didn't ask; I am found by those who didn't seek me: I said, See me, see me, to a nation that was not called by my name.

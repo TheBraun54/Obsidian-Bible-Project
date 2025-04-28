@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah came down upon mount Sinai, to the top of the mount: and Jehovah called Moses to the top of the mount; and Moses went up.
+Yahweh came down on Mount Sinai, to the top of the mountain. Yahweh called Moses to the top of the mountain, and Moses went up.

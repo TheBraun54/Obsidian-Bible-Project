@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for it is witnessed [of him], Thou art a priest for ever After the order of Melchizedek.
+for it is testified, "You are a priest forever, according to the order of Melchizedek."

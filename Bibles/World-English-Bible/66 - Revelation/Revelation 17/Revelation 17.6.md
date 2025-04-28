@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw the woman drunken with the blood of the saints, and with the blood of the martyrs of Jesus. And when I saw her, I wondered with a great wonder.
+I saw the woman drunken with the blood of the saints, and with the blood of the martyrs of Jesus. When I saw her, I wondered with great amazement.

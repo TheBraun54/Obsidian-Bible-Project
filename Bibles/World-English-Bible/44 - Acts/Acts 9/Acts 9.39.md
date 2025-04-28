@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter arose and went with them. And when he was come, they brought him into the upper chamber: and all the widows stood by him weeping, and showing the coats and garments which Dorcas made, while she was with them.
+Peter got up and went with them. When he had come, they brought him into the upper room. All the widows stood by him weeping, and showing the coats and garments which Dorcas had made while she was with them.

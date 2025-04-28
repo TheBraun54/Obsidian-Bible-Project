@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, whether they will hear, or whether they will forbear, (for they are a rebellious house,) yet shall know that there hath been a prophet among them.
+They, whether they will hear, or whether they will forbear, (for they are a rebellious house), yet shall know that there has been a prophet among them.

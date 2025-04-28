@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Moseroth, and encamped in Bene-jaakan.
+They traveled from Moseroth, and encamped in Bene Jaakan.

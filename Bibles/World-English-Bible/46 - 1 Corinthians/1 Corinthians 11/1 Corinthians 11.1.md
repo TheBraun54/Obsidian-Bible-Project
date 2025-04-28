@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye imitators of me, even as I also am of Christ.
+Be imitators of me, even as I also am of Christ.

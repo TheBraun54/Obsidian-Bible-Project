@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith to him, He that is bathed needeth not save to wash his feet, but is clean every whit: and ye are clean, but not all.
+Jesus said to him, "Someone who has bathed only needs to have his feet washed, but is completely clean. You are clean, but not all of you."

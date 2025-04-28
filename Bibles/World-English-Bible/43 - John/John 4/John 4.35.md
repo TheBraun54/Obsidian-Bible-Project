@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say not ye, There are yet four months, and [then] cometh the harvest? behold, I say unto you, Lift up your eyes, and look on the fields, that they are white already unto harvest.
+Don't you say, 'There are yet four months until the harvest?' Behold, I tell you, lift up your eyes, and look at the fields, that they are white for harvest already.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be found in the midst of thee, within any of thy gates which Jehovah thy God giveth thee, man or woman, that doeth that which is evil in the sight of Jehovah thy God, in transgressing his covenant,
+If there be found in the midst of you, within any of your gates which Yahweh your God gives you, man or woman, who does that which is evil in the sight of Yahweh your God, in transgressing his covenant,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sticks whereon thou writest shall be in thy hand before their eyes.
+The sticks whereon you write shall be in your hand before their eyes.

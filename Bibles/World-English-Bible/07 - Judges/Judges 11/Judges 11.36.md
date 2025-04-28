@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto him, My father, thou hast opened thy mouth unto Jehovah; do unto me according to that which hath proceeded out of thy mouth, forasmuch as Jehovah hath taken vengeance for thee on thine enemies, even on the children of Ammon.
+She said to him, "My father, you have opened your mouth to Yahweh; do to me according to that which has proceeded out of your mouth, because Yahweh has taken vengeance for you on your enemies, even on the children of Ammon."

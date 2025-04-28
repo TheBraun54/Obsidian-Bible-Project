@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so again have I thought in these days to do good unto Jerusalem and to the house of Judah: fear ye not.
+so again have I thought in these days to do good to Jerusalem and to the house of Judah. Don't be afraid.

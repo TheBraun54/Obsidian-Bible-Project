@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. I waited patiently for Jehovah; And he inclined unto me, and heard my cry.
+I waited patiently for Yahweh. He turned to me, and heard my cry.

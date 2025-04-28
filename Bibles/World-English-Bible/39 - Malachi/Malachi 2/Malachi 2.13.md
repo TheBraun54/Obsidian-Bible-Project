@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this again ye do: ye cover the altar of Jehovah with tears, with weeping, and with sighing, insomuch that he regardeth not the offering any more, neither receiveth it with good will at your hand.
+This again you do: you cover the altar of Yahweh with tears, with weeping, and with sighing, because he doesn't regard the offering any more, neither receives it with good will at your hand.

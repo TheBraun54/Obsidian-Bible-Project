@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall go down to the bars of Sheol, When once there is rest in the dust.
+Shall it go down with me to the gates of Sheol, or descend together into the dust?"

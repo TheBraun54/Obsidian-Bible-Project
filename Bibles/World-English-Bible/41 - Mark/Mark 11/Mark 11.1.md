@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they draw nigh unto Jerusalem, unto Bethphage and Bethany, at the mount of Olives, he sendeth two of his disciples,
+When they drew near to Jerusalem, to Bethsphage and Bethany, at the Mount of Olives, he sent two of his disciples,

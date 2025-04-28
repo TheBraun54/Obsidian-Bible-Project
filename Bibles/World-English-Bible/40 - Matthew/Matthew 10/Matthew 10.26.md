@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear them not therefore: for there is nothing covered, that shall not be revealed; and hid, that shall not be known.
+Therefore don't be afraid of them, for there is nothing covered that will not be revealed; and hidden that will not be known.

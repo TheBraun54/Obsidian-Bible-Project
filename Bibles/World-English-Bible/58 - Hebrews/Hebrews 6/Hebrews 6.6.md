@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [then] fell away, it is impossible to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame.
+and then fell away, it is impossible to renew them again to repentance; seeing they crucify the Son of God for themselves again, and put him to open shame.

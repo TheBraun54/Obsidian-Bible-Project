@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Abraham fell upon his face, and laughed, and said in his heart, Shall a child be born unto him that is a hundred years old? and shall Sarah, that is ninety years old, bear?
+Then Abraham fell on his face, and laughed, and said in his heart, "Will a child be born to him who is one hundred years old? Will Sarah, who is ninety years old, give birth?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Joshua, Be not afraid because of them; for to-morrow at this time will I deliver them up all slain before Israel: thou shalt hock their horses, and burn their chariots with fire.
+Yahweh said to Joshua, "Don't be afraid because of them; for tomorrow at this time, I will deliver them up all slain before Israel. You shall hamstring their horses and burn their chariots with fire."

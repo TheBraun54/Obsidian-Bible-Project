@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Herewith shall Aaron come into the holy place: with a young bullock for a sin-offering, and a ram for a burnt-offering.
+"Herewith shall Aaron come into the sanctuary: with a young bull for a sin offering, and a ram for a burnt offering.

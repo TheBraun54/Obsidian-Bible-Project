@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteousness of the perfect shall direct his way; But the wicked shall fall by his own wickedness.
+The righteousness of the blameless will direct his way, but the wicked shall fall by his own wickedness.

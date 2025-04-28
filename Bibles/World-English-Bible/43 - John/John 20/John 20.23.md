@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose soever sins ye forgive, they are forgiven unto them; whose soever [sins] ye retain, they are retained.
+Whoever's sins you forgive, they are forgiven them. Whoever's sins you retain, they have been retained."

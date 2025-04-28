@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall we then hearken unto you to do all this great evil, to trespass against our God in marrying foreign women?
+Shall we then listen to you to do all this great evil, to trespass against our God in marrying foreign women?"

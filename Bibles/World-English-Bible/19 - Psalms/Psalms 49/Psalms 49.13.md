@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This their way is their folly: Yet after them men approve their sayings. {{Selah
+This is the destiny of those who are foolish, and of those who approve their sayings. Selah.

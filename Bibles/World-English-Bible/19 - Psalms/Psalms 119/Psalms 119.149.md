@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear my voice according unto thy lovingkindness: Quicken me, O Jehovah, according to thine ordinances.
+Hear my voice according to your loving kindness. Revive me, Yahweh, according to your ordinances.

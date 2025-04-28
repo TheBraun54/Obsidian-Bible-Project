@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the house, that is, the temple before [the oracle], was forty cubits [long] .
+The house, that is, the temple before [the oracle], was forty cubits [long].

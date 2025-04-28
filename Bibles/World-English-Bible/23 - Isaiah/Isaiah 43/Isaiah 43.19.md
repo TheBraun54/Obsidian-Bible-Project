@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will do a new thing; now shall it spring forth; shall ye not know it? I will even make a way in the wilderness, and rivers in the desert.
+Behold, I will do a new thing. It springs forth now. Don't you know it? I will even make a way in the wilderness, and rivers in the desert.

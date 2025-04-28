@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not finding by what [way] they might bring him in because of the multitude, they went up to the housetop, and let him down through the tiles with his couch into the midst before Jesus.
+Not finding a way to bring him in because of the multitude, they went up to the housetop, and let him down through the tiles with his cot into the midst before Jesus.

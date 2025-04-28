@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if ye will not hearken unto the voice of Jehovah, but rebel against the commandment of Jehovah, then will the hand of Jehovah be against you, as it was against your fathers.
+but if you will not listen to the voice of Yahweh, but rebel against the commandment of Yahweh, then will the hand of Yahweh be against you, as it was against your fathers.

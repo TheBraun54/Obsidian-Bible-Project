@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And encamp ye without the camp seven days: whosoever hath killed any person, and whosoever hath touched any slain, purify yourselves on the third day and on the seventh day, ye and your captives.
+"Encamp outside of the camp seven days: whoever has killed any person, and whoever has touched any slain, purify yourselves on the third day and on the seventh day, you and your captives.

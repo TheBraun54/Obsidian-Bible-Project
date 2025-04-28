@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now why dost thou cry out aloud? Is there no king in thee, is thy counsellor perished, that pangs have taken hold of thee as of a woman in travail?
+Now why do you cry out aloud? Is there no king in you? Has your counselor perished, that pains have taken hold of you as of a woman in travail?

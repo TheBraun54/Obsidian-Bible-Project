@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My people ask counsel at their stock, and their staff declareth unto them; for the spirit of whoredom hath caused them to err, and they have played the harlot, [departing] from under their God.
+My people consult with their wooden idol, and answer to a stick of wood. Indeed the spirit of prostitution has led them astray, and they have been unfaithful to their God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man called his wife's name Eve; because she was the mother of all living.
+The man called his wife Eve, because she was the mother of all living.

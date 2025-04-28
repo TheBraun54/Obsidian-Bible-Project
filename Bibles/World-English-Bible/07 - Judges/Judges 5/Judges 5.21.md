@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The river Kishon swept them away, That ancient river, the river Kishon. O my soul, march on with strength.
+The river Kishon swept them away, that ancient river, the river Kishon. My soul, march on with strength.

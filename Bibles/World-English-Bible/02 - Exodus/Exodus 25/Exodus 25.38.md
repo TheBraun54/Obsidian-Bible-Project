@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the snuffers thereof, and the snuffdishes thereof, shall be of pure gold.
+Its snuffers and its snuff dishes shall be of pure gold.

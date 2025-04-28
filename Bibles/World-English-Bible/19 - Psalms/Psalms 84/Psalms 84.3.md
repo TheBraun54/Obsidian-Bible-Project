@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, the sparrow hath found her a house, And the swallow a nest for herself, where she may lay her young, Even thine altars, O Jehovah of hosts, My King, and my God.
+Yes, the sparrow has found a home, and the swallow a nest for herself, where she may have her young, near your altars, Yahweh of Armies, my King, and my God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Say unto the children of Israel, Ye are a stiffnecked people; if I go up into the midst of thee for one moment, I shall consume thee: therefore now put off thy ornaments from thee, that I may know what to do unto thee.
+Yahweh said to Moses, "Tell the children of Israel, 'You are a stiff-necked people. If I were to go up into your midst for one moment, I would consume you. Therefore now take off your jewelry from you, that I may know what to do to you.'"

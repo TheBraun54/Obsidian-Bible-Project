@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for you, turn you, and take your journey into the wilderness by the way to the Red Sea.
+But as for you, turn, and take your journey into the wilderness by the way to the Red Sea."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If one assay to commune with thee, wilt thou be grieved? But who can withhold himself from speaking?
+"If someone ventures to talk with you, will you be grieved? But who can withhold himself from speaking?

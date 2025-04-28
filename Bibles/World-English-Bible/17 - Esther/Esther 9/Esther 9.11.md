@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On that day the number of those that were slain in Shushan the palace was brought before the king.
+On that day, the number of those who were slain in the citadel of Susa was brought before the king.

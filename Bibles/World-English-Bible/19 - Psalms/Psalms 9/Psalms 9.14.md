@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That I may show forth all thy praise. In the gates of the daughter of Zion I will rejoice in thy salvation.
+that I may show forth all your praise. In the gates of the daughter of Zion, I will rejoice in your salvation.

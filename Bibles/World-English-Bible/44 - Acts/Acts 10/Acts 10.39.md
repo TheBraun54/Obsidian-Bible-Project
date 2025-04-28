@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we are witnesses of all things which he did both in the country of the Jews, and in Jerusalem; whom also they slew, hanging him on a tree.
+We are witnesses of everything he did both in the country of the Jews, and in Jerusalem; whom they also killed, hanging him on a tree.

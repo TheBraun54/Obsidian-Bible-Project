@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou goest, thy steps shall not be straitened; And if thou runnest, thou shalt not stumble.
+When you go, your steps will not be hampered. When you run, you will not stumble.

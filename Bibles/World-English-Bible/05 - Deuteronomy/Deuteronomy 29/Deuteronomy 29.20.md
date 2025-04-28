@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will not pardon him, but then the anger of Jehovah and his jealousy will smoke against that man, and all the curse that is written in this book shall lie upon him, and Jehovah will blot out his name from under heaven.
+Yahweh will not pardon him, but then the anger of Yahweh and his jealousy will smoke against that man, and all the curse that is written in this book shall lie on him, and Yahweh will blot out his name from under the sky.

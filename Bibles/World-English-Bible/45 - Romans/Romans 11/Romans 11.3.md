@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lord, they have killed thy prophets, they have digged down thine altars; and I am left alone, and they seek my life.
+"Lord, they have killed your prophets, they have broken down your altars; and I am left alone, and they seek my life."

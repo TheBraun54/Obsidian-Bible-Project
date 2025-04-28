@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which is his body, the fulness of him that filleth all in all.
+which is his body, the fullness of him who fills all in all.

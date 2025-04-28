@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I say, I will forget my complaint, I will put off my [sad] countenance, and be of good cheer;
+If I say, 'I will forget my complaint, I will put off my sad face, and cheer up;'

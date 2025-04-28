@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the Pharisees desired him that he would eat with him. And he entered into the Pharisee's house, and sat down to meat.
+One of the Pharisees invited him to eat with him. He entered into the Pharisee's house, and sat at the table.

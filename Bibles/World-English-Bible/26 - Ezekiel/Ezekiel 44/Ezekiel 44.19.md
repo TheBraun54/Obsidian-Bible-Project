@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they go forth into the outer court, even into the outer court to the people, they shall put off their garments wherein they minister, and lay them in the holy chambers; and they shall put on other garments, that they sanctify not the people with their garments.
+When they go forth into the outer court, even into the outer court to the people, they shall put off their garments in which they minister, and lay them in the holy rooms; and they shall put on other garments, that they not sanctify the people with their garments.

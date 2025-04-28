@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he turned his face to the wall, and prayed unto Jehovah, saying,
+Then he turned his face to the wall, and prayed to Yahweh, saying,

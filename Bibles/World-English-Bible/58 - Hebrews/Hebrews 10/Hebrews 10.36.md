@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye have need of patience, that, having done the will of God, ye may receive the promise.
+For you need endurance so that, having done the will of God, you may receive the promise.

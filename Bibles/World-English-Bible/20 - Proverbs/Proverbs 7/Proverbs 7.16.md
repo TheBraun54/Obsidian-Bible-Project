@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have spread my couch with carpets of tapestry, With striped cloths of the yarn of Egypt.
+I have spread my couch with carpets of tapestry, with striped cloths of the yarn of Egypt.

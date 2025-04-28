@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thanks be to God, who putteth the same earnest care for you into the heart of Titus.
+But thanks be to God, who puts the same earnest care for you into the heart of Titus.

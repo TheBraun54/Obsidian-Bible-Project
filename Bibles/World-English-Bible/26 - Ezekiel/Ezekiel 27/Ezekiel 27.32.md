@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in their wailing they shall take up a lamentation for thee, and lament over thee, [saying], Who is there like Tyre, like her that is brought to silence in the midst of the sea?
+In their wailing they shall take up a lamentation for you, and lament over you, [saying], Who is there like Tyre, like her who is brought to silence in the midst of the sea?

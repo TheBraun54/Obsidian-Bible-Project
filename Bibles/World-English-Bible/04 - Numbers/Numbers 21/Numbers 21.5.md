@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people spake against God, and against Moses, Wherefore have ye brought us up out of Egypt to die in the wilderness? for there is no bread, and there is no water; and our soul loatheth this light bread.
+The people spoke against God, and against Moses, "Why have you brought us up out of Egypt to die in the wilderness? For there is no bread, and there is no water; and our soul loathes this light bread."

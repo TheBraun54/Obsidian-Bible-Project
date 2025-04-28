@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beseech thee for my child, whom I have begotten in my bonds, Onesimus,
+I beg you for my child, whom I have become the father of in my chains, Onesimus,

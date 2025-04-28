@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, at what time the chest was brought unto the king's officers by the hand of the Levites, and when they saw that there was much money, the king's [ scribe and the chief priest's officer came and emptied the chest, and took it, and carried it to its place again. Thus they did day by day, and gathered money in abundance.
+It was so, that whenever the chest was brought to the king's officers by the hand of the Levites, and when they saw that there was much money, the king's scribe and the chief priest's officer came and emptied the chest, and took it, and carried it to its place again. Thus they did day by day, and gathered money in abundance.

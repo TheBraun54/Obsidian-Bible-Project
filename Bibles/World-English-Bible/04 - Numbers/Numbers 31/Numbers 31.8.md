@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they slew the kings of Midian with the rest of their slain: Evi, and Rekem, and Zur, and Hur, and Reba, the five kings of Midian: Balaam also the son of Beor they slew with the sword.
+They killed the kings of Midian with the rest of their slain: Evi, and Rekem, and Zur, and Hur, and Reba, the five kings of Midian: Balaam also the son of Beor they killed with the sword.

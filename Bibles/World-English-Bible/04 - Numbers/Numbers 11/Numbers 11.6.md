@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but now our soul is dried away; there is nothing at all save this manna to look upon.
+but now we have lost our appetite. There is nothing at all except this manna to look at."

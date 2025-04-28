@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O ye kings; give ear, O ye princes; I, [even] I, will sing unto Jehovah; I will sing praise to Jehovah, the God of Israel.
+"Hear, you kings! Give ear, you princes! I, [even] I, will sing to Yahweh. I will sing praise to Yahweh, the God of Israel.

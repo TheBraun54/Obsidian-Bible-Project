@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Philologus and Julia, Nereus and his sister, and Olympas, and all the saints that are with them.
+Greet Philologus and Julia, Nereus and his sister, and Olympas, and all the saints who are with them.

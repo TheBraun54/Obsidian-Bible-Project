@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This thou knowest, that all that are in Asia turned away from me; of whom are Phygelus and Hermogenes.
+This you know, that all who are in Asia turned away from me; of whom are Phygelus and Hermogenes.

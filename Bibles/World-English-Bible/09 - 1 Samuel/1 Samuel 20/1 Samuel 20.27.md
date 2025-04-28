@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow after the new moon, [which was] the second [day], that David's place was empty: and Saul said unto Jonathan his son, Wherefore cometh not the son of Jesse to meat, neither yesterday, nor to-day?
+It happened on the next day after the new moon, the second day, that David's place was empty. Saul said to Jonathan his son, "Why doesn't the son of Jesse come to eat, neither yesterday, nor today?"

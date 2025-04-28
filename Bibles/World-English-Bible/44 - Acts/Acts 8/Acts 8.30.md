@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Philip ran to him, and heard him reading Isaiah the prophet, and said, Understandest thou what thou readest?
+Philip ran to him, and heard him reading Isaiah the prophet, and said, "Do you understand what you are reading?"

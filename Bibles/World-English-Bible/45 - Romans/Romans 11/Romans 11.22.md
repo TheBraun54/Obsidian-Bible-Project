@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold then the goodness and severity of God: toward them that fell, severity; but toward thee, God's goodness, if thou continue in his goodness: otherwise thou also shalt be cut off.
+See then the goodness and severity of God. Toward those who fell, severity; but toward you, goodness, if you continue in his goodness; otherwise you also will be cut off.

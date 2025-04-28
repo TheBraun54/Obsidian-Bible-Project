@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know that this shall turn out to my salvation, through your supplication and the supply of the Spirit of Jesus Christ,
+For I know that this will turn out to my salvation, through your supplication and the supply of the Spirit of Jesus Christ,

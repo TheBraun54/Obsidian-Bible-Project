@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the waves of death compassed me; The floods of ungodliness made me afraid:
+For the waves of death surrounded me. The floods of ungodliness made me afraid.

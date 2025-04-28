@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto her, Every one that drinketh of this water shall thirst again:
+Jesus answered her, "Everyone who drinks of this water will thirst again,

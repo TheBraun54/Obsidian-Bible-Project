@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gebal, and Ammon, and Amalek; Philistia with the inhabitants of Tyre:
+Gebal, Ammon, and Amalek; Philistia with the inhabitants of Tyre;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord is become as an enemy, he hath swallowed up Israel; He hath swallowed up all her palaces, he hath destroyed his strongholds; And he hath multiplied in the daughter of Judah mourning and lamentation.
+The Lord is become as an enemy, he has swallowed up Israel; He has swallowed up all her palaces, he has destroyed his strongholds; He has multiplied in the daughter of Judah mourning and lamentation.

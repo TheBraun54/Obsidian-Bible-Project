@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was given them to each one a white robe; and it was said unto them, that they should rest yet for a little time, until their fellow-servants also and their brethren, who should be killed even as they were, should have fulfilled [their course] .
+A long white robe was given to each of them. They were told that they should rest yet for a while, until their fellow servants and their brothers, who would also be killed even as they were, should complete their course.

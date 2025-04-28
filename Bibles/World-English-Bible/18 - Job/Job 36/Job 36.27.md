@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he draweth up the drops of water, Which distil in rain from his vapor,
+For he draws up the drops of water, which distill in rain from his vapor,

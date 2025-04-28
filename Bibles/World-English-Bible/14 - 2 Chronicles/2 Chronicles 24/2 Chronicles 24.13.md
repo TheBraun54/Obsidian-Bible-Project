@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the workmen wrought, and the work of repairing went forward in their hands, and they set up the house of God in its state, and strengthened it.
+So the workmen worked, and the work of repairing went forward in their hands, and they set up the house of God in its state, and strengthened it.

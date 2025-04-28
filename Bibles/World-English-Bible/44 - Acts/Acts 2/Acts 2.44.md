@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that believed were together, and had all things common;
+All who believed were together, and had all things in common.

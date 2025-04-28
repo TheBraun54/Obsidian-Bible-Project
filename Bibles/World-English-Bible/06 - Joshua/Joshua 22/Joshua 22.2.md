@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Ye have kept all that Moses the servant of Jehovah commanded you, and have hearkened unto my voice in all that I commanded you:
+and said to them, "You have kept all that Moses the servant of Yahweh commanded you, and have listened to my voice in all that I commanded you.

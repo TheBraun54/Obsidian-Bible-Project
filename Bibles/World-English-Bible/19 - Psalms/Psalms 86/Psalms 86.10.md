@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art great, and doest wondrous things: Thou art God alone.
+For you are great, and do wondrous things. You are God alone.

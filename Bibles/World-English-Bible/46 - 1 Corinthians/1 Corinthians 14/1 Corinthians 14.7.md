@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even things without life, giving a voice, whether pipe or harp, if they give not a distinction in the sounds, how shall it be known what is piped or harped?
+Even things without life, giving a voice, whether pipe or harp, if they didn't give a distinction in the sounds, how would it be known what is piped or harped?

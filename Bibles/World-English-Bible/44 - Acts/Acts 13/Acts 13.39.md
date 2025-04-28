@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and by him every one that believeth is justified from all things, from which ye could not be justified by the law of Moses.
+and by him everyone who believes is justified from all things, from which you could not be justified by the law of Moses.

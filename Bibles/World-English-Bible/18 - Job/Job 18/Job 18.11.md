@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Terrors shall make him afraid on every side, And shall chase him at his heels.
+Terrors shall make him afraid on every side, and shall chase him at his heels.

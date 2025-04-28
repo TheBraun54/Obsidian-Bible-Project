@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he is puffed up, knowing nothing, but doting about questionings and disputes of words, whereof cometh envy, strife, railings, evil surmisings,
+he is conceited, knowing nothing, but obsessed with arguments, disputes, and word battles, from which come envy, strife, insulting, evil suspicions,

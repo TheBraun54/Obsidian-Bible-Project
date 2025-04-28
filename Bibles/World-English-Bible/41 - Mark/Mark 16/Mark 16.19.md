@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then the Lord Jesus, after he had spoken unto them, was received up into heaven, and sat down at the right hand of God.
+So then the Lord, after he had spoken to them, was received up into heaven, and sat down at the right hand of God.

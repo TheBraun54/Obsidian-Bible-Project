@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what great nation is there, that hath a god so nigh unto them, as Jehovah our God is whensoever we call upon him?
+For what great nation is there, that has a god so near to them, as Yahweh our God is whenever we call on him?

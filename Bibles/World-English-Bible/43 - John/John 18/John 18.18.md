@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the servants and the officers were standing [there], having made a fire of coals; for it was cold; and they were warming themselves: and Peter also was with them, standing and warming himself.
+Now the servants and the officers were standing there, having made a fire of coals, for it was cold. They were warming themselves. Peter was with them, standing and warming himself.

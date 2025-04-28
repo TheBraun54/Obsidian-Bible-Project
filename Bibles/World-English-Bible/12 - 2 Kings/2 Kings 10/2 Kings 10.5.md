@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that was over the household, and he that was over the city, the elders also, and they that brought up [the children], sent to Jehu, saying, We are thy servants, and will do all that thou shalt bid us; we will not make any man king: do thou that which is good in thine eyes.
+He who was over the household, and he who was over the city, the elders also, and those who raised the children, sent to Jehu, saying, "We are your servants, and will do all that you ask us. We will not make any man king. You do that which is good in your eyes."

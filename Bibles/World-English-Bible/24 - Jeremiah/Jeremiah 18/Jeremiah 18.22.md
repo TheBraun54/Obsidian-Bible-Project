@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let a cry be heard from their houses, when thou shalt bring a troop suddenly upon them; for they have digged a pit to take me, and hid snares for my feet.
+Let a cry be heard from their houses, when you shall bring a troop suddenly on them; for they have dug a pit to take me, and hid snares for my feet.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt die the death of the uncircumcised by the hand of strangers: for I have spoken it, saith the Lord Jehovah.
+You shall die the death of the uncircumcised by the hand of strangers: for I have spoken it, says the Lord Yahweh.

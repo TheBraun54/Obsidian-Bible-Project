@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice greatly, O daughter of Zion; shout, O daughter of Jerusalem: behold, thy king cometh unto thee; he is just, and having salvation; lowly, and riding upon an ass, even upon a colt the foal of an ass.
+Rejoice greatly, daughter of Zion! Shout, daughter of Jerusalem! Behold, your King comes to you! He is righteous, and having salvation; lowly, and riding on a donkey, even on a colt, the foal of a donkey.

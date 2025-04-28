@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now whereas my father did lade you with a heavy yoke, I will add to your yoke: my father chastised you with whips, but I will chastise you with scorpions.
+Now whereas my father burdened you with a heavy yoke, I will add to your yoke: my father chastised you with whips, but I will chastise you with scorpions.'"

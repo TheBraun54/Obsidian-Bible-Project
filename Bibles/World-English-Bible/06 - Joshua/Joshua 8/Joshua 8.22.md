@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the others came forth out of the city against them; so they were in the midst of Israel, some on this side, and some on that side: and they smote them, so that they let none of them remain or escape.
+The others came out of the city against them, so they were in the midst of Israel, some on this side, and some on that side. They struck them, so that they let none of them remain or escape.

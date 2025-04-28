@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that were sent went away, and found even as he had said unto them.
+Those who were sent went away, and found things just as he had told them.

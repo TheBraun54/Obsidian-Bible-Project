@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He couched, he lay down as a lion, And as a lioness; who shall rouse him up? Blessed be every one that blesseth thee, And cursed be every one that curseth thee.
+He couched, he lay down as a lion, as a lioness; who shall rouse him up? Everyone who blesses you is blessed. Everyone who curses you is cursed."

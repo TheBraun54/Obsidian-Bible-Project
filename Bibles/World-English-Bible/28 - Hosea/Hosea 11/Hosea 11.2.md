@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The more [the prophets] called them, the more they went from them: they sacrificed unto the Baalim, and burned incense to graven images.
+They called to them, so they went from them. They sacrificed to the Baals, and burned incense to engraved images.

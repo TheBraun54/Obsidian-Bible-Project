@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he hath made my mouth like a sharp sword; in the shadow of his hand hath he hid me: and he hath made me a polished shaft; in his quiver hath he kept me close:
+and he has made my mouth like a sharp sword; in the shadow of his hand, he has hidden me: and he has made me a polished shaft; in his quiver has he kept me close:

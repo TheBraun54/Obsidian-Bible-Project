@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ being] only (with meats and drinks and divers washings) carnal ordinances, imposed until a time of reformation.
+being only (with meats and drinks and various washings) fleshly ordinances, imposed until a time of reformation.

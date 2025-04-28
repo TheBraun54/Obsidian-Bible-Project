@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the staves were so long that the ends of the staves were seen from the ark before the oracle; but they were not seen without: and there it is unto this day.
+The poles were so long that the ends of the poles were seen from the ark before the oracle; but they were not seen outside: and there it is to this day.

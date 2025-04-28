@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Egypt, and Judah, and Edom, and the children of Ammon, and Moab, and all that have the corners [of their hair] cut off, that dwell in the wilderness; for all the nations are uncircumcised, and all the house of Israel are uncircumcised in heart.
+Egypt, and Judah, and Edom, and the children of Ammon, and Moab, and all that have the corners [of their hair] cut off, who dwell in the wilderness; for all the nations are uncircumcised, and all the house of Israel are uncircumcised in heart.

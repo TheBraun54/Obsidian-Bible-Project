@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass soon afterwards, that he went to a city called Nain; and his disciples went with him, and a great multitude.
+It happened soon afterwards, that he went to a city called Nain. Many of his disciples, along with a great multitude, went with him.

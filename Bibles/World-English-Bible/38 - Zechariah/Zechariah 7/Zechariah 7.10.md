@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and oppress not the widow, nor the fatherless, the sojourner, nor the poor; and let none of you devise evil against his brother in your heart.
+Don't oppress the widow, nor the fatherless, the foreigner, nor the poor; and let none of you devise evil against his brother in your heart.'

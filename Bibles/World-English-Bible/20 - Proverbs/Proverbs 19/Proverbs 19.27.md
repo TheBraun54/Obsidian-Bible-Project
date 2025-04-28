@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cease, my son, to hear instruction [Only] to err from the words of knowledge.
+If you stop listening to instruction, my son, you will stray from the words of knowledge.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thine eyes be on the field that they do reap, and go thou after them: have I not charged the young men that they shall not touch thee? and when thou art athirst, go unto the vessels, and drink of that which the young men have drawn.
+Let your eyes be on the field that they reap, and go after them. Haven't I commanded the young men not to touch you? When you are thirsty, go to the vessels, and drink from that which the young men have drawn."

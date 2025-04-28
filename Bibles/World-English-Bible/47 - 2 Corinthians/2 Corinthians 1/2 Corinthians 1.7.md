@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and our hope for you is stedfast; knowing that, as ye are partakers of the sufferings, so also are ye of the comfort.
+Our hope for you is steadfast, knowing that, since you are partakers of the sufferings, so also are you of the comfort.

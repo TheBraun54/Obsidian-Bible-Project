@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah hath avouched thee this day to be a people for his own possession, as he hath promised thee, and that thou shouldest keep all his commandments;
+and Yahweh has declared you this day to be a people for his own possession, as he has promised you, and that you should keep all his commandments;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our fathers worshipped in this mountain; and ye say, that in Jerusalem is the place where men ought to worship.
+Our fathers worshiped in this mountain, and you Jews say that in Jerusalem is the place where people ought to worship."

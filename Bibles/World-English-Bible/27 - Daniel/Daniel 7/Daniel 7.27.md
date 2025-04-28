@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the kingdom and the dominion, and the greatness of the kingdoms under the whole heaven, shall be given to the people of the saints of the Most High: his kingdom is an everlasting kingdom, and all dominions shall serve and obey him.
+The kingdom and the dominion, and the greatness of the kingdoms under the whole sky, shall be given to the people of the saints of the Most High: his kingdom is an everlasting kingdom, and all dominions shall serve and obey him.

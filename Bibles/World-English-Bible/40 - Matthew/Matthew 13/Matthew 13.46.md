@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and having found one pearl of great price, he went and sold all that he had, and bought it.
+who having found one pearl of great price, he went and sold all that he had, and bought it.

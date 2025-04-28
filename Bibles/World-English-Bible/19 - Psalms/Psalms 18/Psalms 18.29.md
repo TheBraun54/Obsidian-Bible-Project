@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by thee I run upon a troop; And by my God do I leap over a wall.
+For by you, I advance through a troop. By my God, I leap over a wall.

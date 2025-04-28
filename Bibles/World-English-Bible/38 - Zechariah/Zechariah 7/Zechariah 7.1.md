@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the fourth year of king Darius, that the word of Jehovah came unto Zechariah in the fourth [day] of the ninth month, even in Chislev.
+It happened in the fourth year of king Darius that the word of Yahweh came to Zechariah in the fourth day of the ninth month, the month of Chislev.

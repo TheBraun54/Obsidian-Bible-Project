@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levites, of the children of the Kohathites and of the children of the Korahites, stood up to praise Jehovah, the God of Israel, with an exceeding loud voice.
+The Levites, of the children of the Kohathites and of the children of the Korahites, stood up to praise Yahweh, the God of Israel, with an exceeding loud voice.

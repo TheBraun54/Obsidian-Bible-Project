@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of the children of Ammon answered unto the messengers of Jephthah, Because Israel took away my land, when he came up out of Egypt, from the Arnon even unto the Jabbok, and unto the Jordan: now therefore restore those [lands] again peaceably.
+The king of the children of Ammon answered to the messengers of Jephthah, "Because Israel took away my land, when he came up out of Egypt, from the Arnon even to the Jabbok, and to the Jordan: now therefore restore those [lands] again peaceably."

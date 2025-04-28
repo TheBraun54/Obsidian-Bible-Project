@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Pilate therefore heard these words, he brought Jesus out, and sat down on the judgment-seat at a place called The Pavement, but in Hebrew, Gabbatha.
+When Pilate therefore heard these words, he brought Jesus out, and sat down on the judgment seat at a place called "The Pavement," but in Hebrew, "Gabbatha."

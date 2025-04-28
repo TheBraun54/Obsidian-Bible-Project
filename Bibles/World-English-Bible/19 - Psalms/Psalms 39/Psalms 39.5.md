@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou hast made my days [as] handbreadths; And my life-time is as nothing before thee: Surely every man at his best estate is altogether vanity. {{Selah [
+Behold, you have made my days handbreadths. My lifetime is as nothing before you. Surely every man stands as a breath." Selah.

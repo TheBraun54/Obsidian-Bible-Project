@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in the seventh year shall be a sabbath of solemn rest for the land, a sabbath unto Jehovah: thou shalt neither sow thy field, nor prune thy vineyard.
+but in the seventh year there shall be a Sabbath of solemn rest for the land, a Sabbath to Yahweh. You shall not sow your field or prune your vineyard.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David took the crown of their king from off his head, and found it to weigh a talent of gold, and there were precious stones in it; and it was set upon David's head: and he brought forth the spoil of the city, exceeding much.
+David took the crown of their king from off his head, and found it to weigh a talent of gold, and there were precious stones in it; and it was set on David's head: and he brought forth the spoil of the city, exceeding much.

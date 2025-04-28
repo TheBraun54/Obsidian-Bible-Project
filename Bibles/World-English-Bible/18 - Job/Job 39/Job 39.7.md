@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He scorneth the tumult of the city, Neither heareth he the shoutings of the driver.
+He scorns the tumult of the city, neither does he hear the shouting of the driver.

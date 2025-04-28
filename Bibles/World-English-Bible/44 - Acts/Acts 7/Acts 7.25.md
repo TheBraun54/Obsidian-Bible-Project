@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he supposed that his brethren understood that God by his hand was giving them deliverance; but they understood not.
+He supposed that his brothers understood that God, by his hand, was giving them deliverance; but they didn't understand.

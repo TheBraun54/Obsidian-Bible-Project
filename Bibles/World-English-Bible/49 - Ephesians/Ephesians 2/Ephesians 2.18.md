@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for through him we both have our access in one Spirit unto the Father.
+For through him we both have our access in one Spirit to the Father.

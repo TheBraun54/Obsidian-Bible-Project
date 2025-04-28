@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deck thyself now with excellency and dignity; And array thyself with honor and majesty.
+"Now deck yourself with excellency and dignity. Array yourself with honor and majesty.

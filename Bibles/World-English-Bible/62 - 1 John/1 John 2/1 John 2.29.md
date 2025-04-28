@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye know that he is righteous, ye know that every one also that doeth righteousness is begotten of him.
+If you know that he is righteous, you know that everyone who practices righteousness is born of him.

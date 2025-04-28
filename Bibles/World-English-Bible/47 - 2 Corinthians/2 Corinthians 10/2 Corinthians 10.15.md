@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not glorying beyond [our] measure, [that is], in other men's labors; but having hope that, as your faith groweth, we shall be magnified in you according to our province unto [further] abundance,
+not boasting beyond proper limits in other men's labors, but having hope that as your faith grows, we will be abundantly enlarged by you in our sphere of influence,

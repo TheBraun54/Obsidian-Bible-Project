@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he put all things in subjection under his feet, and gave him to be head over all things to the church,
+He put all things in subjection under his feet, and gave him to be head over all things for the assembly,

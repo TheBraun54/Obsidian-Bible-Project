@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by which means the world that then was, being overflowed with water, perished:
+by which means the world that then was, being overflowed with water, perished.

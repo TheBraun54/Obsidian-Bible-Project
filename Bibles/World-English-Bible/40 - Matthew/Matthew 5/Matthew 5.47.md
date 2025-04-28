@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye salute your brethren only, what do ye more [than others]? do not even the Gentiles the same?
+If you only greet your friends, what more do you do than others? Don't even the tax collectors do the same?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who in hope believed against hope, to the end that he might become a father of many nations, according to that which had been spoken, So shall thy seed be.
+Who in hope believed against hope, to the end that he might become a father of many nations, according to that which had been spoken, "So will your seed be."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their sisters were Zeruiah and Abigail. And the sons of Zeruiah: Abishai, and Joab, and Asahel, three.
+and their sisters were Zeruiah and Abigail. The sons of Zeruiah: Abishai, and Joab, and Asahel, three.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They were not estranged from that which they desired, Their food was yet in their mouths,
+They didn't turn from their cravings. Their food was yet in their mouths,

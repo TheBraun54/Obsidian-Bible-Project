@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that they caused the cry of the poor to come unto him, And he heard the cry of the afflicted.
+so that they caused the cry of the poor to come to him. He heard the cry of the afflicted.

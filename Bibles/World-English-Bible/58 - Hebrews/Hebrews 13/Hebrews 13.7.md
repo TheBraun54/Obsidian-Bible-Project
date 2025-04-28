@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember them that had the rule over you, men that spake unto you the word of God; and considering the issue of their life, imitate their faith.
+Remember your leaders, men who spoke to you the word of God, and considering the results of their conduct, imitate their faith.

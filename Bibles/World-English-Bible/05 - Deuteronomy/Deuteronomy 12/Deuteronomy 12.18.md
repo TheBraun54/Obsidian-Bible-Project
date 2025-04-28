@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thou shalt eat them before Jehovah thy God in the place which Jehovah thy God shall choose, thou, and thy son, and thy daughter, and thy man-servant, and thy maid-servant, and the Levite that is within thy gates: and thou shalt rejoice before Jehovah thy God in all that thou puttest thy hand unto.
+but you shall eat them before Yahweh your God in the place which Yahweh your God shall choose, you, and your son, and your daughter, and your male servant, and your female servant, and the Levite who is within your gates: and you shall rejoice before Yahweh your God in all that you put your hand to.

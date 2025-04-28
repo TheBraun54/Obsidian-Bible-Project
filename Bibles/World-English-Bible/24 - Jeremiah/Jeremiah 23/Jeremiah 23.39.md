@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I will utterly forget you, and I will cast you off, and the city that I gave unto you and to your fathers, away from my presence:
+therefore, behold, I will utterly forget you, and I will cast you off, and the city that I gave to you and to your fathers, away from my presence:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there come unto him Sadducees, who say that there is no resurrection; and they asked him, saying,
+There came to him Sadducees, who say that there is no resurrection. They asked him, saying,

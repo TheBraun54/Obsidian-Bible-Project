@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith God Jehovah, he that created the heavens, and stretched them forth; he that spread abroad the earth and that which cometh out of it; he that giveth breath unto the people upon it, and spirit to them that walk therein:
+Thus says God Yahweh, he who created the heavens and stretched them out, he who spread out the earth and that which comes out of it, he who gives breath to its people and spirit to those who walk in it.

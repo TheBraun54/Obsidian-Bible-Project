@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah upholdeth the meek: He bringeth the wicked down to the ground.
+Yahweh upholds the humble. He brings the wicked down to the ground.

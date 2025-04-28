@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But others said, It is Elijah. And others said, [It is] a prophet, [even] as one of the prophets.
+But others said, "He is Elijah." Others said, "He is a prophet, or like one of the prophets."

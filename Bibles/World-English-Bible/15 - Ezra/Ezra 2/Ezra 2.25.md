@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Kiriath-arim, Chephirah, and Beeroth, seven hundred and forty and three.
+The children of Kiriath Arim, Chephirah, and Beeroth, seven hundred forty-three.

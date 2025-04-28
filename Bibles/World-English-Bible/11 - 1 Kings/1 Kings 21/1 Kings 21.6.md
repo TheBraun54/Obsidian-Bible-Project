@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Because I spake unto Naboth the Jezreelite, and said unto him, Give me thy vineyard for money; or else, if it please thee, I will give thee [another] vineyard for it: and he answered, I will not give thee my vineyard.
+He said to her, "Because I spoke to Naboth the Jezreelite, and said to him, 'Give me your vineyard for money; or else, if it pleases you, I will give you another vineyard for it.' He answered, 'I will not give you my vineyard.'"

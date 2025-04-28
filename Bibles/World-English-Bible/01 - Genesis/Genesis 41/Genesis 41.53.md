@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seven years of plenty, that was in the land of Egypt, came to an end.
+The seven years of plenty, that were in the land of Egypt, came to an end.

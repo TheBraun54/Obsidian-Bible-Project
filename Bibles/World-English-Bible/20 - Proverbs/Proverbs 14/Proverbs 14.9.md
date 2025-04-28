@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A trespass-offering mocketh fools; But among the upright there is good will.
+Fools mock at making atonement for sins, but among the upright there is good will.

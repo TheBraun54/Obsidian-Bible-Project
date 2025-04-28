@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they went out, they besought that these words might be spoken to them the next sabbath.
+So when the Jews went out of the synagogue, the Gentiles begged that these words might be preached to them the next Sabbath.

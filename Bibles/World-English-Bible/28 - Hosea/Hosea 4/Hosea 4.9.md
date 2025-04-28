@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, like people, like priest; and I will punish them for their ways, and will requite them their doings.
+It will be, like people, like priest; and I will punish them for their ways, and will repay them for their deeds.

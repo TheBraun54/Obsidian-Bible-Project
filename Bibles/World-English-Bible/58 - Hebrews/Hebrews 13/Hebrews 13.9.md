@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not carried away by divers and strange teachings: for it is good that the heart be established by grace; not by meats, wherein they that occupied themselves were not profited.
+Don't be carried away by various and strange teachings, for it is good that the heart be established by grace, not by food, through which those who were so occupied were not benefited.

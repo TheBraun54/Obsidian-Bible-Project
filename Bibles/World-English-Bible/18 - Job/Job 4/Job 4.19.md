@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much more them that dwell in houses of clay, Whose foundation is in the dust, Who are crushed before the moth!
+How much more, those who dwell in houses of clay, whose foundation is in the dust, who are crushed before the moth!

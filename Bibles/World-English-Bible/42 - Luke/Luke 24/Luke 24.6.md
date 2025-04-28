@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is not here, but is risen: remember how he spake unto you when he was yet in Galilee,
+He isn't here, but is risen. Remember what he told you when he was still in Galilee,

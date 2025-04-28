@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whatsoever shall touch the flesh thereof shall be holy; and when there is sprinkled of the blood thereof upon any garment, thou shalt wash that whereon it was sprinkled in a holy place.
+Whatever shall touch its flesh shall be holy. When there is any of its blood sprinkled on a garment, you shall wash that on which it was sprinkled in a holy place.

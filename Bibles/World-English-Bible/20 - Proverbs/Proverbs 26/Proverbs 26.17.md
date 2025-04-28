@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that passeth by, [and] vexeth himself with strife belonging not to him, Is [like] one that taketh a dog by the ears.
+Like one who grabs a dog's ears is one who passes by and meddles in a quarrel not his own.

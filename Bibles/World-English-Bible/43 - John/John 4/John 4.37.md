@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For herein is the saying true, One soweth, and another reapeth.
+For in this the saying is true, 'One sows, and another reaps.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus will I do unto thee, O Israel; [and] because I will do this unto thee, prepare to meet thy God, O Israel.
+"Therefore thus will I do to you, Israel; because I will do this to you, prepare to meet your God, Israel.

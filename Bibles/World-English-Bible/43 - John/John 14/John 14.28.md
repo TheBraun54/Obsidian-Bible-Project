@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye heard how I said to you, I go away, and I come unto you. If ye loved me, ye would have rejoiced, because I go unto the Father: for the Father is greater than I.
+You heard how I told you, 'I go away, and I come to you.' If you loved me, you would have rejoiced, because I said 'I am going to my Father;' for the Father is greater than I.

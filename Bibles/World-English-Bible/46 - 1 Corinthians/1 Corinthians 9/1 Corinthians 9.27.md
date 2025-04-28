@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I buffet my body, and bring it into bondage: lest by any means, after that I have preached to others, I myself should be rejected.
+but I beat my body and bring it into submission, lest by any means, after I have preached to others, I myself should be rejected.

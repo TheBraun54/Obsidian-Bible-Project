@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I, Jehovah, have spoken, surely this will I do unto all this evil congregation, that are gathered together against me: in this wilderness they shall be consumed, and there they shall die.
+I, Yahweh, have spoken, surely this will I do to all this evil congregation, who are gathered together against me: in this wilderness they shall be consumed, and there they shall die."

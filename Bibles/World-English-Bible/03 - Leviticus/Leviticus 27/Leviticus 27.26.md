@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only the firstling among beasts, which is made a firstling to Jehovah, no man shall sanctify it; whether it be ox or sheep, it is Jehovah's.
+"'Only the firstborn among animals, which is made a firstborn to Yahweh, no man may dedicate it; whether an ox or sheep, it is Yahweh's.

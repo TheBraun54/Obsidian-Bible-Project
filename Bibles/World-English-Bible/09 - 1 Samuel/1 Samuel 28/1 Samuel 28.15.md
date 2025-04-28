@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said to Saul, Why hast thou disquieted me, to bring me up? And Saul answered, I am sore distressed; for the Philistines make war against me, and God is departed from me, and answereth me no more, neither by prophets, nor by dreams: therefore I have called thee, that thou mayest make known unto me what I shall do.
+Samuel said to Saul, "Why have you disturbed me, to bring me up?" Saul answered, "I am very distressed; for the Philistines make war against me, and God has departed from me, and answers me no more, neither by prophets, nor by dreams. Therefore I have called you, that you may make known to me what I shall do."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made ten lavers of brass: one laver contained forty baths; and every laver was four cubits; and upon very one of the ten bases one laver.
+He made ten basins of brass: one basin contained forty baths; and every basin was four cubits; and on every one of the ten bases one basin.

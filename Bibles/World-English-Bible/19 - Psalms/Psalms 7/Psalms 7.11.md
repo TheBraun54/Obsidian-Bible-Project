@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is a righteous judge, Yea, a God that hath indignation every day.
+God is a righteous judge, yes, a God who has indignation every day.

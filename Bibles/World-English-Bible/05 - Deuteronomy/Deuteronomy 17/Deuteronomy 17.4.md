@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it be told thee, and thou hast heard of it, then shalt thou inquire diligently; and, behold, if it be true, and the thing certain, that such abomination is wrought in Israel,
+and it be told you, and you have heard of it, then you shall inquire diligently; and behold, if it be true, and the thing certain, that such abomination is done in Israel,

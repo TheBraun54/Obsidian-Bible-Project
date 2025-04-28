@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make the rivers dry, and will sell the land into the hand of evil men; and I will make the land desolate, and all that is therein, by the hand of strangers: I, Jehovah, have spoken it.
+I will make the rivers dry, and will sell the land into the hand of evil men; and I will make the land desolate, and all that is therein, by the hand of strangers: I, Yahweh, have spoken it.

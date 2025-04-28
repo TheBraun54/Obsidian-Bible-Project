@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then she fell on her face, and bowed herself to the ground, and said unto him, Why have I found favor in thy sight, that thou shouldest take knowledge of me, seeing I am a foreigner?
+Then she fell on her face, and bowed herself to the ground, and said to him, "Why have I found favor in your sight, that you should take knowledge of me, since I am a foreigner?"

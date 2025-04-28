@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing there are many things that increase vanity, what is man the better?
+For there are many words that create vanity. What does that profit man?

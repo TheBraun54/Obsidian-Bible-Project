@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter answereth and saith to Jesus, Rabbi, it is good for us to be here: and let us make three tabernacles; one for thee, and one for Moses, and one for Elijah.
+Peter answered Jesus, "Rabbi, it is good for us to be here. Let's make three tents: one for you, one for Moses, and one for Elijah."

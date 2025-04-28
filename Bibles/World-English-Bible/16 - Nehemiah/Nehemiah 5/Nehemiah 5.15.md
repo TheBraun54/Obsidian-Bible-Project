@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the former governors that were before me were chargeable unto the people, and took of them bread and wine, besides forty shekels of silver; yea, even their servants bare rule over the people: but so did not I, because of the fear of God.
+But the former governors who were before me were supported by the people, and took bread and wine from them, besides forty shekels of silver; yes, even their servants ruled over the people: but I didn't do so, because of the fear of God.

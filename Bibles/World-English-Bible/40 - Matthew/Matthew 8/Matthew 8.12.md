@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the sons of the kingdom shall be cast forth into the outer darkness: there shall be the weeping and the gnashing of teeth.
+but the children of the Kingdom will be thrown out into the outer darkness. There will be weeping and gnashing of teeth."

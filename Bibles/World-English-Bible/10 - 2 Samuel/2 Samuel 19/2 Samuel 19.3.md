@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people gat them by stealth that day into the city, as people that are ashamed steal away when they flee in battle.
+The people snuck into the city that day, as people who are ashamed steal away when they flee in battle.

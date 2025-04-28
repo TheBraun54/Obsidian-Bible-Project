@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the ear shall say, Because I am not the eye, I am not of the body; it is not therefore not of the body.
+If the ear would say, "Because I'm not the eye, I'm not part of the body," it's not therefore not part of the body.

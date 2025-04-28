@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye, and testify against the house of Jacob, saith the Lord Jehovah, the God of hosts.
+"Listen, and testify against the house of Jacob," says the Lord Yahweh, the God of Armies.

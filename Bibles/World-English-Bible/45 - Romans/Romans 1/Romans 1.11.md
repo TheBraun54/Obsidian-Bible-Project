@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I long to see you, that I may impart unto you some spiritual gift, to the end ye may be established;
+For I long to see you, that I may impart to you some spiritual gift, to the end that you may be established;

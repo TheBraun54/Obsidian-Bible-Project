@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My tent is destroyed, and all my cords are broken: my children are gone forth from me, and they are not: there is none to spread my tent any more, and to set up my curtains.
+My tent is destroyed, and all my cords are broken: my children are gone forth from me, and they are no more: there is none to spread my tent any more, and to set up my curtains.

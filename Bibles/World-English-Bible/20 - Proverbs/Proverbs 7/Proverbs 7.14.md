@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sacrifices of peace-offerings are with me; This day have I paid my vows.
+"Sacrifices of peace offerings are with me. This day I have paid my vows.

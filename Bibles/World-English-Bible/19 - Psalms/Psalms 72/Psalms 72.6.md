@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will come down like rain upon the mown grass, As showers that water the earth.
+He will come down like rain on the mown grass, as showers that water the earth.

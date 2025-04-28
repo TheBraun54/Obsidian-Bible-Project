@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall not take of thee a stone for a corner, nor a stone for foundations; but thou shalt be desolate for ever, saith Jehovah.
+They shall not take of you a stone for a corner, nor a stone for foundations; but you shall be desolate for ever, says Yahweh.

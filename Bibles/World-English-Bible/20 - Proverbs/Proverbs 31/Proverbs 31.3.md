@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give not thy strength unto women, Nor thy ways to that which destroyeth kings.
+Don't give your strength to women, nor your ways to that which destroys kings.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from the mountains of Abarim, and encamped in the plains of Moab by the Jordan at Jericho.
+They traveled from the mountains of Abarim, and encamped in the plains of Moab by the Jordan at Jericho.

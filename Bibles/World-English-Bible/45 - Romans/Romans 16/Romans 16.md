@@ -66,8 +66,4 @@ notes: >
 
 ![[Romans 16.25]]
 
-![[Romans 16.26]]
-
-![[Romans 16.27]]
-
 [[Romans 15|<-]] ✞ [[Romans 17|->]]

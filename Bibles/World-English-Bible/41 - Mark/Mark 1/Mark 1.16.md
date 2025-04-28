@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And passing along by the sea of Galilee, he saw Simon and Andrew the brother of Simon casting a net in the sea; for they were fishers.
+Passing along by the sea of Galilee, he saw Simon and Andrew the brother of Simon casting a net into the sea, for they were fishermen.

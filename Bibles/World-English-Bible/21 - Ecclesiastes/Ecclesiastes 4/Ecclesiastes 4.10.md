@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if they fall, the one will lift up his fellow; but woe to him that is alone when he falleth, and hath not another to lift him up.
+For if they fall, the one will lift up his fellow; but woe to him who is alone when he falls, and doesn't have another to lift him up.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hath he smitten them as he smote those that smote them? or are they slain according to the slaughter of them that were slain by them?
+Has he struck them as he struck those who struck them? Or are they killed like those who killed them were killed?

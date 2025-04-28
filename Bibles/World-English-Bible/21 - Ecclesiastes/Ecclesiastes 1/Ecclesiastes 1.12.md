@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I the Preacher was king over Israel in Jerusalem.
+I, the Preacher, was king over Israel in Jerusalem.

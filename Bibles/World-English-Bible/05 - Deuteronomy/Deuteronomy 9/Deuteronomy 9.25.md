@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I fell down before Jehovah the forty days and forty nights that I fell down, because Jehovah had said he would destroy you.
+So I fell down before Yahweh the forty days and forty nights that I fell down, because Yahweh had said he would destroy you.

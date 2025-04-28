@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I will hide my face from them, I will see what their end shall be: For they are a very perverse generation, Children in whom is no faithfulness.
+He said, "I will hide my face from them. I will see what their end shall be; for they are a very perverse generation, children in whom is no faithfulness.

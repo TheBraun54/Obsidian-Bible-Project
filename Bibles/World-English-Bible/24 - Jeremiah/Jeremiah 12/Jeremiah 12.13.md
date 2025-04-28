@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have sown wheat, and have reaped thorns; they have put themselves to pain, and profit nothing: and ye shall be ashamed of your fruits, because of the fierce anger of Jehovah.
+They have sown wheat, and have reaped thorns; they have put themselves to pain, and profit nothing: and you shall be ashamed of your fruits, because of the fierce anger of Yahweh.

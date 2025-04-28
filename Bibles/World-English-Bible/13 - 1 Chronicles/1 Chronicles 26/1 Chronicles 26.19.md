@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were the courses of the doorkeepers; of the sons of the Korahites, and of the sons of Merari.
+These were the divisions of the doorkeepers; of the sons of the Korahites, and of the sons of Merari.

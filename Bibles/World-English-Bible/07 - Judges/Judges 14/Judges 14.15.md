@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the seventh day, that they said unto Samson's wife, Entice thy husband, that he may declare unto us the riddle, lest we burn thee and thy father's house with fire: have ye called us to impoverish us? is it not [so] ?
+It happened on the seventh day, that they said to Samson's wife, "Entice your husband, that he may declare to us the riddle, lest we burn you and your father's house with fire. Have you called us to impoverish us? Is it not [so]?"

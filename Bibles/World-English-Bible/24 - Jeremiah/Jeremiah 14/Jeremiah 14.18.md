@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I go forth into the field, then, behold, the slain with the sword! and if I enter into the city, then, behold, they that are sick with famine! for both the prophet and the priest go about in the land, and have no knowledge.
+If I go forth into the field, then, behold, the slain with the sword! and if I enter into the city, then, behold, those who are sick with famine! for both the prophet and the priest go about in the land, and have no knowledge.

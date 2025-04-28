@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the children of Israel cried unto Jehovah, Jehovah raised up a saviour to the children of Israel, who saved them, even Othniel the son of Kenaz, Caleb's younger brother.
+When the children of Israel cried to Yahweh, Yahweh raised up a savior to the children of Israel, who saved them, even Othniel the son of Kenaz, Caleb's younger brother.

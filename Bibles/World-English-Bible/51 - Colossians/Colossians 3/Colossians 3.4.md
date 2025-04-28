@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Christ, [who is] our life, shall be manifested, then shall ye also with him be manifested in glory.
+When Christ, our life, is revealed, then you will also be revealed with him in glory.

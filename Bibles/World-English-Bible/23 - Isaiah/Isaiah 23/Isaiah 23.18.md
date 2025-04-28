@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her merchandise and her hire shall be holiness to Jehovah: it shall not be treasured nor laid up; for her merchandise shall be for them that dwell before Jehovah, to eat sufficiently, and for durable clothing.
+Her merchandise and her wages will be holiness to Yahweh. It will not be treasured nor laid up; for her merchandise will be for those who dwell before Yahweh, to eat sufficiently, and for durable clothing.

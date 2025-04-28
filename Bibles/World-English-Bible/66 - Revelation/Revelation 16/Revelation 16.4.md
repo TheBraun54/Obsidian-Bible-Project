@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the third poured out his bowl into the rivers and the fountains of the waters; and it became blood.
+The third poured out his bowl into the rivers and springs of water, and they became blood.

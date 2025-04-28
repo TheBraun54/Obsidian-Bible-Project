@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God caused a deep sleep to fall upon the man, and he slept; and he took one of his ribs, and closed up the flesh instead thereof:
+Yahweh God caused a deep sleep to fall on the man, and he slept; and he took one of his ribs, and closed up the flesh in its place.

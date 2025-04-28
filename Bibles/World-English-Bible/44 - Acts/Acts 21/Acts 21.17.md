@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when we were come to Jerusalem, the brethren received us gladly.
+When we had come to Jerusalem, the brothers received us gladly.

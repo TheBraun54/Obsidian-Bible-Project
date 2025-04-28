@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And immediately an angel of the Lord smote him, because he gave not God the glory: and he was eaten of worms, and gave up the ghost.
+Immediately an angel of the Lord struck him, because he didn't give God the glory, and he was eaten by worms and died.

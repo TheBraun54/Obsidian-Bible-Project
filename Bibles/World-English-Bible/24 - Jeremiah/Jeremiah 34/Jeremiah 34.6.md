@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jeremiah the prophet spake all these words unto Zedekiah king of Judah in Jerusalem,
+Then Jeremiah the prophet spoke all these words to Zedekiah king of Judah in Jerusalem,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or is God [the God] of Jews only? is he not [the God] of Gentiles also? Yea, of Gentiles also:
+Or is God the God of Jews only? Isn't he the God of Gentiles also? Yes, of Gentiles also,

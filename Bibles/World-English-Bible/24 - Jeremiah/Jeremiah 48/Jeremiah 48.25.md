@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The horn of Moab is cut off, and his arm is broken, saith Jehovah.
+The horn of Moab is cut off, and his arm is broken, says Yahweh.

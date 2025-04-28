@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye saw that Nahash the king of the children of Ammon came against you, ye said unto me, Nay, but a king shall reign over us; when Jehovah your God was your king.
+"When you saw that Nahash the king of the children of Ammon came against you, you said to me, 'No, but a king shall reign over us;' when Yahweh your God was your king.

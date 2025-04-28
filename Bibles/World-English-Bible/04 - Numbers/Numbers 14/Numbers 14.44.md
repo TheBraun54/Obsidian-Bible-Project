@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they presumed to go up to the top of the mountain: nevertheless the ark of the covenant of Jehovah, and Moses, departed not out of the camp.
+But they presumed to go up to the top of the mountain: nevertheless the ark of the covenant of Yahweh, and Moses, didn't depart out of the camp.

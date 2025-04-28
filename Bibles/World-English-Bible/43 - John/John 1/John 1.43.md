@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the morrow he was minded to go forth into Galilee, and he findeth Philip: and Jesus saith unto him, Follow me.
+On the next day, he was determined to go out into Galilee, and he found Philip. Jesus said to him, "Follow me."

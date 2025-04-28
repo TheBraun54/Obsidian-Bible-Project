@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the seventh day seven bullocks, two rams, fourteen he-lambs a year old without blemish;
+"'On the seventh day seven bulls, two rams, fourteen male lambs a year old without blemish;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jehovah unto Isaiah, Go forth now to meet Ahaz, thou, and Shear-jashub thy son, at the end of the conduit of the upper pool, in the highway of the fuller's field;
+Then Yahweh said to Isaiah, "Go out now to meet Ahaz, you, and Shearjashub your son, at the end of the conduit of the upper pool, on the highway of the fuller's field.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah appeared unto Abram, and said, Unto thy seed will I give this land: and there builded he an altar unto Jehovah, who appeared unto him.
+Yahweh appeared to Abram and said, "I will give this land to your seed." He built an altar there to Yahweh, who appeared to him.

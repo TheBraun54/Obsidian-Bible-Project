@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their Redeemer is strong; Jehovah of hosts is his name: he will thoroughly plead their cause, that he may give rest to the earth, and disquiet the inhabitants of Babylon.
+Their Redeemer is strong; Yahweh of Armies is his name: he will thoroughly plead their cause, that he may give rest to the earth, and disquiet the inhabitants of Babylon.

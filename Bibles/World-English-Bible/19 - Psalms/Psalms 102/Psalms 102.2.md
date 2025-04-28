@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hide not thy face from me in the day of my distress: Incline thine ear unto me; In the day when I call answer me speedily.
+Don't hide your face from me in the day of my distress. Turn your ear to me. Answer me quickly in the day when I call.

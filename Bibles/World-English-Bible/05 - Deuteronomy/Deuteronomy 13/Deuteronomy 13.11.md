@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Israel shall hear, and fear, and shall do not more any such wickedness as this is in the midst of thee.
+All Israel shall hear, and fear, and shall not do any more such wickedness as this is in the midst of you.

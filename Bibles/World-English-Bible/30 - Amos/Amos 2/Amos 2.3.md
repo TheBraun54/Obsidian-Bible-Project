@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will cut off the judge from the midst thereof, and will slay all the princes thereof with him, saith Jehovah.
+and I will cut off the judge from their midst, and will kill all its princes with him," says Yahweh.

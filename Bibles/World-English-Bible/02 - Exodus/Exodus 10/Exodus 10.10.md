@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, So be Jehovah with you, as I will let you go, and your little ones: look to it; for evil is before you.
+He said to them, "Yahweh be with you if I will let you go with your little ones! See, evil is clearly before your faces.

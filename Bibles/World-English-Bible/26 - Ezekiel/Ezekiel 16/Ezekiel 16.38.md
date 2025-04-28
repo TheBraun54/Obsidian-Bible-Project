@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will judge thee, as women that break wedlock and shed blood are judged; and I will bring upon thee the blood of wrath and jealousy.
+I will judge you, as women who break wedlock and shed blood are judged; and I will bring on you the blood of wrath and jealousy.

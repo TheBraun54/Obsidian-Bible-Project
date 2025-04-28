@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How should one chase a thousand, And two put ten thousand to flight, Except their Rock had sold them, And Jehovah had delivered them up?
+How could one chase a thousand, and two put ten thousand to flight, unless their Rock had sold them, and Yahweh had delivered them up?

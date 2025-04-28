@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah gave them rest round about, according to all that he sware unto their fathers: and there stood not a man of all their enemies before them; Jehovah delivered all their enemies into their hand.
+Yahweh gave them rest all around, according to all that he swore to their fathers. Not a man of all their enemies stood before them. Yahweh delivered all their enemies into their hand.

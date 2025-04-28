@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David waxed greater and greater; for Jehovah of hosts was with him.
+David grew greater and greater; for Yahweh of Armies was with him.

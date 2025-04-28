@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things said Isaiah, because he saw his glory; and he spake of him.
+Isaiah said these things when he saw his glory, and spoke of him.

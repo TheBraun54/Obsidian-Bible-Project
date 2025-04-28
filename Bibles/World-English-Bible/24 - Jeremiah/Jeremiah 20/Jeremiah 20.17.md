@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because he slew me not from the womb; and so my mother would have been my grave, and her womb always great.
+because he didn't kill me from the womb; and so my mother would have been my grave, and her womb always great.

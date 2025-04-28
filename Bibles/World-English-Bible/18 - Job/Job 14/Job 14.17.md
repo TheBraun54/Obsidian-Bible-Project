@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My transgression is sealed up in a bag, And thou fastenest up mine iniquity.
+My disobedience is sealed up in a bag. You fasten up my iniquity.

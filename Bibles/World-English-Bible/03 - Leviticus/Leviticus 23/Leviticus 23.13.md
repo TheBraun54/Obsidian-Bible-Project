@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the meal-offering thereof shall be two tenth parts [of an ephah] of fine flour mingled with oil, an offering made by fire unto Jehovah for a sweet savor; and the drink-offering thereof shall be of wine, the fourth part of a hin.
+The meal offering with it shall be two tenth parts of an ephah of fine flour mingled with oil, an offering made by fire to Yahweh for a pleasant aroma; and the drink offering with it shall be of wine, the fourth part of a hin.

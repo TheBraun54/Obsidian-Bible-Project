@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when a man or a woman hath in the skin of the flesh bright spots, even white bright spots;
+"When a man or a woman has bright spots in the skin of the body, even white bright spots;

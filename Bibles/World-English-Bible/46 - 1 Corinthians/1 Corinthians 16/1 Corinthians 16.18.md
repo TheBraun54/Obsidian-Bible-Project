@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they refreshed my spirit and yours: acknowledge ye therefore them that are such.
+For they refreshed my spirit and yours. Therefore acknowledge those who are like that.

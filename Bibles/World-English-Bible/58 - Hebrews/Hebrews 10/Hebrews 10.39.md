@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we are not of them that shrink back unto perdition; but of them that have faith unto the saving of the soul.
+But we are not of those who shrink back to destruction, but of those who have faith to the saving of the soul.

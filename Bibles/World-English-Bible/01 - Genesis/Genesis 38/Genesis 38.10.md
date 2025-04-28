@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the thing which he did was evil in the sight of Jehovah: and he slew him also.
+The thing which he did was evil in the sight of Yahweh, and he killed him also.

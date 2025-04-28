@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah is a fountain of life, That one may depart from the snares of death.
+The fear of Yahweh is a fountain of life, turning people from the snares of death.

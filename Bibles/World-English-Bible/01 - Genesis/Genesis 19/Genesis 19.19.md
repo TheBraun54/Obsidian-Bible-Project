@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold now, thy servant hath found favor in thy sight, and thou hast magnified thy lovingkindness, which thou hast showed unto me in saving my life; and I cannot escape to the mountain, lest evil overtake me, and I die:
+See now, your servant has found favor in your sight, and you have magnified your loving kindness, which you have shown to me in saving my life. I can't escape to the mountain, lest evil overtake me, and I die.

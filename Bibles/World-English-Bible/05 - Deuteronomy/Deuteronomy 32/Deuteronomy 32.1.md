@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give ear, ye heavens, and I will speak; And let the earth hear the words of my mouth.
+Give ear, you heavens, and I will speak. Let the earth hear the words of my mouth.

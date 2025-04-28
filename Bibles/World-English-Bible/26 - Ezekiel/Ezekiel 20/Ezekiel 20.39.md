@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for you, O house of Israel, thus saith the Lord Jehovah: Go ye, serve every one his idols, and hereafter also, if ye will not hearken unto me; but my holy name shall ye no more profane with your gifts, and with your idols.
+As for you, house of Israel, thus says the Lord Yahweh: Go, serve everyone his idols, and hereafter also, if you will not listen to me; but my holy name you shall no more profane with your gifts, and with your idols.

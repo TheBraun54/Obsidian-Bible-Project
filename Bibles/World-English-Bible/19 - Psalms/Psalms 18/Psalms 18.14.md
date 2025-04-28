@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent out his arrows, and scattered them; Yea, lightnings manifold, and discomfited them.
+He sent out his arrows, and scattered them; Yes, great lightning bolts, and routed them.

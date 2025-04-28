@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Answer me, O Jehovah; for thy lovingkindness is good: According to the multitude of thy tender mercies turn thou unto me.
+Answer me, Yahweh, for your loving kindness is good. According to the multitude of your tender mercies, turn to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel said unto her, Fear not, Mary: for thou hast found favor with God.
+The angel said to her, "Don't be afraid, Mary, for you have found favor with God.

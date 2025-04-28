@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember Lot's wife.
+Remember Lot's wife!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel grew, and Jehovah was with him, and did let none of his words fall to the ground.
+Samuel grew, and Yahweh was with him, and let none of his words fall to the ground.

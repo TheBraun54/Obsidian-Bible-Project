@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; on stringed instruments. A Psalm, a Song]. God be merciful unto us, and bless us, [And] cause his face to shine upon us; {{Selah
+May God be merciful to us, bless us, and cause his face to shine on us. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine ordinances shall ye do, and my statutes shall ye keep, to walk therein: I am Jehovah your God.
+You shall do my ordinances, and you shall keep my statutes, and walk in them: I am Yahweh your God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hollow with planks shalt thou make it: as it hath been showed thee in the mount, so shall they make it.
+You shall make it with hollow planks. They shall make it as it has been shown you on the mountain.

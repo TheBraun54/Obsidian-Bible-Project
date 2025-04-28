@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that he was sitting at meat in his house, and many publicans and sinners sat down with Jesus and his disciples: for there were many, and they followed him.
+It happened, that he was reclining at the table in his house, and many tax collectors and sinners sat down with Jesus and his disciples, for there were many, and they followed him.

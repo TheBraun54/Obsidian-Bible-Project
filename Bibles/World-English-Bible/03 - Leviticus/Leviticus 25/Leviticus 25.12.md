@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is a jubilee; it shall be holy unto you: ye shall eat the increase thereof out of the field.
+For it is a jubilee; it shall be holy to you. You shall eat of its increase out of the field.

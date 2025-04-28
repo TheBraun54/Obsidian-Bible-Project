@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the woman, Whom shall I bring up unto thee? And he said, Bring me up Samuel.
+Then the woman said, "Whom shall I bring up to you?" He said, "Bring Samuel up for me."

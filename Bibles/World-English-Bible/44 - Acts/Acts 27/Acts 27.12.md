@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And because the haven was not commodious to winter in, the more part advised to put to sea from thence, if by any means they could reach Phoenix, and winter [there; which is] a haven of Crete, looking north-east and south-east.
+Because the haven was not suitable to winter in, the majority advised going to sea from there, if by any means they could reach Phoenix, and winter there, which is a port of Crete, looking northeast and southeast.

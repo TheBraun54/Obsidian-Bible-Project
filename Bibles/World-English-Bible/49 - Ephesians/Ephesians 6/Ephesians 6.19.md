@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on my behalf, that utterance may be given unto me in opening my mouth, to make known with boldness the mystery of the gospel,
+on my behalf, that utterance may be given to me in opening my mouth, to make known with boldness the mystery of the Good News,

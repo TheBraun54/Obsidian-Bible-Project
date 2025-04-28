@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when men began to multiply on the face of the ground, and daughters were born unto them,
+It happened, when men began to multiply on the surface of the ground, and daughters were born to them,

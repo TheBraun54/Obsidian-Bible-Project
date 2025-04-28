@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Isaiah the son of Amoz sent to Hezekiah, saying, Thus saith Jehovah, the God of Israel, Whereas thou hast prayed to me against Sennacherib king of Assyria, I have heard [thee] .
+Then Isaiah the son of Amoz sent to Hezekiah, saying, "Thus says Yahweh, the God of Israel, 'Whereas you have prayed to me against Sennacherib king of Assyria, I have heard you.

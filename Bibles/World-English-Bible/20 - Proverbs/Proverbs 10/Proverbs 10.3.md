@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will not suffer the soul of the righteous to famish; But he thrusteth away the desire of the wicked.
+Yahweh will not allow the soul of the righteous to go hungry, but he thrusts away the desire of the wicked.

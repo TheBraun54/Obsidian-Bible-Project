@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah our God made a covenant with us in Horeb.
+Yahweh our God made a covenant with us in Horeb.

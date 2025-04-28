@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I adjure you, O daughters of Jerusalem, If ye find my beloved, That ye tell him, that I am sick from love.
+I adjure you, daughters of Jerusalem, If you find my beloved, that you tell him that I am faint with love. Friends

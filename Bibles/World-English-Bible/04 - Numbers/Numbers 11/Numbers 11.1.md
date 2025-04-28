@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people were as murmurers, [speaking] evil in the ears of Jehovah: and when Jehovah heard it, his anger was kindled; and the fire of Jehovah burnt among them, and devoured in the uttermost part of the camp.
+The people were complaining in the ears of Yahweh. When Yahweh heard it, his anger was kindled; and Yahweh's fire burnt among them, and consumed some of the outskirts of the camp.

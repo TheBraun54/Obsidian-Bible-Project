@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Assyria sent Tartan and Rab-saris and Rabshakeh from Lachish to king Hezekiah with a great army unto Jerusalem. And they went up and came to Jerusalem. And when they were come up, they came and stood by the conduit of the upper pool, which is in the highway of the fuller's field.
+The king of Assyria sent Tartan and Rabsaris and Rabshakeh from Lachish to king Hezekiah with a great army to Jerusalem. They went up and came to Jerusalem. When they were come up, they came and stood by the conduit of the upper pool, which is in the highway of the fuller's field.

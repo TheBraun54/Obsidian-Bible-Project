@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now thou art commanded, this do ye: take you wagons out of the land of Egypt for your little ones, and for your wives, and bring your father, and come.
+Now you are commanded: do this. Take wagons out of the land of Egypt for your little ones, and for your wives, and bring your father, and come.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But who is there of you, having a servant plowing or keeping sheep, that will say unto him, when he is come in from the field, Come straightway and sit down to meat;
+But who is there among you, having a servant plowing or keeping sheep, that will say, when he comes in from the field, 'Come immediately and sit down at the table,'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the Father raiseth the dead and giveth them life, even so the Son also giveth life to whom he will.
+For as the Father raises the dead and gives them life, even so the Son also gives life to whom he desires.

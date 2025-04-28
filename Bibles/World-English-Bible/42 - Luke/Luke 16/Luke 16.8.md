@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his lord commended the unrighteous steward because he had done wisely: for the sons of this world are for their own generation wiser than the sons of the light.
+"His lord commended the dishonest manager because he had done wisely, for the children of this world are, in their own generation, wiser than the children of the light.

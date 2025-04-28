@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, Ye are gods, And all of you sons of the Most High.
+I said, "You are gods, all of you are sons of the Most High.

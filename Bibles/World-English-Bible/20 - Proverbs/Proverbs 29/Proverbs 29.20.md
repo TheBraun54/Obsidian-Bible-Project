@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seest thou a man that is hasty in his words? There is more hope of a fool than of him.
+Do you see a man who is hasty in his words? There is more hope for a fool than for him.

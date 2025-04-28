@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall eat, and not have enough; they shall play the harlot, and shall not increase; because they have left off taking heed to Jehovah.
+They will eat, and not have enough. They will play the prostitute, and will not increase; because they have abandoned giving to Yahweh.

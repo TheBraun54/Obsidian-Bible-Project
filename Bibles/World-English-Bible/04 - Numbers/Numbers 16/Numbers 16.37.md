@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Eleazar the son of Aaron the priest, that he take up the censers out of the burning, and scatter thou the fire yonder; for they are holy,
+"Speak to Eleazar the son of Aaron the priest, that he take up the censers out of the burning, and scatter the fire yonder; for they are holy,

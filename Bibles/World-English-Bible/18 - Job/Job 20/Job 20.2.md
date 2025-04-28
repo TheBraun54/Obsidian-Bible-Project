@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore do my thoughts give answer to me, Even by reason of my haste that is in me.
+"Therefore do my thoughts give answer to me, even by reason of my haste that is in me.

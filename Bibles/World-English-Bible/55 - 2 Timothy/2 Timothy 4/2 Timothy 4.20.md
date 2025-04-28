@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Erastus remained at Corinth: but Trophimus I left at Miletus sick.
+Erastus remained at Corinth, but I left Trophimus at Miletus sick.

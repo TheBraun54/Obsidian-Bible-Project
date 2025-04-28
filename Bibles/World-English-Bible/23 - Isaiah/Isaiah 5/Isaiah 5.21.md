@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them that are wise in their own eyes, and prudent in their own sight!
+Woe to those who are wise in their own eyes, and prudent in their own sight!

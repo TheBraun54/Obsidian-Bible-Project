@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For consider him that hath endured such gainsaying of sinners against himself, that ye wax not weary, fainting in your souls.
+For consider him who has endured such contradiction of sinners against himself, that you don't grow weary, fainting in your souls.

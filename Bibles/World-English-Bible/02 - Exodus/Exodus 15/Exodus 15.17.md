@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt bring them in, and plant them in the mountain of thine inheritance, The place, O Jehovah, which thou hast made for thee to dwell in, The sanctuary, O Lord, which thy hands have established.
+You shall bring them in, and plant them in the mountain of your inheritance, the place, Yahweh, which you have made for yourself to dwell in; the sanctuary, Lord, which your hands have established.

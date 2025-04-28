@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, brethren, could not speak unto you as unto spiritual, but as unto carnal, as unto babes in Christ.
+Brothers, I couldn't speak to you as to spiritual, but as to fleshly, as to babies in Christ.

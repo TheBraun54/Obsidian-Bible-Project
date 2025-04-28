@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was the day of the Preparation, and the sabbath drew on.
+It was the day of the Preparation, and the Sabbath was drawing near.

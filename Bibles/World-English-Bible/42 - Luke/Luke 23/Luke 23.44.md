@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was now about the sixth hour, and a darkness came over the whole land until the ninth hour,
+It was now about the sixth hour, and darkness came over the whole land until the ninth hour.

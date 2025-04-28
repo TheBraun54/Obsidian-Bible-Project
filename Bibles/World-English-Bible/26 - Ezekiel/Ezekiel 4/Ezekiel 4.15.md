@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he said unto me, See, I have given thee cow's dung for man's dung, and thou shalt prepare thy bread thereon.
+Then he said to me, Behold, I have given you cow's dung for man's dung, and you shall prepare your bread thereon.

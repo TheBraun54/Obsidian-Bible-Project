@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His bones are full of his youth, But it shall lie down with him in the dust.
+His bones are full of his youth, but youth shall lie down with him in the dust.

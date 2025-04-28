@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tribe of Gad: and the prince of the children of Gad shall be Eliasaph the son of Reuel.
+"The tribe of Gad: and the prince of the children of Gad shall be Eliasaph the son of Reuel.

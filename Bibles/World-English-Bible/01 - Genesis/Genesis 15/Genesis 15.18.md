@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day Jehovah made a covenant with Abram, saying, Unto thy seed have I given this land, from the river of Egypt unto the great river, the river Euphrates:
+In that day Yahweh made a covenant with Abram, saying, "To your seed I have given this land, from the river of Egypt to the great river, the river Euphrates:

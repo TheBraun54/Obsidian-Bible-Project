@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the stone shall cry out of the wall, and the beam out of the timber shall answer it.
+For the stone will cry out of the wall, and the beam out of the woodwork will answer it.

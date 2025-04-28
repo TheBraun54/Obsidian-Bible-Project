@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judge me, O Jehovah my God, according to thy righteousness; And let them not rejoice over me.
+Vindicate me, Yahweh my God, according to your righteousness. Don't let them gloat over me.

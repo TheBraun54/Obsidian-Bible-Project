@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the nations are as a drop of a bucket, and are accounted as the small dust of the balance: Behold, he taketh up the isles as a very little thing.
+Behold, the nations are like a drop in a bucket, and are regarded as a speck of dust on a balance. Behold, he lifts up the islands like a very little thing.

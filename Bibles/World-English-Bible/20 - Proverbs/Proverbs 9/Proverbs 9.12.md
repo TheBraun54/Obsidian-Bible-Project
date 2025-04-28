@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou art wise, thou art wise for thyself; And if thou scoffest, thou alone shalt bear it.
+If you are wise, you are wise for yourself. If you mock, you alone will bear it.

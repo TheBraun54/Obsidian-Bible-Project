@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Avenge the children of Israel of the Midianites: afterward shalt thou be gathered unto thy people.
+"Avenge the children of Israel for the Midianites. Afterward you shall be gathered to your people."

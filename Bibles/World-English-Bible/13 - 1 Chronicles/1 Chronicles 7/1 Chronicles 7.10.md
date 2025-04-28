@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Jediael: Bilhan. And the sons of Bilhan: Jeush, and Benjamin, and Ehud, and Chenaanah, and Zethan, and Tarshish, and Ahishahar.
+The sons of Jediael: Bilhan. The sons of Bilhan: Jeush, and Benjamin, and Ehud, and Chenaanah, and Zethan, and Tarshish, and Ahishahar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From following the ewes that have their young he brought him, To be the shepherd of Jacob his people, and Israel his inheritance.
+from following the ewes that have their young, he brought him to be the shepherd of Jacob, his people, and Israel, his inheritance.

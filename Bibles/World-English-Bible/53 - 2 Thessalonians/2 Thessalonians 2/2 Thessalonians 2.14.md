@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereunto he called you through our gospel, to the obtaining of the glory of our Lord Jesus Christ.
+to which he called you through our Good News, for the obtaining of the glory of our Lord Jesus Christ.

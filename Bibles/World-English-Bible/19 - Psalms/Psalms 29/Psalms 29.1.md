@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. Ascribe unto Jehovah, O ye sons of the mighty, Ascribe unto Jehovah glory and strength.
+Ascribe to Yahweh, you sons of the mighty, ascribe to Yahweh glory and strength.

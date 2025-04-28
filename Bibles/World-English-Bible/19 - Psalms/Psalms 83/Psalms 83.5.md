@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they have consulted together with one consent; Against thee do they make a covenant:
+For they have conspired together with one mind. They form an alliance against you.

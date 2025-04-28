@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, speak to the children of thy people, and say unto them, When I bring the sword upon a land, and the people of the land take a man from among them, and set him for their watchman;
+Son of man, speak to the children of your people, and tell them, When I bring the sword on a land, and the people of the land take a man from among them, and set him for their watchman;

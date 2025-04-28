@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Zattu, eight hundred forty and five.
+The children of Zattu, eight hundred forty-five.

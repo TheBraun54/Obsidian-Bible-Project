@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man shall eat good by the fruit of his mouth; But the soul of the treacherous [shall eat] violence.
+By the fruit of his lips, a man enjoys good things; but the unfaithful crave violence.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a capital of brass was upon it; and the height of the one capital was five cubits, with network and pomegranates upon the capital round about, all of brass: and the second pillar also had like unto these, and pomegranates.
+A capital of brass was on it; and the height of the one capital was five cubits, with network and pomegranates on the capital all around, all of brass: and the second pillar also had like these, and pomegranates.

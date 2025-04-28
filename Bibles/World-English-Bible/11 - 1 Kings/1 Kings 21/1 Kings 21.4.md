@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab came into his house heavy and displeased because of the word which Naboth the Jezreelite had spoken to him; for he had said, I will not give thee the inheritance of my fathers. And he laid him down upon his bed, and turned away his face, and would eat no bread.
+Ahab came into his house sullen and angry because of the word which Naboth the Jezreelite had spoken to him; for he had said, "I will not give you the inheritance of my fathers." He laid himself down on his bed, and turned away his face, and would eat no bread.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glory of Jehovah went forth from over the threshold of the house, and stood over the cherubim.
+The glory of Yahweh went forth from over the threshold of the house, and stood over the cherubim.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make fifty clasps of brass, and put the clasps into the loops, and couple the tent together, that it may be one.
+You shall make fifty clasps of brass, and put the clasps into the loops, and couple the tent together, that it may be one.

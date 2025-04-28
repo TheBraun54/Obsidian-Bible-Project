@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou shalt be a witness for him unto all men of what thou hast seen and heard.
+For you will be a witness for him to all men of what you have seen and heard.

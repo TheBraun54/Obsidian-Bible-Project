@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from thence [they journeyed] to Beer: that is the well whereof Jehovah said unto Moses, Gather the people together, and I will give them water.
+From there they traveled to Beer: that is the well of which Yahweh said to Moses, "Gather the people together, and I will give them water."

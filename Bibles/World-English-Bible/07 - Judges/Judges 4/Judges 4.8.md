@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Barak said unto her, If thou wilt go with me, then I will go; but if thou wilt not go with me, I will not go.
+Barak said to her, "If you will go with me, then I will go; but if you will not go with me, I will not go."

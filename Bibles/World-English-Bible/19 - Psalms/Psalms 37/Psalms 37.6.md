@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will make thy righteousness to go forth as the light, And thy justice as the noon-day.
+he will make your righteousness go forth as the light, and your justice as the noon day sun.

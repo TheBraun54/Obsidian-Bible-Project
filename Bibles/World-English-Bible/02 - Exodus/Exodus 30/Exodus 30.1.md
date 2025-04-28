@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make an altar to burn incense upon: of acacia wood shalt thou make it.
+"You shall make an altar to burn incense on. You shall make it of acacia wood.

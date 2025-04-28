@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No man seweth a piece of undressed cloth on an old garment: else that which should fill it up taketh from it, the new from the old, and a worse rent is made.
+No one sews a piece of unshrunk cloth on an old garment, or else the patch shrinks and the new tears away from the old, and a worse hole is made.

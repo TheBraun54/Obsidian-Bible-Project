@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they indeed for a few days chastened [us] as seemed good to them; but he for [our] profit, that [we] may be partakers of his holiness.
+For they indeed, for a few days, punished us as seemed good to them; but he for our profit, that we may be partakers of his holiness.

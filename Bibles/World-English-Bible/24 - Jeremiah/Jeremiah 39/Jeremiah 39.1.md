@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass when Jerusalem was taken, (in the ninth year of Zedekiah king of Judah, in the tenth month, came Nebuchadrezzar king of Babylon and all his army against Jerusalem, and besieged it;
+It happened when Jerusalem was taken, (in the ninth year of Zedekiah king of Judah, in the tenth month, came Nebuchadnezzar king of Babylon and all his army against Jerusalem, and besieged it;

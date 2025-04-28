@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salvation is far from the wicked; For they seek not thy statutes.
+Salvation is far from the wicked, for they don't seek your statutes.

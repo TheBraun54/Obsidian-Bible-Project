@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou that sayest a man should not commit adultery, dost thou commit adultery? thou that abhorrest idols, dost thou rob temples?
+You who say a man shouldn't commit adultery. Do you commit adultery? You who abhor idols, do you rob temples?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: If the prince give a gift unto any of his sons, it is his inheritance, it shall belong to his sons; it is their possession by inheritance.
+Thus says the Lord Yahweh: If the prince give a gift to any of his sons, it is his inheritance, it shall belong to his sons; it is their possession by inheritance.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Esau took his wives of the daughters of Canaan: Adah the daughter of Elon the Hittite, and Oholibamah the daughter of Anah, the daughter of Zibeon the Hivite,
+Esau took his wives from the daughters of Canaan: Adah the daughter of Elon, the Hittite; and Oholibamah the daughter of Anah, the daughter of Zibeon, the Hivite;

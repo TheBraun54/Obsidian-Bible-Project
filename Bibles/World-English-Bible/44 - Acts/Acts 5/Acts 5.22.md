@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the officers that came found them not in the prison; and they returned, and told,
+But the officers who came didn't find them in the prison. They returned and reported,

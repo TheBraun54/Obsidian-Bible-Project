@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought up the ark of Jehovah, and the tent of meeting, and all the holy vessels that were in the Tent; even these did the priests and the Levites bring up.
+They brought up the ark of Yahweh, and the Tent of Meeting, and all the holy vessels that were in the Tent; even these did the priests and the Levites bring up.

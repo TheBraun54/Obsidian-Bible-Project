@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the place of the boil there is a white rising, or a bright spot, reddish-white, then is shall be showed to the priest;
+and in the place of the boil there is a white rising, or a bright spot, reddish-white, then it shall be shown to the priest;

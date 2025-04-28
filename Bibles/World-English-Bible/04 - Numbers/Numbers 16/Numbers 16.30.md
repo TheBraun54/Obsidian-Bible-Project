@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if Jehovah make a new thing, and the ground open its mouth, and swallow them up, with all that appertain unto them, and they go down alive into Sheol; then ye shall understand that these men have despised Jehovah.
+But if Yahweh make a new thing, and the ground open its mouth, and swallow them up, with all that appertain to them, and they go down alive into Sheol; then you shall understand that these men have despised Yahweh."

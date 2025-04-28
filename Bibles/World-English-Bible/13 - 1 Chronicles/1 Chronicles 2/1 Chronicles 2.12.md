@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Boaz begat Obed, and Obed begat Jesse;
+and Boaz became the father of Obed, and Obed became the father of Jesse;

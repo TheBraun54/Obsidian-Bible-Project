@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he had in his hand a little book open: and he set his right foot upon the sea, and his left upon the earth;
+He had in his hand a little open book. He set his right foot on the sea, and his left on the land.

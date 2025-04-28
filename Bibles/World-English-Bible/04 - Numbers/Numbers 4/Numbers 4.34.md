@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron and the princes of the congregation numbered the sons of the Kohathites by their families, and by their fathers' houses,
+Moses and Aaron and the princes of the congregation numbered the sons of the Kohathites by their families, and by their fathers' houses,

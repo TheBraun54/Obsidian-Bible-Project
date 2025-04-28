@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put him in ward, because it had not been declared what should be done to him.
+They put him in custody, because it had not been declared what should be done to him.

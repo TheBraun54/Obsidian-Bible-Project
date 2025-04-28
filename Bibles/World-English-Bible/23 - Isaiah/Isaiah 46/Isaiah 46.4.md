@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and even to old age I am he, and even to hoar hairs will I carry [you] ; I have made, and I will bear; yea, I will carry, and will deliver.
+and even to old age I am he, and even to gray hairs will I carry you. I have made, and I will bear; yes, I will carry, and will deliver.

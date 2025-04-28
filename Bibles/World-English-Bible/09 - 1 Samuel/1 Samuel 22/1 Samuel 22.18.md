@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said to Doeg, Turn thou, and fall upon the priests. And Doeg the Edomite turned, and he fell upon the priests, and he slew on that day fourscore and five persons that did wear a linen ephod.
+The king said to Doeg, "Turn and attack the priests!" Doeg the Edomite turned, and he attacked the priests, and he killed on that day eighty-five people who wore a linen ephod.

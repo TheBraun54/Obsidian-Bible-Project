@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Amasa took no heed to the sword that was in Joab's hand: so he smote him therewith in the body, and shed out his bowels to the ground, and struck him not again; and he died. And Joab and Abishai his brother pursued after Sheba the son of Bichri.
+But Amasa took no heed to the sword that was in Joab's hand. So he struck him with it in the body, and shed out his bowels to the ground, and didn't strike him again; and he died. Joab and Abishai his brother pursued after Sheba the son of Bichri.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who stilleth the roaring of the seas, The roaring of their waves, And the tumult of the peoples.
+who stills the roaring of the seas, the roaring of their waves, and the turmoil of the nations.

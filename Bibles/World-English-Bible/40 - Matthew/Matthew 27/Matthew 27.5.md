@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cast down the pieces of silver into the sanctuary, and departed; and he went away and hanged himself.
+He threw down the pieces of silver in the sanctuary, and departed. He went away and hanged himself.

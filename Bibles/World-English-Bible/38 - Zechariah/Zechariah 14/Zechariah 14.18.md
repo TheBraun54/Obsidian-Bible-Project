@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the family of Egypt go not up, and come not, neither [shall it be] upon them; there shall be the plague wherewith Jehovah will smite the nations that go not up to keep the feast of tabernacles.
+If the family of Egypt doesn't go up, and doesn't come, neither will it rain on them. This will be the plague with which Yahweh will strike the nations that don't go up to keep the feast of tents.

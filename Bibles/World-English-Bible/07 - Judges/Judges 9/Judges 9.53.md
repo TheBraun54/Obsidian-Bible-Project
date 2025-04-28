@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain woman cast an upper millstone upon Abimelech's head, and brake his skull.
+A certain woman cast an upper millstone on Abimelech's head, and broke his skull.

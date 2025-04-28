@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one cherub at the one end, and one cherub at the other end: of one piece with the mercy-seat made he the cherubim at the two ends thereof.
+one cherub at the one end, and one cherub at the other end. He made the cherubim of one piece with the mercy seat at its two ends.

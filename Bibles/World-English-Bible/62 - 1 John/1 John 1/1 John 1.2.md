@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(and the life was manifested, and we have seen, and bear witness, and declare unto you the life, the eternal [life], which was with the Father, and was manifested unto us);
+(and the life was revealed, and we have seen, and testify, and declare to you the life, the eternal life, which was with the Father, and was revealed to us);

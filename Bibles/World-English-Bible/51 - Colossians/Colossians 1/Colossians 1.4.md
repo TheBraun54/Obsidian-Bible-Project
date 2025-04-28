@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having heard of your faith in Christ Jesus, and of the love which ye have toward all the saints,
+having heard of your faith in Christ Jesus, and of the love which you have toward all the saints,

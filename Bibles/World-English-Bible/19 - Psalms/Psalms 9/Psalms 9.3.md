@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When mine enemies turn back, They stumble and perish at thy presence.
+When my enemies turn back, they stumble and perish in your presence.

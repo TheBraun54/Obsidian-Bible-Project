@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye eat the fat, and ye clothe you with the wool, ye kill the fatlings; but ye feed not the sheep.
+You eat the fat, and you clothe yourself with the wool, you kill the fatlings; but you don't feed the sheep.

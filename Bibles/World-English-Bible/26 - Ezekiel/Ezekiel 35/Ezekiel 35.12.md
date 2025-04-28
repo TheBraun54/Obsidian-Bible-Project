@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt know that I, Jehovah, have heard all thy revilings which thou hast spoken against the mountains of Israel, saying, They are laid desolate, they are given us to devour.
+You shall know that I, Yahweh, have heard all your insults which you have spoken against the mountains of Israel, saying, They are laid desolate, they have been given us to devour.

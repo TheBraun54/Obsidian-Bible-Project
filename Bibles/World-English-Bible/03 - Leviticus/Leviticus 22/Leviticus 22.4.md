@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What man soever of the seed of Aaron is a leper, or hath an issue; he shall not eat of the holy things, until he be clean. And whoso toucheth anything that is unclean by the dead, or a man whose seed goeth from him;
+"'Whoever of the seed of Aaron is a leper or has an issue; he shall not eat of the holy things, until he is clean. Whoever touches anything that is unclean by the dead, or a man whose seed goes from him;

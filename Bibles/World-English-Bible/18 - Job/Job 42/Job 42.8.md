@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, take unto you seven bullocks and seven rams, and go to my servant Job, and offer up for yourselves a burnt-offering; and my servant Job shall pray for you; for him will I accept, that I deal not with you after your folly; for ye have not spoken of me the thing that is right, as my servant Job hath.
+Now therefore, take to yourselves seven bulls and seven rams, and go to my servant Job, and offer up for yourselves a burnt offering; and my servant Job shall pray for you, for I will accept him, that I not deal with you according to your folly. For you have not spoken of me the thing that is right, as my servant Job has."

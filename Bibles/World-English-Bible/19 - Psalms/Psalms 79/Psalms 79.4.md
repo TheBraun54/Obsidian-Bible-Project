@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We are become a reproach to our neighbors, A scoffing and derision to them that are round about us.
+We have become a reproach to our neighbors, a scoffing and derision to those who are around us.

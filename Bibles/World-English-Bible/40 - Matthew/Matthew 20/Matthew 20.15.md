@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it not lawful for me to do what I will with mine own? or is thine eye evil, because I am good?
+Isn't it lawful for me to do what I want to with what I own? Or is your eye evil, because I am good?'

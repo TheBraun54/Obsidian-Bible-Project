@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the golden tumors which the Philistines returned for a trespass-offering unto Jehovah: for Ashdod one, for Gaza one, for Ashkelon one, for Gath one, for Ekron one;
+These are the golden tumors which the Philistines returned for a trespass offering to Yahweh: for Ashdod one, for Gaza one, for Ashkelon one, for Gath one, for Ekron one;

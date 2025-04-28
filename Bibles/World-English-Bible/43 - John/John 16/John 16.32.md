@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the hour cometh, yea, is come, that ye shall be scattered, every man to his own, and shall leave me alone: and [yet] I am not alone, because the Father is with me.
+Behold, the time is coming, yes, and has now come, that you will be scattered, everyone to his own place, and you will leave me alone. Yet I am not alone, because the Father is with me.

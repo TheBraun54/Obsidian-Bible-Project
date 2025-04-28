@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless if thou warn the righteous man, that the righteous sin not, and he doth not sin, he shall surely live, because he took warning; and thou hast delivered thy soul.
+Nevertheless if you warn the righteous man, that the righteous not sin, and he does not sin, he shall surely live, because he took warning; and you have delivered your soul.

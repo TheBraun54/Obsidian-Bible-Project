@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, How can I, except some one shall guide me? And he besought Philip to come up and sit with him.
+He said, "How can I, unless someone explains it to me?" He begged Philip to come up and sit with him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Pharisees therefore said among themselves, Behold how ye prevail nothing: lo, the world is gone after him.
+The Pharisees therefore said among themselves, "See how you accomplish nothing. Behold, the world has gone after him."

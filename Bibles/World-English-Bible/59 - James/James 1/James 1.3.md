@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Knowing that the proving of your faith worketh patience.
+knowing that the testing of your faith produces endurance.

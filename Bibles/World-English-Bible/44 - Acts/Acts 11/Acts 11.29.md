@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples, every man according to his ability, determined to send relief unto the brethren that dwelt in Judea:
+As any of the disciples had plenty, each determined to send relief to the brothers who lived in Judea;

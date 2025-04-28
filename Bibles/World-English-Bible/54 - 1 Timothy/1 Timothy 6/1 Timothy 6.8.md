@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but having food and covering we shall be therewith content.
+But having food and clothing, we will be content with that.

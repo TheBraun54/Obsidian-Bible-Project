@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Beth-nimrah, and Beth-haran: fortified cities, and folds for sheep.
+and Beth Nimrah, and Beth Haran: fortified cities, and folds for sheep.

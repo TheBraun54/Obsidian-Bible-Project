@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as also in all [his] epistles, speaking in them of these things; wherein are some things hard to be understood, which the ignorant and unstedfast wrest, as [they do] also the other scriptures, unto their own destruction.
+as also in all of his letters, speaking in them of these things. In those, there are some things that are hard to understand, which the ignorant and unsettled twist, as they also do to the other Scriptures, to their own destruction.

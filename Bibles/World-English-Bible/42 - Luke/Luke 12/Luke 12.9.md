@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he that denieth me in the presence of men shall be denied in the presence of the angels of God.
+but he who denies me in the presence of men will be denied in the presence of the angels of God.

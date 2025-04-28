@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt ascend, thou shalt come like a storm, thou shalt be like a cloud to cover the land, thou, and all thy hordes, and many peoples with thee.
+You shall ascend, you shall come like a storm, you shall be like a cloud to cover the land, you, and all your hordes, and many peoples with you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou utter this our business, then we shall be guiltless of thine oath which thou hast made us to swear.
+But if you talk about this business of ours, then we shall be guiltless of your oath which you have made us to swear."

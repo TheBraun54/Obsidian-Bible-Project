@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Jeconiah, the captive: Shealtiel his son,
+The sons of Jeconiah, the captive: Shealtiel his son,

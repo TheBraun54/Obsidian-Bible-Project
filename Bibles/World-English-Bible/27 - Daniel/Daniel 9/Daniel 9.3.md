@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I set my face unto the Lord God, to seek by prayer and supplications, with fasting and sackcloth and ashes.
+I set my face to the Lord God, to seek by prayer and petitions, with fasting and sackcloth and ashes.

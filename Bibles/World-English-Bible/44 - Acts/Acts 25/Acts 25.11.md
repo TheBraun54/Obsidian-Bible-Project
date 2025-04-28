@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If then I am a wrong-doer, and have committed anything worthy of death, I refuse not to die; but if none of those things is [true] whereof these accuse me, no man can give me up unto them. I appeal unto Caesar.
+For if I have done wrong, and have committed anything worthy of death, I don't refuse to die; but if none of those things is true that they accuse me of, no one can give me up to them. I appeal to Caesar!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast sent widows away empty, And the arms of the fatherless have been broken.
+You have sent widows away empty, and the arms of the fatherless have been broken.

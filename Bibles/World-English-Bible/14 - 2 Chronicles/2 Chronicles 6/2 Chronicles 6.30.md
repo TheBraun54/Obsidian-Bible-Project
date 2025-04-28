@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hear thou from heaven thy dwelling-place and forgive, and render unto every man according to all his ways, whose heart thou knowest; (for thou, even thou only, knowest the hearts of the children of men;)
+then hear from heaven, your dwelling place and forgive, and render to every man according to all his ways, whose heart you know; (for you, even you only, know the hearts of the children of men;)

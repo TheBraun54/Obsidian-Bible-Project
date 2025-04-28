@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, they may gather together, but not by me: whosoever shall gather together against thee shall fall because of thee.
+Behold, they may gather together, but not by me: whoever shall gather together against you shall fall because of you.

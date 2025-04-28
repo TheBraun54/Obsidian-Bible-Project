@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his tail draweth the third part of the stars of heaven, and did cast them to the earth: and the dragon standeth before the woman that is about to be delivered, that when she is delivered he may devour her child.
+His tail drew one third of the stars of the sky, and threw them to the earth. The dragon stood before the woman who was about to give birth, so that when she gave birth he might devour her child.

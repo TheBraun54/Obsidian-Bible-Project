@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest thou make a covenant with the inhabitants of the land, and they play the harlot after their gods, and sacrifice unto their gods, and one call thee and thou eat of his sacrifice;
+"Don't make a covenant with the inhabitants of the land, lest they play the prostitute after their gods, and sacrifice to their gods, and one call you and you eat of his sacrifice;

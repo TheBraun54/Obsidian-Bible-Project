@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, Ezra, after the wisdom of thy God that is in thy hand, appoint magistrates and judges, who may judge all the people that are beyond the River, all such as know the laws of thy God; and teach ye him that knoweth them not.
+You, Ezra, after the wisdom of your God who is in your hand, appoint magistrates and judges, who may judge all the people who are beyond the River, all such as know the laws of your God; and teach him who doesn't know them.

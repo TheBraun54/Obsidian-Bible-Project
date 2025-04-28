@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thorns [and] snares are in the way of the perverse: He that keepeth his soul shall be far from them.
+Thorns and snares are in the path of the wicked: whoever guards his soul stays from them.

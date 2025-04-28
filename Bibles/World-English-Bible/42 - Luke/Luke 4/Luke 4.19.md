@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To proclaim the acceptable year of the Lord.
+and to proclaim the acceptable year of the Lord."

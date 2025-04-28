@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Daniel unto the king, O king, live for ever.
+Then Daniel said to the king, O king, live forever.

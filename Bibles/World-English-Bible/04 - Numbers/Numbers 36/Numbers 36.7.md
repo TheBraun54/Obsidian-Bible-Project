@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall no inheritance of the children of Israel remove from tribe to tribe; for the children of Israel shall cleave every one to the inheritance of the tribe of his fathers.
+So shall no inheritance of the children of Israel remove from tribe to tribe; for the children of Israel shall all keep the inheritance of the tribe of his fathers.

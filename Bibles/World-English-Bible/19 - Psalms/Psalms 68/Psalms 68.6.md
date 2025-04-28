@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God setteth the solitary in families: He bringeth out the prisoners into prosperity; But the rebellious dwell in a parched land.
+God sets the lonely in families. He brings out the prisoners with singing, but the rebellious dwell in a sun-scorched land.

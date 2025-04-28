@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah appeared in the Tent in a pillar of cloud: and the pillar of cloud stood over the door of the Tent.
+Yahweh appeared in the Tent in a pillar of cloud: and the pillar of cloud stood over the door of the Tent.

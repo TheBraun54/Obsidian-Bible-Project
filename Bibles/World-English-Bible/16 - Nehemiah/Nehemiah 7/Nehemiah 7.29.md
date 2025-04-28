@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Kiriath-jearim, Chephirah, and Beeroth, seven hundred forty and three.
+The men of Kiriath Jearim, Chephirah, and Beeroth, seven hundred forty-three.

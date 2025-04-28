@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the second month, on the seven and twentieth day of the month, was the earth dry.
+In the second month, on the twenty-seventh day of the month, the earth was dry.

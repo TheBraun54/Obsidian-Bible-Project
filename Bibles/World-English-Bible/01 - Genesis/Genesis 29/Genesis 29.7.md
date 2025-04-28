@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Lo, it is yet high day, neither is it time that the cattle should be gathered together: water ye the sheep, and go and feed them.
+He said, "Behold, it is still the middle of the day, not time to gather the livestock together. Water the sheep, and go and feed them."

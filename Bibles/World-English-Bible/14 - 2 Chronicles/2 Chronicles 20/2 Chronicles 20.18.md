@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat bowed his head with his face to the ground; and all Judah and the inhabitants of Jerusalem fell down before Jehovah, worshipping Jehovah.
+Jehoshaphat bowed his head with his face to the ground; and all Judah and the inhabitants of Jerusalem fell down before Yahweh, worshipping Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter said, Man, I know not what thou sayest. And immediately, while he yet spake, the cock crew.
+But Peter said, "Man, I don't know what you are talking about!" Immediately, while he was still speaking, a rooster crowed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And so thou shalt do on the seventh [day] of the month for every one that erreth, and for him that is simple: so shall ye make atonement for the house.
+So you shall do on the seventh [day] of the month for everyone who errs, and for him who is simple: so you shall make atonement for the house.

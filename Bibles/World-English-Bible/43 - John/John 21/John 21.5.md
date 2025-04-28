@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore saith unto them, Children, have ye aught to eat? They answered him, No.
+Jesus therefore said to them, "Children, have you anything to eat?" They answered him, "No."

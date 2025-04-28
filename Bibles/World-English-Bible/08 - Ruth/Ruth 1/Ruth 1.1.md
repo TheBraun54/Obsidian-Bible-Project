@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the days when the judges judged, that there was a famine in the land. And a certain man of Beth-lehem-judah went to sojourn in the country of Moab, he, and his wife, and his two sons.
+It happened in the days when the judges judged, that there was a famine in the land. A certain man of Bethlehem Judah went to live in the country of Moab, he, and his wife, and his two sons.

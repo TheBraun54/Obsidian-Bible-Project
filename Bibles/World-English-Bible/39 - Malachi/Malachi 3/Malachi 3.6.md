@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I, Jehovah, change not; therefore ye, O sons of Jacob, are not consumed.
+"For I, Yahweh, don't change; therefore you, sons of Jacob, are not consumed.

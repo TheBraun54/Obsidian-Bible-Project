@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord said, I will bring again from Bashan, I will bring [them] again from the depths of the sea;
+The Lord said, "I will bring you again from Bashan, I will bring you again from the depths of the sea;

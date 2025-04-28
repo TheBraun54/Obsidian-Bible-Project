@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And hide not thy face from thy servant; For I am in distress; answer me speedily.
+Don't hide your face from your servant, for I am in distress. Answer me speedily!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will command the blessing upon thee in thy barns, and in all that thou puttest thy hand unto; and he will bless thee in the land which Jehovah thy God giveth thee.
+Yahweh will command the blessing on you in your barns, and in all that you put your hand to; and he will bless you in the land which Yahweh your God gives you.

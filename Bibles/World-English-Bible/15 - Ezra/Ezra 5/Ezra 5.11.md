@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus they returned us answer, saying, We are the servants of the God of heaven and earth, and are building the house that was builded these many years ago, which a great king of Israel builded and finished.
+Thus they returned us answer, saying, "We are the servants of the God of heaven and earth, and are building the house that was built these many years ago, which a great king of Israel built and finished.

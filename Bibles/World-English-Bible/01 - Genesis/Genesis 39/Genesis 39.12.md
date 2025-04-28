@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she caught him by his garment, saying, Lie with me: and he left his garment in her hand, and fled, and got him out.
+She caught him by his garment, saying, "Lie with me!" He left his garment in her hand, and ran outside.

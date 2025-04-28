@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the manna ceased on the morrow, after they had eaten of the produce of the land; neither had the children of Israel manna any more; but they did eat of the fruit of the land of Canaan that year.
+The manna ceased on the next day, after they had eaten of the produce of the land. The children of Israel didn't have manna any more; but they ate of the fruit of the land of Canaan that year.

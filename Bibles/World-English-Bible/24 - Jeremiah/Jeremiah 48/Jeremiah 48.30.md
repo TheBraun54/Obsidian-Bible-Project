@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know his wrath, saith Jehovah, that it is nought; his boastings have wrought nothing.
+I know his wrath, says Yahweh, that it is nothing; his boastings have worked nothing.

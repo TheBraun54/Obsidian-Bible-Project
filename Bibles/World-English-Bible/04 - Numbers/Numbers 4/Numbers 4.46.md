@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All those that were numbered of the Levites, whom Moses and Aaron and the princes of Israel numbered, by their families, and by their fathers' houses,
+All those who were numbered of the Levites, whom Moses and Aaron and the princes of Israel numbered, by their families, and by their fathers' houses,

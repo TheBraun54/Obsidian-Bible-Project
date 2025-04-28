@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham called the name of that place Jehovah-jireh: as it is said to this day, In the mount of Jehovah it shall be provided.
+Abraham called the name of that place Yahweh Will Provide. As it is said to this day, "On Yahweh's mountain, it will be provided."

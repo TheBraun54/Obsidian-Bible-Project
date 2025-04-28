@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Drink, my lord: and she hasted, and let down her pitcher upon her hand, and gave him drink.
+She said, "Drink, my lord." She hurried, and let down her pitcher on her hand, and gave him drink.

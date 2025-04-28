@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou also shalt be drunken; thou shalt be hid; thou also shalt seek a stronghold because of the enemy.
+You also will be drunken. You will be hidden. You also will seek a stronghold because of the enemy.

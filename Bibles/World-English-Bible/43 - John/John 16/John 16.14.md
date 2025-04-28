@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall glorify me: for he shall take of mine, and shall declare [it] unto you.
+He will glorify me, for he will take from what is mine, and will declare it to you.

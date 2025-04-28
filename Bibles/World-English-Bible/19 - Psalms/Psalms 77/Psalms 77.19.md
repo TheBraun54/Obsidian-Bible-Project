@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy way was in the sea, And thy paths in the great waters, And thy footsteps were not known.
+Your way was through the sea; your paths through the great waters. Your footsteps were not known.

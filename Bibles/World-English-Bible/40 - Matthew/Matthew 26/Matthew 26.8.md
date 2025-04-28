@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the disciples saw it, they had indignation, saying, To what purpose is this waste?
+But when his disciples saw this, they were indignant, saying, "Why this waste?

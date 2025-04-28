@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had brought him down, behold, they were spread abroad over all the ground, eating and drinking, and dancing, because of all the great spoil that they had taken out of the land of the Philistines, and out of the land of Judah.
+When he had brought him down, behold, they were spread around over all the ground, eating, drinking, and dancing, because of all the great spoil that they had taken out of the land of the Philistines, and out of the land of Judah.

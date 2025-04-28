@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I lifted up mine eyes, and saw, and, behold, a man with a measuring line in his hand.
+I lifted up my eyes, and saw, and behold, a man with a measuring line in his hand.

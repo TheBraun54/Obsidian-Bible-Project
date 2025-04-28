@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So also it is written, The first man Adam became a living soul. The last Adam [became] a life-giving spirit.
+So also it is written, "The first man, Adam, became a living soul." The last Adam became a life-giving spirit.

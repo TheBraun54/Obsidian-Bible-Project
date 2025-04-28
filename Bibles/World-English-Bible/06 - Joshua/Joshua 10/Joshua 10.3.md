@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Adoni-zedek king of Jerusalem sent unto Hoham king of Hebron, and unto Piram king of Jarmuth, and unto Japhia king of Lachish, and unto Debir king of Eglon, saying,
+Therefore Adoni-Zedek king of Jerusalem sent to Hoham king of Hebron, to Piram king of Jarmuth, to Japhia king of Lachish, and to Debir king of Eglon, saying,

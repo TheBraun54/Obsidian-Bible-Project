@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say not unto thy neighbor, Go, and come again, And to-morrow I will give; When thou hast it by thee.
+Don't say to your neighbor, "Go, and come again; tomorrow I will give it to you," when you have it by you.

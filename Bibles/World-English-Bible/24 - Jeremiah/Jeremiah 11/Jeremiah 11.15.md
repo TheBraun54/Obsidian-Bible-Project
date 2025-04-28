@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What hath my beloved to do in my house, seeing she hath wrought lewdness [with] many, and the holy flesh is passed from thee? when thou doest evil, then thou rejoicest.
+What has my beloved to do in my house, since she has worked lewdness [with] many, and the holy flesh is passed from you? when you do evil, then you rejoice.

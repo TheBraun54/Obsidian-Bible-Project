@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Until I find out a place for Jehovah, A tabernacle for the Mighty One of Jacob.
+until I find out a place for Yahweh, a dwelling for the Mighty One of Jacob."

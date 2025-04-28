@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I look, there is no man: even among them there is no counsellor, that, when I ask of them, can answer a word.
+When I look, there is no man; even among them there is no counselor who, when I ask of them, can answer a word.

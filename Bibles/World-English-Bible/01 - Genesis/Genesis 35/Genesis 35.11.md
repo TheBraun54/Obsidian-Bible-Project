@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto him, I am God Almighty: be fruitful and multiply; a nation and a company of nations shall be of thee, and kings shall come out of thy loins;
+God said to him, "I am God Almighty. Be fruitful and multiply. A nation and a company of nations will be from you, and kings will come out of your body.

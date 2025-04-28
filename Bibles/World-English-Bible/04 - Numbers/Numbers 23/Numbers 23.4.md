@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God met Balaam: and he said unto him, I have prepared the seven altars, and I have offered up a bullock and a ram on every altar.
+God met Balaam: and he said to him, "I have prepared the seven altars, and I have offered up a bull and a ram on every altar."

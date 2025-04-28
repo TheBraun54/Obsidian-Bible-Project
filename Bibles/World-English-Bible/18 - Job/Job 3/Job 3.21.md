@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who long for death, but it cometh not, And dig for it more than for hid treasures;
+Who long for death, but it doesn't come; and dig for it more than for hidden treasures,

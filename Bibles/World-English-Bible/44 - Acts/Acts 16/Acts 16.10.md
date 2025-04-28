@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had seen the vision, straightway we sought to go forth into Macedonia, concluding that God had called us to preach the gospel to them.
+When he had seen the vision, immediately we sought to go out to Macedonia, concluding that the Lord had called us to preach the Good News to them.

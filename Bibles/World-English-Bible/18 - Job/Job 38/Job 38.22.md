@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou entered the treasuries of the snow, Or hast thou seen the treasures of the hail,
+Have you entered the treasuries of the snow, or have you seen the treasures of the hail,

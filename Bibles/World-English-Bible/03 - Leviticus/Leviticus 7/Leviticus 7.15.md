@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the flesh of the sacrifice of his peace-offerings for thanksgiving shall be eaten on the day of his oblation; he shall not leave any of it until the morning.
+The flesh of the sacrifice of his peace offerings for thanksgiving shall be eaten on the day of his offering. He shall not leave any of it until the morning.

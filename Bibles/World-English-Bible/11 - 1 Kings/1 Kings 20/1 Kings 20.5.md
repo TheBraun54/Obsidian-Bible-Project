@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the messengers came again, and said, Thus speaketh Ben-hadad, saying, I sent indeed unto thee, saying, Thou shalt deliver me thy silver, and thy gold, and thy wives, and thy children;
+The messengers came again, and said, "Ben Hadad says, 'I sent indeed to you, saying, "You shall deliver me your silver, and your gold, and your wives, and your children;

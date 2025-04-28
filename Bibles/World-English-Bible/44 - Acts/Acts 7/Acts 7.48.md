@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit the Most High dwelleth not in [houses] made with hands; as saith the prophet,
+However, the Most High doesn't dwell in temples made with hands, as the prophet says,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise Jehovah from the earth, Ye sea-monsters, and all deeps.
+Praise Yahweh from the earth, you great sea creatures, and all depths!

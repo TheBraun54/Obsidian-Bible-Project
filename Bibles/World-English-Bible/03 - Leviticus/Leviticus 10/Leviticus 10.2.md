@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came forth fire from before Jehovah, and devoured them, and they died before Jehovah.
+And fire came forth from before Yahweh, and devoured them, and they died before Yahweh.

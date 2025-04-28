@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As it is written in the law of Moses, all this evil is come upon us: yet have we not entreated the favor of Jehovah our God, that we should turn from our iniquities, and have discernment in thy truth.
+As it is written in the law of Moses, all this evil is come on us: yet have we not entreated the favor of Yahweh our God, that we should turn from our iniquities, and have discernment in your truth.

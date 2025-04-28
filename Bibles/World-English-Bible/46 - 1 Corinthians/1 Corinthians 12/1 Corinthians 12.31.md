@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But desire earnestly the greater gifts. And moreover a most excellent way show I unto you.
+But earnestly desire the best gifts. Moreover, I show a most excellent way to you.

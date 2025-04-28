@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who showest lovingkindness unto thousands, and recompensest the iniquity of the fathers into the bosom of their children after them; the great, the mighty God, Jehovah of hosts is his name;
+who show loving kindness to thousands, and recompense the iniquity of the fathers into the bosom of their children after them; the great, the mighty God, Yahweh of Armies is his name;

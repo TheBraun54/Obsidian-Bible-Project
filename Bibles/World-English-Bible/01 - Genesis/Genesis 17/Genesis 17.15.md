@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto Abraham, As for Sarai thy wife, thou shalt not call her name Sarai, but Sarah shall her name be.
+God said to Abraham, "As for Sarai your wife, you shall not call her name Sarai, but her name will be Sarah.

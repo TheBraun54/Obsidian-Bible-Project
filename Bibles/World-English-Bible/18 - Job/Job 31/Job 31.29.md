@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have rejoiced at the destruction of him that hated me, Or lifted up myself when evil found him;
+"If I have rejoiced at the destruction of him who hated me, or lifted up myself when evil found him;

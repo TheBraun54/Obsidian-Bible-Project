@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou shalt vow a vow unto Jehovah thy God, thou shalt not be slack to pay it: for Jehovah thy God will surely require it of thee; and it would be sin in thee.
+When you shall vow a vow to Yahweh your God, you shall not be slack to pay it: for Yahweh your God will surely require it of you; and it would be sin in you.

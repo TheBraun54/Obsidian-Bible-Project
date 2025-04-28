@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Barzillai was a very aged man, even fourscore years old: and he had provided the king with sustenance while he lay at Mahanaim; for he was a very great man.
+Now Barzillai was a very aged man, even eighty years old: and he had provided the king with sustenance while he lay at Mahanaim; for he was a very great man.

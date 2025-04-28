@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Cornelius said, Four days ago, until this hour, I was keeping the ninth hour of prayer in my house; and behold, a man stood before me in bright apparel,
+Cornelius said, "Four days ago, I was fasting until this hour, and at the ninth hour, I prayed in my house, and behold, a man stood before me in bright clothing,

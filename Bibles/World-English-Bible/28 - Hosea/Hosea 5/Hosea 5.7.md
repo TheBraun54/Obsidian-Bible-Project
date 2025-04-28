@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have dealt treacherously against Jehovah; for they have borne strange children: now shall the new moon devour them with their fields.
+They are unfaithful to Yahweh; for they have borne illegitimate children. Now the new moon will devour them with their fields.

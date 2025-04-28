@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man that heareth me, Watching daily at my gates, Waiting at the posts of my doors.
+Blessed is the man who hears me, watching daily at my gates, waiting at my door posts.

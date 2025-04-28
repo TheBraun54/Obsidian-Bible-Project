@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto him, Thou hast both seen him, and he it is that speaketh with thee.
+Jesus said to him, "You have both seen him, and it is he who speaks with you."

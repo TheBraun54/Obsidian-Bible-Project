@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest by any means, if there come with me any of Macedonia and find you unprepared, we (that we say not, ye) should be put to shame in this confidence.
+so that I won't by any means, if there come with me any of Macedonia and find you unprepared, we (to say nothing of you) should be disappointed in this confident boasting.

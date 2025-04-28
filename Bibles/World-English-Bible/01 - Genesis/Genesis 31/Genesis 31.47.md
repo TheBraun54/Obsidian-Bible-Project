@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban called it Jegar-saha-dutha: but Jacob called it Galeed.
+Laban called it Jegar Sahadutha, but Jacob called it Galeed.

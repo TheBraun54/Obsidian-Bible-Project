@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unless thy law had been my delight, I should then have perished in mine affliction.
+Unless your law had been my delight, I would have perished in my affliction.

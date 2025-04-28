@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the four chief porters, who were Levites, were in an office of trust, and were over the chambers and over the treasuries in the house of God.
+for the four chief porters, who were Levites, were in an office of trust, and were over the rooms and over the treasuries in the house of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I will profane the princes of the sanctuary; and I will make Jacob a curse, and Israel a reviling.
+Therefore I will profane the princes of the sanctuary; and I will make Jacob a curse, and Israel an insult."

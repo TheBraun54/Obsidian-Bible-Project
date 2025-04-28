@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Take nothing for your journey, neither staff, nor wallet, nor bread, nor money; neither have two coats.
+He said to them, "Take nothing for your journey--neither staffs, nor wallet, nor bread, nor money; neither have two coats apiece.

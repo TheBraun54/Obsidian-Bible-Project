@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Paul unto him, God shall smite thee, thou whited wall: and sittest thou to judge me according to the law, and commandest me to be smitten contrary to the law?
+Then Paul said to him, "God will strike you, you whitewashed wall! Do you sit to judge me according to the law, and command me to be struck contrary to the law?"

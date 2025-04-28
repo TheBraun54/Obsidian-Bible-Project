@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Far from it; thou shalt not die: behold, my father doeth nothing either great or small, but that he discloseth it unto me; and why should my father hide this thing from me? it is not so.
+He said to him, "Far from it; you shall not die. Behold, my father does nothing either great or small, but that he discloses it to me; and why should my father hide this thing from me? It is not so."

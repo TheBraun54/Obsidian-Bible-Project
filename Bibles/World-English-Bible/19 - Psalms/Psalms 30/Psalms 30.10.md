@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O Jehovah, and have mercy upon me: Jehovah, be thou my helper.
+Hear, Yahweh, and have mercy on me. Yahweh, be my helper."

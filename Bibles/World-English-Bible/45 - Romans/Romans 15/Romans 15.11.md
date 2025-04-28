@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again, Praise the Lord, all ye Gentiles; And let all the peoples praise him.
+Again, "Praise the Lord, all you Gentiles! Let all the peoples praise him."

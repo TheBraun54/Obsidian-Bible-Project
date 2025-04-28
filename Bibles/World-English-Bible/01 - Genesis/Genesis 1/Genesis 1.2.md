@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the earth was waste and void; and darkness was upon the face of the deep: and the Spirit of God moved upon the face of the waters.
+Now the earth was formless and empty. Darkness was on the surface of the deep. God's Spirit was hovering over the surface of the waters.

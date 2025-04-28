@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy gates also shall be open continually; they shall not be shut day nor night; that men may bring unto thee the wealth of the nations, and their kings led captive.
+Your gates also shall be open continually; they shall not be shut day nor night; that men may bring to you the wealth of the nations, and their kings led captive.

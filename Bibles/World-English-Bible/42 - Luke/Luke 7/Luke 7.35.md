@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And wisdom is justified of all her children.
+Wisdom is justified by all her children."

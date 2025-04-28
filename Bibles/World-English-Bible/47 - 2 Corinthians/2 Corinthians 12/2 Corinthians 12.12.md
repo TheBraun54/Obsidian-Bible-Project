@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Truly the signs of an apostle were wrought among you in all patience, by signs and wonders and mighty works.
+Truly the signs of an apostle were worked among you in all patience, in signs and wonders and mighty works.

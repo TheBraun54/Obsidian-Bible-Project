@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Paul cried with a loud voice, saying, Do thyself no harm: for we are all here.
+But Paul cried with a loud voice, saying, "Don't harm yourself, for we are all here!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and spake to them after the counsel of the young men, saying, My father made your yoke heavy, but I will add thereto: my father chastised you with whips, but I [will chastise you] with scorpions.
+and spoke to them after the counsel of the young men, saying, "My father made your yoke heavy, but I will add to it. My father chastised you with whips, but I will chastise you with scorpions."

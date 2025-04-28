@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eyes do fail with tears, my heart is troubled; My liver is poured upon the earth, because of the destruction of the daughter of my people, Because the young children and the sucklings swoon in the streets of the city.
+My eyes do fail with tears, my heart is troubled; My liver is poured on the earth, because of the destruction of the daughter of my people, Because the young children and the infants swoon in the streets of the city.

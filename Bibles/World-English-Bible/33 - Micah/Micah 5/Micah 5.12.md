@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cut off witchcrafts out of thy hand; and thou shalt have no [more] soothsayers:
+I will destroy witchcraft from your hand; and you shall have no soothsayers.

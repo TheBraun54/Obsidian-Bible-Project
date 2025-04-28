@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thy servants will pass over, every man that is armed for war, before Jehovah to battle, as my lord saith.
+but your servants will pass over, every man who is armed for war, before Yahweh to battle, as my lord says."

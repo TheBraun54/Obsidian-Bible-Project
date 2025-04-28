@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have heard tidings from Jehovah, and an ambassador is sent among the nations, [saying], Gather yourselves together, and come against her, and rise up to the battle.
+I have heard news from Yahweh, and an ambassador is sent among the nations, [saying], Gather yourselves together, and come against her, and rise up to the battle.

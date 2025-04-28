@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall know that I am Jehovah, when I have dealt with you for my name's sake, not according to your evil ways, nor according to your corrupt doings, O ye house of Israel, saith the Lord Jehovah.
+You shall know that I am Yahweh, when I have dealt with you for my name's sake, not according to your evil ways, nor according to your corrupt doings, you house of Israel, says the Lord Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Lord said unto him, Go thy way: for he is a chosen vessel unto me, to bear my name before the Gentiles and kings, and the children of Israel:
+But the Lord said to him, "Go your way, for he is my chosen vessel to bear my name before the nations and kings, and the children of Israel.

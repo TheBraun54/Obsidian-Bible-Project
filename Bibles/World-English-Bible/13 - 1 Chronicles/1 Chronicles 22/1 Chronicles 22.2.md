@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David commanded to gather together the sojourners that were in the land of Israel; and he set masons to hew wrought stones to build the house of God.
+David gave orders to gather together the foreigners who were in the land of Israel; and he set masons to cut worked stones to build the house of God.

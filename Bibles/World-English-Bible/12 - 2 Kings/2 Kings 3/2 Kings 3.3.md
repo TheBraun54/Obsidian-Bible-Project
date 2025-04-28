@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless he cleaved unto the sins of Jeroboam the son of Nebat, wherewith he made Israel to sin; he departed not therefrom.
+Nevertheless he held to the sins of Jeroboam the son of Nebat, with which he made Israel to sin; he didn't depart from it.

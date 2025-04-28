@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-pursued, yet not forsaken; smitten down, yet not destroyed;
+pursued, yet not forsaken; struck down, yet not destroyed;

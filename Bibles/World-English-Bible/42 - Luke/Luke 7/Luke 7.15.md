@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that was dead sat up, and began to speak. And he gave him to his mother.
+He who was dead sat up, and began to speak. And he gave him to his mother.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he be found, he shall restore sevenfold; He shall give all the substance of his house.
+but if he is found, he shall restore seven times. He shall give all the wealth of his house.

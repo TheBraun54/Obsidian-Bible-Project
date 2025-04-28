@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When my steps were washed with butter, And the rock poured me out streams of oil!
+when my steps were washed with butter, and the rock poured out streams of oil for me,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the first year of Cyrus the king, Cyrus the king made a decree: Concerning the house of God at Jerusalem, let the house be builded, the place where they offer sacrifices, and let the foundations thereof be strongly laid; the height thereof threescore cubits, and the breadth thereof threescore cubits;
+In the first year of Cyrus the king, Cyrus the king made a decree: Concerning the house of God at Jerusalem, let the house be built, the place where they offer sacrifices, and let its foundations be strongly laid; its height sixty cubits, and its breadth sixty cubits;

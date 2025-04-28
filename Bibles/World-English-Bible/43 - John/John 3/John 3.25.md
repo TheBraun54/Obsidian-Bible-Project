@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There arose therefore a questioning on the part of John's disciples with a Jew about purifying.
+There arose therefore a questioning on the part of John's disciples with some Jews about purification.

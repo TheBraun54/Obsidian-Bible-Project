@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is their strength, And he is a stronghold of salvation to his anointed.
+Yahweh is their strength. He is a stronghold of salvation to his anointed.

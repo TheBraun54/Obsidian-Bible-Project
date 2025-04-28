@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, ye have taken away my gods which I made, and the priest, and are gone away, and what have I more? and how then say ye unto me, What aileth thee?
+He said, "You have taken away my gods which I made, and the priest, and have gone away, and what more do I have? How then do you say to me, 'What ails you?'"

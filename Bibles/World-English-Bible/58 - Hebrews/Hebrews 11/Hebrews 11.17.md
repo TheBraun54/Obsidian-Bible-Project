@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Abraham, being tried, offered up Isaac: yea, he that had gladly received the promises was offering up his only begotten [son] ;
+By faith, Abraham, being tested, offered up Isaac. Yes, he who had gladly received the promises was offering up his one and only son;

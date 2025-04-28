@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have seen what I did unto the Egyptians, and how I bare you on eagles' wings, and brought you unto myself.
+'You have seen what I did to the Egyptians, and how I bore you on eagles' wings, and brought you to myself.

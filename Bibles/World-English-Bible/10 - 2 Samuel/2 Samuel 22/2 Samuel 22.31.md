@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for God, his way is perfect: The word of Jehovah is tried; He is a shield unto all them that take refuge in him.
+As for God, his way is perfect. The word of Yahweh is tested. He is a shield to all those who take refuge in him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And go quickly, and tell his disciples, He is risen from the dead; and lo, he goeth before you into Galilee; there shall ye see him: lo, I have told you.
+Go quickly and tell his disciples, 'He has risen from the dead, and behold, he goes before you into Galilee; there you will see him.' Behold, I have told you."

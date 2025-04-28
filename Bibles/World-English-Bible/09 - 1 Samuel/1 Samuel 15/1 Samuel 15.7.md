@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul smote the Amalekites, from Havilah as thou goest to Shur, that is before Egypt.
+Saul struck the Amalekites, from Havilah as you go to Shur, that is before Egypt.

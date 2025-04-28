@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The stranger that sojourneth with you shall be unto you as the home-born among you, and thou shalt love him as thyself; for ye were sojourners in the land of Egypt: I am Jehovah your God.
+The stranger who lives as a foreigner with you shall be to you as the native-born among you, and you shall love him as yourself; for you lived as foreigners in the land of Egypt. I am Yahweh your God.

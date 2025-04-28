@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Jesus, remember me when thou comest in thy kingdom.
+He said to Jesus, "Lord, remember me when you come into your Kingdom."

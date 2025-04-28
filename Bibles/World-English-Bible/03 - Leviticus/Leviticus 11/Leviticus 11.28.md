@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that beareth the carcass of them shall wash his clothes, and be unclean until the even: they are unclean unto you.
+He who carries their carcass shall wash his clothes, and be unclean until the evening. They are unclean to you.

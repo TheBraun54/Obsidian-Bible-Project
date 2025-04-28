@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will establish his kingdom for ever, if he be constant to do my commandments and mine ordinances, as at this day.
+I will establish his kingdom forever, if he continues to do my commandments and my ordinances, as at this day.'

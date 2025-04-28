@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the trees said unto the vine, Come thou, and reign over us.
+"The trees said to the vine, 'Come and reign over us.'

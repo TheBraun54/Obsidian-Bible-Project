@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will give strength unto his people; Jehovah will bless his people with peace.
+Yahweh will give strength to his people. Yahweh will bless his people with peace. A Psalm. A Song for the Dedication of the Temple. By David.

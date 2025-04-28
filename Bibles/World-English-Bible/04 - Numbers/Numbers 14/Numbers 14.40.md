@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rose up early in the morning, and gat them up to the top of the mountain, saying, Lo, we are here, and will go up unto the place which Jehovah hath promised: for we have sinned.
+They rose up early in the morning, and went up to the top of the mountain, saying, "Behold, we are here, and will go up to the place which Yahweh has promised: for we have sinned."

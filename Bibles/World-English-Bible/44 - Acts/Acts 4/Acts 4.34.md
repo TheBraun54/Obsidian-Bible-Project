@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For neither was there among them any that lacked: for as many as were possessors of lands or houses sold them, and brought the prices of the things that were sold,
+For neither was there among them any who lacked, for as many as were owners of lands or houses sold them, and brought the proceeds of the things that were sold,

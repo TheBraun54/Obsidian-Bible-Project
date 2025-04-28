@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have refined thee, but not as silver; I have chosen thee in the furnace of affliction.
+Behold, I have refined you, but not as silver; I have chosen you in the furnace of affliction.

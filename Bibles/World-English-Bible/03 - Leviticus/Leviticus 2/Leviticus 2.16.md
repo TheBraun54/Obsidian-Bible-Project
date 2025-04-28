@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall burn the memorial of it, part of the bruised grain thereof, and part of the oil thereof, with all the frankincense thereof: it is an offering made by fire unto Jehovah.
+The priest shall burn as its memorial, part of its bruised grain, and part of its oil, along with all its frankincense: it is an offering made by fire to Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They slay the widow and the sojourner, And murder the fatherless.
+They kill the widow and the alien, and murder the fatherless.

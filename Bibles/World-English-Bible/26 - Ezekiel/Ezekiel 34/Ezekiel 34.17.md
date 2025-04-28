@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for you, O my flock, thus saith the Lord Jehovah: Behold, I judge between sheep and sheep, the rams and the he-goats.
+As for you, O my flock, thus says the Lord Yahweh: Behold, I judge between sheep and sheep, the rams and the male goats.

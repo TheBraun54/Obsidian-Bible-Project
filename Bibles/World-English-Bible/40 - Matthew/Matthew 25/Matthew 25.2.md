@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And five of them were foolish, and five were wise.
+Five of them were foolish, and five were wise.

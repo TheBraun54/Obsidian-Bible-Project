@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, Boaz came from Beth-lehem, and said unto the reapers, Jehovah be with you. And they answered him, Jehovah bless thee.
+Behold, Boaz came from Bethlehem, and said to the reapers, "Yahweh be with you." They answered him, "Yahweh bless you."

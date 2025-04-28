@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thou sayest, What advantage will it be unto thee? [And], What profit shall I have, more than if I had sinned?
+That you ask, 'What advantage will it be to you? What profit shall I have, more than if I had sinned?'

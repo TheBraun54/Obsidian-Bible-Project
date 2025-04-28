@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thy seed shall be as the dust of the earth, and thou shalt spread abroad to the west, and to the east, and to the north, and to the south: and in thee and in thy seed shall all the families of the earth be blessed.
+Your seed will be as the dust of the earth, and you will spread abroad to the west, and to the east, and to the north, and to the south. In you and in your seed will all the families of the earth be blessed.

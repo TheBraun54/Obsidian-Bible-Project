@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered him, I have spoken openly to the world; I ever taught in synagogues, and in the temple, where all the Jews come together; and in secret spake I nothing.
+Jesus answered him, "I spoke openly to the world. I always taught in synagogues, and in the temple, where the Jews always meet. I said nothing in secret.

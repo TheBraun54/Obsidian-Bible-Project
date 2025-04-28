@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Israel buried him, and mourned for him, according to the word of Jehovah, which he spake by his servant Ahijah the prophet.
+All Israel buried him, and mourned for him, according to the word of Yahweh, which he spoke by his servant Ahijah the prophet.

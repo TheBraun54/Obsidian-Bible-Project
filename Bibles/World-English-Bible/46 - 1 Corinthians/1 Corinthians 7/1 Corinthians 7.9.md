@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if they have not continency, let them marry: for it is better to marry than to burn.
+But if they don't have self-control, let them marry. For it's better to marry than to burn.

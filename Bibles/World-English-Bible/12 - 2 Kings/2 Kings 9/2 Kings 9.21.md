@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joram said, Make ready. And they made ready his chariot. And Joram king of Israel and Ahaziah king of Judah went out, each in his chariot, and they went out to meet Jehu, and found him in the portion of Naboth the Jezreelite.
+Joram said, "Get ready!" They got his chariot ready. Joram king of Israel and Ahaziah king of Judah went out, each in his chariot, and they went out to meet Jehu, and found him in the portion of Naboth the Jezreelite.

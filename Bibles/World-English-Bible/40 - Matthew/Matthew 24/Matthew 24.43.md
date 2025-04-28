@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But know this, that if the master of the house had known in what watch the thief was coming, he would have watched, and would not have suffered his house to be broken through.
+But know this, that if the master of the house had known in what watch of the night the thief was coming, he would have watched, and would not have allowed his house to be broken into.

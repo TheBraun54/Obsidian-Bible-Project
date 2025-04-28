@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Bless Jehovah, O my soul; And all that is within me, [bless] his holy name.
+Praise Yahweh, my soul! All that is within me, praise his holy name!

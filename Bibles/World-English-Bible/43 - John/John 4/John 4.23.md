@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and truth: for such doth the Father seek to be his worshippers.
+But the hour comes, and now is, when the true worshippers will worship the Father in spirit and truth, for the Father seeks such to be his worshippers.

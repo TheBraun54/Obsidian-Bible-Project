@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to hearken to the words of my servants the prophets, whom I send unto you, even rising up early and sending them, but ye have not hearkened;
+to listen to the words of my servants the prophets, whom I send to you, even rising up early and sending them, but you have not listened;

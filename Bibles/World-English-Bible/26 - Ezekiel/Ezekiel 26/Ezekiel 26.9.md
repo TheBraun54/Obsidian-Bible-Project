@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall set his battering engines against thy walls, and with his axes he shall break down thy towers.
+He shall set his battering engines against your walls, and with his axes he shall break down your towers.

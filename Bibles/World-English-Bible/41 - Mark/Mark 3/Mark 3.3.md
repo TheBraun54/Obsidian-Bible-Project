@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto the man that had his hand withered, Stand forth.
+He said to the man who had his hand withered, "Stand up."

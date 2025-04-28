@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and give them a charge unto their masters, saying, Thus saith Jehovah of hosts, the God of Israel, Thus shall ye say unto your masters:
+and give them a command to their masters, saying, Thus says Yahweh of Armies, the God of Israel, You shall tell your masters:

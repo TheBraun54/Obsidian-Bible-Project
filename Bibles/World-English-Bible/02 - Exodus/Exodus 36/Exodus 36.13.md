@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made fifty clasps of gold, and coupled the curtains one to another with the clasps: so the tabernacle was one.
+He made fifty clasps of gold, and coupled the curtains one to another with the clasps: so the tabernacle was a unit.

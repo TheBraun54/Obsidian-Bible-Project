@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our God cometh, and doth not keep silence: A fire devoureth before him, And it is very tempestuous round about him.
+Our God comes, and does not keep silent. A fire devours before him. It is very stormy around him.

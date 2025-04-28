@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we, brethren, being bereaved of you for a short season, in presence not in heart, endeavored the more exceedingly to see your face with great desire:
+But we, brothers, being bereaved of you for a short season, in presence, not in heart, tried even harder to see your face with great desire,

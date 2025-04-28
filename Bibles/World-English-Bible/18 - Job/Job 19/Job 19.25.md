@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me I know that my Redeemer liveth, And at last he will stand up upon the earth:
+But as for me, I know that my Redeemer lives. In the end, he will stand upon the earth.

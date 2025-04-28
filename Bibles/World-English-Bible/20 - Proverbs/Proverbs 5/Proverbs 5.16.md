@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Should thy springs be dispersed abroad, And streams of water in the streets?
+Should your springs overflow in the streets, streams of water in the public squares?

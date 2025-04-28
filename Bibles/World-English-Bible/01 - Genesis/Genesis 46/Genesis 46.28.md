@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent Judah before him unto Joseph, to show the way before him unto Goshen; and they came into the land of Goshen.
+He sent Judah before him to Joseph, to show the way before him to Goshen, and they came into the land of Goshen.

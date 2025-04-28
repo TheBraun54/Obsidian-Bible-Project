@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and one he-goat for a sin-offering, to make atonement for you;
+and one male goat for a sin offering, to make atonement for you;

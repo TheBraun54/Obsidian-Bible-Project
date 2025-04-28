@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man that trusteth in Jehovah, and whose trust Jehovah is.
+Blessed is the man who trusts in Yahweh, and whose trust Yahweh is.

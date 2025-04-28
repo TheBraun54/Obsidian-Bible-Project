@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My beloved is mine, and I am his: He feedeth [his flock] among the lilies.
+My beloved is mine, and I am his. He browses among the lilies.

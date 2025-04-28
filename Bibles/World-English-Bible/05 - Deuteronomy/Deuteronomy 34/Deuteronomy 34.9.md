@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua the son of Nun was full of the spirit of wisdom; for Moses had laid his hands upon him: and the children of Israel hearkened unto him, and did as Jehovah commanded Moses.
+Joshua the son of Nun was full of the spirit of wisdom; for Moses had laid his hands on him: and the children of Israel listened to him, and did as Yahweh commanded Moses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit of Jehovah began to move him in Mahaneh-dan, between Zorah and Eshtaol.
+The Spirit of Yahweh began to move him in Mahaneh Dan, between Zorah and Eshtaol.

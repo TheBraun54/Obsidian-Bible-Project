@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, Go thy way; thy faith hath made thee whole. And straightway he received his sight, and followed him in the way.
+Jesus said to him, "Go your way. Your faith has made you well." Immediately he received his sight, and followed Jesus in the way.

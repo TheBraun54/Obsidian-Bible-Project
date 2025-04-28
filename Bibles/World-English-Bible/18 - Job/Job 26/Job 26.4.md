@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom hast thou uttered words? And whose spirit came forth from thee?
+To whom have you uttered words? Whose spirit came forth from you?

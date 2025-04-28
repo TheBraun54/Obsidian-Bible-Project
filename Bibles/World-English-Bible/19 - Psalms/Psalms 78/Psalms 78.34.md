@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he slew them, then they inquired after him; And they returned and sought God earnestly.
+When he killed them, then they inquired after him. They returned and sought God earnestly.

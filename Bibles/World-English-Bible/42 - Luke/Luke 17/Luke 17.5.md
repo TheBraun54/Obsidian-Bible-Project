@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the apostles said unto the Lord, Increase our faith.
+The apostles said to the Lord, "Increase our faith."

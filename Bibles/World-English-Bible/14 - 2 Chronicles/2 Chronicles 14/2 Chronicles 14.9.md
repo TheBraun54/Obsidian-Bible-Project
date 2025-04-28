@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came out against them Zerah the Ethiopian with an army of a thousand thousand, and three hundred chariots; and he came unto Mareshah.
+There came out against them Zerah the Ethiopian with an army of a million troops, and three hundred chariots; and he came to Mareshah.

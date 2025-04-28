@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are they Hebrews? so am I. Are they Israelites? so am I. Are they the seed of Abraham? so am I.
+Are they Hebrews? So am I. Are they Israelites? So am I. Are they the seed of Abraham? So am I.

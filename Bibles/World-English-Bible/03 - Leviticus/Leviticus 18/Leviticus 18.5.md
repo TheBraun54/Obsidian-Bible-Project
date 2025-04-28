@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall therefore keep my statutes, and mine ordinances; which if a man do, he shall live in them: I am Jehovah.
+You shall therefore keep my statutes and my ordinances; which if a man does, he shall live in them: I am Yahweh.

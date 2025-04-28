@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art fairer than the children of men; Grace is poured into thy lips: Therefore God hath blessed thee for ever.
+You are the most excellent of the sons of men. Grace has anointed your lips, therefore God has blessed you forever.

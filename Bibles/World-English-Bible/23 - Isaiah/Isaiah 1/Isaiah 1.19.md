@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye be willing and obedient, ye shall eat the good of the land:
+If you are willing and obedient, you shall eat the good of the land;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-looking for the blessed hope and appearing of the glory of the great God and our Saviour Jesus Christ;
+looking for the blessed hope and appearing of the glory of our great God and Savior, Jesus Christ;

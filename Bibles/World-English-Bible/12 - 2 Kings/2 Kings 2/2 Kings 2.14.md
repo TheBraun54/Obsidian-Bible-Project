@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took the mantle of Elijah that fell from him, and smote the waters, and said, Where is Jehovah, the God of Elijah? and when he also had smitten the waters, they were divided hither and thither; and Elisha went over.
+He took the mantle of Elijah that fell from him, and struck the waters, and said, "Where is Yahweh, the God of Elijah?" When he also had struck the waters, they were divided here and there; and Elisha went over.

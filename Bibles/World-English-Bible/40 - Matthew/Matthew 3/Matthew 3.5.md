@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then went out unto him Jerusalem, and all Judaea, and all the region round about the Jordan;
+Then people from Jerusalem, all of Judea, and all the region around the Jordan went out to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thine eyes may be open toward this house night and day, even toward the place whereof thou hast said, My name shall be there; to hearken unto the prayer which thy servant shall pray toward this place.
+that your eyes may be open toward this house night and day, even toward the place of which you have said, 'My name shall be there;' to listen to the prayer which your servant shall pray toward this place.

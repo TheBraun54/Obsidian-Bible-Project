@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the works of men, by the word of thy lips I have kept me from the ways of the violent.
+As for the works of men, by the word of your lips, I have kept myself from the ways of the violent.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Amnon hated her with exceeding great hatred; for the hatred wherewith he hated her was greater than the love wherewith he had loved her. And Amnon said unto her, Arise, be gone.
+Then Amnon hated her with exceeding great hatred; for the hatred with which he hated her was greater than the love with which he had loved her. Amnon said to her, "Arise, be gone!"

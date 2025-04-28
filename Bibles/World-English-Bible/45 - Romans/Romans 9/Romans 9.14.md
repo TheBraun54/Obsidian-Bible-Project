@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall we say then? Is there unrighteousness with God? God forbid.
+What shall we say then? Is there unrighteousness with God? May it never be!

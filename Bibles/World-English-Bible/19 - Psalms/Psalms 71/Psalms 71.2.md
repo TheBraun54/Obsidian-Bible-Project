@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me in thy righteousness, and rescue me: Bow down thine ear unto me, and save me.
+Deliver me in your righteousness, and rescue me. Turn your ear to me, and save me.

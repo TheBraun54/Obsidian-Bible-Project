@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the third time I am coming to you. At the mouth of two witnesses or three shall every word be established.
+This is the third time I am coming to you. "At the mouth of two or three witnesses shall every word be established."

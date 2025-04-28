@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The increase of his house shall depart; [His goods] shall flow away in the day of his wrath.
+The increase of his house shall depart. They shall rush away in the day of his wrath.

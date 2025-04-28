@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And under it was the likeness of oxen, which did compass it round about, for ten cubits, compassing the sea round about. The oxen were in two rows, cast when it was cast.
+Under it was the likeness of oxen, which encircled it, for ten cubits, encircling the sea. The oxen were in two rows, cast when it was cast.

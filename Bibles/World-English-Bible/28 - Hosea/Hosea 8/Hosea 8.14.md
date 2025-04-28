@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Israel hath forgotten his Maker, and builded palaces; and Judah hath multiplied fortified cities: but I will send a fire upon his cities, and it shall devour the castles thereof.
+For Israel has forgotten his Maker and built palaces; and Judah has multiplied fortified cities; but I will send a fire on his cities, and it will devour its fortresses."

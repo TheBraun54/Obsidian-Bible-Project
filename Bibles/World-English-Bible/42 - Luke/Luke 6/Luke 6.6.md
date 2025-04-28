@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on another sabbath, that he entered into the synagogue and taught: and there was a man there, and his right hand was withered.
+It also happened on another Sabbath that he entered into the synagogue and taught. There was a man there, and his right hand was withered.

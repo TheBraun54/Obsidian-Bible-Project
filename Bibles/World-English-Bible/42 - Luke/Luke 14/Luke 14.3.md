@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answering spake unto the lawyers and Pharisees, saying, Is it lawful to heal on the sabbath, or not?
+Jesus, answering, spoke to the lawyers and Pharisees, saying, "Is it lawful to heal on the Sabbath?"

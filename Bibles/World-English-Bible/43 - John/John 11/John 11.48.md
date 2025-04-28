@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we let him thus alone, all men will believe on him: and the Romans will come and take away both our place and our nation.
+If we leave him alone like this, everyone will believe in him, and the Romans will come and take away both our place and our nation."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, I pray thee, who [ever] perished, being innocent? Or where were the upright cut off?
+"Remember, now, whoever perished, being innocent? Or where were the upright cut off?

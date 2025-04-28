@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, the days come, saith Jehovah, that it shall no more be called Topheth, nor The valley of the son of Hinnom, but The valley of Slaughter: for they shall bury in Topheth, till there be no place [to bury] .
+Therefore, behold, the days come, says Yahweh, that it shall no more be called Topheth, nor The valley of the son of Hinnom, but The valley of Slaughter: for they shall bury in Topheth, until there be no place [to bury].

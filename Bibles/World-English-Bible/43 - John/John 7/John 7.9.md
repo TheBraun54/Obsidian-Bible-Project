@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And having said these things unto them, he abode [still] in Galilee.
+Having said these things to them, he stayed in Galilee.

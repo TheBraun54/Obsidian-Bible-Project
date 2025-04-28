@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, O Jehovah of hosts, the God of Israel, hast revealed to thy servant, saying, I will build thee a house: therefore hath thy servant found in his heart to pray this prayer unto thee. [
+For you, Yahweh of Armies, the God of Israel, have revealed to your servant, saying, 'I will build you a house.' Therefore your servant has found in his heart to pray this prayer to you.

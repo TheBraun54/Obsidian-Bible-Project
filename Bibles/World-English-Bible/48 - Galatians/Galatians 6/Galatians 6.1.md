@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, even if a man be overtaken in any trespass, ye who are spiritual, restore such a one in a spirit of gentleness; looking to thyself, lest thou also be tempted.
+Brothers, even if a man is caught in some fault, you who are spiritual must restore such a one in a spirit of gentleness; looking to yourself so that you also aren't tempted.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he struck it into the pan, or kettle, or caldron, or pot; all that the flesh-hook brought up the priest took therewith. So they did in Shiloh unto all the Israelites that came thither.
+and he struck it into the pan, or kettle, or caldron, or pot; all that the fork brought up the priest took therewith. So they did in Shiloh to all the Israelites who came there.

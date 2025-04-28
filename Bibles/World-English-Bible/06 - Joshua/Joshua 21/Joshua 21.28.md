@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the tribe of Issachar, Kishion with its suburbs, Daberath with its suburbs,
+Out of the tribe of Issachar, Kishion with its suburbs, Daberath with its suburbs,

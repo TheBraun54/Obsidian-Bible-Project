@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The simple inherit folly; But the prudent are crowned with knowledge.
+The simple inherit folly, but the prudent are crowned with knowledge.

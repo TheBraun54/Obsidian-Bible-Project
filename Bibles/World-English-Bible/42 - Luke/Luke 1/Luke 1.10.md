@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the whole multitude of the people were praying without at the hour of incense.
+The whole multitude of the people were praying outside at the hour of incense.

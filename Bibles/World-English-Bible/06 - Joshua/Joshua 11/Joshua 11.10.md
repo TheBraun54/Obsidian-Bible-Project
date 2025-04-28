@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua turned back at that time, and took Hazor, and smote the king thereof with the sword: for Hazor beforetime was the head of all those kingdoms.
+Joshua turned back at that time, and took Hazor, and struck its king with the sword: for Hazor used to be the head of all those kingdoms.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But vain man is void of understanding, Yea, man is born [as] a wild ass's colt.
+An empty-headed man becomes wise when a man is born as a wild donkey's colt.

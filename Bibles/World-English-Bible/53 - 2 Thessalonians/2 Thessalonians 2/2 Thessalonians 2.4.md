@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he that opposeth and exalteth himself against all that is called God or that is worshipped; so that he sitteth in the temple of God, setting himself forth as God.
+he who opposes and exalts himself against all that is called God or that is worshiped; so that he sits as God in the temple of God, setting himself up as God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through the window she looked forth, and cried, The mother of Sisera [cried] through the lattice, Why is his chariot so long in coming? Why tarry the wheels of his chariots?
+"Through the window she looked out, and cried: Sisera's mother looked through the lattice. 'Why is his chariot so long in coming? Why do the wheels of his chariots wait?'

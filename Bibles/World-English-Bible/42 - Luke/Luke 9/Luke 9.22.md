@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, The Son of man must suffer many things, and be rejected of the elders and chief priests and scribes, and be killed, and the third day be raised up.
+saying, "The Son of Man must suffer many things, and be rejected by the elders, chief priests, and scribes, and be killed, and the third day be raised up."

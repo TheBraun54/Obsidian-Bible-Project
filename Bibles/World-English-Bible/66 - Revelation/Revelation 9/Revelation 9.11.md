@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have over them as king the angel of the abyss: his name in Hebrew is Abaddon, and in the Greek [tongue] he hath the name Apollyon.
+They have over them as king the angel of the abyss. His name in Hebrew is "Abaddon," but in Greek, he has the name "Apollyon."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That men may declare the name of Jehovah in Zion, And his praise in Jerusalem;
+that men may declare the name of Yahweh in Zion, and his praise in Jerusalem;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many there are that say, Who will show us [any] good? Jehovah, lift thou up the light of thy countenance upon us.
+Many say, "Who will show us any good?" Yahweh, let the light of your face shine on us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am not at ease, neither am I quiet, neither have I rest; But trouble cometh.
+I am not at ease, neither am I quiet, neither have I rest; but trouble comes."

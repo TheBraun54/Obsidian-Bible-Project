@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the ark of God had David brought up from Kiriath-jearim to [the place] that David had prepared for it; for he had pitched a tent for it at Jerusalem.
+But David had brought the ark of God up from Kiriath Jearim to the place that David had prepared for it; for he had pitched a tent for it at Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Now Jesus was not yet come into the village, but was still in the place where Martha met him.)
+Now Jesus had not yet come into the village, but was in the place where Martha met him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I fear, lest by any means, as the serpent beguiled Eve in his craftiness, your minds should be corrupted from the simplicity and the purity that is toward Christ.
+But I am afraid that somehow, as the serpent deceived Eve in his craftiness, so your minds might be corrupted from the simplicity that is in Christ.

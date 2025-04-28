@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass that, as ye were a curse among the nations, O house of Judah and house of Israel, so will I save you, and ye shall be a blessing. Fear not, [but] let your hands be strong.
+It shall come to pass that, as you were a curse among the nations, house of Judah and house of Israel, so will I save you, and you shall be a blessing. Don't be afraid. Let your hands be strong."

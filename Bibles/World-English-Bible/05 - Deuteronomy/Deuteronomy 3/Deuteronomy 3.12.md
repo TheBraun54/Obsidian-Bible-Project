@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this land we took in possession at that time: from Aroer, which is by the valley of the Arnon, and half the hill-country of Gilead, and the cities thereof, gave I unto the Reubenites and to the Gadites:
+This land we took in possession at that time: from Aroer, which is by the valley of the Arnon, and half the hill country of Gilead, and its cities, gave I to the Reubenites and to the Gadites:

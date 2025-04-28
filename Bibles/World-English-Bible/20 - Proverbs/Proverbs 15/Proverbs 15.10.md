@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is grievous correction for him that forsaketh the way; [And] he that hateth reproof shall die.
+There is stern discipline for one who forsakes the way: whoever hates reproof shall die.

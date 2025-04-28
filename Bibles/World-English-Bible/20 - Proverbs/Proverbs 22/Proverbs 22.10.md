@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast out the scoffer, and contention will go out; Yea, strife and ignominy will cease.
+Drive out the mocker, and strife will go out; yes, quarrels and insults will stop.

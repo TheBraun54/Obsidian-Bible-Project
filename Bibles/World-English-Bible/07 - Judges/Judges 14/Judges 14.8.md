@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after a while he returned to take her; and he turned aside to see the carcass of the lion: and, behold, there was a swarm of bees in the body of the lion, and honey.
+After a while he returned to take her; and he turned aside to see the carcass of the lion: and behold, there was a swarm of bees in the body of the lion, and honey.

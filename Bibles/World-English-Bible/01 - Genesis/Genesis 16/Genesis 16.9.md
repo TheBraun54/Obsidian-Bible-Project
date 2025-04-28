@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto her, Return to thy mistress, and submit thyself under her hands.
+The angel of Yahweh said to her, "Return to your mistress, and submit yourself under her hands."

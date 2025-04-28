@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the generation of them that seek after him, That seek thy face, [even] Jacob. {{Selah
+This is the generation of those who seek Him, who seek your face--even Jacob. Selah.

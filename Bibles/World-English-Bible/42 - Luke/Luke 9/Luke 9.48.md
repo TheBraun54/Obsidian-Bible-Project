@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Whosoever shall receive this little child in my name receiveth me: and whosoever shall receive me receiveth him that sent me: for he that is least among you all, the same is great.
+and said to them, "Whoever receives this little child in my name receives me. Whoever receives me receives him who sent me. For whoever is least among you all, this one will be great."

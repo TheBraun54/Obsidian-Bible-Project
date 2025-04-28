@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto the children of Gad, and to the children of Reuben, Shall your brethren go to the war, and shall ye sit here?
+Moses said to the children of Gad, and to the children of Reuben, "Shall your brothers go to the war, and shall you sit here?

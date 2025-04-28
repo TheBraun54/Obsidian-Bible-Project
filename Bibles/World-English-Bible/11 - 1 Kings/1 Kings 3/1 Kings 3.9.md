@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give thy servant therefore an understanding heart to judge thy people, that I may discern between good and evil; for who is able to judge this thy great people?
+Give your servant therefore an understanding heart to judge your people, that I may discern between good and evil; for who is able to judge this your great people?"

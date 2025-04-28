@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this manner ye shall offer daily, for seven days, the food of the offering made by fire, of a sweet savor unto Jehovah: it shall be offered besides the continual burnt-offering, and the drink-offering thereof.
+In this way you shall offer daily, for seven days, the food of the offering made by fire, of a pleasant aroma to Yahweh: it shall be offered besides the continual burnt offering, and the drink offering of it.

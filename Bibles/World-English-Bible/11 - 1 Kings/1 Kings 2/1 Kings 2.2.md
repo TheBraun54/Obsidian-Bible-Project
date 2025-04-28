@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am going the way of all the earth: be thou strong therefore, and show thyself a man;
+"I am going the way of all the earth. You be strong therefore, and show yourself a man;

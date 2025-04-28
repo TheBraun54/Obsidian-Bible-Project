@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For you therefore that believe is the preciousness: but for such as disbelieve, The stone which the builders rejected, The same was made the head of the corner;
+For you who believe therefore is the honor, but for those who are disobedient, "The stone which the builders rejected, has become the chief cornerstone,"

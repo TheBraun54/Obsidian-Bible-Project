@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had sung a hymn, they went out unto the mount of Olives.
+When they had sung a hymn, they went out to the Mount of Olives.

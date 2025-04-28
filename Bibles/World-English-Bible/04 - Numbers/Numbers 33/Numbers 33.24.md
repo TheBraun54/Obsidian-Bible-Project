@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from mount Shepher, and encamped in Haradah.
+They traveled from Mount Shepher, and encamped in Haradah.

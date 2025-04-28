@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who looketh on the earth, and it trembleth; He toucheth the mountains, and they smoke.
+He looks at the earth, and it trembles. He touches the mountains, and they smoke.

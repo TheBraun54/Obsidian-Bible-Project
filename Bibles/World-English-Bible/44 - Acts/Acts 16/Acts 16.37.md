@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Paul said unto them, They have beaten us publicly, uncondemned, men that are Romans, and have cast us into prison; and do they now cast us out privily? Nay verily; but let them come themselves and bring us out.
+But Paul said to them, "They have beaten us publicly, without a trial, men who are Romans, and have cast us into prison! Do they now release us secretly? No, most certainly, but let them come themselves and bring us out!"

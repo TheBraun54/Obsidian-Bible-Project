@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-henceforth expecting till his enemies be made the footstool of his feet.
+from that time waiting until his enemies are made the footstool of his feet.

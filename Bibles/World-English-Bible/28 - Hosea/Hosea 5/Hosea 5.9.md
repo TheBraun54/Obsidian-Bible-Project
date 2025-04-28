@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim shall become a desolation in the day of rebuke: among the tribes of Israel have I made known that which shall surely be.
+Ephraim will become a desolation in the day of rebuke. Among the tribes of Israel, I have made known that which will surely be.

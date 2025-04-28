@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel, saying, Ye and your wives have both spoken with your mouths, and with your hands have fulfilled it, saying, We will surely perform our vows that we have vowed, to burn incense to the queen of heaven, and to pour out drink-offerings unto her: establish then your vows, and perform your vows.
+Thus says Yahweh of Armies, the God of Israel, saying, You and your wives have both spoken with your mouths, and with your hands have fulfilled it, saying, We will surely perform our vows that we have vowed, to burn incense to the queen of the sky, and to pour out drink offerings to her: establish then your vows, and perform your vows.

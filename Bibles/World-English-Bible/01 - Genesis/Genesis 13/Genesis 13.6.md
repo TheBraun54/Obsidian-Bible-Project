@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the land was not able to bear them, that they might dwell together: for their substance was great, so that they could not dwell together.
+The land was not able to bear them, that they might live together: for their substance was great, so that they could not live together.

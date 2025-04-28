@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sent from on high, he took me; He drew me out of many waters.
+He sent from on high. He took me. He drew me out of many waters.

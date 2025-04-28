@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought them to the border of his sanctuary, To this mountain, which his right hand had gotten.
+He brought them to the border of his sanctuary, to this mountain, which his right hand had taken.

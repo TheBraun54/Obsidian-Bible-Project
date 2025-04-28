@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto them, Not all men can receive this saying, but they to whom it is given.
+But he said to them, "Not all men can receive this saying, but those to whom it is given.

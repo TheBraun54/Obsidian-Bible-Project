@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The threshing-floor and the winepress shall not feed them, and the new wine shall fail her.
+The threshing floor and the winepress won't feed them, and the new wine will fail her.

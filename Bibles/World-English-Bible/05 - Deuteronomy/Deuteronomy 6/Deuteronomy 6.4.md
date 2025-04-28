@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O Israel: Jehovah our God is one Jehovah:
+Hear, Israel: Yahweh is our God; Yahweh is one:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another said, I have bought five yoke of oxen, and I go to prove them; I pray thee have me excused.
+"Another said, 'I have bought five yoke of oxen, and I must go try them out. Please have me excused.'

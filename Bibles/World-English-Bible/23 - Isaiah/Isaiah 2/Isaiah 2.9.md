@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the mean man is bowed down, and the great man is brought low: therefore forgive them not.
+Man is brought low, and mankind is humbled; therefore don't forgive them.

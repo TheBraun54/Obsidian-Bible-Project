@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph arose from his sleep, and did as the angel of the Lord commanded him, and took unto him his wife;
+Joseph arose from his sleep, and did as the angel of the Lord commanded him, and took his wife to himself;

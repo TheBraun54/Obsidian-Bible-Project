@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall come to pass, that because of the abundance of milk which they shall give he shall eat butter: for butter and honey shall every one eat that is left in the midst of the land.
+and it shall happen, that because of the abundance of milk which they shall give he shall eat butter: for everyone will eat butter and honey that is left in the midst of the land.

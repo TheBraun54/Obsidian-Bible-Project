@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall roar together like young lions; they shall growl as lions' whelps.
+They shall roar together like young lions; they shall growl as lions' cubs.

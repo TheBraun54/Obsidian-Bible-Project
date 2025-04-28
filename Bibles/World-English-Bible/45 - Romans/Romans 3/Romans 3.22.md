@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even the righteousness of God through faith in Jesus Christ unto all them that believe; for there is no distinction;
+even the righteousness of God through faith in Jesus Christ to all and on all those who believe. For there is no distinction,

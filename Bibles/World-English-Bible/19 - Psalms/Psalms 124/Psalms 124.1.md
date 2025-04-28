@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents; of David]. If it had not been Jehovah who was on our side, Let Israel now say,
+If it had not been Yahweh who was on our side, let Israel now say,

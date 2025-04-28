@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the return of the year king Nebuchadnezzar sent, and brought him to Babylon, with the goodly vessels of the house of Jehovah, and made Zedekiah his brother king over Judah and Jerusalem.
+At the return of the year king Nebuchadnezzar sent, and brought him to Babylon, with the goodly vessels of the house of Yahweh, and made Zedekiah his brother king over Judah and Jerusalem.

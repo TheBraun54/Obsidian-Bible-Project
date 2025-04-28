@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she was in bitterness of soul, and prayed unto Jehovah, and wept sore.
+She was in bitterness of soul, and prayed to Yahweh, and wept bitterly.

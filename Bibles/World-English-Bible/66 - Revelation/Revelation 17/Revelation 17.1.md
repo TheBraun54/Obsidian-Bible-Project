@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came one of the seven angels that had the seven bowls, and spake with me, saying, Come hither, I will show thee the judgment of the great harlot that sitteth upon many waters;
+One of the seven angels who had the seven bowls came and spoke with me, saying, "Come here. I will show you the judgment of the great prostitute who sits on many waters,

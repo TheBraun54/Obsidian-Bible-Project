@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For yet a very little while, He that cometh shall come, and shall not tarry.
+"In a very little while, he who comes will come, and will not wait.

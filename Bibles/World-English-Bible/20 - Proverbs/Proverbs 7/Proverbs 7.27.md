@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her house is the way to Sheol, Going down to the chambers of death.
+Her house is the way to Sheol, going down to the rooms of death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Afterward came also the other virgins, saying, Lord, Lord, open to us.
+Afterward the other virgins also came, saying, 'Lord, Lord, open to us.'

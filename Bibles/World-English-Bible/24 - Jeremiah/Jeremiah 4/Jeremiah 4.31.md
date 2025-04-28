@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have heard a voice as of a woman in travail, the anguish as of her that bringeth forth her first child, the voice of the daughter of Zion, that gaspeth for breath, that spreadeth her hands, [saying], Woe is me now! for my soul fainteth before the murderers.
+For I have heard a voice as of a woman in travail, the anguish as of her who brings forth her first child, the voice of the daughter of Zion, who gasps for breath, who spreads her hands, [saying], "Woe is me now! For my soul faints before the murderers."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the tribe of Asher twelve thousand; Of the tribe of Naphtali twelve thousand; Of the tribe of Manasseh twelve thousand;
+of the tribe of Asher twelve thousand, of the tribe of Naphtali twelve thousand, of the tribe of Manasseh twelve thousand,

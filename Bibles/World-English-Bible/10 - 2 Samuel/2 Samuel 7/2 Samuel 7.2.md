@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the king said unto Nathan the prophet, See now, I dwell in a house of cedar, but the ark of God dwelleth within curtains.
+that the king said to Nathan the prophet, "See now, I dwell in a house of cedar, but the ark of God dwells within curtains."

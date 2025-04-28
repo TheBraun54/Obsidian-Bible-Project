@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of his city, even the elders and the nobles who dwelt in his city, did as Jezebel had sent unto them, according as it was written in the letters which she had sent unto them.
+The men of his city, even the elders and the nobles who lived in his city, did as Jezebel had sent to them, according as it was written in the letters which she had sent to them.

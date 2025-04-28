@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a righteous man falleth seven times, and riseth up again; But the wicked are overthrown by calamity.
+for a righteous man falls seven times, and rises up again; but the wicked are overthrown by calamity.

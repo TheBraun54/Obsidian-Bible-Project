@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph commanded his servants the physicians to embalm his father: and the physicians embalmed Israel.
+Joseph commanded his servants, the physicians, to embalm his father; and the physicians embalmed Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto them, Have ye not read what David did, when he was hungry, and they that were with him;
+But he said to them, "Haven't you read what David did, when he was hungry, and those who were with him;

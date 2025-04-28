@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall fall in the midst of them that are slain by the sword: she is delivered to the sword; draw her away and all her multitudes.
+They shall fall in the midst of those who are slain by the sword: she is delivered to the sword; draw her away and all her multitudes.

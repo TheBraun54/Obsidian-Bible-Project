@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehoram was thirty and two years old when he began to reign; and he reigned eight years in Jerusalem.
+Jehoram was thirty-two years old when he began to reign; and he reigned eight years in Jerusalem.

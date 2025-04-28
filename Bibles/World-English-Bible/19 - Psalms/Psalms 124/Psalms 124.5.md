@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the proud waters had gone over our soul.
+then the proud waters would have gone over our soul.

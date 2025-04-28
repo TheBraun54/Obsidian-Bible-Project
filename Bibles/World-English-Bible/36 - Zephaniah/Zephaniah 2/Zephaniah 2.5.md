@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto the inhabitants of the sea-coast, the nation of the Cherethites! The word of Jehovah is against you, O Canaan, the land of the Philistines; I will destroy thee, that there shall be no inhabitant.
+Woe to the inhabitants of the sea coast, the nation of the Cherethites! The word of Yahweh is against you, Canaan, the land of the Philistines. I will destroy you, that there will be no inhabitant.

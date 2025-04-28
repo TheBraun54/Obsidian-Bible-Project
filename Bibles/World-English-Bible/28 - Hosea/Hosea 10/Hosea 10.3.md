@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely now shall they say, We have no king; for we fear not Jehovah; and the king, what can he do for us?
+Surely now they will say, "We have no king; for we don't fear Yahweh; and the king, what can he do for us?"

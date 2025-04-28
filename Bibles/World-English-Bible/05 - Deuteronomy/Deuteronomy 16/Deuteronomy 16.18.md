@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judges and officers shalt thou make thee in all thy gates, which Jehovah thy God giveth thee, according to thy tribes; and they shall judge the people with righteous judgment.
+You shall make judges and officers in all your gates, which Yahweh your God gives you, according to your tribes; and they shall judge the people with righteous judgment.

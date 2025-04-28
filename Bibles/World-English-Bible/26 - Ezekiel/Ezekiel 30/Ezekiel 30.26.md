@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will scatter the Egyptians among the nations, and disperse them through the countries; and they shall know that I am Jehovah.
+I will scatter the Egyptians among the nations, and disperse them through the countries; and they shall know that I am Yahweh.

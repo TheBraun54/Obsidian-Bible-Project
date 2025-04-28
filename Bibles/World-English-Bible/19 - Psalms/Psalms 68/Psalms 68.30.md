@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rebuke the wild beast of the reeds, The multitude of the bulls, with the calves of the peoples, Trampling under foot the pieces of silver: He hath scattered the peoples that delight in war.
+Rebuke the wild animal of the reeds, the multitude of the bulls, with the calves of the peoples. Being humbled, may it bring bars of silver. Scatter the nations that delight in war.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take up that which is thine, and go thy way; it is my will to give unto this last, even as unto thee.
+Take that which is yours, and go your way. It is my desire to give to this last just as much as to you.

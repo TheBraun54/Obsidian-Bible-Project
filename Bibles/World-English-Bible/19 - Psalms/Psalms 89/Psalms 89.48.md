@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What man is he that shall live and not see death, That shall deliver his soul from the power of Sheol? {{Selah
+What man is he who shall live and not see death, who shall deliver his soul from the power of Sheol? Selah.

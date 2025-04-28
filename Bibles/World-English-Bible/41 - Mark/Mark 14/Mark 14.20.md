@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, [It is] one of the twelve, he that dippeth with me in the dish.
+He answered them, "It is one of the twelve, he who dips with me in the dish.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath been mindful of us; He will bless [us] : He will bless the house of Israel; He will bless the house of Aaron.
+Yahweh remembers us. He will bless us. He will bless the house of Israel. He will bless the house of Aaron.

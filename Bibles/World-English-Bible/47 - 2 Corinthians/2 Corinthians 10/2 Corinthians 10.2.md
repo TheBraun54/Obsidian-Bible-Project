@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, I beseech you, that I may not when present show courage with the confidence wherewith I count to be bold against some, who count of us as if we walked according to the flesh.
+Yes, I beg you that I may not, when present, show courage with the confidence with which I intend to be bold against some, who consider us to be walking according to the flesh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fret not thyself because of evil-doers; Neither be thou envious at the wicked:
+Don't fret yourself because of evildoers; neither be envious of the wicked:

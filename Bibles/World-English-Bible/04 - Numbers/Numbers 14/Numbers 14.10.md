@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all the congregation bade stone them with stones. And the glory of Jehovah appeared in the tent of meeting unto all the children of Israel.
+But all the congregation threatened to stone them with stones. The glory of Yahweh appeared in the Tent of Meeting to all the children of Israel.

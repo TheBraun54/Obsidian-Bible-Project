@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did that which was evil in the sight of Jehovah: and Jehovah delivered them into the hand of Midian seven years.
+The children of Israel did that which was evil in the sight of Yahweh: and Yahweh delivered them into the hand of Midian seven years.

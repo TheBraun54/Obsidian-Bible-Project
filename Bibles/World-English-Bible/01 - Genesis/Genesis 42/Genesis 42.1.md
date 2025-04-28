@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jacob saw that there was grain in Egypt, and Jacob said unto his sons, Why do ye look one upon another?
+Now Jacob saw that there was grain in Egypt, and Jacob said to his sons, "Why do you look at one another?"

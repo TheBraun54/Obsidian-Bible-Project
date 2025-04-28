@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to make thee high above all nations that he hath made, in praise, and in name, and in honor; and that thou mayest be a holy people unto Jehovah thy God, as he hath spoken.
+and to make you high above all nations that he has made, in praise, and in name, and in honor; and that you may be a holy people to Yahweh your God, as he has spoken.

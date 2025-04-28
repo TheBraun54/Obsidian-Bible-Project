@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But forasmuch as he had not [wherewith] to pay, his lord commanded him to be sold, and his wife, and children, and all that he had, and payment to be made.
+But because he couldn't pay, his lord commanded him to be sold, with his wife, his children, and all that he had, and payment to be made.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go up to the mountain, and bring wood, and build the house; and I will take pleasure in it, and I will be glorified, saith Jehovah.
+Go up to the mountain, bring wood, and build the house. I will take pleasure in it, and I will be glorified," says Yahweh.

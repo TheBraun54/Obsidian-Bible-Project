@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then began he to curse and to swear, I know not the man. And straightway the cock crew.
+Then he began to curse and to swear, "I don't know the man!" Immediately the rooster crowed.

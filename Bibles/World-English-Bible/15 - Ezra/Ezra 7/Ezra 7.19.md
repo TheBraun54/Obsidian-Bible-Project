@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the vessels that are given thee for the service of the house of thy God, deliver thou before the God of Jerusalem.
+The vessels that are given to you for the service of the house of your God, deliver before the God of Jerusalem.

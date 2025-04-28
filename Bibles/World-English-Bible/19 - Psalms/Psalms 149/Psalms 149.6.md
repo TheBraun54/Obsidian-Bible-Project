@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Let] the high praises of God [be] in their mouth, And a two-edged sword in their hand;
+May the high praises of God be in their mouths, and a two-edged sword in their hand;

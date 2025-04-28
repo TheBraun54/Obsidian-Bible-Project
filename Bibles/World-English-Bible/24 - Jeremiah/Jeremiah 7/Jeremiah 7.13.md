@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, because ye have done all these works, saith Jehovah, and I spake unto you, rising up early and speaking, but ye heard not; and I called you, but ye answered not:
+Now, because you have done all these works, says Yahweh, and I spoke to you, rising up early and speaking, but you didn't hear; and I called you, but you didn't answer:

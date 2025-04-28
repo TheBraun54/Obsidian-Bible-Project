@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now it is true that I am a near kinsman; howbeit there is a kinsman nearer than I.
+Now it is true that I am a near kinsman; however there is a kinsman nearer than I.

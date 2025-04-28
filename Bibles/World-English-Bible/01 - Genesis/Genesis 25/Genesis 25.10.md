@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the field which Abraham purchased of the children of Heth: there was Abraham buried, and Sarah his wife.
+the field which Abraham purchased of the children of Heth. Abraham was buried there with Sarah, his wife.

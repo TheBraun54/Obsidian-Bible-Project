@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he was more honorable than the thirty, but he attained not to the [first] three: and David set him over his guard.
+Behold, he was more honorable than the thirty, but he didn't attain to the [first] three: and David set him over his guard.

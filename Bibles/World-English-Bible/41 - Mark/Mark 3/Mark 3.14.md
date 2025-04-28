@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he appointed twelve, that they might be with him, and that he might send them forth to preach,
+He appointed twelve, that they might be with him, and that he might send them out to preach,

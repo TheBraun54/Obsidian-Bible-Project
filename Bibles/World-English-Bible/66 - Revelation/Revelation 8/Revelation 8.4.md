@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the smoke of the incense, with the prayers of the saints, went up before God out of the angel's hand.
+The smoke of the incense, with the prayers of the saints, went up before God out of the angel's hand.

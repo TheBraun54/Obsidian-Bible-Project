@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus turning unto them said, Daughters of Jerusalem, weep not for me, but weep for yourselves, and for your children.
+But Jesus, turning to them, said, "Daughters of Jerusalem, don't weep for me, but weep for yourselves and for your children.

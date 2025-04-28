@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but with you it may be that I shall abide, or even winter, that ye may set me forward on my journey whithersoever I go.
+But with you it may be that I will stay, or even winter, that you may send me on my journey wherever I go.

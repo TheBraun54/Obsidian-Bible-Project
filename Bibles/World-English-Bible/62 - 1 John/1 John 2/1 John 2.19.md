@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They went out from us, but they were not of us; for if they had been of us, they would have continued with us: but [they went out], that they might be made manifest that they all are not of us.
+They went out from us, but they didn't belong to us; for if they had belonged to us, they would have continued with us. But they left, that they might be revealed that none of them belong to us.

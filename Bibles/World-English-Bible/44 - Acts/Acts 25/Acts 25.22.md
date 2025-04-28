@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Agrippa [said] unto Festus, I also could wish to hear the man myself. To-morrow, saith he, thou shalt hear him.
+Agrippa said to Festus, "I also would like to hear the man myself." "Tomorrow," he said, "you shall hear him."

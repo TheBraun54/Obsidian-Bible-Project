@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; [set to] Al-tashheth. [A Psalm] of David. Michtam; when Saul sent, and they watched the house to kill him]. Deliver me from mine enemies, O my God: Set me on high from them that rise up against me.
+Deliver me from my enemies, my God. Set me on high from those who rise up against me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was right in the eyes of Jehovah, yet not like David his father: he did according to all that Joash his father had done.
+He did that which was right in the eyes of Yahweh, yet not like David his father: he did according to all that Joash his father had done.

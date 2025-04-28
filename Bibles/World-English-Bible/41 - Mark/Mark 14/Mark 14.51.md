@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain young man followed with him, having a linen cloth cast about him, over [his] naked [body] : and they lay hold on him;
+A certain young man followed him, having a linen cloth thrown around himself, over his naked body. The young men grabbed him,

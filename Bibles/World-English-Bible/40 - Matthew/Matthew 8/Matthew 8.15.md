@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he touched her hand, and the fever left her; and she arose, and ministered unto him.
+He touched her hand, and the fever left her. She got up and served him.

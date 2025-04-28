@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your heave-offering shall be reckoned unto you, as though it were the grain of the threshing-floor, and as the fulness of the winepress.
+Your wave offering shall be reckoned to you, as though it were the grain of the threshing floor, and as the fullness of the winepress.

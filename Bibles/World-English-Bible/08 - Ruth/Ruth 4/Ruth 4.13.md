@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Boaz took Ruth, and she became his wife; and he went in unto her, and Jehovah gave her conception, and she bare a son.
+So Boaz took Ruth, and she became his wife; and he went in to her, and Yahweh gave her conception, and she bore a son.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He removeth the speech of the trusty, And taketh away the understanding of the elders.
+He removes the speech of those who are trusted, and takes away the understanding of the elders.

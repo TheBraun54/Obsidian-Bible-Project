@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say unto it, Thus saith the Lord Jehovah: Behold, I am against thee, O mount Seir, and I will stretch out my hand against thee, and I will make thee a desolation and an astonishment.
+and tell it, Thus says the Lord Yahweh: Behold, I am against you, Mount Seir, and I will stretch out my hand against you, and I will make you a desolation and an astonishment.

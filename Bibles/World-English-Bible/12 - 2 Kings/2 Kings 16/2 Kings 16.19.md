@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the rest of the acts of Ahaz which he did, are they not written in the book of the chronicles of the kings of Judah?
+Now the rest of the acts of Ahaz which he did, aren't they written in the book of the chronicles of the kings of Judah?

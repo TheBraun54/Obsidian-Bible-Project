@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there were that said, We, our sons and our daughters, are many: let us get grain, that we may eat and live.
+For there were that said, "We, our sons and our daughters, are many. Let us get grain, that we may eat and live."

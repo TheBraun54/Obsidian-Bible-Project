@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hear thou from heaven, and do, and judge thy servants, requiting the wicked, to bring his way upon his own head; and justifying the righteous, to give him according to his righteousness.
+then hear from heaven, and do, and judge your servants, bringing retribution to the wicked, to bring his way on his own head; and justifying the righteous, to give him according to his righteousness.

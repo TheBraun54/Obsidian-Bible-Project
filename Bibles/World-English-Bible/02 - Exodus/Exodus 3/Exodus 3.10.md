@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come now therefore, and I will send thee unto Pharaoh, that thou mayest bring forth my people the children of Israel out of Egypt.
+Come now therefore, and I will send you to Pharaoh, that you may bring forth my people, the children of Israel, out of Egypt."

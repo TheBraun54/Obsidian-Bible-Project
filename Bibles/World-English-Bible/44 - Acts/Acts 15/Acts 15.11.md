@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we believe that we shall be saved through the grace of the Lord Jesus, in like manner as they.
+But we believe that we are saved through the grace of the Lord Jesus, just as they are."

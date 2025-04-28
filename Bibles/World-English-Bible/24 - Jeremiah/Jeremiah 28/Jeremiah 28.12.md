@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the word of Jehovah came unto Jeremiah, after that Hananiah the prophet had broken the bar from off the neck of the prophet Jeremiah, saying,
+Then the word of Yahweh came to Jeremiah, after that Hananiah the prophet had broken the bar from off the neck of the prophet Jeremiah, saying,

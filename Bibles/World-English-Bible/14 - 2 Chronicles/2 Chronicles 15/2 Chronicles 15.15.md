@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Judah rejoiced at the oath; for they had sworn with all their heart, and sought him with their whole desire; and he was found of them: and Jehovah gave them rest round about.
+All Judah rejoiced at the oath; for they had sworn with all their heart, and sought him with their whole desire; and he was found of them: and Yahweh gave them rest all around.

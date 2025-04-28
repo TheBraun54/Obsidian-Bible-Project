@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because of the hope which is laid up for you in the heavens, whereof ye heard before in the word of the truth of the gospel,
+because of the hope which is laid up for you in the heavens, of which you heard before in the word of the truth of the Good News,

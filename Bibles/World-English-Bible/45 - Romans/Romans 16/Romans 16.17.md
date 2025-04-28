@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I beseech you, brethren, mark them that are causing the divisions and occasions of stumbling, contrary to the doctrine which ye learned: and turn away from them.
+Now I beg you, brothers, look out for those who are causing the divisions and occasions of stumbling, contrary to the doctrine which you learned, and turn away from them.

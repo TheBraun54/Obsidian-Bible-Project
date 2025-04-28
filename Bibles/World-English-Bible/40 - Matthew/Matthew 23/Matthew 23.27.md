@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you, scribes and Pharisees, hypocrites! for ye are like unto whited sepulchres, which outwardly appear beautiful, but inwardly are full of dead men's bones, and of all uncleanness.
+"Woe to you, scribes and Pharisees, hypocrites! For you are like whitened tombs, which outwardly appear beautiful, but inwardly are full of dead men's bones, and of all uncleanness.

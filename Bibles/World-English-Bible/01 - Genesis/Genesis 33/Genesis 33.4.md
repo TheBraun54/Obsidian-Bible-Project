@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esau ran to meet him, and embraced him, and fell on his neck, and kissed him: and they wept.
+Esau ran to meet him, embraced him, fell on his neck, kissed him, and they wept.

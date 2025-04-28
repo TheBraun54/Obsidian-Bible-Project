@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the fifteenth day of this month shall be a feast: seven days shall unleavened bread be eaten.
+On the fifteenth day of this month shall be a feast: seven days shall unleavened bread be eaten.

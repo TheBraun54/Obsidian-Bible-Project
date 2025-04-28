@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Profane not thy daughter, to make her a harlot; lest the land fall to whoredom, and the land become full of wickedness.
+"'Don't profane your daughter, to make her a prostitute; lest the land fall to prostitution, and the land become full of wickedness.

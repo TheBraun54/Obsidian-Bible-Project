@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I charged your judges at that time, saying, Hear [the causes] between your brethren, and judge righteously between a man and his brother, and the sojourner that is with him.
+I commanded your judges at that time, saying, Hear [the causes] between your brothers, and judge righteously between a man and his brother, and the foreigner who is living with him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Ahaz went to Damascus to meet Tiglath-pileser king of Assyria, and saw the altar that was at Damascus; and king Ahaz sent to Urijah the priest the fashion of the altar, and the pattern of it, according to all the workmanship thereof.
+King Ahaz went to Damascus to meet Tiglath Pileser king of Assyria, and saw the altar that was at Damascus; and king Ahaz sent to Urijah the priest the fashion of the altar, and its pattern, according to all its workmanship.

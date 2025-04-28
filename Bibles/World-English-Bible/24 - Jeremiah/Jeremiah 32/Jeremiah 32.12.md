@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I delivered the deed of the purchase unto Baruch the son of Neriah, the son of Mahseiah, in the presence of Hanamel mine uncle's [son], and in the presence of the witnesses that subscribed the deed of the purchase, before all the Jews that sat in the court of the guard.
+and I delivered the deed of the purchase to Baruch the son of Neriah, the son of Mahseiah, in the presence of Hanamel my uncle's son, and in the presence of the witnesses who subscribed the deed of the purchase, before all the Jews who sat in the court of the guard.

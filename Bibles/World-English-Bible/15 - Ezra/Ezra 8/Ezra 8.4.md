@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the sons of Pahath-moab, Eliehoenai the son of Zerahiah; and with him two hundred males.
+Of the sons of Pahathmoab, Eliehoenai the son of Zerahiah; and with him two hundred males.

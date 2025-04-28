@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eleazar the son of Aaron died; and they buried him in the hill of Phinehas his son, which was given him in the hill-country of Ephraim.
+Eleazar the son of Aaron died. They buried him in the hill of Phinehas his son, which was given him in the hill country of Ephraim.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not make [other gods] with me; gods of silver, or gods of gold, ye shall not make unto you.
+You shall most certainly not make alongside of me gods of silver, or gods of gold for yourselves.

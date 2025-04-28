@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember therefore how thou hast received and didst hear; and keep [it], and repent. If therefore thou shalt not watch, I will come as a thief, and thou shalt not know what hour I will come upon thee.
+Remember therefore how you have received and heard. Keep it, and repent. If therefore you won't watch, I will come as a thief, and you won't know what hour I will come upon you.

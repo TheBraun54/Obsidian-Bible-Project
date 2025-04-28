@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which my lips uttered, And my mouth spake, when I was in distress.
+which my lips promised, and my mouth spoke, when I was in distress.

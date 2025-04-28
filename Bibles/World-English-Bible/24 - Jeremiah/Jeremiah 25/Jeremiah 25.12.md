@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when seventy years are accomplished, that I will punish the king of Babylon, and that nation, saith Jehovah, for their iniquity, and the land of the Chaldeans; and I will make it desolate for ever.
+It shall happen, when seventy years are accomplished, that I will punish the king of Babylon, and that nation, says Yahweh, for their iniquity, and the land of the Chaldeans; and I will make it desolate forever.

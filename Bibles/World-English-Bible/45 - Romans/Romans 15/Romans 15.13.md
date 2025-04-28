@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the God of hope fill you with all joy and peace in believing, that ye may abound in hope, in the power of the Holy Spirit.
+Now may the God of hope fill you with all joy and peace in believing, that you may abound in hope, in the power of the Holy Spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-take it of their half, and give it unto Eleazar the priest, for Jehovah's heave-offering.
+take it of their half, and give it to Eleazar the priest, for Yahweh's wave offering.

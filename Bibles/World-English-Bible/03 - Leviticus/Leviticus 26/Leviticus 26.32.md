@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will bring the land into desolation; and your enemies that dwell therein shall be astonished at it.
+I will bring the land into desolation; and your enemies that dwell therein will be astonished at it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Cast it on the ground. And he cast it on the ground, and it became a serpent; and Moses fled from before it.
+He said, "Throw it on the ground." He threw it on the ground, and it became a snake; and Moses ran away from it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And them that had escaped from the sword carried he away to Babylon; and they were servants to him and his sons until the reign of the kingdom of Persia:
+He carried those who had escaped from the sword away to Babylon; and they were servants to him and his sons until the reign of the kingdom of Persia:

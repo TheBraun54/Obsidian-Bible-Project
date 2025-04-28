@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He giveth snow like wool; He scattereth the hoar-frost like ashes.
+He gives snow like wool, and scatters frost like ashes.

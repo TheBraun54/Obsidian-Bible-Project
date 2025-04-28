@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the waters of Nimrim shall be desolate; for the grass is withered away, the tender grass faileth, there is no green thing.
+For the waters of Nimrim will be desolate; for the grass has withered away, the tender grass fails, there is no green thing.

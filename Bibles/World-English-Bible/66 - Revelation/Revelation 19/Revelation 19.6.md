@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard as it were the voice of a great multitude, and as the voice of many waters, and as the voice of mighty thunders, saying, Hallelujah: for the Lord our God, the Almighty, reigneth.
+I heard something like the voice of a great multitude, and like the voice of many waters, and like the voice of mighty thunders, saying, "Hallelujah! For the Lord our God, the Almighty, reigns!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman of Tekoa said unto the king, My lord, O king, the iniquity be on me, and on my father's house; and the king and his throne be guiltless.
+The woman of Tekoa said to the king, "My lord, O king, the iniquity be on me, and on my father's house; and the king and his throne be guiltless."

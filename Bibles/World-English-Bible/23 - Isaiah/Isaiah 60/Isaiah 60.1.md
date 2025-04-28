@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, shine; for thy light is come, and the glory of Jehovah is risen upon thee.
+"Arise, shine; for your light is come, and the glory of Yahweh is risen on you.

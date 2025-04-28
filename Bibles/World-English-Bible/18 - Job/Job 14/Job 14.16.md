@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now thou numberest my steps: Dost thou not watch over my sin?
+But now you number my steps. Don't you watch over my sin?

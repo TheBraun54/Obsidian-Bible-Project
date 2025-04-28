@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after this, that David inquired of Jehovah, saying, Shall I go up into any of the cities of Judah? And Jehovah said unto him, Go up. And David said, Whither shall I go up? And he said, Unto Hebron.
+It happened after this, that David inquired of Yahweh, saying, "Shall I go up into any of the cities of Judah?" Yahweh said to him, "Go up." David said, "Where shall I go up?" He said, "To Hebron."

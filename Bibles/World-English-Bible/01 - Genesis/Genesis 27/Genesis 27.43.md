@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, my son, obey my voice; and arise, flee thou to Laban my brother to Haran;
+Now therefore, my son, obey my voice. Arise, flee to Laban, my brother, in Haran.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the fortified city is solitary, a habitation deserted and forsaken, like the wilderness: there shall the calf feed, and there shall he lie down, and consume the branches thereof.
+For the fortified city is solitary, a habitation deserted and forsaken, like the wilderness. The calf will feed there, and there he will lie down, and consume its branches.

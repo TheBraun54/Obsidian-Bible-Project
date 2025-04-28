@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-You only have I known of all the families of the earth: therefore I will visit upon you all your iniquities.
+"You only have I chosen of all the families of the earth. Therefore I will punish you for all of your sins."

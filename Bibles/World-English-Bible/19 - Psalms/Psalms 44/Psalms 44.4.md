@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art my King, O God: Command deliverance for Jacob.
+You are my King, God. Command victories for Jacob!

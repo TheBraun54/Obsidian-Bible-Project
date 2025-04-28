@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people repented them for Benjamin, because that Jehovah had made a breach in the tribes of Israel.
+The people grieved for Benjamin, because that Yahweh had made a breach in the tribes of Israel.

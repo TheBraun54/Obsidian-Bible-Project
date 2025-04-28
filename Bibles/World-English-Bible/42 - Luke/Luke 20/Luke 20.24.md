@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Show me a denarius. Whose image and superscription hath it? And they said, Caesar's.
+Show me a denarius. Whose image and inscription are on it?" They answered, "Caesar's."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore she said unto Abraham, Cast out this handmaid and her son: for the son of this handmaid shall not be heir with my son, even with Isaac.
+Therefore she said to Abraham, "Cast out this handmaid and her son! For the son of this handmaid will not be heir with my son, Isaac."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How hast thou counselled him that hath no wisdom, And plentifully declared sound knowledge!
+How have you counseled him who has no wisdom, and plentifully declared sound knowledge!

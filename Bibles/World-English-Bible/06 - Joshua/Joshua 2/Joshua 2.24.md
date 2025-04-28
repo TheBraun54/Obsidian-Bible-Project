@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto Joshua, Truly Jehovah hath delivered into our hands all the land; and moreover all the inhabitants of the land do melt away before us.
+They said to Joshua, "Truly Yahweh has delivered into our hands all the land. Moreover, all the inhabitants of the land melt away before us."

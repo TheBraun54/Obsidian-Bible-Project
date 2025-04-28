@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The adversary hath spread out his hand upon all her pleasant things: For she hath seen that the nations are entered into her sanctuary, Concerning whom thou didst command that they should not enter into thine assembly.
+The adversary has spread out his hand on all her pleasant things: for she has seen that the nations are entered into her sanctuary, concerning whom you commanded that they should not enter into your assembly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when that which is perfect is come, that which is in part shall be done away.
+but when that which is complete has come, then that which is partial will be done away with.

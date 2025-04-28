@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O Jehovah, let the word that thou hast spoken concerning thy servant, and concerning his house, be established for ever, and do as thou hast spoken.
+Now, Yahweh, let the word that you have spoken concerning your servant, and concerning his house, be established forever, and do as you have spoken.

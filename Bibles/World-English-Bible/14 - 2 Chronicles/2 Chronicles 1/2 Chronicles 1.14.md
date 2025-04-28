@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon gathered chariots and horsemen: and he had a thousand and four hundred chariots, and twelve thousand horsemen, that he placed in the chariot cities, and with the king at Jerusalem.
+Solomon gathered chariots and horsemen: and he had one thousand four hundred chariots, and twelve thousand horsemen, that he placed in the chariot cities, and with the king at Jerusalem.

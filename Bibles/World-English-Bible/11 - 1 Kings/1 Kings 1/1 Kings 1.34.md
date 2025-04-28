@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let Zadok the priest and Nathan the prophet anoint him there king over Israel; and blow ye the trumpet, and say, [Long] live king Solomon.
+Let Zadok the priest and Nathan the prophet anoint him there king over Israel. Blow the trumpet, and say, 'Long live king Solomon!'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
---ye that put far away the evil day, and cause the seat of violence to come near;
+Those who put far away the evil day, and cause the seat of violence to come near;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then Jehovah will make thy plagues wonderful, and the plagues of thy seed, even great plagues, and of long continuance, and sore sicknesses, and of long continuance.
+then Yahweh will make your plagues wonderful, and the plagues of your seed, even great plagues, and of long continuance, and severe sicknesses, and of long continuance.

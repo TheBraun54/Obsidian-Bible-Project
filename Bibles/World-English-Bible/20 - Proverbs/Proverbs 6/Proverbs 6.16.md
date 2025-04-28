@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are six things which Jehovah hateth; Yea, seven which are an abomination unto him:
+There are six things which Yahweh hates; yes, seven which are an abomination to him:

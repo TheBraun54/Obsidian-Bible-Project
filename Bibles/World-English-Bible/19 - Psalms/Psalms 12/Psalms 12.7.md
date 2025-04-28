@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt keep them, O Jehovah, Thou wilt preserve them from this generation for ever.
+You will keep them, Yahweh. You will preserve them from this generation forever.

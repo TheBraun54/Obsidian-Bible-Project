@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto Pharaoh, To sojourn in the land are we come; for there is no pasture for thy servants' flocks; for the famine is sore in the land of Canaan: now therefore, we pray thee, let thy servants dwell in the land of Goshen.
+They said to Pharaoh, "We have come to live as foreigners in the land, for there is no pasture for your servants' flocks. For the famine is severe in the land of Canaan. Now therefore, please let your servants dwell in the land of Goshen."

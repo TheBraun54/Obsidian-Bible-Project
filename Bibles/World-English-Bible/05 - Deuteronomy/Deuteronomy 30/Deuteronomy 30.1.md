@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when all these things are come upon thee, the blessing and the curse, which I have set before thee, and thou shalt call them to mind among all the nations, whither Jehovah thy God hath driven thee,
+It shall happen, when all these things have come on you, the blessing and the curse, which I have set before you, and you shall call them to mind among all the nations, where Yahweh your God has driven you,

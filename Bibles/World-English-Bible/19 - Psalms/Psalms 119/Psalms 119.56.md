@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This I have had, Because I have kept thy precepts.
+This is my way, that I keep your precepts. CHET

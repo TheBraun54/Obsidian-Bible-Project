@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore cried in the temple, teaching and saying, Ye both know me, and know whence I am; and I am not come of myself, but he that sent me is true, whom ye know not.
+Jesus therefore cried out in the temple, teaching and saying, "You both know me, and know where I am from. I have not come of myself, but he who sent me is true, whom you don't know.

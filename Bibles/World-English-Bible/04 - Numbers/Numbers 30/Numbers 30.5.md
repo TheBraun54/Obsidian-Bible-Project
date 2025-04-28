@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if her father disallow her in the day that he heareth, none of her vows, or of her bonds wherewith she hath bound her soul, shall stand: and Jehovah will forgive her, because her father disallowed her.
+But if her father disallow her in the day that he hears, none of her vows, or of her bonds with which she has bound her soul, shall stand: and Yahweh will forgive her, because her father disallowed her.

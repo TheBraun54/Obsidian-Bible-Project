@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the righteous shine forth as the sun in the kingdom of their Father. He that hath ears, let him hear.
+Then the righteous will shine forth like the sun in the Kingdom of their Father. He who has ears to hear, let him hear.

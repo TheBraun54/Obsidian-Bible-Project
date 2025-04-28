@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus were they defiled with their works, And played the harlot in their doings.
+Thus were they defiled with their works, and prostituted themselves in their deeds.

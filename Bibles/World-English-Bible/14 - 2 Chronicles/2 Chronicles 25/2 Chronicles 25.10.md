@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Amaziah separated them, [to wit], the army that was come to him out of Ephraim, to go home again: wherefore their anger was greatly kindled against Judah, and they returned home in fierce anger.
+Then Amaziah separated them, [to wit], the army that had come to him out of Ephraim, to go home again: therefore their anger was greatly kindled against Judah, and they returned home in fierce anger.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have a little sister, And she hath no breasts: What shall we do for our sister In the day when she shall be spoken for?
+We have a little sister. She has no breasts. What shall we do for our sister in the day when she is to be spoken for?

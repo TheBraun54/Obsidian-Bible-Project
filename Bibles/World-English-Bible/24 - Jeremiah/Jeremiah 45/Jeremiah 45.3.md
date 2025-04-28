@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst say, Woe is me now! for Jehovah hath added sorrow to my pain; I am weary with my groaning, and I find no rest.
+You said, Woe is me now! for Yahweh has added sorrow to my pain; I am weary with my groaning, and I find no rest.

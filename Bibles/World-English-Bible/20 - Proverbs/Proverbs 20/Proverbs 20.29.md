@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The glory of young men is their strength; And the beauty of old men is the hoary head.
+The glory of young men is their strength. The splendor of old men is their gray hair.

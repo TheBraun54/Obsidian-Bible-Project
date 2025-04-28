@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that dwell in my house, and my maids, count me for a stranger; I am an alien in their sight.
+Those who dwell in my house, and my maids, count me for a stranger. I am an alien in their sight.

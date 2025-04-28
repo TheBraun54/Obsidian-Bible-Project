@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the altar of acacia wood, five cubits long, and five cubits broad; the altar shall be foursquare: and the height thereof shall be three cubits.
+"You shall make the altar of acacia wood, five cubits long, and five cubits broad; the altar shall be foursquare: and its height shall be three cubits.

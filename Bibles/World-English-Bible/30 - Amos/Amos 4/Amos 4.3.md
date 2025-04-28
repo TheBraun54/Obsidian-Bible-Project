@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall go out at the breaches, every one straight before her; and ye shall cast [yourselves] into Harmon, saith Jehovah.
+You will go out at the breaks in the wall, everyone straight before her; and you will cast yourselves into Harmon," says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Ramah and Geba, six hundred twenty and one.
+The men of Ramah and Geba, six hundred twenty-one.

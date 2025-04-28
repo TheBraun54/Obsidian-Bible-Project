@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is good unto them that wait for him, to the soul that seeketh him.
+Yahweh is good to those who wait for him, to the soul that seeks him.

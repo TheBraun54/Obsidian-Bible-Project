@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, if thou wilt receive my words, And lay up my commandments with thee;
+My son, if you will receive my words, and store up my commandments within you;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nahash the Ammonite said unto them, On this condition will I make it with you, that all your right eyes be put out; and I will lay it for a reproach upon all Israel.
+Nahash the Ammonite said to them, "On this condition I will make it with you, that all your right eyes be put out; and I will lay it for a reproach on all Israel."

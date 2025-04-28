@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did all the children of Israel; as Jehovah commanded Moses and Aaron, so did they.
+All the children of Israel did so. As Yahweh commanded Moses and Aaron, so they did.

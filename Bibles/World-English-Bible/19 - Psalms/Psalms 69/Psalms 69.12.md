@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that sit in the gate talk of me; And [I am] the song of the drunkards.
+Those who sit in the gate talk about me. I am the song of the drunkards.

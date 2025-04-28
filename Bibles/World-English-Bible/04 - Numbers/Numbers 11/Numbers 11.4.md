@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the mixed multitude that was among them lusted exceedingly: and the children of Israel also wept again, and said, Who shall give us flesh to eat?
+The mixed multitude that was among them lusted exceedingly: and the children of Israel also wept again, and said, "Who will give us flesh to eat?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the sons of Rachel: Joseph and Benjamin;
+The sons of Rachel: Joseph and Benjamin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-hath at the end of these days spoken unto us in [his] Son, whom he appointed heir of all things, through whom also he made the worlds;
+has at the end of these days spoken to us by his Son, whom he appointed heir of all things, through whom also he made the worlds.

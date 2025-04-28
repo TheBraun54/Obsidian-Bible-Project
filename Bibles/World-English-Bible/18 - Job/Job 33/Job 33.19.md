@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is chastened also with pain upon his bed, And with continual strife in his bones;
+He is chastened also with pain on his bed, with continual strife in his bones;

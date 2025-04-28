@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the staves were so long that the ends of the staves were seen from the holy place before the oracle; but they were not seen without: and there they are unto this day.
+The poles were so long that the ends of the poles were seen from the holy place before the oracle; but they were not seen outside: and there they are to this day.

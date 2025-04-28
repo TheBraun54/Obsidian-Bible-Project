@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a voice declareth from Dan, and publisheth evil from the hills of Ephraim:
+For a voice declares from Dan, and publishes evil from the hills of Ephraim:

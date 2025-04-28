@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is better, if the will of God should so will, that ye suffer for well-doing than for evil-doing.
+For it is better, if it is God's will, that you suffer for doing well than for doing evil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And certain of them had charge of the vessels of service; for by count were these brought in and by count were these taken out.
+Certain of them were in charge of the vessels of service; for by count were these brought in and by count were these taken out.

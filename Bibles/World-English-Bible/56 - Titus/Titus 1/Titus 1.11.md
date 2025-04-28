@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose mouths must be stopped; men who overthrow whole houses, teaching things which they ought not, for filthy lucre's sake.
+whose mouths must be stopped; men who overthrow whole houses, teaching things which they ought not, for dishonest gain's sake.

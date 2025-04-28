@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they all ate, and were filled.
+They all ate, and were filled.

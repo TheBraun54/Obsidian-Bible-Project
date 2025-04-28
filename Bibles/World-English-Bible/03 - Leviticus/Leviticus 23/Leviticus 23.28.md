@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall do no manner of work in that same day; for it is a day of atonement, to make atonement for you before Jehovah your God.
+You shall do no kind of work in that same day; for it is a day of atonement, to make atonement for you before Yahweh your God.

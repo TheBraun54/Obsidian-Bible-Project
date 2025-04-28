@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the dragon saw that he was cast down to the earth, he persecuted the woman that brought forth the man [child] .
+When the dragon saw that he was thrown down to the earth, he persecuted the woman who gave birth to the male child.

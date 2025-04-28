@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the morning, about the time of offering the oblation, that, behold, there came water by the way of Edom, and the country was filled with water.
+It happened in the morning, about the time of offering the offering, that behold, water came by the way of Edom, and the country was filled with water.

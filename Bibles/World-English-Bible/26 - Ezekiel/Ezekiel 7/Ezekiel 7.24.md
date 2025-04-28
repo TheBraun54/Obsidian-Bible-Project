@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I will bring the worst of the nations, and they shall possess their houses: I will also make the pride of the strong to cease; and their holy places shall be profaned.
+Therefore I will bring the worst of the nations, and they shall possess their houses: I will also make the pride of the strong to cease; and their holy places shall be profaned.

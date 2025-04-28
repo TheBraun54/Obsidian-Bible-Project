@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was teaching in one of the synagogues on the sabbath day.
+He was teaching in one of the synagogues on the Sabbath day.

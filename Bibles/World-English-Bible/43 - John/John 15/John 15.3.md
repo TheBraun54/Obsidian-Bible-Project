@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Already ye are clean because of the word which I have spoken unto you.
+You are already pruned clean because of the word which I have spoken to you.

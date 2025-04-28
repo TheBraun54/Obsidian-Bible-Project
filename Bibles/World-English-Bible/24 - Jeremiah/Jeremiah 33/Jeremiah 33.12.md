@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: Yet again shall there be in this place, which is waste, without man and without beast, and in all the cities thereof, a habitation of shepherds causing their flocks to lie down.
+Thus says Yahweh of Armies: Yet again shall there be in this place, which is waste, without man and without animal, and in all its cities, a habitation of shepherds causing their flocks to lie down.

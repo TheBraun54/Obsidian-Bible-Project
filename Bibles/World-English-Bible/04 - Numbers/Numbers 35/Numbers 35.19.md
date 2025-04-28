@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The avenger of blood shall himself put the murderer to death: when he meeteth him, he shall put him to death.
+The avenger of blood shall himself put the murderer to death: when he meets him, he shall put him to death.

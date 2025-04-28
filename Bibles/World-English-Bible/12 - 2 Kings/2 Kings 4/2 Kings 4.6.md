@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the vessels were full, that she said unto her son, Bring me yet a vessel. And he said unto her, There is not a vessel more. And the oil stayed.
+It happened, when the containers were full, that she said to her son, "Bring me another container." He said to her, "There isn't another container." The oil stopped flowing.

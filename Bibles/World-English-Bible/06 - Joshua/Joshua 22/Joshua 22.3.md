@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye have not left your brethren these many days unto this day, but have kept the charge of the commandment of Jehovah your God.
+You have not left your brothers these many days to this day, but have performed the duty of the commandment of Yahweh your God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To judge the fatherless and the oppressed, That man who is of the earth may be terrible no more.
+to judge the fatherless and the oppressed, that man who is of the earth may terrify no more. For the Chief Musician. By David.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David sware moreover, and said, Thy father knoweth well that I have found favor in thine eyes; and he saith, Let not Jonathan know this, lest he be grieved: but truly as Jehovah liveth, and as thy soul liveth, there is but a step between me and death.
+David swore moreover, and said, "Your father knows well that I have found favor in your eyes; and he says, 'Don't let Jonathan know this, lest he be grieved:' but truly as Yahweh lives, and as your soul lives, there is but a step between me and death."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Christ is the end of the law unto righteousness to every one that believeth.
+For Christ is the fulfillment of the law for righteousness to everyone who believes.

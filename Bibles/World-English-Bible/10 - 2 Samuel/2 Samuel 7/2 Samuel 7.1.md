@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the king dwelt in his house, and Jehovah had given him rest from all his enemies round about,
+It happened, when the king lived in his house, and Yahweh had given him rest from all his enemies all around,

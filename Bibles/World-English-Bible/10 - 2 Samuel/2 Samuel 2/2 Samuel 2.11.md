@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the time that David was king in Hebron over the house of Judah was seven years and six months.
+The time that David was king in Hebron over the house of Judah was seven years and six months.

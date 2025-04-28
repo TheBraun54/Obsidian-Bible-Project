@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of old didst thou lay the foundation of the earth; And the heavens are the work of thy hands.
+Of old, you laid the foundation of the earth. The heavens are the work of your hands.

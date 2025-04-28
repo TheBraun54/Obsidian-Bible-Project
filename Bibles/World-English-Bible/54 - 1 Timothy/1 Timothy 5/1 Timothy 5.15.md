@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for already some are turned aside after Satan.
+For already some have turned aside after Satan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Adamah, and Ramah, and Hazor,
+Adamah, Ramah, Hazor,

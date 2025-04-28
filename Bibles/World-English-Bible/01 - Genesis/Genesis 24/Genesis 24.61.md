@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rebekah arose, and her damsels, and they rode upon the camels, and followed the man: and the servant took Rebekah, and went his way.
+Rebekah arose with her ladies. They rode on the camels, and followed the man. The servant took Rebekah, and went his way.

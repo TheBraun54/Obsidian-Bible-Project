@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say unto him, Take heed, and be quiet; fear not, neither let thy heart be faint, because of these two tails of smoking firebrands, for the fierce anger of Rezin and Syria, and of the son of Remaliah.
+Tell him, 'Be careful, and keep calm. Don't be afraid, neither let your heart be faint because of these two tails of smoking torches, for the fierce anger of Rezin and Syria, and of the son of Remaliah.

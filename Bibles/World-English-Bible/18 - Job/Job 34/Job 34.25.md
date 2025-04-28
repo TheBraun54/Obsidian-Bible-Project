@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he taketh knowledge of their works; And he overturneth them in the night, so that they are destroyed.
+Therefore he takes knowledge of their works. He overturns them in the night, so that they are destroyed.

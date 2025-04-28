@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall eat fat till ye be full, and drink blood till ye be drunken, of my sacrifice which I have sacrificed for you.
+You shall eat fat until you be full, and drink blood until you are drunk, of my sacrifice which I have sacrificed for you.

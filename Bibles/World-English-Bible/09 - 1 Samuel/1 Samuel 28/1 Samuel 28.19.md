@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jehovah will deliver Israel also with thee into the hand of the Philistines; and to-morrow shalt thou and thy sons be with me: Jehovah will deliver the host of Israel also into the hand of the Philistines.
+Moreover Yahweh will deliver Israel also with you into the hand of the Philistines; and tomorrow you and your sons will be with me. Yahweh will deliver the army of Israel also into the hand of the Philistines."

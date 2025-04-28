@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye, brethren, were called for freedom; only [use] not your freedom for an occasion to the flesh, but through love be servants one to another.
+For you, brothers, were called for freedom. Only don't use your freedom for gain to the flesh, but through love be servants to one another.

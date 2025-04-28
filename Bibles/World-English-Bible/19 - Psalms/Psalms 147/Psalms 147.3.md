@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He healeth the broken in heart, And bindeth up their wounds.
+He heals the broken in heart, and binds up their wounds.

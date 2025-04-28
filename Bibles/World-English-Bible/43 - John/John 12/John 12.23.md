@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answereth them, saying, The hour is come, that the Son of man should be glorified.
+Jesus answered them, "The time has come for the Son of Man to be glorified.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Spirit of the Lord Jehovah is upon me; because Jehovah hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the broken-hearted, to proclaim liberty to the captives, and the opening [of the prison] to them that are bound;
+The Spirit of the Lord Yahweh is on me; because Yahweh has anointed me to preach good news to the humble. He has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and release to those who are bound;

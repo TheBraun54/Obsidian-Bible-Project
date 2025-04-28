@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the entrance of the oracle he made doors of olive-wood: the lintel [and] door-posts were a fifth part [of the wall] .
+For the entrance of the oracle he made doors of olive wood: the lintel [and] door posts were a fifth part [of the wall].

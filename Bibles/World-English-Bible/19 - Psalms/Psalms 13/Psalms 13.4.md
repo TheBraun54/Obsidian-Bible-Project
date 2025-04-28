@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest mine enemy say, I have prevailed against him; [Lest] mine adversaries rejoice when I am moved.
+Lest my enemy say, "I have prevailed against him;" Lest my adversaries rejoice when I fall.

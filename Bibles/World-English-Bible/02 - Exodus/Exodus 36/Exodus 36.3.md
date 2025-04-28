@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they received of Moses all the offering which the children of Israel had brought for the work of the service of the sanctuary, wherewith to make it. And they brought yet unto him freewill-offerings every morning.
+and they received from Moses all the offering which the children of Israel had brought for the work of the service of the sanctuary, with which to make it. They brought yet to him freewill offerings every morning.

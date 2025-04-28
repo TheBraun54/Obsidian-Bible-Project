@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto him, I say not unto thee, Until seven times; but, Until seventy times seven.
+Jesus said to him, "I don't tell you until seven times, but, until seventy times seven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore shalt thou serve thine enemies that Jehovah shall send against thee, in hunger, and in thirst, and in nakedness, and in want of all things: and he shall put a yoke of iron upon thy neck, until he have destroyed thee.
+therefore you shall serve your enemies whom Yahweh shall send against you, in hunger, and in thirst, and in nakedness, and in want of all things: and he shall put a yoke of iron on your neck, until he has destroyed you.

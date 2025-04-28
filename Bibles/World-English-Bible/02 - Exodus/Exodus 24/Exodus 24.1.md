@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto Moses, Come up unto Jehovah, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship ye afar off:
+He said to Moses, "Come up to Yahweh, you, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship from a distance.

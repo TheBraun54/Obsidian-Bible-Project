@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of all clean birds ye may eat.
+Of all clean birds you may eat.

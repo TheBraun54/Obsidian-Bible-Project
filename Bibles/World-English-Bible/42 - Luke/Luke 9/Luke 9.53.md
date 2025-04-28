@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they did not receive him, because his face was [as though he were] going to Jerusalem.
+They didn't receive him, because he was traveling with his face set towards Jerusalem.

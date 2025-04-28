@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman conceived; and she sent and told David, and said, I am with child.
+The woman conceived; and she sent and told David, and said, "I am with child."

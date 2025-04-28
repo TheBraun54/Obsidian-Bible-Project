@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the tenth to Shimei, his sons and his brethren, twelve:
+the tenth to Shimei, his sons and his brothers, twelve:

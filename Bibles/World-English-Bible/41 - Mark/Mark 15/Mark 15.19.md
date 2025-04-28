@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they smote his head with a reed, and spat upon him, and bowing their knees worshipped him.
+They struck his head with a reed, and spat on him, and bowing their knees, did homage to him.

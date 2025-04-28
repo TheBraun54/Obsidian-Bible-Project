@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken unto this, O Job: Stand still, and consider the wondrous works of God.
+"Listen to this, Job. Stand still, and consider the wondrous works of God.

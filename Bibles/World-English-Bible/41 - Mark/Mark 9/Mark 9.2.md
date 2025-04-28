@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after six days Jesus taketh with him Peter, and James, and John, and bringeth them up into a high mountain apart by themselves: and he was transfigured before them;
+After six days Jesus took with him Peter, James, and John, and brought them up onto a high mountain privately by themselves, and he was changed into another form in front of them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he looked upon them, and said, What then is this that is written, The stone which the builders rejected, The same was made the head of the corner?
+But he looked at them, and said, "Then what is this that is written, 'The stone which the builders rejected, the same was made the chief cornerstone?'

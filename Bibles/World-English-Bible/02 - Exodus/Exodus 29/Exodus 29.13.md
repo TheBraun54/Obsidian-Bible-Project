@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take all the fat that covereth the inwards, and the caul upon the liver, and the two kidneys, and the fat that is upon them, and burn them upon the altar.
+You shall take all the fat that covers the innards, the cover of the liver, the two kidneys, and the fat that is on them, and burn them on the altar.

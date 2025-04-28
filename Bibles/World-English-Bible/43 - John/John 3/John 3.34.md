@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he whom God hath sent speaketh the words of God: for he giveth not the Spirit by measure.
+For he whom God has sent speaks the words of God; for God gives the Spirit without measure.

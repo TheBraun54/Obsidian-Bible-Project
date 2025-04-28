@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of these were the courses of the doorkeepers, even of the chief men, having offices like their brethren, to minister in the house of Jehovah.
+Of these were the divisions of the doorkeepers, even of the chief men, having offices like their brothers, to minister in the house of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the people were come unto the forest, behold, the honey dropped: but no man put his hand to his mouth; for the people feared the oath.
+When the people were come to the forest, behold, the honey dropped: but no man put his hand to his mouth; for the people feared the oath.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The curse of Jehovah is in the house of the wicked; But he blesseth the habitation of the righteous.
+Yahweh's curse is in the house of the wicked, but he blesses the habitation of the righteous.

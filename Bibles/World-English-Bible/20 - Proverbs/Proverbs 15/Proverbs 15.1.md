@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A soft answer turneth away wrath; But a grievous word stirreth up anger.
+A gentle answer turns away wrath, but a harsh word stirs up anger.

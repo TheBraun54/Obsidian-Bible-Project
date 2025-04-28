@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the name of the other was Eliezer; for [he said], The God of my father was my help, and delivered me from the sword of Pharaoh.
+The name of the other was Eliezer, for he said, "My father's God was my help and delivered me from Pharaoh's sword."

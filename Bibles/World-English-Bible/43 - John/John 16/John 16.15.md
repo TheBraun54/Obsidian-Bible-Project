@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things whatsoever the Father hath are mine: therefore said I, that he taketh of mine, and shall declare [it] unto you.
+All things whatever the Father has are mine; therefore I said that he takes of mine, and will declare it to you.

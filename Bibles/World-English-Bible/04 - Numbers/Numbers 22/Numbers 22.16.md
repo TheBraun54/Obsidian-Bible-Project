@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to Balaam, and said to him, Thus saith Balak the son of Zippor, Let nothing, I pray thee, hinder thee from coming unto me:
+They came to Balaam, and said to him, "Thus says Balak the son of Zippor, 'Please let nothing hinder you from coming to me:

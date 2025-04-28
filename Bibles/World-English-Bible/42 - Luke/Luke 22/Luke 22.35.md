@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, When I sent you forth without purse, and wallet, and shoes, lacked ye anything? And they said, Nothing.
+He said to them, "When I sent you out without purse, and wallet, and shoes, did you lack anything?" They said, "Nothing."

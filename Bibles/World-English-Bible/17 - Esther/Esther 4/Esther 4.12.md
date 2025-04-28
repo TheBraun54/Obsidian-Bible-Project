@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they told to Mordecai Esther's words.
+They told to Mordecai Esther's words.

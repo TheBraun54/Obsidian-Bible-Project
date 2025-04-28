@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the womb he took his brother by the heel; and in his manhood he had power with God:
+In the womb he took his brother by the heel; and in his manhood he contended with God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with him is an arm of flesh; but with us is Jehovah our God to help us, and to fight our battles. And the people rested themselves upon the words of Hezekiah king of Judah.
+With him is an arm of flesh; but with us is Yahweh our God to help us, and to fight our battles." The people rested themselves on the words of Hezekiah king of Judah.

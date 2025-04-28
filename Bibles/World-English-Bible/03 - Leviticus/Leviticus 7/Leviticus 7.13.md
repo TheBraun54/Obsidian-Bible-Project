@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With cakes of leavened bread he shall offer his oblation with the sacrifice of his peace-offerings for thanksgiving.
+With cakes of leavened bread he shall offer his offering with the sacrifice of his peace offerings for thanksgiving.

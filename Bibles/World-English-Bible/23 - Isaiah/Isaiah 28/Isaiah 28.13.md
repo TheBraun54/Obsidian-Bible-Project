@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall the word of Jehovah be unto them precept upon precept, precept upon precept; line upon line, line upon line; here a little, there a little; that they may go, and fall backward, and be broken, and snared, and taken.
+Therefore the word of Yahweh will be to them precept on precept, precept on precept; line on line, line on line; here a little, there a little; that they may go, fall backward, be broken, be snared, and be taken.

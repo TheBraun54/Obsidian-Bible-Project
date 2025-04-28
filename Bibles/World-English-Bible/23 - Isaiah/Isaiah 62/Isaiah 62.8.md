@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath sworn by his right hand, and by the arm of his strength, Surely I will no more give thy grain to be food for thine enemies; and foreigners shall not drink thy new wine, for which thou hast labored:
+Yahweh has sworn by his right hand, and by the arm of his strength, "Surely I will no more give your grain to be food for your enemies; and foreigners shall not drink your new wine, for which you have labored:

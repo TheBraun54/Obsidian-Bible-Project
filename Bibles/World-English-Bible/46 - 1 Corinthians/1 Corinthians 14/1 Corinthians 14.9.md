@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So also ye, unless ye utter by the tongue speech easy to understood, how shall it be known what is spoken? for ye will be speaking into the air.
+So also you, unless you uttered by the tongue words easy to understand, how would it be known what is spoken? For you would be speaking into the air.

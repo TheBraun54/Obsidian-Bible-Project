@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return, O backsliding children, saith Jehovah; for I am a husband unto you: and I will take you one of a city, and two of a family, and I will bring you to Zion:
+"Return, backsliding children," says Yahweh; "for I am a husband to you. I will take you one of a city, and two of a family, and I will bring you to Zion.

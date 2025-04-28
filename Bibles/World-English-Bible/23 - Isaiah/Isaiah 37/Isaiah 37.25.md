@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have digged and drunk water, and with the sole of my feet will I dry up all the rivers of Egypt.
+I have dug and drunk water, and with the sole of my feet I will dry up all the rivers of Egypt."

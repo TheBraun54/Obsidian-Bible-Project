@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I commanded Joshua at that time, saying, Thine eyes have seen all that Jehovah your God hath done unto these two kings: so shall Jehovah do unto all the kingdoms whither thou goest over.
+I commanded Joshua at that time, saying, "Your eyes have seen all that Yahweh your God has done to these two kings: so shall Yahweh do to all the kingdoms where you go over.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they read in the book, in the law of God, distinctly; and they gave the sense, so that they understood the reading.
+They read in the book, in the law of God, distinctly; and they gave the sense, so that they understood the reading.

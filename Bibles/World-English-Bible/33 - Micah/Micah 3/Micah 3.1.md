@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, Hear, I pray you, ye heads of Jacob, and rulers of the house of Israel: is it not for you to know justice?
+I said, "Please listen, you heads of Jacob, and rulers of the house of Israel: Isn't it for you to know justice?

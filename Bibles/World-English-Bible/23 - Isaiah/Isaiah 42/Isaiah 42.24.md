@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who gave Jacob for a spoil, and Israel to the robbers? did not Jehovah? he against whom we have sinned, and in whose ways they would not walk, neither were they obedient unto his law.
+Who gave Jacob as plunder, and Israel to the robbers? Didn't Yahweh, he against whom we have sinned? For they would not walk in his ways, and they disobeyed his law.

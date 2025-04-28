@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be the plague wherewith Jehovah will smite all the peoples that have warred against Jerusalem: their flesh shall consume away while they stand upon their feet, and their eyes shall consume away in their sockets, and their tongue shall consume away in their mouth.
+This will be the plague with which Yahweh will strike all the peoples who have warred against Jerusalem: their flesh will consume away while they stand on their feet, and their eyes will consume away in their sockets, and their tongue will consume away in their mouth.

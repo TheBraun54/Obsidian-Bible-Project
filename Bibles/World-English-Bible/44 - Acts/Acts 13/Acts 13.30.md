@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God raised him from the dead:
+But God raised him from the dead,

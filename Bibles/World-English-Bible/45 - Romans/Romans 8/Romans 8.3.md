@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what the law could not do, in that it was weak through the flesh, God, sending his own Son in the likeness of sinful flesh and for sin, condemned sin in the flesh:
+For what the law couldn't do, in that it was weak through the flesh, God did, sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh;

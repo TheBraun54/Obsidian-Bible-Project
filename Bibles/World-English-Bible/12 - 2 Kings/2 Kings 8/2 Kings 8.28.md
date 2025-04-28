@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went with Joram the son of Ahab to war against Hazael king of Syria at Ramoth-gilead: and the Syrians wounded Joram.
+He went with Joram the son of Ahab to war against Hazael king of Syria at Ramoth Gilead: and the Syrians wounded Joram.

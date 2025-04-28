@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the dishes thereof, and the spoons thereof, and the flagons thereof, and the bowls thereof, wherewith to pour out: of pure gold shalt thou make them.
+You shall make its dishes, its spoons, its ladles, and its bowls to pour out offerings with. You shall make them of pure gold.

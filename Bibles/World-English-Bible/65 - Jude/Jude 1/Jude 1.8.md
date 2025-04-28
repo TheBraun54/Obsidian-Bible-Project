@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet in like manner these also in their dreamings defile the flesh, and set at nought dominion, and rail at dignities.
+Yet in the same way, these also in their dreaming defile the flesh, despise authority, and slander celestial beings.

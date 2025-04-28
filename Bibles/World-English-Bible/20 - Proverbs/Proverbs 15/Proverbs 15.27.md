@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is greedy of gain troubleth his own house; But he that hateth bribes shall live.
+He who is greedy for gain troubles his own house, but he who hates bribes will live.

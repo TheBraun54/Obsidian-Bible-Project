@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his head and his hair were white as white wool, [white] as snow; and his eyes were as a flame of fire;
+His head and his hair were white as white wool, like snow. His eyes were like a flame of fire.

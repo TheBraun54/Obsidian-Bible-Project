@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, The prison-house we found shut in all safety, and the keepers standing at the doors: but when we had opened, we found no man within.
+"We found the prison shut and locked, and the guards standing before the doors, but when we opened them, we found no one inside!"

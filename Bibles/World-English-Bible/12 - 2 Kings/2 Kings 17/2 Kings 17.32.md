@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they feared Jehovah, and made unto them from among themselves priests of the high places, who sacrificed for them in the houses of the high places.
+So they feared Yahweh, and made to them from among themselves priests of the high places, who sacrificed for them in the houses of the high places.

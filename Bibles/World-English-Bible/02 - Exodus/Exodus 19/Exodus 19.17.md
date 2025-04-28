@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses brought forth the people out of the camp to meet God; and they stood at the nether part of the mount.
+Moses led the people out of the camp to meet God; and they stood at the lower part of the mountain.

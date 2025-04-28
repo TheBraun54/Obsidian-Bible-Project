@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How say ye, We are mighty men, and valiant men for the war?
+How do you say, We are mighty men, and valiant men for the war?

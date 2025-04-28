@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As Jehovah commanded Moses his servant, so did Moses command Joshua: and so did Joshua; he left nothing undone of all that Jehovah commanded Moses.
+As Yahweh commanded Moses his servant, so Moses commanded Joshua. Joshua did so. He left nothing undone of all that Yahweh commanded Moses.

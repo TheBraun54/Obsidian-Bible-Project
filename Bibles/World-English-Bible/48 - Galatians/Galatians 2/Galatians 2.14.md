@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when I saw that they walked not uprightly according to the truth of the gospel, I said unto Cephas before [them] all, If thou, being a Jew, livest as do the Gentiles, and not as do the Jews, how compellest thou the Gentiles to live as do the Jews?
+But when I saw that they didn't walk uprightly according to the truth of the Good News, I said to Peter before them all, "If you, being a Jew, live as the Gentiles do, and not as the Jews do, why do you compel the Gentiles to live as the Jews do?

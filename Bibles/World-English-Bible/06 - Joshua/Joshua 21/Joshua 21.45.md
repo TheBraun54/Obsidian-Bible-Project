@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There failed not aught of any good thing which Jehovah had spoken unto the house of Israel; all came to pass.
+Nothing failed of any good thing which Yahweh had spoken to the house of Israel. All came to pass.

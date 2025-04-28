@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Annas the high priest [was there], and Caiaphas, and John, and Alexander, and as many as were of the kindred of the high priest.
+Annas the high priest was there, with Caiaphas, John, Alexander, and as many as were relatives of the high priest.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will smite Egypt, smiting and healing; and they shall return unto Jehovah, and he will be entreated of them, and will heal them.
+Yahweh will strike Egypt, striking and healing. They will return to Yahweh, and he will be entreated by them, and will heal them.

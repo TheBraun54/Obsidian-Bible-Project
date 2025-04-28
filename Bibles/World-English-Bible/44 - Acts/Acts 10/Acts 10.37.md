@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that saying ye yourselves know, which was published throughout all Judaea, beginning from Galilee, after the baptism which John preached;
+you yourselves know what happened, which was proclaimed throughout all Judea, beginning from Galilee, after the baptism which John preached;

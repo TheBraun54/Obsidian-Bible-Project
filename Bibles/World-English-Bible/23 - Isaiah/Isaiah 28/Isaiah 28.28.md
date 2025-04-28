@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bread [grain] is ground; for he will not be always threshing it: and though the wheel of his cart and his horses scatter it, he doth not grind it.
+Bread flour must be ground; so he will not always be threshing it. Although he drives the wheel of his threshing cart over it, his horses don't grind it.

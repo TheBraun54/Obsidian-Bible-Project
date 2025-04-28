@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will I wail for Moab; yea, I will cry out for all Moab: for the men of Kir-heres shall they mourn.
+Therefore will I wail for Moab; yes, I will cry out for all Moab: for the men of Kir Heres shall they mourn.

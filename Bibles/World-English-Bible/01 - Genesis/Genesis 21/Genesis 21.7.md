@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Who would have said unto Abraham, that Sarah should give children suck? for I have borne him a son in his old age.
+She said, "Who would have said to Abraham, that Sarah would nurse children? For I have borne him a son in his old age."

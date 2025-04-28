@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, sirs, be of good cheer: for I believe God, that it shall be even so as it hath been spoken unto me.
+Therefore, sirs, cheer up! For I believe God, that it will be just as it has been spoken to me.

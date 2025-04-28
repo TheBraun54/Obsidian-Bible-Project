@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou bringest certain strange things to our ears: we would know therefore what these things mean.
+For you bring certain strange things to our ears. We want to know therefore what these things mean."

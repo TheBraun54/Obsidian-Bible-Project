@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, Capernaum, shalt thou be exalted unto heaven? thou shalt be brought down unto Hades.
+You, Capernaum, who are exalted to heaven, will be brought down to Hades.

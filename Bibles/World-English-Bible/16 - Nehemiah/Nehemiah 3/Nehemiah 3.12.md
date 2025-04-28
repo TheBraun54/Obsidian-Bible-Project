@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto him repaired Shallum the son of Hallohesh, the ruler of half the district of Jerusalem, he and his daughters.
+Next to him repaired Shallum the son of Hallohesh, the ruler of half the district of Jerusalem, he and his daughters.

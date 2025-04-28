@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And into whatsoever house ye shall enter, first say, Peace [be] to this house.
+Into whatever house you enter, first say, 'Peace be to this house.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, It is not meet to take the children's bread and cast it to the dogs.
+But he answered, "It is not appropriate to take the children's bread and throw it to the dogs."

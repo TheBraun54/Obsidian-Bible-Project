@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stood before Moses, and before Eleazar the priest, and before the princes and all the congregation, at the door of the tent of meeting, saying,
+They stood before Moses, and before Eleazar the priest, and before the princes and all the congregation, at the door of the Tent of Meeting, saying,

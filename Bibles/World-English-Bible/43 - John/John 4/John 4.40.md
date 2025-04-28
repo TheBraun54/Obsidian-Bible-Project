@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So when the Samaritans came unto him, they besought him to abide with them: and he abode there two days.
+So when the Samaritans came to him, they begged him to stay with them. He stayed there two days.

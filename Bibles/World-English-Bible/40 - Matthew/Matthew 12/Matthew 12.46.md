@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he was yet speaking to the multitudes, behold, his mother and his brethren stood without, seeking to speak to him.
+While he was yet speaking to the multitudes, behold, his mother and his brothers stood outside, seeking to speak to him.

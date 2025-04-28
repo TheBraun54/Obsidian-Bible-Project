@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, Except a grain of wheat fall into the earth and die, it abideth by itself alone; but if it die, it beareth much fruit.
+Most certainly I tell you, unless a grain of wheat falls into the earth and dies, it remains by itself alone. But if it dies, it bears much fruit.

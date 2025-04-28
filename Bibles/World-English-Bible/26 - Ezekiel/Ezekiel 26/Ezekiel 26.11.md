@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With the hoofs of his horses shall he tread down all thy streets; he shall slay thy people with the sword; and the pillars of thy strength shall go down to the ground.
+With the hoofs of his horses shall he tread down all your streets; he shall kill your people with the sword; and the pillars of your strength shall go down to the ground.

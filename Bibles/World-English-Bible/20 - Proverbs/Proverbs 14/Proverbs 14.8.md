@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wisdom of the prudent is to understand his way; But the folly of fools is deceit.
+The wisdom of the prudent is to think about his way, but the folly of fools is deceit.

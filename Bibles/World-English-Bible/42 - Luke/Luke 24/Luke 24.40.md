@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had said this, he showed them his hands and his feet.
+When he had said this, he showed them his hands and his feet.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God will bring every work into judgment, with every hidden thing, whether it be good, or whether it be evil.
+For God will bring every work into judgment, with every hidden thing, whether it is good, or whether it is evil.

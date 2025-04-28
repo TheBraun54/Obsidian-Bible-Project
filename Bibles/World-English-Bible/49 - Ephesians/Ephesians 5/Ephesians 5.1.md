@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye therefore imitators of God, as beloved children;
+Be therefore imitators of God, as beloved children.

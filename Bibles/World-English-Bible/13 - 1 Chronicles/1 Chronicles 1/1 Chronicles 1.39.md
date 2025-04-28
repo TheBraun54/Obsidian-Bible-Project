@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Lotan: Hori, and Homam; and Timna was Lotan's sister.
+The sons of Lotan: Hori, and Homam; and Timna was Lotan's sister.

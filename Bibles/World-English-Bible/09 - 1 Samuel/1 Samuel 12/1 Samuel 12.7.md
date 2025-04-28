@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore stand still, that I may plead with you before Jehovah concerning all the righteous acts of Jehovah, which he did to you and to your fathers.
+Now therefore stand still, that I may plead with you before Yahweh concerning all the righteous acts of Yahweh, which he did to you and to your fathers.

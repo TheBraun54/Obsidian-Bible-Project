@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So are the paths of all that forget God; And the hope of the godless man shall perish:
+So are the paths of all who forget God. The hope of the godless man shall perish,

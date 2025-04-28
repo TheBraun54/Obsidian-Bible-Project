@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glowing sand shall become a pool, and the thirsty ground springs of water: in the habitation of jackals, where they lay, shall be grass with reeds and rushes. [
+The burning sand will become a pool, and the thirsty ground springs of water. Grass with reeds and rushes will be in the habitation of jackals, where they lay.

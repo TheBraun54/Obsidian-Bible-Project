@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were bringing unto him little children, that he should touch them: and the disciples rebuked them.
+They were bringing to him little children, that he should touch them, but the disciples rebuked those who were bringing them.

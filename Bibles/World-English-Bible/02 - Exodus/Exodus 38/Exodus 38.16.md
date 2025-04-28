@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the hangings of the court round about were of fine twined linen.
+All the hangings around the court were of fine twined linen.

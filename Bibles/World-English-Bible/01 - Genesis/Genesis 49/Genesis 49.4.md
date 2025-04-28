@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Boiling over as water, thou shalt not have the pre-eminence; Because thou wentest up to thy father's bed; Then defiledst thou it: he went up to my couch.
+Boiling over as water, you shall not excel; because you went up to your father's bed, then defiled it. He went up to my couch.

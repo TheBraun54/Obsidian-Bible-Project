@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the assembly is to be gathered together, ye shall blow, but ye shall not sound an alarm.
+But when the assembly is to be gathered together, you shall blow, but you shall not sound an alarm.

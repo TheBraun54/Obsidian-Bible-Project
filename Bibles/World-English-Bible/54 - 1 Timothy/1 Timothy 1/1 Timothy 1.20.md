@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of whom is Hymenaeus and Alexander; whom I delivered unto Satan, that they might be taught not to blaspheme.
+of whom is Hymenaeus and Alexander; whom I delivered to Satan, that they might be taught not to blaspheme.

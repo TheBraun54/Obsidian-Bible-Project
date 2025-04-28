@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he have no brethren, then ye shall give his inheritance unto his father's brethren.
+If he has no brothers, then you shall give his inheritance to his father's brothers.

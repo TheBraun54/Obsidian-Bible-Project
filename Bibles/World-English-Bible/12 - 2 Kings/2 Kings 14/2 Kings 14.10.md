@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast indeed smitten Edom, and thy heart hath lifted thee up: glory thereof, and abide at home; for why shouldest thou meddle to [thy] hurt, that thou shouldest fall, even thou, and Judah with thee?
+You have indeed struck Edom, and your heart has lifted you up. Enjoy the glory of it, and stay at home; for why should you meddle to your harm, that you should fall, even you, and Judah with you?'"

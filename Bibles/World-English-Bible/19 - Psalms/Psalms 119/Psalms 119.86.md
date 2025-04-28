@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All thy commandments are faithful: They persecute me wrongfully; Help thou me.
+All of your commandments are faithful. They persecute me wrongfully. Help me!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Son of man came eating and drinking, and they say, Behold, a gluttonous man and a winebibber, a friend of publicans and sinners! And wisdom is justified by her [ works.
+The Son of Man came eating and drinking, and they say, 'Behold, a gluttonous man and a drunkard, a friend of tax collectors and sinners!' But wisdom is justified by her children."

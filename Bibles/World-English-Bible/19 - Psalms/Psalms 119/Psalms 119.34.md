@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give me understanding, and I shall keep thy law; Yea, I shall observe it with my whole heart.
+Give me understanding, and I will keep your law. Yes, I will obey it with my whole heart.

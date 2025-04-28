@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall make atonement for the holy sanctuary; and he shall make atonement for the tent of meeting and for the altar; and he shall make atonement for the priests and for all the people of the assembly.
+Then he shall make atonement for the Holy Sanctuary; and he shall make atonement for the Tent of Meeting and for the altar; and he shall make atonement for the priests and for all the people of the assembly.

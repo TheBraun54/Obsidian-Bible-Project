@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day I will punish all those that leap over the threshold, that fill their master's house with violence and deceit.
+In that day, I will punish all those who leap over the threshold, who fill their master's house with violence and deceit.

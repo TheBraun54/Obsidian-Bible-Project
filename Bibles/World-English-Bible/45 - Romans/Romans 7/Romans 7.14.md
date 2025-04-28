@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we know that the law is spiritual: but I am carnal, sold under sin.
+For we know that the law is spiritual, but I am fleshly, sold under sin.

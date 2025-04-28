@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel took a sucking lamb, and offered it for a whole burnt-offering unto Jehovah: and Samuel cried unto Jehovah for Israel; and Jehovah answered him.
+Samuel took a suckling lamb, and offered it for a whole burnt offering to Yahweh: and Samuel cried to Yahweh for Israel; and Yahweh answered him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I send my messenger, and he shall prepare the way before me: and the Lord, whom ye seek, will suddenly come to his temple; and the messenger of the covenant, whom ye desire, behold, he cometh, saith Jehovah of hosts.
+"Behold, I send my messenger, and he will prepare the way before me; and the Lord, whom you seek, will suddenly come to his temple; and the messenger of the covenant, whom you desire, behold, he comes!" says Yahweh of Armies.

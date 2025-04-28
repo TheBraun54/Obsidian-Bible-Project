@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is a sign between me and the children of Israel for ever: for in six days Jehovah made heaven and earth, and on the seventh day he rested, and was refreshed.
+It is a sign between me and the children of Israel forever; for in six days Yahweh made heaven and earth, and on the seventh day he rested, and was refreshed.'"

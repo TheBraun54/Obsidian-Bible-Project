@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His mouth was smooth as butter, But his heart was war: His words were softer than oil, Yet were they drawn swords.
+His mouth was smooth as butter, but his heart was war. His words were softer than oil, yet they were drawn swords.

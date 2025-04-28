@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were assembled unto me every one that trembled at the words of the God of Israel, because of the trespass of them of the captivity; and I sat confounded until the evening oblation.
+Then were assembled to me everyone who trembled at the words of the God of Israel, because of the trespass of them of the captivity; and I sat confounded until the evening offering.

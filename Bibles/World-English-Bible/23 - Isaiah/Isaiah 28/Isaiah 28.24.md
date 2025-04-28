@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth he that ploweth to sow plow continually? doth he [continually] open and harrow his ground?
+Does he who plows to sow plow continually? Does he keep turning the soil and breaking the clods?

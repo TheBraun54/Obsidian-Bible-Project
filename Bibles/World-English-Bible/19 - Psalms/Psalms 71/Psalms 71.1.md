@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In thee, O Jehovah, do I take refuge: Let me never be put to shame.
+In you, Yahweh, I take refuge. Never let me be disappointed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson said unto them, If ye do after this manner, surely I will be avenged of you, and after that I will cease.
+Samson said to them, "If you behave like this, surely I will be avenged of you, and after that I will cease."

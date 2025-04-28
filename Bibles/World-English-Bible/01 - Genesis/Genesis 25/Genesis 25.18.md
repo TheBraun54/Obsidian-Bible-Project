@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they dwelt from Havilah unto Shur that is before Egypt, as thou goest toward Assyria: he abode over against all his brethren.
+They lived from Havilah to Shur that is before Egypt, as you go toward Assyria. He lived opposite all his relatives.

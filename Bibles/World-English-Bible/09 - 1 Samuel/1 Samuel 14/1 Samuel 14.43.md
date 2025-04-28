@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Saul said to Jonathan, Tell me what thou hast done. And Jonathan told him, and said, I did certainly taste a little honey with the end of the rod that was in my hand; and, lo, I must die.
+Then Saul said to Jonathan, "Tell me what you have done!" Jonathan told him, and said, "I certainly did taste a little honey with the end of the rod that was in my hand; and behold, I must die."

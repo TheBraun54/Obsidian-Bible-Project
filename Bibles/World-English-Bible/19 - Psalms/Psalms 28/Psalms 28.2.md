@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear the voice of my supplications, when I cry unto thee, When I lift up my hands toward thy holy oracle.
+Hear the voice of my petitions, when I cry to you, when I lift up my hands toward your Most Holy Place.

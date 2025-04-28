@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let her not, I pray, be as one dead, of whom the flesh is half consumed when he cometh out of his mother's womb.
+Let her not, I pray, be as one dead, of whom the flesh is half consumed when he comes out of his mother's womb."

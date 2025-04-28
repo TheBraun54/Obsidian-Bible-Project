@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon made an ephod thereof, and put it in his city, even in Ophrah: and all Israel played the harlot after it there; and it became a snare unto Gideon, and to his house.
+Gideon made an ephod of it, and put it in his city, even in Ophrah: and all Israel played the prostitute after it there; and it became a snare to Gideon, and to his house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then went the Pharisees, and took counsel how they might ensnare him in [his] talk.
+Then the Pharisees went and took counsel how they might entrap him in his talk.

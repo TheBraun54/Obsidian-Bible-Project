@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I say unto you, that many prophets and kings desired to see the things which ye see, and saw them not; and to hear the things which ye hear, and heard them not.
+for I tell you that many prophets and kings desired to see the things which you see, and didn't see them, and to hear the things which you hear, and didn't hear them."

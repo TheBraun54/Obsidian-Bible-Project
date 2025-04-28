@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they spake the word of the Lord unto him, with all that were in his house.
+They spoke the word of the Lord to him, and to all who were in his house.

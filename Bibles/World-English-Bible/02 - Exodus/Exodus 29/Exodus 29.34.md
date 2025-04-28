@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if aught of the flesh of the consecration, or of the bread, remain unto the morning, then thou shalt burn the remainder with fire: it shall not be eaten, because it is holy.
+If anything of the flesh of the consecration, or of the bread, remains to the morning, then you shall burn the remainder with fire: it shall not be eaten, because it is holy.

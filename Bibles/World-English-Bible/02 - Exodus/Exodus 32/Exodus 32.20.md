@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took the calf which they had made, and burnt it with fire, and ground it to powder, and strewed it upon the water, and made the children of Israel drink of it.
+He took the calf which they had made, and burnt it with fire, ground it to powder, and scattered it on the water, and made the children of Israel drink of it.

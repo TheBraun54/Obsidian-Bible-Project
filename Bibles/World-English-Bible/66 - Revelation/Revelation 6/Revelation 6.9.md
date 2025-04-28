@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he opened the fifth seal, I saw underneath the altar the souls of them that had been slain for the word of God, and for the testimony which they held:
+When he opened the fifth seal, I saw underneath the altar the souls of those who had been killed for the Word of God, and for the testimony of the Lamb which they had.

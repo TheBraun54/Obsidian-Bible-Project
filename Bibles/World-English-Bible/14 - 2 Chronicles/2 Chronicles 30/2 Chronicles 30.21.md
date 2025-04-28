@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel that were present at Jerusalem kept the feast of unleavened bread seven days with great gladness; and the Levites and the priests praised Jehovah day by day, [singing] with loud instruments unto Jehovah.
+The children of Israel who were present at Jerusalem kept the feast of unleavened bread seven days with great gladness; and the Levites and the priests praised Yahweh day by day, [singing] with loud instruments to Yahweh.

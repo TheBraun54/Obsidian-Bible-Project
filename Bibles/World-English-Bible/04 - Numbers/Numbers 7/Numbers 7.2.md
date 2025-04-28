@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the princes of Israel, the heads of their fathers' houses, offered. These were the princes of the tribes, these are they that were over them that were numbered:
+that the princes of Israel, the heads of their fathers' houses, offered. These were the princes of the tribes. These are they who were over those who were numbered:

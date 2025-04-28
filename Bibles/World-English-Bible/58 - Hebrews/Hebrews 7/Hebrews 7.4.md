@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now consider how great this man was, unto whom Abraham, the patriarch, gave a tenth out of the chief spoils.
+Now consider how great this man was, to whom even Abraham, the patriarch, gave a tenth out of the best spoils.

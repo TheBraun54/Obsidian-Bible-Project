@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Tamar put ashes on her head, and rent her garment of divers colors that was on her; and she laid her hand on her head, and went her way, crying aloud as she went.
+Tamar put ashes on her head, and tore her garment of various colors that was on her; and she laid her hand on her head, and went her way, crying aloud as she went.

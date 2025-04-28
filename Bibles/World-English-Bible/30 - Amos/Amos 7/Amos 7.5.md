@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, O Lord Jehovah, cease, I beseech thee: how shall Jacob stand? for he is small.
+Then I said, "Lord Yahweh, stop, I beg you! How could Jacob stand? For he is small."

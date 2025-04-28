@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Destruction upon destruction is cried; for the whole land is laid waste: suddenly are my tents destroyed, [and] my curtains in a moment.
+Destruction on destruction is cried; for the whole land is laid waste: suddenly are my tents destroyed, [and] my curtains in a moment.

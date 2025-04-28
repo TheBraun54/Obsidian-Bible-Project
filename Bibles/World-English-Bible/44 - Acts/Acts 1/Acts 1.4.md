@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and, being assembled together with them, he charged them not to depart from Jerusalem, but to wait for the promise of the Father, which, [said he], ye heard from me:
+Being assembled together with them, he commanded them, "Don't depart from Jerusalem, but wait for the promise of the Father, which you heard from me.

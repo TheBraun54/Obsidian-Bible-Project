@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we must be cast upon a certain island.
+But we must run aground on a certain island."

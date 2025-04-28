@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The discretion of a man maketh him slow to anger; And it is his glory to pass over a transgression.
+The discretion of a man makes him slow to anger. It is his glory to overlook an offense.

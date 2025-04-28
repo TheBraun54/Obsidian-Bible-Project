@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so it is not the will of your Father who is in heaven, that one of these little ones should perish.
+Even so it is not the will of your Father who is in heaven that one of these little ones should perish.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou wentest to the king with oil, and didst increase thy perfumes, and didst send thine ambassadors far off, and didst debase thyself even unto Sheol.
+You went to the king with oil, and did increase your perfumes, and did send your ambassadors far off, and debased yourself even to Sheol.

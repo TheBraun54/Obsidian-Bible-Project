@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Straightway the father of the child cried out, and said, I believe; help thou mine unbelief.
+Immediately the father of the child cried out with tears, "I believe. Help my unbelief!"

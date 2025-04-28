@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah of hosts, Blessed is the man that trusteth in thee.
+Yahweh of Armies, blessed is the man who trusts in you. For the Chief Musician. A Psalm by the sons of Korah.

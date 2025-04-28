@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac said unto his son, How is it that thou hast found it so quickly, my son? And he said, Because Jehovah thy God sent me good speed.
+Isaac said to his son, "How is it that you have found it so quickly, my son?" He said, "Because Yahweh your God gave me success."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that receiveth you receiveth me, and he that receiveth me receiveth him that sent me.
+He who receives you receives me, and he who receives me receives him who sent me.

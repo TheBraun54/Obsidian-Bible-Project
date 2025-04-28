@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the king knoweth of these things, unto whom also I speak freely: for I am persuaded that none of these things is hidden from him; for this hath not been done in a corner.
+For the king knows of these things, to whom also I speak freely. For I am persuaded that none of these things is hidden from him, for this has not been done in a corner.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is one glory of the sun, and another glory of the moon, and another glory of the stars; for one star differeth from another star in glory.
+There is one glory of the sun, another glory of the moon, and another glory of the stars; for one star differs from another star in glory.

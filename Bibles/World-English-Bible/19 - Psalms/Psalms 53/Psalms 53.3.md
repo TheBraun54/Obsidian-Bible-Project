@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one of them is gone back; They are together become filthy; There is none that doeth good, no, not one.
+Every one of them has gone back. They have become filthy together. There is no one who does good, no, not one.

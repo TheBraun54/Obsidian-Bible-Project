@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt present the Levites before the tent of meeting: and thou shalt assemble the whole congregation of the children of Israel:
+You shall present the Levites before the Tent of Meeting. You shall assemble the whole congregation of the children of Israel.

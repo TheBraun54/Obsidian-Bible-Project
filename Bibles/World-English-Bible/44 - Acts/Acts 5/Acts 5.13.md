@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But of the rest durst no man join himself to them: howbeit the people magnified them;
+None of the rest dared to join them, however the people honored them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he is about to fill his belly, [God] will cast the fierceness of his wrath upon him, And will rain it upon him while he is eating.
+When he is about to fill his belly, God will cast the fierceness of his wrath on him. It will rain on him while he is eating.

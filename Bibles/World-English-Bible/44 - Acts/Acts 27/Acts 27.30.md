@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as the sailors were seeking to flee out of the ship, and had lowered the boat into the sea, under color as though they would lay out anchors from the foreship,
+As the sailors were trying to flee out of the ship, and had lowered the boat into the sea, pretending that they would lay out anchors from the bow,

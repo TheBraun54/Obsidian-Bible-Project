@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And then shall he send forth the angels, and shall gather together his elect from the four winds, from the uttermost part of the earth to the uttermost part of heaven.
+Then he will send out his angels, and will gather together his chosen ones from the four winds, from the ends of the earth to the ends of the sky.

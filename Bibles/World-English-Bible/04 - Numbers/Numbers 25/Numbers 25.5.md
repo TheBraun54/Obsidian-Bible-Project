@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto the judges of Israel, Slay ye every one his men that have joined themselves unto Baal-peor.
+Moses said to the judges of Israel, "Everyone kill his men who have joined themselves to Baal Peor."

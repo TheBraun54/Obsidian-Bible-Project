@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the assembly, there shall be one statute for you, and for the stranger that sojourneth [with you], a statute for ever throughout your generations: as ye are, so shall the sojourner be before Jehovah.
+For the assembly, there shall be one statute for you, and for the stranger who lives as a foreigner [with you], a statute forever throughout your generations: as you are, so shall the foreigner be before Yahweh.

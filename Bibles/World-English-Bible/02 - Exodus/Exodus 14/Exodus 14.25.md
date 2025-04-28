@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took off their chariot wheels, and they drove them heavily; so that the Egyptians said, Let us flee from the face of Israel; for Jehovah fighteth for them against the Egyptians.
+He took off their chariot wheels, and they drove them heavily; so that the Egyptians said, "Let's flee from the face of Israel, for Yahweh fights for them against the Egyptians!"

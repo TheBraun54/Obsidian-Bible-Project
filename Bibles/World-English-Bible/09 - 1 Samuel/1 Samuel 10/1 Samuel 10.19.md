@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye have this day rejected your God, who himself saveth you out of all your calamities and your distresses; and ye have said unto him, [Nay], but set a king over us. Now therefore present yourselves before Jehovah by your tribes, and by your thousands.
+but you have this day rejected your God, who himself saves you out of all your calamities and your distresses; and you have said to him, '[No], but set a king over us.' Now therefore present yourselves before Yahweh by your tribes, and by your thousands."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shalt say unto them, Thus saith Jehovah of hosts: Even so will I break this people and this city, as one breaketh a potter's vessel, that cannot be made whole again; and they shall bury in Topheth, till there be no place to bury.
+and shall tell them, Thus says Yahweh of Armies: Even so will I break this people and this city, as one breaks a potter's vessel, that can't be made whole again; and they shall bury in Topheth, until there be no place to bury.

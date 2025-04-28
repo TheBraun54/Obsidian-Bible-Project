@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the ear trieth words, As the palate tasteth food.
+For the ear tries words, as the palate tastes food.

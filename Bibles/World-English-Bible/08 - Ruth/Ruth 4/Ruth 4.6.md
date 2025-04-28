@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the near kinsman said, I cannot redeem it for myself, lest I mar mine own inheritance: take thou my right of redemption on thee; for I cannot redeem it.
+The near kinsman said, "I can't redeem it for myself, lest I mar my own inheritance. Take my right of redemption for yourself; for I can't redeem it."

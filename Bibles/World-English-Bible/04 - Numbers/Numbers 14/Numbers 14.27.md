@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long [shall I bear] with this evil congregation, that murmur against me? I have heard the murmurings of the children of Israel, which they murmur against me.
+"How long [shall I bear] with this evil congregation, that murmur against me? I have heard the murmurings of the children of Israel, which they murmur against me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it fell upon a day, that Jonathan the son of Saul said unto the young man that bare his armor, Come, and let us go over to the Philistines' garrison, that is on yonder side. But he told not his father.
+Now it fell on a day, that Jonathan the son of Saul said to the young man who bore his armor, "Come, and let us go over to the Philistines' garrison, that is on the other side." But he didn't tell his father.

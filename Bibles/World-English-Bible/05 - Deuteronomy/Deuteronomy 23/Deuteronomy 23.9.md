@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou goest forth in camp against thine enemies, then thou shalt keep thee from every evil thing.
+When you go forth in camp against your enemies, then you shall keep yourselves from every evil thing.

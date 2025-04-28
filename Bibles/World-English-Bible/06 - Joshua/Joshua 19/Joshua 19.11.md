@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their border went up westward, even to Maralah, and reached to Dabbesheth; and it reached to the brook that is before Jokneam;
+Their border went up westward, even to Maralah, and reached to Dabbesheth. It reached to the brook that is before Jokneam.

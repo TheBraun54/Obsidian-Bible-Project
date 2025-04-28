@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehovah said unto me, Out of the north evil shall break forth upon all the inhabitants of the land.
+Then Yahweh said to me, "Out of the north evil will break out on all the inhabitants of the land.

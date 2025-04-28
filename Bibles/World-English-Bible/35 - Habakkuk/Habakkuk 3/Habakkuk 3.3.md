@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God came from Teman, And the Holy One from mount Paran. {{Selah. His glory covered the heavens, And the earth was full of his praise.
+God came from Teman, the Holy One from Mount Paran. Selah. His glory covered the heavens, and his praise filled the earth.

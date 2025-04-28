@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By night on my bed I sought him whom my soul loveth: I sought him, but I found him not.
+By night on my bed, I sought him whom my soul loves. I sought him, but I didn't find him.

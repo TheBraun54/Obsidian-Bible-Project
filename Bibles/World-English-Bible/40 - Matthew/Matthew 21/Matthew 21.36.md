@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, he sent other servants more than the first: and they did unto them in like manner.
+Again, he sent other servants more than the first: and they treated them the same way.

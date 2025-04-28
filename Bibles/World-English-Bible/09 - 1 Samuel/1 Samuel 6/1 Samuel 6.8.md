@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and take the ark of Jehovah, and lay it upon the cart; and put the jewels of gold, which ye return him for a trespass-offering, in a coffer by the side thereof; and send it away, that it may go.
+and take the ark of Yahweh, and lay it on the cart; and put the jewels of gold, which you return him for a trespass offering, in a coffer by its side; and send it away, that it may go.

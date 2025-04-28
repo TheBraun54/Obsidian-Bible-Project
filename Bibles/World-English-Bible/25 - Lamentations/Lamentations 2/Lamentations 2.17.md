@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath done that which he purposed; He hath fulfilled his word that he commanded in the days of old; He hath thrown down, and hath not pitied: And he hath caused the enemy to rejoice over thee; He hath exalted the horn of thine adversaries.
+Yahweh has done that which he purposed; he has fulfilled his word that he commanded in the days of old; He has thrown down, and has not pitied: He has caused the enemy to rejoice over you; he has exalted the horn of your adversaries.

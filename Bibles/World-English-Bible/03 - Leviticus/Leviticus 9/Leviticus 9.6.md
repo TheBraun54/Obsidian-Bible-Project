@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, This is the thing which Jehovah commanded that ye should do: and the glory of Jehovah shall appear unto you.
+Moses said, "This is the thing which Yahweh commanded that you should do: and the glory of Yahweh shall appear to you."

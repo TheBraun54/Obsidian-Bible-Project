@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely the isles shall wait for me, and the ships of Tarshish first, to bring thy sons from far, their silver and their gold with them, for the name of Jehovah thy God, and for the Holy One of Israel, because he hath [ glorified thee.
+Surely the islands shall wait for me, and the ships of Tarshish first, to bring your sons from far, their silver and their gold with them, for the name of Yahweh your God, and for the Holy One of Israel, because he has glorified you.

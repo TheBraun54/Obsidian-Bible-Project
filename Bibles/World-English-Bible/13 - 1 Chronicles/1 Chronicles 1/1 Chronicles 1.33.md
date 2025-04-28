@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Midian: Ephah, and Epher, and Hanoch, and Abida, and Eldaah. All these were the sons of Keturah.
+The sons of Midian: Ephah, and Epher, and Hanoch, and Abida, and Eldaah. All these were the sons of Keturah.

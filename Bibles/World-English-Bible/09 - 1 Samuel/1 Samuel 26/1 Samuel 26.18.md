@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Wherefore doth my lord pursue after his servant? for what have I done? or what evil is in my hand?
+He said, "Why does my lord pursue after his servant? For what have I done? Or what evil is in my hand?

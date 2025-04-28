@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Jehovah was angry with me for your sakes, saying, Thou also shalt not go in thither:
+Also Yahweh was angry with me for your sakes, saying, "You also shall not go in there:

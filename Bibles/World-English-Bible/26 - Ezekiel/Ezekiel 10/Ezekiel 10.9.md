@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I looked, and behold, four wheels beside the cherubim, one wheel beside one cherub, and another wheel beside another cherub; and the appearance of the wheels was like unto a beryl stone.
+I looked, and behold, four wheels beside the cherubim, one wheel beside one cherub, and another wheel beside another cherub; and the appearance of the wheels was like a beryl stone.

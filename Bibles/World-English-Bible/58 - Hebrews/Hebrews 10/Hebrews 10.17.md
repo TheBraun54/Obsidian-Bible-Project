@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their sins and their iniquities will I remember no more.
+"I will remember their sins and their iniquities no more."

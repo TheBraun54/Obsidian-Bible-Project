@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Gileadites took the fords of the Jordan against the Ephraimites. And it was so, that, when [any of] the fugitives of Ephraim said, Let me go over, the men of Gilead said unto him, Art thou an Ephraimite? If he said, Nay;
+The Gileadites took the fords of the Jordan against the Ephraimites. It was so, that when [any of] the fugitives of Ephraim said, Let me go over, the men of Gilead said to him, "Are you an Ephraimite?" If he said, "No;"

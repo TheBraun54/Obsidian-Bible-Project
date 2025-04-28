@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I make a decree, that in all the dominion of my kingdom men tremble and fear before the God of Daniel; for he is the living God, and stedfast for ever, And his kingdom that which shall not be destroyed; and his dominion shall be even unto the end.
+I make a decree, that in all the dominion of my kingdom men tremble and fear before the God of Daniel; for he is the living God, and steadfast forever, His kingdom that which shall not be destroyed; and his dominion shall be even to the end.

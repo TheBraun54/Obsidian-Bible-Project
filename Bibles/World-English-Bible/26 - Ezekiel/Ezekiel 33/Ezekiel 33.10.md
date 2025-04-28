@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, say unto the house of Israel: Thus ye speak, saying, Our transgressions and our sins are upon us, and we pine away in them; how then can we live?
+You, son of man, tell the house of Israel: Thus you speak, saying, Our transgressions and our sins are on us, and we pine away in them; how then can we live?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah saw [it], and abhorred [them], Because of the provocation of his sons and his daughters.
+Yahweh saw [it], and abhorred [them], because of the provocation of his sons and his daughters.

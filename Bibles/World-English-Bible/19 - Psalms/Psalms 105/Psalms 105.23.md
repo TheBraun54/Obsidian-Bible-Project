@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Israel also came into Egypt; And Jacob sojourned in the land of Ham.
+Israel also came into Egypt. Jacob lived in the land of Ham.

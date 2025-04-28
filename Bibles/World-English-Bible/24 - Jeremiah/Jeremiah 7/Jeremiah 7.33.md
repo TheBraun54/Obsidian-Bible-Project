@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the dead bodies of this people shall be food for the birds of the heavens, and for the beasts of the earth; and none shall frighten them away.
+The dead bodies of this people shall be food for the birds of the sky, and for the animals of the earth; and none shall frighten them away.

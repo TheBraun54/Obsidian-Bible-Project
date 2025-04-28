@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took of the fruit of the land in their hands, and brought it down unto us, and brought us word again, and said, It is a good land which Jehovah our God giveth unto us.
+They took of the fruit of the land in their hands, and brought it down to us, and brought us word again, and said, "It is a good land which Yahweh our God gives to us."

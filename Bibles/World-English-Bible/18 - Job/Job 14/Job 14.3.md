@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And dost thou open thine eyes upon such a one, And bringest me into judgment with thee?
+Do you open your eyes on such a one, and bring me into judgment with you?

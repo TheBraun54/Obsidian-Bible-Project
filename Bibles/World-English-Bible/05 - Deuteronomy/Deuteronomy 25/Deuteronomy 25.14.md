@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not have in thy house diverse measures, a great and a small.
+You shall not have in your house diverse measures, a great and a small.

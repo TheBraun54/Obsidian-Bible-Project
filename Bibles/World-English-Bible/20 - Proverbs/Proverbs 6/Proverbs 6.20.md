@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, keep the commandment of thy father, And forsake not the law of thy mother:
+My son, keep your father's commandment, and don't forsake your mother's teaching.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will settle him in my house and in my kingdom for ever; and his throne shall be established for ever.
+but I will settle him in my house and in my kingdom forever. His throne shall be established forever."'"

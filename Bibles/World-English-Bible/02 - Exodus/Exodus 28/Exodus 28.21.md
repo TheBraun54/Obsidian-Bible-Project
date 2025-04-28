@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the stones shall be according to the names of the children of Israel, twelve, according to their names; like the engravings of a signet, every one according to his name, they shall be for the twelve tribes.
+The stones shall be according to the names of the children of Israel, twelve, according to their names; like the engravings of a signet, everyone according to his name, they shall be for the twelve tribes.

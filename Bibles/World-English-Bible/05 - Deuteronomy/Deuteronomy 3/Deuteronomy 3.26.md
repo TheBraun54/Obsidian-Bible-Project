@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah was wroth with me for your sakes, and hearkened not unto me; and Jehovah said unto me, Let it suffice thee; speak no more unto me of this matter.
+But Yahweh was angry with me for your sakes, and didn't listen to me; and Yahweh said to me, "Let it suffice you; speak no more to me of this matter.

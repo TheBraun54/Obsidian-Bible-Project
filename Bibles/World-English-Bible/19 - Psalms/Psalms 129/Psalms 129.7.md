@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherewith the reaper filleth not his hand, Nor he that bindeth sheaves his bosom.
+with which the reaper doesn't fill his hand, nor he who binds sheaves, his bosom.

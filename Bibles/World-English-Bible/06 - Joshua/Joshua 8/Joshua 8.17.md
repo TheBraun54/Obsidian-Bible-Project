@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was not a man left in Ai or Beth-el, that went not out after Israel: and they left the city open, and pursued after Israel.
+There was not a man left in Ai or Beth El who didn't go out after Israel. They left the city open, and pursued Israel.

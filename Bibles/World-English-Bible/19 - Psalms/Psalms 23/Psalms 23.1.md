@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. Jehovah is my shepherd; I shall not want.
+Yahweh is my shepherd: I shall lack nothing.

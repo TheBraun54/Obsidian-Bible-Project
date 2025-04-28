@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Good understanding giveth favor; But the way of the transgressor is hard.
+Good understanding wins favor; but the way of the unfaithful is hard.

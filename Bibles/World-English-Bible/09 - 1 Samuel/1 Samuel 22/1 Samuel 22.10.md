@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he inquired of Jehovah for him, and gave him victuals, and gave him the sword of Goliath the Philistine.
+He inquired of Yahweh for him, gave him food, and gave him the sword of Goliath the Philistine."

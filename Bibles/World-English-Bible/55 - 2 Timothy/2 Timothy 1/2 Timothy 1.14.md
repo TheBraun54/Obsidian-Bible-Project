@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That good thing which was committed unto [thee] guard through the Holy Spirit which dwelleth in us.
+That good thing which was committed to you, guard through the Holy Spirit who dwells in us.

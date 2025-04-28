@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider how I love thy precepts: Quicken me, O Jehovah, according to thy lovingkindness.
+Consider how I love your precepts. Revive me, Yahweh, according to your loving kindness.

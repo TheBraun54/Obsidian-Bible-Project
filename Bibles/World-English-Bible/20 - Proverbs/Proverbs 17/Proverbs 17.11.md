@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An evil man seeketh only rebellion; Therefore a cruel messenger shall be sent against him.
+An evil man seeks only rebellion; therefore a cruel messenger shall be sent against him.

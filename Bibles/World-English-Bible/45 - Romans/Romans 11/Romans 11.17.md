@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if some of the branches were broken off, and thou, being a wild olive, wast grafted in among them, and didst become partaker with them of the root of the fatness of the olive tree;
+But if some of the branches were broken off, and you, being a wild olive, were grafted in among them, and became partaker with them of the root and of the richness of the olive tree;

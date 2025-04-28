@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know that Jehovah is great, And that our Lord is above all gods.
+For I know that Yahweh is great, that our Lord is above all gods.

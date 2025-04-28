@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and with difficulty coasting along it we came unto a certain place called Fair Havens; nigh whereunto was the city of Lasea.
+With difficulty sailing along it we came to a certain place called Fair Havens, near the city of Lasea.

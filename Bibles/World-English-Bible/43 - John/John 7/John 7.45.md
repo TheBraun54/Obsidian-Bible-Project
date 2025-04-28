@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The officers therefore came to the chief priests and Pharisees; and they said unto them, Why did ye not bring him?
+The officers therefore came to the chief priests and Pharisees, and they said to them, "Why didn't you bring him?"

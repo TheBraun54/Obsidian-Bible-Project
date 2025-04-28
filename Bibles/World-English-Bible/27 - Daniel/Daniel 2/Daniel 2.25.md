@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Arioch brought in Daniel before the king in haste, and said thus unto him, I have found a man of the children of the captivity of Judah, that will make known unto the king the interpretation.
+Then Arioch brought in Daniel before the king in haste, and said thus to him, I have found a man of the children of the captivity of Judah, who will make known to the king the interpretation.

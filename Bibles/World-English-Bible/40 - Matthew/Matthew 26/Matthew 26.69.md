@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Peter was sitting without in the court: and a maid came unto him, saying, Thou also wast with Jesus the Galilaean.
+Now Peter was sitting outside in the court, and a maid came to him, saying, "You were also with Jesus, the Galilean!"

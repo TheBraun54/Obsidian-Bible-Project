@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the water ran round about the altar; and he filled the trench also with water.
+The water ran around the altar; and he also filled the trench with water.

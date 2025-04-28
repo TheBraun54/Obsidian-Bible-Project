@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the men were very good unto us, and we were not hurt, neither missed we anything, as long as we went with them, when we were in the fields:
+But the men were very good to us, and we were not hurt, neither missed we anything, as long as we went with them, when we were in the fields.

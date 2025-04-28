@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Evil devices are an abomination to Jehovah; But pleasant words [are] pure.
+Yahweh detests the thoughts of the wicked, but the thoughts of the pure are pleasing.

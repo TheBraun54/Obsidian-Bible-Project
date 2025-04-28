@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They answered and said to Nebuchadnezzar the king, O king, live for ever.
+They answered Nebuchadnezzar the king, O king, live for ever.

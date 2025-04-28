@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will put a division between my people and thy people: by to-morrow shall this sign be.
+I will put a division between my people and your people: by tomorrow shall this sign be."'"

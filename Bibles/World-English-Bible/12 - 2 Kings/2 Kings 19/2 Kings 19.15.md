@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah prayed before Jehovah, and said, O Jehovah, the God of Israel, that sittest [above] the cherubim, thou art the God, even thou alone, of all the kingdoms of the earth; thou hast made heaven and earth.
+Hezekiah prayed before Yahweh, and said, "Yahweh, the God of Israel, who sit [above] the cherubim, you are the God, even you alone, of all the kingdoms of the earth. You have made heaven and earth.

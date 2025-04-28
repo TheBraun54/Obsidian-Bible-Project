@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto him that giveth his neighbor drink, [to thee] that addest thy venom, and makest him drunken also, that thou mayest look on their nakedness!
+"Woe to him who gives his neighbor drink, pouring your inflaming wine until they are drunk, so that you may gaze at their naked bodies!

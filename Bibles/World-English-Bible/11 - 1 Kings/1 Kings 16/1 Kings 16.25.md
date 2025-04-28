@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Omri did that which was evil in the sight of Jehovah, and dealt wickedly above all that were before him.
+Omri did that which was evil in the sight of Yahweh, and dealt wickedly above all who were before him.

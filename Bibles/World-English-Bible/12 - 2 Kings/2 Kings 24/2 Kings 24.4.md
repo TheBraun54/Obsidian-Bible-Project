@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and also for the innocent blood that he shed; for he filled Jerusalem with innocent blood: and Jehovah would not pardon.
+and also for the innocent blood that he shed; for he filled Jerusalem with innocent blood: and Yahweh would not pardon.

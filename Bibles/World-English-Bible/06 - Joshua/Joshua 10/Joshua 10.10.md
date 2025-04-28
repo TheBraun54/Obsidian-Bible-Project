@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah discomfited them before Israel, and he slew them with a great slaughter at Gibeon, and chased them by the way of the ascent of Beth-horon, and smote them to Azekah, and unto Makkedah.
+Yahweh confused them before Israel, and he killed them with a great slaughter at Gibeon, and chased them by the way of the ascent of Beth Horon, and struck them to Azekah and to Makkedah.

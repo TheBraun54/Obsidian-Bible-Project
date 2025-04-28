@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their feet run to evil, And they make haste to shed blood.
+for their feet run to evil. They hurry to shed blood.

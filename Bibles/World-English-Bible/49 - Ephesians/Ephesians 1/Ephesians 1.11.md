@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in whom also we were made a heritage, having been foreordained according to the purpose of him who worketh all things after the counsel of his will;
+in whom also we were assigned an inheritance, having been foreordained according to the purpose of him who works all things after the counsel of his will;

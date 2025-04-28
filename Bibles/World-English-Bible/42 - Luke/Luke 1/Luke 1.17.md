@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall go before his face in the spirit and power of Elijah, to turn the hearts of the fathers to the children, and the disobedient [to walk] in the wisdom of the just; to make ready for the Lord a people prepared [for him] .
+He will go before him in the spirit and power of Elijah, 'to turn the hearts of the fathers to the children,' and the disobedient to the wisdom of the just; to prepare a people prepared for the Lord."

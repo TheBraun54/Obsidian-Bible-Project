@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I counsel that all Israel be gathered together unto thee, from Dan even to Beer-sheba, as the sand that is by the sea for multitude; and that thou go to battle in thine own person.
+But I counsel that all Israel be gathered together to you, from Dan even to Beersheba, as the sand that is by the sea for multitude; and that you go to battle in your own person.

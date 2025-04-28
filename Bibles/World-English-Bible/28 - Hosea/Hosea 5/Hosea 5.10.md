@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The princes of Judah are like them that remove the landmark: I will pour out my wrath upon them like water.
+The princes of Judah are like those who remove a landmark. I will pour out my wrath on them like water.

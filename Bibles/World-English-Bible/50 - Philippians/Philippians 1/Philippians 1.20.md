@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according to my earnest expectation and hope, that in nothing shall I be put to shame, but [that] with all boldness, as always, [so] now also Christ shall be magnified in my body, whether by life, or by death.
+according to my earnest expectation and hope, that I will in no way be disappointed, but with all boldness, as always, now also Christ will be magnified in my body, whether by life, or by death.

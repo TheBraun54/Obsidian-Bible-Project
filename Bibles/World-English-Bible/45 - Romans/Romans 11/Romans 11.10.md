@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let their eyes be darkened, that they may not see, And bow thou down their back always.
+Let their eyes be darkened, that they may not see. Bow down their back always."

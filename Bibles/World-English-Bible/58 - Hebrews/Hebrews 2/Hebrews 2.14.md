@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Since then the children are sharers in flesh and blood, he also himself in like manner partook of the same; that through death he might bring to nought him that had the power of death, that is, the devil;
+Since then the children have shared in flesh and blood, he also himself in the same way partook of the same, that through death he might bring to nothing him who had the power of death, that is, the devil,

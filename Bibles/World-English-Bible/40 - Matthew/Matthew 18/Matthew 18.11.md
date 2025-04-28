@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+For the Son of Man came to save that which was lost.

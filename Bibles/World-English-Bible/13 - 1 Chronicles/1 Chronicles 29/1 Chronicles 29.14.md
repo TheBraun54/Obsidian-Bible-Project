@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But who am I, and what is my people, that we should be able to offer so willingly after this sort? for all things come of thee, and of thine own have we given thee. [
+But who am I, and what is my people, that we should be able to offer so willingly as this? For all things come from you, and of your own have we given you.

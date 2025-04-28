@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he walked in the way of the kings of Israel, as did the house of Ahab; for he had the daughter of Ahab to wife: and he did that which was evil in the sight of Jehovah.
+He walked in the way of the kings of Israel, as did the house of Ahab; for he had the daughter of Ahab as wife: and he did that which was evil in the sight of Yahweh.

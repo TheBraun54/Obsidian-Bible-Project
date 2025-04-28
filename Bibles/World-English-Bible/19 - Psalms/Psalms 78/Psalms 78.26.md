@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He caused the east wind to blow in the heavens; And by his power he guided the south wind.
+He caused the east wind to blow in the sky. By his power he guided the south wind.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore when he cometh into the world, he saith, Sacrifice and offering thou wouldest not, But a body didst thou prepare for me;
+Therefore when he comes into the world, he says, "Sacrifice and offering you didn't desire, but you prepared a body for me;

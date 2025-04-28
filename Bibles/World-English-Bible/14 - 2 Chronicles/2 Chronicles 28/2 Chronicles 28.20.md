@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Tilgath-pilneser king of Assyria came unto him, and distressed him, but strengthened him not.
+Tilgath Pilneser king of Assyria came to him, and distressed him, but didn't strengthen him.

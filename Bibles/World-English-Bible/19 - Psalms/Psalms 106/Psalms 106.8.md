@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless he saved them for his name's sake, That he might make his mighty power to be known.
+Nevertheless he saved them for his name's sake, that he might make his mighty power known.

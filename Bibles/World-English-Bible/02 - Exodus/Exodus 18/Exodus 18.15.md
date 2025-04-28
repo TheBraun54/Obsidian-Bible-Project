@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto his father-in-law, Because the people come unto me to inquire of God:
+Moses said to his father-in-law, "Because the people come to me to inquire of God.

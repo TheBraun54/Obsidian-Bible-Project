@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the arrows of the Almighty are within me, The poison whereof my spirit drinketh up: The terrors of God do set themselves in array against me.
+For the arrows of the Almighty are within me. My spirit drinks up their poison. The terrors of God set themselves in array against me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah your God dried up the waters of the Jordan from before you, until ye were passed over, as Jehovah your God did to the Red Sea, which he dried up from before us, until we were passed over;
+For Yahweh your God dried up the waters of the Jordan from before you, until you had passed over, as Yahweh your God did to the Red Sea, which he dried up from before us, until we had passed over;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had said this, and had taken bread, he gave thanks to God in the presence of all; and he brake it, and began to eat.
+When he had said this, and had taken bread, he gave thanks to God in the presence of all, and he broke it, and began to eat.

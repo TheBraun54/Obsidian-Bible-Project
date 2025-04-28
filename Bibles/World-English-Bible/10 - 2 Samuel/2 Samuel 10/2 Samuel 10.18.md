@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Syrians fled before Israel; and David slew of the Syrians [the men of] seven hundred chariots, and forty thousand horsemen, and smote Shobach the captain of their host, so that he died there.
+The Syrians fled before Israel; and David killed of the Syrians [the men of] seven hundred chariots, and forty thousand horsemen, and struck Shobach the captain of their army, so that he died there.

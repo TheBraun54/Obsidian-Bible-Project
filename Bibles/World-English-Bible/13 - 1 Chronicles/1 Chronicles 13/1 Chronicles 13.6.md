@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went up, and all Israel, to Baalah, [that is], to Kiriath-jearim, which belonged to Judah, to bring up from thence the ark of God Jehovah that sitteth [above] the cherubim, [ that is called by the Name.
+David went up, and all Israel, to Baalah, [that is], to Kiriath Jearim, which belonged to Judah, to bring up from there the ark of God Yahweh that sits [above] the cherubim, that is called by the Name.

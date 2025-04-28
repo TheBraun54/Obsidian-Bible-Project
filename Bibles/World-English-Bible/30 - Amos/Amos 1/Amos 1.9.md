@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: For three transgressions of Tyre, yea, for four, I will not turn away the punishment thereof; because they delivered up the whole people to Edom, and remembered not the brotherly covenant:
+Thus says Yahweh: "For three transgressions of Tyre, yes, for four, I will not turn away its punishment; because they delivered up the whole community to Edom, and didn't remember the brotherly covenant;

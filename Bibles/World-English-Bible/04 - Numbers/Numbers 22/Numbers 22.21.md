@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam rose up in the morning, and saddled his ass, and went with the princes of Moab.
+Balaam rose up in the morning, and saddled his donkey, and went with the princes of Moab.

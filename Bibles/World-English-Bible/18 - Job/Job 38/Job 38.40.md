@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they couch in their dens, [And] abide in the covert to lie in wait?
+when they crouch in their dens, and lie in wait in the thicket?

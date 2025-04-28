@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath a day of vengeance, a year of recompense for the cause of Zion.
+For Yahweh has a day of vengeance, a year of recompense for the cause of Zion.

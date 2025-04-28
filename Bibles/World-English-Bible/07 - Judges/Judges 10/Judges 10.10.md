@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel cried unto Jehovah, saying, We have sinned against thee, even because we have forsaken our God, and have served the Baalim.
+The children of Israel cried to Yahweh, saying, "We have sinned against you, even because we have forsaken our God, and have served the Baals."

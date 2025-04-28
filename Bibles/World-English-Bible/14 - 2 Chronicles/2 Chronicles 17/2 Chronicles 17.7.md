@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also in the third year of his reign he sent his princes, even Ben-hail, and Obadiah, and Zechariah, and Nethanel, and Micaiah, to teach in the cities of Judah;
+Also in the third year of his reign he sent his princes, even Ben Hail, and Obadiah, and Zechariah, and Nethanel, and Micaiah, to teach in the cities of Judah;

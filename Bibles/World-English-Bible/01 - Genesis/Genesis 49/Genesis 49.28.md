@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All these are the twelve tribes of Israel: and this is it that their father spake unto them and blessed them; every one according to his blessing he blessed them.
+All these are the twelve tribes of Israel, and this is what their father spoke to them and blessed them. He blessed everyone according to his blessing.

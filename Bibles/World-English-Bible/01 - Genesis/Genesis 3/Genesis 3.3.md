@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but of the fruit of the tree which is in the midst of the garden, God hath said, Ye shall not eat of it, neither shall ye touch it, lest ye die.
+but of the fruit of the tree which is in the middle of the garden, God has said, 'You shall not eat of it, neither shall you touch it, lest you die.'"

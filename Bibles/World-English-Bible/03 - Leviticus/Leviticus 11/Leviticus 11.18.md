@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the horned owl, and the pelican, and the vulture,
+the white owl, the desert owl, the osprey,

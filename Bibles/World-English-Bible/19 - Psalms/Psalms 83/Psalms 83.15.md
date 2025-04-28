@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So pursue them with thy tempest, And terrify them with thy storm.
+so pursue them with your tempest, and terrify them with your storm.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these things will they do, because they have not known the Father, nor me.
+They will do these things because they have not known the Father, nor me.

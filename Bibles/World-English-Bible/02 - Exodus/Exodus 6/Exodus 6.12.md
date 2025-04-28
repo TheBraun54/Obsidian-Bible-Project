@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake before Jehovah, saying, Behold, the children of Israel have not hearkened unto me; how then shall Pharaoh hear me, who am of uncircumcised lips?
+Moses spoke before Yahweh, saying, "Behold, the children of Israel haven't listened to me. How then shall Pharaoh listen to me, who am of uncircumcised lips?"

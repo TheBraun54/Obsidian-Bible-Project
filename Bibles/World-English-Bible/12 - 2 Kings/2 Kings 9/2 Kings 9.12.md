@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, It is false; tell us now. And he said, Thus and thus spake he to me, saying, Thus saith Jehovah, I have anointed thee king over Israel.
+They said, "That is a lie. Tell us now." He said, "He said to me, 'Thus says Yahweh, I have anointed you king over Israel.'"

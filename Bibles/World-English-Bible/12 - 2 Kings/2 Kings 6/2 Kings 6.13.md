@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Go and see where he is, that I may send and fetch him. And it was told him, saying, Behold, he is in Dothan.
+He said, "Go and see where he is, that I may send and get him." It was told him, saying, "Behold, he is in Dothan."

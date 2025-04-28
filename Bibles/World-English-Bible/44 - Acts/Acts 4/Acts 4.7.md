@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had set them in the midst, they inquired, By what power, or in what name, have ye done this?
+When they had stood them in the middle of them, they inquired, "By what power, or in what name, have you done this?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast broken Rahab in pieces, as one that is slain; Thou hast scattered thine enemies with the arm of thy strength.
+You have broken Rahab in pieces, like one of the slain. You have scattered your enemies with your mighty arm.

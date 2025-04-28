@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Herod the king heard it, he was troubled, and all Jerusalem with him.
+When King Herod heard it, he was troubled, and all Jerusalem with him.

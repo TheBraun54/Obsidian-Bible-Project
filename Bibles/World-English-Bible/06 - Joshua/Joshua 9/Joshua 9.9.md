@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, From a very far country thy servants are come because of the name of Jehovah thy God: for we have heard the fame of him, and all that he did in Egypt,
+They said to him, "Your servants have come from a very far country because of the name of Yahweh your God; for we have heard of his fame, all that he did in Egypt,

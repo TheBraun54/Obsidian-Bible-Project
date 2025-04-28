@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah taketh pleasure in his people: He will beautify the meek with salvation.
+For Yahweh takes pleasure in his people. He crowns the humble with salvation.

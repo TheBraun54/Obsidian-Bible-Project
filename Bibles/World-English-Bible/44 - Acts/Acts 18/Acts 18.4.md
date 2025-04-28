@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he reasoned in the synagogue every sabbath, and persuaded Jews and Greeks.
+He reasoned in the synagogue every Sabbath, and persuaded Jews and Greeks.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore by their fruits ye shall know them.
+Therefore, by their fruits you will know them.

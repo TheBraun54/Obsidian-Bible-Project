@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shalt thou set thee up a pillar; which Jehovah thy God hateth.
+Neither shall you set yourself up a pillar; which Yahweh your God hates.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but like as he who called you is holy, be ye yourselves also holy in all manner of living;
+but just as he who called you is holy, you yourselves also be holy in all of your behavior;

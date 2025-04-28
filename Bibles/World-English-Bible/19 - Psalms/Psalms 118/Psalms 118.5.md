@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of my distress I called upon Jehovah: Jehovah answered me [and set me] in a large place.
+Out of my distress, I called on Yah. Yah answered me with freedom.

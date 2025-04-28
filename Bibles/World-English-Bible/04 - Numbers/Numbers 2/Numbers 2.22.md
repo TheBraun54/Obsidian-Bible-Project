@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tribe of Benjamin: and the prince of the children of Benjamin shall be Abidan the son of Gideoni.
+"The tribe of Benjamin: and the prince of the children of Benjamin shall be Abidan the son of Gideoni.

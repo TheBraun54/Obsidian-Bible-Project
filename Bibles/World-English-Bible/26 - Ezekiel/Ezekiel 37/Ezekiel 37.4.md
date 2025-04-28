@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again he said unto me, Prophesy over these bones, and say unto them, O ye dry bones, hear the word of Jehovah.
+Again he said to me, Prophesy over these bones, and tell them, you dry bones, hear the word of Yahweh.

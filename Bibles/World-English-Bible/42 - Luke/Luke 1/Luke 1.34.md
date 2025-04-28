@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mary said unto the angel, How shall this be, seeing I know not a man?
+Mary said to the angel, "How can this be, seeing I am a virgin?"

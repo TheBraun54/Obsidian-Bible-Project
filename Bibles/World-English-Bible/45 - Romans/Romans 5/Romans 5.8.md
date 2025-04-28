@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God commendeth his own love toward us, in that, while we were yet sinners, Christ died for us.
+But God commends his own love toward us, in that while we were yet sinners, Christ died for us.

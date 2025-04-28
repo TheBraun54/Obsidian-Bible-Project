@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know therefore this day, and lay it to thy heart, that Jehovah he is God in heaven above and upon the earth beneath; there is none else.
+Know therefore this day, and lay it to your heart, that Yahweh he is God in heaven above and on the earth beneath; there is none else.

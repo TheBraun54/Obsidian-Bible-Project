@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And other sheep I have, which are not of this fold: them also I must bring, and they shall hear my voice: and they shall become one flock, one shepherd.
+I have other sheep, which are not of this fold. I must bring them also, and they will hear my voice. They will become one flock with one shepherd.

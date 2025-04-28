@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it lawful for us to give tribute unto Caesar, or not?
+Is it lawful for us to pay taxes to Caesar, or not?"

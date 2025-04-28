@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David called one of the young men, and said, Go near, and fall upon him. And he smote him, so that he died.
+David called one of the young men, and said, "Go near, and fall on him." He struck him, so that he died.

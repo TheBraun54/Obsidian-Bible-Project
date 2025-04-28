@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who shall not fear, O Lord, and glorify thy name? for thou only art holy; for all the nations shall come and worship before thee; for thy righteous acts have been made manifest.
+Who wouldn't fear you, Lord, and glorify your name? For you only are holy. For all the nations will come and worship before you. For your righteous acts have been revealed."

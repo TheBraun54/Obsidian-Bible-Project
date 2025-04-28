@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I am in a strait betwixt the two, having the desire to depart and be with Christ; for it is very far better:
+But I am in a dilemma between the two, having the desire to depart and be with Christ, which is far better.

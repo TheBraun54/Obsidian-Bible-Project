@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Servants, obey in all things them that are your masters according to the flesh; not with eye-service, as men-pleasers, but in singleness of heart, fearing the Lord: [
+Servants, obey in all things those who are your masters according to the flesh, not just when they are looking, as men pleasers, but in singleness of heart, fearing God.

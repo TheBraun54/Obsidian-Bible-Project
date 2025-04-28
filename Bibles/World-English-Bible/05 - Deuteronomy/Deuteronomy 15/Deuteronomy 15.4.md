@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit there shall be no poor with thee; (for Jehovah will surely bless thee in the land which Jehovah thy God giveth thee for an inheritance to possess it;)
+However there shall be no poor with you; (for Yahweh will surely bless you in the land which Yahweh your God gives you for an inheritance to possess it;)

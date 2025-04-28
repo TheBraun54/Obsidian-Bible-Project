@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thou servedst not Jehovah thy God with joyfulness, and with gladness of heart, by reason of the abundance of all things;
+Because you didn't serve Yahweh your God with joyfulness, and with gladness of heart, by reason of the abundance of all things;

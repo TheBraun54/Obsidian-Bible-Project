@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye foolish ones, did not he that made the outside make the inside also?
+You foolish ones, didn't he who made the outside make the inside also?

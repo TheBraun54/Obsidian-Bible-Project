@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the captain of the guard took Jeremiah, and said unto him, Jehovah thy God pronounced this evil upon this place;
+The captain of the guard took Jeremiah, and said to him, Yahweh your God pronounced this evil on this place;

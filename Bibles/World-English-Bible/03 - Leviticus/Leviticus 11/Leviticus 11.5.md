@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the coney, because he cheweth the cud but parteth not the hoof, he is unclean unto you.
+The coney, because he chews the cud but doesn't have a parted hoof, he is unclean to you.

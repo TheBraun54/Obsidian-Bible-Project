@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy name's sake, O Jehovah, Pardon mine iniquity, for it is great.
+For your name's sake, Yahweh, pardon my iniquity, for it is great.

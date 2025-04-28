@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face toward Sidon, and prophesy against it,
+Son of man, set your face toward Sidon, and prophesy against it,

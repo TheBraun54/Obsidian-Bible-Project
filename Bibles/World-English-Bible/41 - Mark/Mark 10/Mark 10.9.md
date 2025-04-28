@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What therefore God hath joined together, let not man put asunder.
+What therefore God has joined together, let no man separate."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David spake unto Jehovah when he saw the angel that smote the people, and said, Lo, I have sinned, and I have done perversely; but these sheep, what have they done? let thy hand, I pray thee, be against me, and against my father's house.
+David spoke to Yahweh when he saw the angel who struck the people, and said, "Behold, I have sinned, and I have done perversely; but these sheep, what have they done? Please let your hand be against me, and against my father's house."

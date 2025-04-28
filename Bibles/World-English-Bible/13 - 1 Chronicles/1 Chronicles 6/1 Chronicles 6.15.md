@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehozadak went [into captivity], when Jehovah carried away Judah and Jerusalem by the hand of Nebuchadnezzar.
+Jehozadak went [into captivity], when Yahweh carried away Judah and Jerusalem by the hand of Nebuchadnezzar.

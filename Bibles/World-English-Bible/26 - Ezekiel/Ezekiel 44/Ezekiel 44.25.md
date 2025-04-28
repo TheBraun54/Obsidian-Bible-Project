@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall go in to no dead person to defile themselves; but for father, or for mother, or for son, or for daughter, for brother, or for sister that hath had no husband, they may defile themselves.
+They shall go in to no dead person to defile themselves; but for father, or for mother, or for son, or for daughter, for brother, or for sister who has had no husband, they may defile themselves.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Araunah said unto David, Let my lord the king take and offer up what seemeth good unto him: behold, the oxen for the burnt-offering, and the threshing instruments and the yokes of the oxen for the wood:
+Araunah said to David, "Let my lord the king take and offer up what seems good to him. Behold, the cattle for the burnt offering, and the threshing instruments and the yokes of the oxen for the wood:

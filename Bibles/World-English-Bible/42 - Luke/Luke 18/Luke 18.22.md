@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus heard it, he said unto him, One thing thou lackest yet: sell all that thou hast, and distribute unto the poor, and thou shalt have treasure in heaven: and come, follow me.
+When Jesus heard these things, he said to him, "You still lack one thing. Sell all that you have, and distribute it to the poor. You will have treasure in heaven. Come, follow me."

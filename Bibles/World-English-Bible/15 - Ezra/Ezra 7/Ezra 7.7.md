@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went up some of the children of Israel, and of the priests, and the Levites, and the singers, and the porters, and the Nethinim, unto Jerusalem, in the seventh year of Artaxerxes the king.
+There went up some of the children of Israel, and of the priests, and the Levites, and the singers, and the porters, and the Nethinim, to Jerusalem, in the seventh year of Artaxerxes the king.

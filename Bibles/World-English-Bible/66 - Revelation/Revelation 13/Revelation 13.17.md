@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that no man should be able to buy or to sell, save he that hath the mark, [even] the name of the beast or the number of his name.
+and that no one would be able to buy or to sell, unless he has that mark, the name of the beast or the number of his name.

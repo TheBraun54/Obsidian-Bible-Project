@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have the workers of iniquity no knowledge, Who eat up my people [as] they eat bread, And call not upon God?
+Have the workers of iniquity no knowledge, who eat up my people as they eat bread, and don't call on God?

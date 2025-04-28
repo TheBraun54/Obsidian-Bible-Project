@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and divide the prey into two parts: between the men skilled in war, that went out to battle, and all the congregation.
+and divide the prey into two parts: between the men skilled in war, who went out to battle, and all the congregation.

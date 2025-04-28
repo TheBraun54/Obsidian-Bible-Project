@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Listen, O isles, unto me; and hearken, ye peoples, from far: Jehovah hath called me from the womb; from the bowels of my mother hath he made mention of my name:
+Listen, islands, to me; and listen, you peoples, from far: Yahweh has called me from the womb; from the bowels of my mother has he made mention of my name:

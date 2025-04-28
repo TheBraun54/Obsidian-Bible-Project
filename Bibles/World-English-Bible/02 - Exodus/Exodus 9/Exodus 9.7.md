@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh sent, and, behold, there was not so much as one of the cattle of the Israelites dead. But the heart of Pharaoh was stubborn, and he did not let the people go.
+Pharaoh sent, and, behold, there was not so much as one of the livestock of the Israelites dead. But the heart of Pharaoh was stubborn, and he didn't let the people go.

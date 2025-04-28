@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know not to give flattering titles; [Else] would my Maker soon take me away.
+For I don't know how to give flattering titles; or else my Maker would soon take me away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was a great famine in Samaria: and, behold, they besieged it, until an ass's head was sold for fourscore [pieces] of silver, and the fourth part of a kab of dove's dung for five [ [pieces] of silver.
+There was a great famine in Samaria. Behold, they besieged it, until a donkey's head was sold for eighty pieces of silver, and the fourth part of a kab of dove's dung for five pieces of silver.

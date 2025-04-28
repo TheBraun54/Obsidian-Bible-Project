@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God gave Solomon wisdom and understanding exceeding much, and largeness of heart, even as the sand that is on the sea-shore.
+God gave Solomon wisdom and understanding exceeding much, and very great understanding, even as the sand that is on the seashore.

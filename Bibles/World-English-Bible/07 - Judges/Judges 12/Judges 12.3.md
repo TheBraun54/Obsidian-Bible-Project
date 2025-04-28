@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I saw that ye saved me not, I put my life in my hand, and passed over against the children of Ammon, and Jehovah delivered them into my hand: wherefore then are ye come up unto me this day, to fight against me?
+When I saw that you didn't save me, I put my life in my hand, and passed over against the children of Ammon, and Yahweh delivered them into my hand. Why then have you come up to me this day, to fight against me?"

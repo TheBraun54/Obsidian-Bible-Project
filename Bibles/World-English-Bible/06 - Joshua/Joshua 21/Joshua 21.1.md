@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came near the heads of fathers' [houses] of the Levites unto Eleazar the priest, and unto Joshua the son of Nun, and unto the heads of fathers' [houses] of the tribes of the children of Israel;
+Then the heads of fathers' houses of the Levites came near to Eleazar the priest, and to Joshua the son of Nun, and to the heads of fathers' houses of the tribes of the children of Israel.

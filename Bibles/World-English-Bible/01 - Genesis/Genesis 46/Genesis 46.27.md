@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the sons of Joseph, who were born to him in Egypt, were two souls: all the souls of the house of Jacob, that came into Egypt, were threescore and ten.
+The sons of Joseph, who were born to him in Egypt, were two souls. All the souls of the house of Jacob, who came into Egypt, were seventy.

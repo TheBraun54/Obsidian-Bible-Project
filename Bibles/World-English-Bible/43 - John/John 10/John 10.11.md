@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the good shepherd: the good shepherd layeth down his life for the sheep.
+I am the good shepherd. The good shepherd lays down his life for the sheep.

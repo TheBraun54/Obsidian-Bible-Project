@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How many are the days of thy servant? When wilt thou execute judgment on them that persecute me?
+How many are the days of your servant? When will you execute judgment on those who persecute me?

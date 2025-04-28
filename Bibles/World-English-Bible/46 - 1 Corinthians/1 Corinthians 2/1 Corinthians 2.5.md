@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that your faith should not stand in the wisdom of men, but in the power of God.
+that your faith wouldn't stand in the wisdom of men, but in the power of God.

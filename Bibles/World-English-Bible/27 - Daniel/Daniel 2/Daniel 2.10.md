@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Chaldeans answered before the king, and said, There is not a man upon the earth that can show the king's matter, forasmuch as no king, lord, or ruler, hath asked such a thing of any magician, or enchanter, or Chaldean.
+The Chaldeans answered before the king, and said, There is not a man on the earth who can show the king's matter, because no king, lord, or ruler, has asked such a thing of any magician, or enchanter, or Chaldean.

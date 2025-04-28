@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast avouched Jehovah this day to be thy God, and that thou wouldest walk in his ways, and keep his statutes, and his commandments, and his ordinances, and hearken unto his voice:
+You have declared Yahweh this day to be your God, and that you would walk in his ways, and keep his statutes, and his commandments, and his ordinances, and listen to his voice:

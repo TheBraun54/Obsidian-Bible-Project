@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph sent, and called to him Jacob his father, and all his kindred, threescore and fifteen souls.
+Joseph sent, and summoned Jacob, his father, and all his relatives, seventy-five souls.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all these things hath my hand made, and [so] all these things came to be, saith Jehovah: but to this man will I look, even to him that is poor and of a contrite spirit, and that trembleth at my word.
+For all these things has my hand made, and [so] all these things came to be," says Yahweh: "but to this man will I look, even to him who is poor and of a contrite spirit, and who trembles at my word.

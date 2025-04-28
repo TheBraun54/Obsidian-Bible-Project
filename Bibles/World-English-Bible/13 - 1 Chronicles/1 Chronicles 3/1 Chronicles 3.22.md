@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Shecaniah: Shemaiah. And the sons of Shemaiah: Hattush, and Igal, and Bariah, and Neariah, and Shaphat, six.
+The sons of Shecaniah: Shemaiah. The sons of Shemaiah: Hattush, and Igal, and Bariah, and Neariah, and Shaphat, six.

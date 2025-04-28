@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For neither is circumcision anything, nor uncircumcision, but a new creature.
+For in Christ Jesus neither is circumcision anything, nor uncircumcision, but a new creation.

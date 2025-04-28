@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall eat nothing leavened; in all your habitations shall ye eat unleavened bread.
+You shall eat nothing leavened. In all your habitations you shall eat unleavened bread.'"

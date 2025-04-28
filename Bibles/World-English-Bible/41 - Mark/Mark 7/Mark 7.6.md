@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Well did Isaiah prophesy of you hypocrites, as it is written, This people honoreth me with their lips, But their heart is far from me.
+He answered them, "Well did Isaiah prophesy of you hypocrites, as it is written, 'This people honors me with their lips, but their heart is far from me.

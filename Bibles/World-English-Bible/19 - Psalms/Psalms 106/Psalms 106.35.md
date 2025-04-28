@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But mingled themselves with the nations, And learned their works,
+but mixed themselves with the nations, and learned their works.

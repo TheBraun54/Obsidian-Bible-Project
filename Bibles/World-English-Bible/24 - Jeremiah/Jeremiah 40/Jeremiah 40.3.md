@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah hath brought it, and done according as he spake: because ye have sinned against Jehovah, and have not obeyed his voice, therefore this thing is come upon you.
+and Yahweh has brought it, and done according as he spoke: because you have sinned against Yahweh, and have not obeyed his voice, therefore this thing has come on you.

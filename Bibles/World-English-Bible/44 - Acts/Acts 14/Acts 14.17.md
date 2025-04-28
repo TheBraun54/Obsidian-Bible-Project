@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And yet He left not himself without witness, in that he did good and gave you from heaven rains and fruitful seasons, filling your hearts with food and gladness.
+Yet he didn't leave himself without witness, in that he did good and gave you rains from the sky and fruitful seasons, filling our hearts with food and gladness."

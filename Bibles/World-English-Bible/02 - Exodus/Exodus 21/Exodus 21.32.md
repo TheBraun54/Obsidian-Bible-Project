@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the ox gore a man-servant or a maid-servant, there shall be given unto their master thirty shekels of silver, and the ox shall be stoned.
+If the bull gores a male servant or a female servant, thirty shekels of silver shall be given to their master, and the ox shall be stoned.

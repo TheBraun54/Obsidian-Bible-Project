@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that reapeth receiveth wages, and gathereth fruit unto life eternal; that he that soweth and he that reapeth may rejoice together.
+He who reaps receives wages, and gathers fruit to eternal life; that both he who sows and he who reaps may rejoice together.

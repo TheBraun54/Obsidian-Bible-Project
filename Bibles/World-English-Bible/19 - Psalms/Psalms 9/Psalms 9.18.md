@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the needy shall not alway be forgotten, Nor the expectation of the poor perish for ever.
+For the needy shall not always be forgotten, nor the hope of the poor perish forever.

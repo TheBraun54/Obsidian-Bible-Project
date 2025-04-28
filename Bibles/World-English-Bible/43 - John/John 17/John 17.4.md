@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I glorified thee on the earth, having accomplished the work which thou hast given me to do.
+I glorified you on the earth. I have accomplished the work which you have given me to do.

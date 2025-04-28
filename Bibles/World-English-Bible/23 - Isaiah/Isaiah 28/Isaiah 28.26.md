@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For his God doth instruct him aright, [and] doth teach him.
+For his God instructs him in right judgment, and teaches him.

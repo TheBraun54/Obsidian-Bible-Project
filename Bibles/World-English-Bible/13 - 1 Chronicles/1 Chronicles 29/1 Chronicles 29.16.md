@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah our God, all this store that we have prepared to build thee a house for thy holy name cometh of thy hand, and is all thine own.
+Yahweh our God, all this store that we have prepared to build you a house for your holy name comes from your hand, and is all your own.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zechariah, and Aziel, and Shemiramoth, and Jehiel, and Unni, and Eliab, and Maaseiah, and Benaiah, with psalteries set to Alamoth;
+and Zechariah, and Aziel, and Shemiramoth, and Jehiel, and Unni, and Eliab, and Maaseiah, and Benaiah, with stringed instruments set to Alamoth;

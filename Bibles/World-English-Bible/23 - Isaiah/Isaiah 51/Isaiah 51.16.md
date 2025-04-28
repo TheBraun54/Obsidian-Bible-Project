@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have put my words in thy mouth, and have covered thee in the shadow of my hand, that I may plant the heavens, and lay the foundations of the earth, and say unto Zion, Thou art my people.
+I have put my words in your mouth, and have covered you in the shadow of my hand, that I may plant the heavens, and lay the foundations of the earth, and tell Zion, 'You are my people.'"

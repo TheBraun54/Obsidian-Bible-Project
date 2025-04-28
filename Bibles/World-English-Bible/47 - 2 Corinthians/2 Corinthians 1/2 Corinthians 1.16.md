@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and by you to pass into Macedonia, and again from Macedonia to come unto you, and of you to be set forward on my journey unto Judaea.
+and by you to pass into Macedonia, and again from Macedonia to come to you, and to be sent forward by you on my journey to Judea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How is it that ye do not perceive that I spake not to you concerning bread? But beware of the leaven of the Pharisees and Sadducees.
+How is it that you don't perceive that I didn't speak to you concerning bread? But beware of the yeast of the Pharisees and Sadducees."

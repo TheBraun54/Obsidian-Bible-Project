@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for us, Jehovah is our God, and we have not forsaken him; and [we have] priests ministering unto Jehovah, the sons of Aaron, and the Levites in their work:
+"But as for us, Yahweh is our God, and we have not forsaken him; and [we have] priests ministering to Yahweh, the sons of Aaron, and the Levites in their work:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was a famine in the land, besides the first famine that was in the days of Abraham. And Isaac went unto Abimelech king of the Philistines, unto Gerar.
+There was a famine in the land, besides the first famine that was in the days of Abraham. Isaac went to Abimelech king of the Philistines, to Gerar.

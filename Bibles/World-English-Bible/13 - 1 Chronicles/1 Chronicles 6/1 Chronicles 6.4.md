@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Eleazar begat Phinehas, Phinehas begat Abishua,
+Eleazar became the father of Phinehas, Phinehas became the father of Abishua,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not see thy brother's ass or his ox fallen down by the way, and hide thyself from them: thou shalt surely help him to lift them up again.
+You shall not see your brother's donkey or his ox fallen down by the way, and hide yourself from them: you shall surely help him to lift them up again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, let thy servant, I pray thee, abide instead of the lad a bondman to my lord; and let the lad go up with his brethren.
+Now therefore, please let your servant stay instead of the boy, a bondservant to my lord; and let the boy go up with his brothers.

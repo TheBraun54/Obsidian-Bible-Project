@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He was a mighty hunter before Jehovah: wherefore it is said, Like Nimrod a mighty hunter before Jehovah.
+He was a mighty hunter before Yahweh. Therefore it is said, "Like Nimrod, a mighty hunter before Yahweh."

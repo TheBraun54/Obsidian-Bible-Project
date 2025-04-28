@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore it behooved him in all things to be made like unto his brethren, that he might become a merciful and faithful high priest in things pertaining to God, to make propitiation for the sins of the people.
+Therefore he was obligated in all things to be made like his brothers, that he might become a merciful and faithful high priest in things pertaining to God, to make atonement for the sins of the people.

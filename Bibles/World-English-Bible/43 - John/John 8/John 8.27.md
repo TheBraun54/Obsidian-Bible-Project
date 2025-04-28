@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They perceived not that he spake to them of the Father.
+They didn't understand that he spoke to them about the Father.

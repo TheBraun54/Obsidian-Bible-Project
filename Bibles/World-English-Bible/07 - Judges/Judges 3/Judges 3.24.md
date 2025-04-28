@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when he was gone out, his servants came; and they saw, and, behold, the doors of the upper room were locked; and they said, Surely he is covering his feet in the upper chamber.
+Now when he was gone out, his servants came; and they saw, and behold, the doors of the upper room were locked; and they said, "Surely he is covering his feet in the upper room."

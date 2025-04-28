@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon the willows in the midst thereof We hanged up our harps.
+On the willows in its midst, we hung up our harps.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much more, if haply the people had eaten freely to-day of the spoil of their enemies which they found? for now hath there been no great slaughter among the Philistines.
+How much more, if perhaps the people had eaten freely today of the spoil of their enemies which they found? For now has there been no great slaughter among the Philistines."

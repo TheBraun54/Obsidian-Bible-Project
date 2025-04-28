@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people said unto Joshua, Nay; but we will serve Jehovah.
+The people said to Joshua, "No; but we will serve Yahweh."

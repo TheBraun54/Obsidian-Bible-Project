@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By them the birds of the heavens have their habitation; They sing among the branches.
+The birds of the sky nest by them. They sing among the branches.

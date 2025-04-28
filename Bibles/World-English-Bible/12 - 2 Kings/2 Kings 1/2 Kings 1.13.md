@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he sent the captain of a third fifty with his fifty. And the third captain of fifty went up, and came and fell on his knees before Elijah, and besought him, and said unto him, O man of God, I pray thee, let my life, and the life of these fifty thy servants, be precious in thy sight.
+Again he sent the captain of a third fifty with his fifty. The third captain of fifty went up, and came and fell on his knees before Elijah, and begged him, and said to him, "Man of God, please let my life, and the life of these fifty your servants, be precious in your sight.

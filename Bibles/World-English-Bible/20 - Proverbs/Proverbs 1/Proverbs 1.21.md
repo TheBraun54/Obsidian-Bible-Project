@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She crieth in the chief place of concourse; At the entrance of the gates, In the city, she uttereth her words:
+She calls at the head of noisy places. At the entrance of the city gates, she utters her words:

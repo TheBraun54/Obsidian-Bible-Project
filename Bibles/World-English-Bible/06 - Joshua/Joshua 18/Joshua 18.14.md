@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border extended [thence], and turned about on the west quarter southward, from the mountain that lieth before Beth-horon southward; and the goings out thereof were at Kiriath-baal (the same is Kiriath-jearim), a city of the children of Judah: this was the west quarter.
+The border extended, and turned around on the west quarter southward, from the mountain that lies before Beth Horon southward; and ended at Kiriath Baal (the same is Kiriath Jearim), a city of the children of Judah. This was the west quarter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the first of your dough ye shall offer up a cake for a heave-offering: as the heave-offering of the threshing-floor, so shall ye heave it.
+Of the first of your dough you shall offer up a cake for a wave offering: as the wave offering of the threshing floor, so you shall heave it.

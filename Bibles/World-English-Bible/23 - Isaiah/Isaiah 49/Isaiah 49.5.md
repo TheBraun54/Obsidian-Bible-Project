@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now saith Jehovah that formed me from the womb to be his servant, to bring Jacob again to him, and that Israel be gathered unto him (for I am honorable in the eyes of Jehovah, and my God is become my strength);
+Now says Yahweh who formed me from the womb to be his servant, to bring Jacob again to him, and that Israel be gathered to him (for I am honorable in the eyes of Yahweh, and my God is become my strength);

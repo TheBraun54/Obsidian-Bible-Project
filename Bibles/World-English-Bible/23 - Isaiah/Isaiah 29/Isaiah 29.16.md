@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye turn things upside down! Shall the potter be esteemed as clay; that the thing made should say of him that made it, He made me not; or the thing formed say of him that formed it, He hath no understanding?
+You turn things upside down! Should the potter be thought to be like clay; that the thing made should say about him who made it, "He didn't make me;" or the thing formed say of him who formed it, "He has no understanding?"

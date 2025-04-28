@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou sittest to eat with a ruler, Consider diligently him that is before thee;
+When you sit to eat with a ruler, consider diligently what is before you;

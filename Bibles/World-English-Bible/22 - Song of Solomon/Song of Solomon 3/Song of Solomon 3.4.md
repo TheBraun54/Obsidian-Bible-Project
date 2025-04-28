@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It was but a little that I passed from them, When I found him whom my soul loveth: I held him, and would not let him go, Until I had brought him into my mother's house, And into the chamber of her that conceived me.
+I had scarcely passed from them, when I found him whom my soul loves. I held him, and would not let him go, until I had brought him into my mother's house, into the room of her who conceived me.

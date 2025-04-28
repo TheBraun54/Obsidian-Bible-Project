@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was covered with cedar above over the forty and five beams, that were upon the pillars; fifteen in a row.
+It was covered with cedar above over the forty-five beams, that were on the pillars; fifteen in a row.

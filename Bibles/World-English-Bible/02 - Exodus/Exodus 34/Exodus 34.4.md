@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hewed two tables of stone like unto the first; and Moses rose up early in the morning, and went up unto mount Sinai, as Jehovah had commanded him, and took in his hand two tables of stone.
+He chiseled two tablets of stone like the first; and Moses rose up early in the morning, and went up to Mount Sinai, as Yahweh had commanded him, and took in his hand two stone tablets.

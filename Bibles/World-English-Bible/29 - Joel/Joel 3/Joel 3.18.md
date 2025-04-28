@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that the mountains shall drop down sweet wine, and the hills shall flow with milk, and all the brooks of Judah shall flow with waters; and a fountain shall come forth from the house of Jehovah, and shall water the valley of Shittim.
+It will happen in that day, that the mountains will drop down sweet wine, the hills will flow with milk, all the brooks of Judah will flow with waters, and a fountain will come forth from the house of Yahweh, and will water the valley of Shittim.

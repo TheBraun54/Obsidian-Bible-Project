@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This people honoreth me with their lips; But their heart is far from me.
+'These people draw near to me with their mouth, and honor me with their lips; but their heart is far from me.

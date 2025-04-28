@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Saul and the people spared Agag, and the best of the sheep, and of the oxen, and of the fatlings, and the lambs, and all that was good, and would not utterly destroy them: but everything that was vile and refuse, that they destroyed utterly.
+But Saul and the people spared Agag, and the best of the sheep, and of the cattle, and of the fatlings, and the lambs, and all that was good, and wouldn't utterly destroy them: but everything that was vile and refuse, that they destroyed utterly.

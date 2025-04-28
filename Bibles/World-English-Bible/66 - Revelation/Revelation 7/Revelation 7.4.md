@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard the number of them that were sealed, a hundred and forty and four thousand, sealed out of every tribe of the children of Israel:
+I heard the number of those who were sealed, one hundred forty-four thousand, sealed out of every tribe of the children of Israel:

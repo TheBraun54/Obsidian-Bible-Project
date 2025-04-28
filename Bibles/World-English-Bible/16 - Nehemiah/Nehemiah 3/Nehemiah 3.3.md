@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fish gate did the sons of Hassenaah build; they laid the beams thereof, and set up the doors thereof, the bolts thereof, and the bars thereof.
+The fish gate did the sons of Hassenaah build; they laid its beams, and set up its doors, its bolts, and its bars.

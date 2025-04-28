@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall make atonement for him before Jehovah; and he shall be forgiven concerning whatsoever he doeth so as to be guilty thereby.
+The priest shall make atonement for him before Yahweh, and he will be forgiven concerning whatever he does to become guilty."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For neither doth the Father judge any man, but he hath given all judgment unto the Son;
+For the Father judges no one, but he has given all judgment to the Son,

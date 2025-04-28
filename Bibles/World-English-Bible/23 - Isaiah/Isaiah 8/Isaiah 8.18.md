@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I and the children whom Jehovah hath given me are for signs and for wonders in Israel from Jehovah of hosts, who dwelleth in mount Zion.
+Behold, I and the children whom Yahweh has given me are for signs and for wonders in Israel from Yahweh of Armies, who dwells in Mount Zion.

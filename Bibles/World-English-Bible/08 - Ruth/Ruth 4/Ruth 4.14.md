@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the women said unto Naomi, Blessed be Jehovah, who hath not left thee this day without a near kinsman; and let his name be famous in Israel.
+The women said to Naomi, "Blessed be Yahweh, who has not left you this day without a near kinsman; and let his name be famous in Israel.

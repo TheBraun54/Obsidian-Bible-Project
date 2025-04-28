@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall dip his right finger in the oil that is in his left hand, and shall sprinkle of the oil with his finger seven times before Jehovah:
+The priest shall dip his right finger in the oil that is in his left hand, and shall sprinkle some of the oil with his finger seven times before Yahweh.

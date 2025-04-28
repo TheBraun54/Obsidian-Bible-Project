@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah saved Israel that day: and the battle passed over by Beth-aven.
+So Yahweh saved Israel that day: and the battle passed over by Beth Aven.

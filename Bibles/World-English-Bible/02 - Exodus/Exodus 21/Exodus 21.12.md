@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that smiteth a man, so that he dieth, shall surely be put to death.
+"One who strikes a man so that he dies shall surely be put to death,

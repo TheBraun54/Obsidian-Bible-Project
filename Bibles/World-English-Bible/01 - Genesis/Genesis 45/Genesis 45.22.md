@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To all of them he gave each man changes of raiment; but to Benjamin he gave three hundred pieces of silver, and five changes of raiment.
+He gave each one of them changes of clothing, but to Benjamin he gave three hundred pieces of silver and five changes of clothing.

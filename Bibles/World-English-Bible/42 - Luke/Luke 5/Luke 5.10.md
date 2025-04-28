@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and so were also James and John, sons of Zebedee, who were partners with Simon. And Jesus said unto Simon, Fear not; from henceforth thou shalt catch men.
+and so also were James and John, sons of Zebedee, who were partners with Simon. Jesus said to Simon, "Don't be afraid. From now on you will be catching people alive."

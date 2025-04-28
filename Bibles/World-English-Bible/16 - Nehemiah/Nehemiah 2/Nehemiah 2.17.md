@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I unto them, Ye see the evil case that we are in, how Jerusalem lieth waste, and the gates thereof are burned with fire: come, and let us build up the wall of Jerusalem, that we be no more a reproach.
+Then I said to them, "You see the evil case that we are in, how Jerusalem lies waste, and its gates are burned with fire. Come, let us build up the wall of Jerusalem, that we won't be disgraced."

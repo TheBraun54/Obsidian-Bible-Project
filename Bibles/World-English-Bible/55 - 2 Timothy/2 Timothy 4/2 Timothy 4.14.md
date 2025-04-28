@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Alexander the coppersmith did me much evil: the Lord will render to him according to his works:
+Alexander, the coppersmith, did much evil to me. The Lord will repay him according to his works,

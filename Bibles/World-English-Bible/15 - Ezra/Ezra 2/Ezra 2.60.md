@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the children of Delaiah, the children of Tobiah, the children of Nekoda, six hundred fifty and two.
+the children of Delaiah, the children of Tobiah, the children of Nekoda, six hundred fifty-two.

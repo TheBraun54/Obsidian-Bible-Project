@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I wisdom have made prudence my dwelling, And find out knowledge [and] discretion.
+"I, wisdom, have made prudence my dwelling. Find out knowledge and discretion.

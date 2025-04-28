@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we behold him who hath been made a little lower than the angels, [even] Jesus, because of the suffering of death crowned with glory and honor, that by the grace of God he should taste of death for every [man] .
+But we see him who has been made a little lower than the angels, Jesus, because of the suffering of death crowned with glory and honor, that by the grace of God he should taste of death for everyone.

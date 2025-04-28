@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he became hungry, and desired to eat: but while they made ready, he fell into a trance;
+He became hungry and desired to eat, but while they were preparing, he fell into a trance.

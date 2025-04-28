@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take great stones in thy hand, and hide them in mortar in the brickwork, which is at the entry of Pharaoh's house in Tahpanhes, in the sight of the men of Judah;
+Take great stones in your hand, and hide them in mortar in the brick work, which is at the entry of Pharaoh's house in Tahpanhes, in the sight of the men of Judah;

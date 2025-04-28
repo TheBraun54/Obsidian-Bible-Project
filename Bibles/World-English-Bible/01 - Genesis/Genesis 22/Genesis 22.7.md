@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac spake unto Abraham his father, and said, My father: and he said, Here am I, my son. And he said, Behold, the fire and the wood: but where is the lamb for a burnt-offering?
+Isaac spoke to Abraham his father, and said, "My father?" He said, "Here I am, my son." He said, "Here is the fire and the wood, but where is the lamb for a burnt offering?"

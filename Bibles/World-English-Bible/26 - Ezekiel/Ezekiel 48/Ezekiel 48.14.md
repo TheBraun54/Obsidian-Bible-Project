@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall sell none of it, nor exchange it, nor shall the first-fruits of the land be alienated; for it is holy unto Jehovah.
+They shall sell none of it, nor exchange it, nor shall the first fruits of the land be alienated; for it is holy to Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim, like as I have seen Tyre, is planted in a pleasant place: but Ephraim shall bring out his children to the slayer.
+I have seen Ephraim, like Tyre, planted in a pleasant place; but Ephraim will bring out his children to the murderer.

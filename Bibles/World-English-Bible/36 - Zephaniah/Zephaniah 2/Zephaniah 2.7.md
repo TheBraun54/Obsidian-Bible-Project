@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the coast shall be for the remnant of the house of Judah; they shall feed [their flocks] thereupon; in the houses of Ashkelon shall they lie down in the evening; for Jehovah their God will visit them, and bring back their captivity.
+The coast will be for the remnant of the house of Judah. They will find pasture. In the houses of Ashkelon, they will lie down in the evening, for Yahweh, their God, will visit them, and restore them.

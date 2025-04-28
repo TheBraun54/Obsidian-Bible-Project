@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the transgression of Jacob is all this, and for the sins of the house of Israel. What is the transgression of Jacob? is it not Samaria? and what are the high places of Judah? are they not Jerusalem?
+"All this is for the disobedience of Jacob, and for the sins of the house of Israel. What is the disobedience of Jacob? Isn't it Samaria? And what are the high places of Judah? Aren't they Jerusalem?

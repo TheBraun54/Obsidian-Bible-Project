@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took all the fat that was upon the inwards, and the caul of the liver, and the two kidneys, and their fat; and Moses burned it upon the altar.
+He took all the fat that was on the innards, and the cover of the liver, and the two kidneys, and their fat; and Moses burned it on the altar.

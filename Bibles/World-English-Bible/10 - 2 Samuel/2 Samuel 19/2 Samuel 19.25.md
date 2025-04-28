@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he was come to Jerusalem to meet the king, that the king said unto him, Wherefore wentest not thou with me, Mephibosheth?
+It happened, when he had come to Jerusalem to meet the king, that the king said to him, "Why didn't you go with me, Mephibosheth?"

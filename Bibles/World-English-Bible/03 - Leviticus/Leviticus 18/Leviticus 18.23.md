@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not lie with any beast to defile thyself therewith; neither shall any woman stand before a beast, to lie down thereto: it is confusion.
+"'You shall not lie with any animal to defile yourself with it; neither shall any woman give herself to an animal, to lie down with it: it is a perversion.

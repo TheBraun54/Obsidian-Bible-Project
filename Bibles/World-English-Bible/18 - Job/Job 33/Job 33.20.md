@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that his life abhorreth bread, And his soul dainty food.
+So that his life abhors bread, and his soul dainty food.

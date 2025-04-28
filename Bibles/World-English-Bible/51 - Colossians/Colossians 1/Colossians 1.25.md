@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereof I was made a minister, according to the dispensation of God which was given me to you-ward, to fulfil the word of God,
+of which I was made a servant, according to the stewardship of God which was given me toward you, to fulfill the word of God,

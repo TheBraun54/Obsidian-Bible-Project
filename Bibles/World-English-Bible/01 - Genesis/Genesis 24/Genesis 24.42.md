@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I came this day unto the fountain, and said, O Jehovah, the God of my master Abraham, if now thou do prosper my way which I go:
+I came this day to the spring, and said, 'Yahweh, the God of my master Abraham, if now you do prosper my way which I go--

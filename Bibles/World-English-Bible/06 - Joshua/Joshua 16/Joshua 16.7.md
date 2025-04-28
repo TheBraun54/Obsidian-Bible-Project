@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it went down from Janoah to Ataroth, and to Naarah, and reached unto Jericho, and went out at the Jordan.
+It went down from Janoah to Ataroth, to Naarah, reached to Jericho, and went out at the Jordan.

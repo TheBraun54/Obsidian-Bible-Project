@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said also unto the disciples, There was a certain rich man, who had a steward; and the same was accused unto him that he was wasting his goods.
+He also said to his disciples, "There was a certain rich man who had a manager. An accusation was made to him that this man was wasting his possessions.

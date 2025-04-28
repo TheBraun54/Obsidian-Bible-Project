@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All sheep and oxen, Yea, and the beasts of the field,
+All sheep and cattle, yes, and the animals of the field,

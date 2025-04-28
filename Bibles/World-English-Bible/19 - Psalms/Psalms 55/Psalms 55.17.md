@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Evening, and morning, and at noonday, will I complain, and moan; And he will hear my voice.
+Evening, morning, and at noon, I will cry out in distress. He will hear my voice.

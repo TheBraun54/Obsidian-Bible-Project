@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after this it came to pass, that David smote the Philistines, and subdued them, and took Gath and its towns out of the hand of the Philistines.
+After this it happened, that David struck the Philistines, and subdued them, and took Gath and its towns out of the hand of the Philistines.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tents of robbers prosper, And they that provoke God are secure; Into whose hand God bringeth [abundantly] .
+The tents of robbers prosper. Those who provoke God are secure, who carry their God in their hands.

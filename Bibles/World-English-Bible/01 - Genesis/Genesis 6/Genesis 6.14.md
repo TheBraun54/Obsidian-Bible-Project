@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make thee an ark of gopher wood; rooms shalt thou make in the ark, and shalt pitch it within and without with pitch.
+Make a ship of gopher wood. You shall make rooms in the ship, and shall seal it inside and outside with pitch.

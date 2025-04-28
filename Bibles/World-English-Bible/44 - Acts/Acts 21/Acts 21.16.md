@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went with us also [certain] of the disciples from Caesarea, bringing [with them] one Mnason of Cyprus, an early disciple, with whom we should lodge.
+Some of the disciples from Caesarea also went with us, bringing one Mnason of Cyprus, an early disciple, with whom we would stay.

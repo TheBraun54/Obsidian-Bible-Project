@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of his mouth proceedeth a sharp sword, that with it he should smite the nations: and he shall rule them with a rod of iron: and he treadeth the winepress of the fierceness of the wrath of God, the Almighty.
+Out of his mouth proceeds a sharp, double-edged sword, that with it he should strike the nations. He will rule them with an iron rod. He treads the winepress of the fierceness of the wrath of God, the Almighty.

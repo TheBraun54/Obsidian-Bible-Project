@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I took the deed of the purchase, both that which was sealed, [according to] the law and custom, and that which was open:
+So I took the deed of the purchase, both that which was sealed, containing the terms and conditions, and that which was open;

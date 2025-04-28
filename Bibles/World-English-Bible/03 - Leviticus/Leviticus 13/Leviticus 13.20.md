@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look; and, behold, if the appearance thereof be lower than the skin, and the hair thereof be turned white, then the priest shall pronounce him unclean: it is the plague of leprosy, it hath broken out in the boil.
+and the priest shall examine it; and behold, if its appearance is lower than the skin, and its hair has turned white, then the priest shall pronounce him unclean. It is the plague of leprosy. It has broken out in the boil.

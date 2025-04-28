@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tidings came to Joab; for Joab had turned after Adonijah, though he turned not after Absalom. And Joab fled unto the Tent of Jehovah, and caught hold on the horns of the altar.
+The news came to Joab; for Joab had turned after Adonijah, though he didn't turn after Absalom. Joab fled to the Tent of Yahweh, and caught hold on the horns of the altar.

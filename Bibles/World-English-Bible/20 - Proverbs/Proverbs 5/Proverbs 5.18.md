@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy fountain be blessed; And rejoice in the wife of thy youth.
+Let your spring be blessed. Rejoice in the wife of your youth.

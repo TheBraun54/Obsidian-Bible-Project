@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take two onyx stones, and grave on them the names of the children of Israel:
+You shall take two onyx stones, and engrave on them the names of the children of Israel:

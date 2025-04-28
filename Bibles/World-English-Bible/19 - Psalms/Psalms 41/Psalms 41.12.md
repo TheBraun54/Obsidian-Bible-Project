@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for me, thou upholdest me in mine integrity, And settest me before thy face for ever.
+As for me, you uphold me in my integrity, and set me in your presence forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be signs in sun and moon and stars; and upon the earth distress of nations, in perplexity for the roaring of the sea and the billows;
+There will be signs in the sun, moon, and stars; and on the earth anxiety of nations, in perplexity for the roaring of the sea and the waves;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I write the more boldly unto you in some measure, as putting you again in remembrance, because of the grace that was given me of God,
+But I write the more boldly to you in part, as reminding you, because of the grace that was given to me by God,

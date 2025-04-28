@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if this thing be true, that the tokens of virginity were not found in the damsel;
+But if this thing be true, that the tokens of virginity were not found in the young lady;

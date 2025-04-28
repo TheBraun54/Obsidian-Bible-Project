@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for the people, he removed them to the cities from one end of the border of Egypt even to the other end thereof.
+As for the people, he moved them to the cities from one end of the border of Egypt even to the other end of it.

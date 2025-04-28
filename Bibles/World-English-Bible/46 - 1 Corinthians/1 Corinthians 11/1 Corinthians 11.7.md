@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a man indeed ought not to have his head veiled, forasmuch as he is the image and glory of God: but the woman is the glory of the man.
+For a man indeed ought not to have his head covered, because he is the image and glory of God, but the woman is the glory of the man.

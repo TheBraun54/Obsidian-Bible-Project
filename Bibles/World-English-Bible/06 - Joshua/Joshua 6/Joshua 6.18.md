@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for you, only keep yourselves from the devoted thing, lest when ye have devoted it, ye take of the devoted thing; so would ye make the camp of Israel accursed, and trouble it.
+But as for you, only keep yourselves from the devoted thing, lest when you have devoted it, you take of the devoted thing; so would you make the camp of Israel accursed, and trouble it.

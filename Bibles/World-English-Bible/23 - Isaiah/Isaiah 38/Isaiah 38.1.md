@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days was Hezekiah sick unto death. And Isaiah the prophet the son of Amoz came to him, and said unto him, Thus saith Jehovah, Set thy house in order; for thou shalt die, and not live.
+In those days was Hezekiah sick and near death. Isaiah the prophet, the son of Amoz, came to him, and said to him, "Thus says Yahweh, 'Set your house in order, for you will die, and not live.'"

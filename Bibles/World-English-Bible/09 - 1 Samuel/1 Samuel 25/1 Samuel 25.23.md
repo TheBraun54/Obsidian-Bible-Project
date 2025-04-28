@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Abigail saw David, she hasted, and alighted from her ass, and fell before David on her face, and bowed herself to the ground.
+When Abigail saw David, she hurried, and alighted from her donkey, and fell before David on her face, and bowed herself to the ground.

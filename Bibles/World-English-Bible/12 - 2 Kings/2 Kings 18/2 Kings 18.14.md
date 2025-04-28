@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah king of Judah sent to the king of Assyria to Lachish, saying, I have offended; return from me: that which thou puttest on me will I bear. And the king of Assyria appointed unto Hezekiah king of Judah three hundred talents of silver and thirty talents of gold.
+Hezekiah king of Judah sent to the king of Assyria to Lachish, saying, "I have offended; return from me. That which you put on me, I will bear." The king of Assyria appointed to Hezekiah king of Judah three hundred talents of silver and thirty talents of gold.

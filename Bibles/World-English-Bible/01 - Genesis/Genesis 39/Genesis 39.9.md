@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he is not greater in this house than I; neither hath he kept back anything from me but thee, because thou art his wife: how then can I do this great wickedness, and sin against God?
+He isn't greater in this house than I, neither has he kept back anything from me but you, because you are his wife. How then can I do this great wickedness, and sin against God?"

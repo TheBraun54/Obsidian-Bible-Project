@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their sword shall enter into their own heart, And their bows shall be broken.
+Their sword shall enter into their own heart. Their bows shall be broken.

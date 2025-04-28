@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though I speak, my grief is not assuaged; And though I forbear, what am I eased?
+"Though I speak, my grief is not subsided. Though I forbear, what am I eased?

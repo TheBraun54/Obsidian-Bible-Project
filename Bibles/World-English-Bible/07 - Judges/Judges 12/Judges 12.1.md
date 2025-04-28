@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Ephraim were gathered together, and passed northward; and they said unto Jephthah, Wherefore passedst thou over to fight against the children of Ammon, and didst not call us to go with thee? we will burn thy house upon thee with fire.
+The men of Ephraim were gathered together, and passed northward; and they said to Jephthah, "Why did you pass over to fight against the children of Ammon, and didn't call us to go with you? We will burn your house around you with fire!"

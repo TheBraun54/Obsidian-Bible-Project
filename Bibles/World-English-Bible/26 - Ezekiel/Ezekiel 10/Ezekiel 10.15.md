@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cherubim mounted up: this is the living creature that I saw by the river Chebar.
+The cherubim mounted up: this is the living creature that I saw by the river Chebar.

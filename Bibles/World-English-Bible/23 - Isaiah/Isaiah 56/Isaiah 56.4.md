@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of the eunuchs that keep my sabbaths, and choose the things that please me, and hold fast my covenant:
+For thus says Yahweh, "To the eunuchs who keep my Sabbaths, and choose the things that please me, and hold fast my covenant:

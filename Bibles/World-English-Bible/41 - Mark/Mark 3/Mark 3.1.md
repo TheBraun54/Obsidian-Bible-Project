@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he entered again into the synagogue; and there was a man there who had his hand withered.
+He entered again into the synagogue, and there was a man there who had his hand withered.

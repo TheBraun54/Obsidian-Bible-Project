@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let him that is taught in the word communicate unto him that teacheth in all good things.
+But let him who is taught in the word share all good things with him who teaches.

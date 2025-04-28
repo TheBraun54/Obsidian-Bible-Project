@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Being therefore a prophet, and knowing that God had sworn with an oath to him, that of the fruit of his loins he would set [one] upon his throne;
+Therefore, being a prophet, and knowing that God had sworn with an oath to him that of the fruit of his body, according to the flesh, he would raise up the Christ to sit on his throne,

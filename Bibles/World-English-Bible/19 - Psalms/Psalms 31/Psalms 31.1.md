@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. In thee, O Jehovah, do I take refuge; Let me never be put to shame: Deliver me in thy righteousness.
+In you, Yahweh, I take refuge. Let me never be disappointed. Deliver me in your righteousness.

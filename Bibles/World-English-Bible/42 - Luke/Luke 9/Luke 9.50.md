@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said unto him, Forbid [him] not: for he that is not against you is for you.
+Jesus said to him, "Don't forbid him, for he who is not against us is for us."

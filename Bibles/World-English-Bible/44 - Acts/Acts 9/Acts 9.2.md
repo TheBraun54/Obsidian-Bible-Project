@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and asked of him letters to Damascus unto the synagogues, that if he found any that were of the Way, whether men or women, he might bring them bound to Jerusalem.
+and asked for letters from him to the synagogues of Damascus, that if he found any who were of the Way, whether men or women, he might bring them bound to Jerusalem.

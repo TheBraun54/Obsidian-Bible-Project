@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: I will spread out my net upon thee with a company of many peoples; and they shall bring thee up in my net.
+Thus says the Lord Yahweh: I will spread out my net on you with a company of many peoples; and they shall bring you up in my net.

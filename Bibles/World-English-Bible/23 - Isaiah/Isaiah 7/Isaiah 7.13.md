@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Hear ye now, O house of David: Is it a small thing for you to weary men, that ye will weary my God also?
+He said, "Listen now, house of David. Is it not enough for you to try the patience of men, that you will try the patience of my God also?

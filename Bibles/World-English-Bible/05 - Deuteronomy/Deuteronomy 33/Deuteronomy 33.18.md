@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Zebulun he said, Rejoice, Zebulun, in thy going out; And, Issachar, in thy tents.
+Of Zebulun he said, "Rejoice, Zebulun, in your going out; and Issachar, in your tents.

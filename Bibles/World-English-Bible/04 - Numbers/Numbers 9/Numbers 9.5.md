@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they kept the passover in the first [month], on the fourteenth day of the month, at even, in the wilderness of Sinai: according to all that Jehovah commanded Moses, so did the children of Israel.
+They kept the Passover in the first month, on the fourteenth day of the month, at evening, in the wilderness of Sinai. According to all that Yahweh commanded Moses, so the children of Israel did.

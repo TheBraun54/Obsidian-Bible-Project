@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye have magnified yourselves against me with your mouth, and have multiplied your words against me: I have heard it.
+You have magnified yourselves against me with your mouth, and have multiplied your words against me: I have heard it.

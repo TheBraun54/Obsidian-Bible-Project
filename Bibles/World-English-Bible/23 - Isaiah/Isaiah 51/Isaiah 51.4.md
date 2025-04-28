@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Attend unto me, O my people; and give ear unto me, O my nation: for a law shall go forth from me, and I will establish my justice for a light of the peoples.
+"Attend to me, my people; and give ear to me, my nation: for a law shall go forth from me, and I will establish my justice for a light of the peoples.

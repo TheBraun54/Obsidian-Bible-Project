@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lotus-trees cover him with their shade; The willows of the brook compass him about.
+The lotuses cover him with their shade. The willows of the brook surround him.

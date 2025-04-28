@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Obal, and Abimael, and Sheba,
+Obal, Abimael, Sheba,

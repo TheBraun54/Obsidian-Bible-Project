@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your children shall be wanderers in the wilderness forty years, and shall bear your whoredoms, until your dead bodies be consumed in the wilderness.
+Your children shall be wanderers in the wilderness forty years, and shall bear your prostitution, until your dead bodies be consumed in the wilderness.

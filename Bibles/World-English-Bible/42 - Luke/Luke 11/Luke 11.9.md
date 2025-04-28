@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto you, Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you.
+"I tell you, keep asking, and it will be given you. Keep seeking, and you will find. Keep knocking, and it will be opened to you.

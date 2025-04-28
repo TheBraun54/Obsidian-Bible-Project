@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and delivered righteous Lot, sore distressed by the lascivious life of the wicked
+and delivered righteous Lot, who was very distressed by the lustful life of the wicked

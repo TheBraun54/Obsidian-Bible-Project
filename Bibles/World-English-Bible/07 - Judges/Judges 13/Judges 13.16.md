@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto Manoah, Though thou detain me, I will not eat of thy bread; and if thou wilt make ready a burnt-offering, thou must offer it unto Jehovah. For Manoah knew not that he was the angel of Jehovah.
+The angel of Yahweh said to Manoah, "Though you detain me, I won't eat of your bread; and if you will prepare a burnt offering, you must offer it to Yahweh." For Manoah didn't know that he was the angel of Yahweh.

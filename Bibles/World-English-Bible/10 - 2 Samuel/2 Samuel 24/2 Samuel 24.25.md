@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David built there an altar unto Jehovah, and offered burnt-offerings and peace-offerings. So Jehovah was entreated for the land, and the plague was stayed from Israel.
+David built an altar to Yahweh there, and offered burnt offerings and peace offerings. So Yahweh was entreated for the land, and the plague was stayed from Israel.

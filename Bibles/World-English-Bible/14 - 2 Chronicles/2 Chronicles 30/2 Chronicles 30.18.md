@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a multitude of the people, even many of Ephraim and Manasseh, Issachar and Zebulun, had not cleansed themselves, yet did they eat the passover otherwise than it is written. For Hezekiah had prayed for them, saying, The good Jehovah pardon every one
+For a multitude of the people, even many of Ephraim and Manasseh, Issachar and Zebulun, had not cleansed themselves, yet they ate the Passover otherwise than it is written. For Hezekiah had prayed for them, saying, "May the good Yahweh pardon everyone

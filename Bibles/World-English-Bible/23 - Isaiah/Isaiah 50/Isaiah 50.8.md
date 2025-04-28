@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is near that justifieth me; who will contend with me? let us stand up together: who is mine adversary? let him come near to me.
+He is near who justifies me; who will bring charges against me? Let us stand up together: who is my adversary? Let him come near to me.

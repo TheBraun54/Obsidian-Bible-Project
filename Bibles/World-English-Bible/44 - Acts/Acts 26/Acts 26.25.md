@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Paul saith, I am not mad, most excellent Festus; but speak forth words of truth and soberness.
+But he said, "I am not crazy, most excellent Festus, but boldly declare words of truth and reasonableness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if his oblation be a goat, then he shall offer it before Jehovah:
+"'If his offering is a goat, then he shall offer it before Yahweh:

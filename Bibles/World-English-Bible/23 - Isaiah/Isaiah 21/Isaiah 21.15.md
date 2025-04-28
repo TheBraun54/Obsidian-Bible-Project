@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they fled away from the swords, from the drawn sword, and from the bent bow, and from the grievousness of war.
+For they fled away from the swords, from the drawn sword, from the bent bow, and from the heat of battle.

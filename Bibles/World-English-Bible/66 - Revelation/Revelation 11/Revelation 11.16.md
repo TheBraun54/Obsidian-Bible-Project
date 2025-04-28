@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the four and twenty elders, who sit before God on their thrones, fell upon their faces and worshipped God,
+The twenty-four elders, who sit on their thrones before God's throne, fell on their faces and worshiped God,

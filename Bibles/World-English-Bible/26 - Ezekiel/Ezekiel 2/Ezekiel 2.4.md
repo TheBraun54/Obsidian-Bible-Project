@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children are impudent and stiffhearted: I do send thee unto them; and thou shalt say unto them, Thus saith the Lord Jehovah.
+The children are impudent and stiff-hearted: I am sending you to them; and you shall tell them, Thus says the Lord Yahweh.

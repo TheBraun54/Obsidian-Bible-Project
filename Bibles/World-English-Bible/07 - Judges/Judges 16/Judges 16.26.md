@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Samson said unto the lad that held him by the hand, Suffer me that I may feel the pillars whereupon the house resteth, that I may lean upon them.
+and Samson said to the boy who held him by the hand, "Allow me to feel the pillars whereupon the house rests, that I may lean on them."

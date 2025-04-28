@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Having therefore obtained the help that is from God, I stand unto this day testifying both to small and great, saying nothing but what the prophets and Moses did say should come;
+Having therefore obtained the help that is from God, I stand to this day testifying both to small and great, saying nothing but what the prophets and Moses said would happen,

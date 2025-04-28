@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Henceforth, let no man trouble me; for I bear branded on my body the marks of Jesus.
+From now on, let no one cause me any trouble, for I bear the marks of the Lord Jesus branded on my body.

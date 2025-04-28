@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Ezrah: Jether, and Mered, and Epher, and Jalon; and she bare Miriam, and Shammai, and Ishbah the father of Eshtemoa.
+The sons of Ezrah: Jether, and Mered, and Epher, and Jalon; and she bore Miriam, and Shammai, and Ishbah the father of Eshtemoa.

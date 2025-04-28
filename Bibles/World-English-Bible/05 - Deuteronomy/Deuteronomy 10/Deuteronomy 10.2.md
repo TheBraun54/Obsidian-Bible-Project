@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will write on the tables the words that were on the first tables which thou brakest, and thou shalt put them in the ark.
+I will write on the tables the words that were on the first tables which you broke, and you shall put them in the ark."

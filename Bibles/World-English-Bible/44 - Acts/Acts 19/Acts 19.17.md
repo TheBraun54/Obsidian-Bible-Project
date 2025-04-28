@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this became known to all, both Jews and Greeks, that dwelt at Ephesus; and fear fell upon them all, and the name of the Lord Jesus was magnified.
+This became known to all, both Jews and Greeks, who lived at Ephesus. Fear fell on them all, and the name of the Lord Jesus was magnified.

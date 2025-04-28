@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If my land crieth out against me, And the furrows thereof weep together;
+If my land cries out against me, and its furrows weep together;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou art the Christ, tell us. But he said unto them, If I tell you, ye will not believe:
+"If you are the Christ, tell us." But he said to them, "If I tell you, you won't believe,

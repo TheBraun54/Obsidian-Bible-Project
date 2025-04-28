@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not revile God, nor curse a ruler of thy people.
+"You shall not blaspheme God, nor curse a ruler of your people.

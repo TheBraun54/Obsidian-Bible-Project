@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and after these things he gave [them] judges until Samuel the prophet.
+After these things he gave them judges until Samuel the prophet.

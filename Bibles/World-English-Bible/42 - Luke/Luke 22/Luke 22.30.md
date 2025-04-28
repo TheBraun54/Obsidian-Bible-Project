@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye may eat and drink at my table in my kingdom; and ye shall sit on thrones judging the twelve tribes of Israel.
+that you may eat and drink at my table in my Kingdom. You will sit on thrones, judging the twelve tribes of Israel."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To bring back his soul from the pit, That he may be enlightened with the light of the living.
+to bring back his soul from the pit, that he may be enlightened with the light of the living.

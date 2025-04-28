@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sixth [captain] for the sixth month was Ira the son of Ikkesh the Tekoite: and in his course were twenty and four thousand.
+The sixth [captain] for the sixth month was Ira the son of Ikkesh the Tekoite: and in his division were twenty-four thousand.

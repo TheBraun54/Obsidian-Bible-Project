@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they played the harlot in Egypt; they played the harlot in their youth; there were their breasts pressed, and there was handled the bosom of their virginity.
+and they played the prostitute in Egypt; they played the prostitute in their youth; there were their breasts pressed, and there was handled the bosom of their virginity.

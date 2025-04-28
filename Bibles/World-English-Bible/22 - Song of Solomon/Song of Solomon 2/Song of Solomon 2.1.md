@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am a rose of Sharon, A lily of the valleys.
+I am a rose of Sharon, a lily of the valleys. Lover

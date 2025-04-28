@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Jehovah, See, thou sayest unto me, Bring up this people: and thou hast not let me know whom thou wilt send with me. Yet thou hast said, I know thee by name, and thou hast also found favor in my sight.
+Moses said to Yahweh, "Behold, you tell me, 'Bring up this people:' and you haven't let me know whom you will send with me. Yet you have said, 'I know you by name, and you have also found favor in my sight.'

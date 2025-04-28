@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab the son of Omri did that which was evil in the sight of Jehovah above all that were before him.
+Ahab the son of Omri did that which was evil in the sight of Yahweh above all that were before him.

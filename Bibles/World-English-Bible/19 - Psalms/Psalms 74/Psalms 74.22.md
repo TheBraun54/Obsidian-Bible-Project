@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O God, plead thine own cause: Remember how the foolish man reproacheth thee all the day.
+Arise, God! Plead your own cause. Remember how the foolish man mocks you all day.

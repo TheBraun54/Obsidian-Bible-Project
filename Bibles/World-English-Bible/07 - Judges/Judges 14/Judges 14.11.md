@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when they saw him, that they brought thirty companions to be with him.
+It happened, when they saw him, that they brought thirty companions to be with him.

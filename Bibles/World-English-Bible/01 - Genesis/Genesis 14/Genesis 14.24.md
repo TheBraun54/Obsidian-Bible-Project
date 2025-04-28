@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-save only that which the young men have eaten, and the portion of the men that went with me, Aner, Eshcol, and Mamre; let them take their portion.
+I will accept nothing from you except that which the young men have eaten, and the portion of the men who went with me: Aner, Eshcol, and Mamre. Let them take their portion."

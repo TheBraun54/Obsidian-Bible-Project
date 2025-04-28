@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Into what then were ye baptized? And they said, Into John's baptism.
+He said, "Into what then were you baptized?" They said, "Into John's baptism."

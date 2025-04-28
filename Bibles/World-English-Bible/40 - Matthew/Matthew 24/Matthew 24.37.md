@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as [were] the days of Noah, so shall be the coming of the Son of man.
+"As the days of Noah were, so will be the coming of the Son of Man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not be put to shame in the time of evil; And in the days of famine they shall be satisfied.
+They shall not be disappointed in the time of evil. In the days of famine they shall be satisfied.

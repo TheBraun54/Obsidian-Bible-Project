@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whither is thy beloved gone, O thou fairest among women? Whither hath thy beloved turned him, That we may seek him with thee?
+Where has your beloved gone, you fairest among women? Where has your beloved turned, that we may seek him with you? Beloved

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said, Yea rather, blessed are they that hear the word of God, and keep it.
+But he said, "On the contrary, blessed are those who hear the word of God, and keep it."

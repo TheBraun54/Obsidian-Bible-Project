@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which is not another [gospel] only there are some that trouble you, and would pervert the gospel of Christ.
+and there isn't another "good news." Only there are some who trouble you, and want to pervert the Good News of Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Having then a great high priest, who hath passed through the heavens, Jesus the Son of God, let us hold fast our confession.
+Having then a great high priest, who has passed through the heavens, Jesus, the Son of God, let us hold tightly to our confession.

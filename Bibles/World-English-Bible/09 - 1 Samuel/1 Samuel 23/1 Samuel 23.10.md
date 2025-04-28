@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said David, O Jehovah, the God of Israel, thy servant hath surely heard that Saul seeketh to come to Keilah, to destroy the city for my sake.
+Then David said, "O Yahweh, the God of Israel, your servant has surely heard that Saul seeks to come to Keilah, to destroy the city for my sake.

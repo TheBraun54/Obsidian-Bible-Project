@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bring Aaron and his sons unto the door of the tent of meeting, and shalt wash them with water.
+"You shall bring Aaron and his sons to the door of the Tent of Meeting, and shall wash them with water.

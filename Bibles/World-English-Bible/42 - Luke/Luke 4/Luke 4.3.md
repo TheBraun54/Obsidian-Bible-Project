@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the devil said unto him, if thou art the Son of God, command this stone that it become bread.
+The devil said to him, "If you are the Son of God, command this stone to become bread."

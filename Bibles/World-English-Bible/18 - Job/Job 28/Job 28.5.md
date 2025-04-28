@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the earth, out of it cometh bread; And underneath it is turned up as it were by fire.
+As for the earth, out of it comes bread; Underneath it is turned up as it were by fire.

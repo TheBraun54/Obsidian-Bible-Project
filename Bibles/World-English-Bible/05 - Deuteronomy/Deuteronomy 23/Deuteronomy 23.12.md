@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt have a place also without the camp, whither thou shalt go forth abroad:
+You shall have a place also outside of the camp, where you shall go forth abroad:

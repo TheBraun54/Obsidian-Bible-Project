@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Tyre did build herself a stronghold, and heaped up silver as the dust, and fine gold as the mire of the streets.
+Tyre built herself a stronghold, and heaped up silver like the dust, and fine gold like the mire of the streets.

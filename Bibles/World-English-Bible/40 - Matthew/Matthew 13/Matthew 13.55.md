@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not this the carpenter's son? is not his mother called Mary? and his brethren, James, and Joseph, and Simon, and Judas?
+Isn't this the carpenter's son? Isn't his mother called Mary, and his brothers, James, Joses, Simon, and Judas?

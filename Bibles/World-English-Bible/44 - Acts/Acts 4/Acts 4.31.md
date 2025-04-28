@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had prayed, the place was shaken wherein they were gathered together; and they were all filled with the Holy Spirit, and they spake the word of God with boldness.
+When they had prayed, the place was shaken where they were gathered together. They were all filled with the Holy Spirit, and they spoke the word of God with boldness.

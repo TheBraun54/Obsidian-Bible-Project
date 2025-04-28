@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the fourth day they assembled themselves in the valley of Beracah; for there they blessed Jehovah: therefore the name of that place was called The valley of Beracah unto this day.
+On the fourth day they assembled themselves in the valley of Beracah; for there they blessed Yahweh: therefore the name of that place was called The valley of Beracah to this day.

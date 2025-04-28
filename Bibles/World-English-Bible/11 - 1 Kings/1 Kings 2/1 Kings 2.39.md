@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of three years, that two of the servants of Shimei ran away unto Achish, son of Maacah, king of Gath. And they told Shimei, saying, Behold, thy servants are in Gath.
+It happened at the end of three years, that two of the servants of Shimei ran away to Achish, son of Maacah, king of Gath. They told Shimei, saying, "Behold, your servants are in Gath."

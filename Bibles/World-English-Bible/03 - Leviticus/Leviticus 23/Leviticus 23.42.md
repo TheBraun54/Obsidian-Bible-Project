@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall dwell in booths seven days; all that are home-born in Israel shall dwell in booths;
+You shall dwell in booths seven days. All who are native-born in Israel shall dwell in booths,

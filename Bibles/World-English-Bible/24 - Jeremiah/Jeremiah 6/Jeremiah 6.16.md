@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Stand ye in the ways and see, and ask for the old paths, where is the good way; and walk therein, and ye shall find rest for your souls: but they said, We will not walk [therein] .
+Thus says Yahweh, "Stand in the ways and see, and ask for the old paths, 'Where is the good way?' and walk in it, and you will find rest for your souls. But they said, 'We will not walk in it.'

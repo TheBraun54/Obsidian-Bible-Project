@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the thing displeased Samuel, when they said, Give us a king to judge us. And Samuel prayed unto Jehovah.
+But the thing displeased Samuel, when they said, "Give us a king to judge us." Samuel prayed to Yahweh.

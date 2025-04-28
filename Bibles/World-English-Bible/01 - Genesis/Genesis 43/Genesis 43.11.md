@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their father Israel said unto them, If it be so now, do this: take of the choice fruits of the land in your vessels, and carry down the man a present, a little balm, and a little honey, spicery and myrrh, nuts, and almonds;
+Their father, Israel, said to them, "If it must be so, then do this. Take from the choice fruits of the land in your bags, and carry down a present for the man, a little balm, a little honey, spices and myrrh, nuts, and almonds;

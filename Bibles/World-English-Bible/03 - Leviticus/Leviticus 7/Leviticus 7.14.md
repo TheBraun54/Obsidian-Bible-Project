@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of it he shall offer one out of each oblation for a heave-offering unto Jehovah; it shall be the priest's that sprinkleth the blood of the peace-offerings.
+Of it he shall offer one out of each offering for a heave offering to Yahweh. It shall be the priest's who sprinkles the blood of the peace offerings.

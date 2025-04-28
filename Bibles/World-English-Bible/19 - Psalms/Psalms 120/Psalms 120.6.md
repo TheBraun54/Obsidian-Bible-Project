@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul hath long had her dwelling With him that hateth peace.
+My soul has had her dwelling too long with him who hates peace.

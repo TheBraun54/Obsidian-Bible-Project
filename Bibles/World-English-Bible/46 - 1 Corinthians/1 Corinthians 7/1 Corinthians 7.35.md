@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this I say for your own profit; not that I may cast a snare upon you, but for that which is seemly, and that ye may attend upon the Lord without distraction.
+This I say for your own profit; not that I may ensnare you, but for that which is appropriate, and that you may attend to the Lord without distraction.

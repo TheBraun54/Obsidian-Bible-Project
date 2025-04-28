@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I ask that ye may not faint at my tribulations for you, which are your glory.
+Therefore I ask that you may not lose heart at my troubles for you, which are your glory.

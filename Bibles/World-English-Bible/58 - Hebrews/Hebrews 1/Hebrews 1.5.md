@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For unto which of the angels said he at any time, Thou art my Son, This day have I begotten thee? and again, I will be to him a Father, And he shall be to me a Son?
+For to which of the angels did he say at any time, "You are my Son. Today have I become your father?" and again, "I will be to him a Father, and he will be to me a Son?"

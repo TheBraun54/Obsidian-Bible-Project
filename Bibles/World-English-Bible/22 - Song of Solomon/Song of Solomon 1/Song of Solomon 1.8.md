@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou know not, O thou fairest among women, Go thy way forth by the footsteps of the flock, And feed thy kids beside the shepherds' tents.
+If you don't know, most beautiful among women, follow the tracks of the sheep. Graze your young goats beside the shepherds' tents.

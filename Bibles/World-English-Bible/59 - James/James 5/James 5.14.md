@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is any among you sick? Let him call for the elders of the church; and let them pray over him, anointing him with oil in the name of the Lord:
+Is any among you sick? Let him call for the elders of the assembly, and let them pray over him, anointing him with oil in the name of the Lord,

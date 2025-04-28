@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Entreat Jehovah; for there hath been enough of [these] mighty thunderings and hail; and I will let you go, and ye shall stay no longer.
+Pray to Yahweh; for there has been enough of mighty thunderings and hail. I will let you go, and you shall stay no longer."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Onan knew that the seed would not be his; and it came to pass, when he went in unto his brother's wife, that he spilled it on the ground, lest he should give seed to his brother.
+Onan knew that the seed wouldn't be his; and it happened, when he went in to his brother's wife, that he spilled it on the ground, lest he should give seed to his brother.

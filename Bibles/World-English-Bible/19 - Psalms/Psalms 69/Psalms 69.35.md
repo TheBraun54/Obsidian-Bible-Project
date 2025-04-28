@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God will save Zion, and build the cities of Judah; And they shall abide there, and have it in possession.
+For God will save Zion, and build the cities of Judah. They shall settle there, and own it.

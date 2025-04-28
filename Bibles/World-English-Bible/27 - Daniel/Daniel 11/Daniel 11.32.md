@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And such as do wickedly against the covenant shall he pervert by flatteries; but the people that know their God shall be strong, and do [exploits] .
+Such as do wickedly against the covenant shall he pervert by flatteries; but the people who know their God shall be strong, and do [exploits].

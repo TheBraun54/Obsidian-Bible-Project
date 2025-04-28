@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The young men bare the mill; And the children stumbled under the wood.
+The young men bare the mill; The children stumbled under the wood.

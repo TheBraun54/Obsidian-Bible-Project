@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that in everything ye were enriched in him, in all utterance and all knowledge;
+that in everything you were enriched in him, in all speech and all knowledge;

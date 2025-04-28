@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses called Mishael and Elzaphan, the sons of Uzziel the uncle of Aaron, and said unto them, Draw near, carry your brethren from before the sanctuary out of the camp.
+Moses called Mishael and Elzaphan, the sons of Uzziel the uncle of Aaron, and said to them, "Draw near, carry your brothers from before the sanctuary out of the camp."

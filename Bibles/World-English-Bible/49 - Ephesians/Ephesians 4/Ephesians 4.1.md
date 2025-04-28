@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I therefore, the prisoner in the Lord, beseech you to walk worthily of the calling wherewith ye were called,
+I therefore, the prisoner in the Lord, beg you to walk worthily of the calling with which you were called,

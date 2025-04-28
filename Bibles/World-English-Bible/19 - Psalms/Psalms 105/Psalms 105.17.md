@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sent a man before them; Joseph was sold for a servant:
+He sent a man before them. Joseph was sold for a slave.

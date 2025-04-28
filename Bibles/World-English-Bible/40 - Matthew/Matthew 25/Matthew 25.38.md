@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when saw we thee a stranger, and took thee in? or naked, and clothed thee?
+When did we see you as a stranger, and take you in; or naked, and clothe you?

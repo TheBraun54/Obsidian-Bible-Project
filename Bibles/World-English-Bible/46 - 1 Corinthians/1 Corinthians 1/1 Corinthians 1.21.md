@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For seeing that in the wisdom of God the world through its wisdom knew not God, it was God's good pleasure through the foolishness of the preaching to save them that believe.
+For seeing that in the wisdom of God, the world through its wisdom didn't know God, it was God's good pleasure through the foolishness of the preaching to save those who believe.

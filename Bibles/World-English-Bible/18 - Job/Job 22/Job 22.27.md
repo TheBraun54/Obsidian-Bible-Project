@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt make thy prayer unto him, and he will hear thee; And thou shalt pay thy vows.
+You shall make your prayer to him, and he will hear you. You shall pay your vows.

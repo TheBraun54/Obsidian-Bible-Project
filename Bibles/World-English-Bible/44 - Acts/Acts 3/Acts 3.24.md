@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea and all the prophets from Samuel and them that followed after, as many as have spoken, they also told of these days.
+Yes, and all the prophets from Samuel and those who followed after, as many as have spoken, they also told of these days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after the death of Jehoiada came the princes of Judah, and made obeisance to the king. Then the king hearkened unto them.
+Now after the death of Jehoiada came the princes of Judah, and made obeisance to the king. Then the king listened to them.

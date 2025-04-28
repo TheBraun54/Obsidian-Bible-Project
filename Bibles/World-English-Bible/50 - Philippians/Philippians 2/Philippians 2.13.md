@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for it is God who worketh in you both to will and to work, for his good pleasure.
+For it is God who works in you both to will and to work, for his good pleasure.

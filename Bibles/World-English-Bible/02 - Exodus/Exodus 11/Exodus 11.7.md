@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But against any of the children of Israel shall not a dog move his tongue, against man or beast: that ye may know how that Jehovah doth make a distinction between the Egyptians and Israel.
+But against any of the children of Israel a dog won't even bark or move its tongue, against man or animal; that you may know that Yahweh makes a distinction between the Egyptians and Israel.

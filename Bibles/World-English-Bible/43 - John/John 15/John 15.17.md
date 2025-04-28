@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things I command you, that ye may love one another.
+"I command these things to you, that you may love one another.

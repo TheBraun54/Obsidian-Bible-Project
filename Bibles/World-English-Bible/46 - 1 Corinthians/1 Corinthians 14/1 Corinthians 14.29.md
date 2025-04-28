@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let the prophets speak [by] two or three, and let the others discern.
+Let the prophets speak, two or three, and let the others discern.

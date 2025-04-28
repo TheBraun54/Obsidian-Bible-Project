@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the moon shall be confounded, and the sun ashamed; for Jehovah of hosts will reign in mount Zion, and in Jerusalem; and before his elders shall be glory.
+Then the moon shall be confounded, and the sun ashamed; for Yahweh of Armies will reign on Mount Zion, and in Jerusalem; and before his elders will be glory.

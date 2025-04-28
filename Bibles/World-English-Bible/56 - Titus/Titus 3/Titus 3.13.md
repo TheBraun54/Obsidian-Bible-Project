@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set forward Zenas the lawyer and Apollos on their journey diligently, that nothing be wanting unto them.
+Send Zenas, the lawyer, and Apollos on their journey speedily, that nothing may be lacking for them.

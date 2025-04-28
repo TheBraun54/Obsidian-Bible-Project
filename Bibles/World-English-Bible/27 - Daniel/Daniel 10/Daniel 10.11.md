@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, O Daniel, thou man greatly beloved, understand the words that I speak unto thee, and stand upright; for unto thee am I now sent. And when he had spoken this word unto me, I stood trembling.
+He said to me, Daniel, you man greatly beloved, understand the words that I speak to you, and stand upright; for am I now sent to you. When he had spoken this word to me, I stood trembling.

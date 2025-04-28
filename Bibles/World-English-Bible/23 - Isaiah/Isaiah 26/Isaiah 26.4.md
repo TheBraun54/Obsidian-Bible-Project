@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trust ye in Jehovah for ever; for in Jehovah, [even] Jehovah, is an everlasting rock.
+Trust in Yahweh forever; for in Yah, Yahweh, is an everlasting Rock.

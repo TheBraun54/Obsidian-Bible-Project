@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the old gate repaired Joiada the son of Paseah and Meshullam the son of Besodeiah; they laid the beams thereof, and set up the doors thereof, and the bolts thereof, and the bars thereof.
+The old gate repaired Joiada the son of Paseah and Meshullam the son of Besodeiah; they laid its beams, and set up its doors, and its bolts, and its bars.

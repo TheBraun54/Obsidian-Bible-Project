@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, What man shall there be of you, that shall have one sheep, and if this fall into a pit on the sabbath day, will he not lay hold on it, and lift it out?
+He said to them, "What man is there among you, who has one sheep, and if this one falls into a pit on the Sabbath day, won't he grab on to it, and lift it out?

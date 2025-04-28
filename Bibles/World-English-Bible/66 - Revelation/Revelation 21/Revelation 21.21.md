@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the twelve gates were twelve pearls; each one of the several gates was of one pearl: and the street of the city was pure gold, as it were transparent glass.
+The twelve gates were twelve pearls. Each one of the gates was made of one pearl. The street of the city was pure gold, like transparent glass.

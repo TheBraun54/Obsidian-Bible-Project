@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cherub stretched forth his hand from between the cherubim unto the fire that was between the cherubim, and took [thereof], and put it into the hands of him that was clothed in linen, who took it and went out.
+The cherub stretched forth his hand from between the cherubim to the fire that was between the cherubim, and took [of it], and put it into the hands of him who was clothed in linen, who took it and went out.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Because that Edom hath dealt against the house of Judah by taking vengeance, and hath greatly offended, and revenged himself upon them;
+Thus says the Lord Yahweh: Because Edom has dealt against the house of Judah by taking vengeance, and has greatly offended, and revenged himself on them;

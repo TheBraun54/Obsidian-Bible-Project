@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after ten days, that the word of Jehovah came unto Jeremiah.
+It happened after ten days, that the word of Yahweh came to Jeremiah.

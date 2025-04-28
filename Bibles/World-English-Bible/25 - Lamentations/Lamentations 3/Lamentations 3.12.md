@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath bent his bow, and set me as a mark for the arrow.
+He has bent his bow, and set me as a mark for the arrow.

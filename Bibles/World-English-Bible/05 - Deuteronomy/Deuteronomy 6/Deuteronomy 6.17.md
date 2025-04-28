@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall diligently keep the commandments of Jehovah your God, and his testimonies, and his statutes, which he hath commanded thee.
+You shall diligently keep the commandments of Yahweh your God, and his testimonies, and his statutes, which he has commanded you.

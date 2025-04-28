@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah is a great God, And a great King above all gods.
+For Yahweh is a great God, a great King above all gods.

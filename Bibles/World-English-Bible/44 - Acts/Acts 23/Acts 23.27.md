@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This man was seized by the Jews, and was about to be slain of them, when I came upon them with the soldiers and rescued him, having learned that he was a Roman.
+"This man was seized by the Jews, and was about to be killed by them, when I came with the soldiers and rescued him, having learned that he was a Roman.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye say, If a man shall say to his father or his mother, That wherewith thou mightest have been profited by me is Corban, that is to say, Given [to God] ;
+But you say, 'If a man tells his father or his mother, "Whatever profit you might have received from me is Corban, that is to say, given to God;"'

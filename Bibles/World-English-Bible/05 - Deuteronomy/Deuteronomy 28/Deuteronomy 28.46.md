@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall be upon thee for a sign and for a wonder, and upon thy seed for ever.
+and they shall be on you for a sign and for a wonder, and on your seed forever.

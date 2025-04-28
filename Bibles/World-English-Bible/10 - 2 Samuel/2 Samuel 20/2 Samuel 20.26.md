@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and also Ira the Jairite was chief minister unto David.
+and also Ira the Jairite was chief minister to David.

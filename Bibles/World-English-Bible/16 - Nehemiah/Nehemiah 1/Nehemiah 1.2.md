@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Hanani, one of my brethren, came, he and certain men out of Judah; and I asked them concerning the Jews that had escaped, that were left of the captivity, and concerning Jerusalem.
+that Hanani, one of my brothers, came, he and certain men out of Judah; and I asked them concerning the Jews who had escaped, who were left of the captivity, and concerning Jerusalem.

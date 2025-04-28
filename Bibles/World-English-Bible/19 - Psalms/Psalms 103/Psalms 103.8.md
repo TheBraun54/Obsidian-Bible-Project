@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is merciful and gracious, Slow to anger, and abundant in lovingkindness.
+Yahweh is merciful and gracious, slow to anger, and abundant in loving kindness.

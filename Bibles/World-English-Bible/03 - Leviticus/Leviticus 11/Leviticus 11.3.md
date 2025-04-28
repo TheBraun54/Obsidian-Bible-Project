@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whatsoever parteth the hoof, and is clovenfooted, [and] cheweth the cud, among the beasts, that may ye eat.
+Whatever parts the hoof, and is cloven-footed, and chews the cud among the animals, that you may eat.

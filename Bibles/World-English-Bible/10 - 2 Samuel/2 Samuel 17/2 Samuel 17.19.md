@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman took and spread the covering over the well's mouth, and strewed bruised grain thereon; and nothing was known.
+The woman took and spread the covering over the well's mouth, and spread out bruised grain on it; and nothing was known.

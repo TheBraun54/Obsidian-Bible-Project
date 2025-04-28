@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For jealousy is the rage of a man; And he will not spare in the day of vengeance.
+For jealousy arouses the fury of the husband. He won't spare in the day of vengeance.

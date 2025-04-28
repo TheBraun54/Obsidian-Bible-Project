@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His breath goeth forth, he returneth to his earth; In that very day his thoughts perish.
+His spirit departs, and he returns to the earth. In that very day, his thoughts perish.

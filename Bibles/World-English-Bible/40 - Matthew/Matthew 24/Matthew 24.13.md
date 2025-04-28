@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that endureth to the end, the same shall be saved.
+But he who endures to the end, the same will be saved.

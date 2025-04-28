@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took him aside from the multitude privately, and put his fingers into his ears, and he spat, and touched his tongue;
+He took him aside from the multitude, privately, and put his fingers into his ears, and he spat, and touched his tongue.

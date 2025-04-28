@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-no, nor yet Herod: for he sent him back unto us; and behold, nothing worthy of death hath been done by him.
+Neither has Herod, for I sent you to him, and see, nothing worthy of death has been done by him.

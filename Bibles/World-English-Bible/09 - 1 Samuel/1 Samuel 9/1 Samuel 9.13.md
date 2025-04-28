@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as soon as ye are come into the city, ye shall straightway find him, before he goeth up to the high place to eat; for the people will not eat until he come, because he doth bless the sacrifice; [and] afterwards they eat that are bidden. Now therefore get you up; for at this time ye shall find him.
+As soon as you have come into the city, you shall immediately find him, before he goes up to the high place to eat; for the people will not eat until he come, because he blesses the sacrifice. Afterwards those who are invited eat. Now therefore go up; for at this time you shall find him."

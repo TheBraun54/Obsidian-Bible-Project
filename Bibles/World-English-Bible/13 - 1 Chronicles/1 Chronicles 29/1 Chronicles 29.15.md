@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we are strangers before thee, and sojourners, as all our fathers were: our days on the earth are as a shadow, and there is no abiding.
+For we are strangers before you, and foreigners, as all our fathers were. Our days on the earth are as a shadow, and there is no remaining.

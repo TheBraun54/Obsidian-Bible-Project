@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give unto my two witnesses, and they shall prophesy a thousand two hundred and threescore days, clothed in sackcloth.
+I will give power to my two witnesses, and they will prophesy one thousand two hundred sixty days, clothed in sackcloth."

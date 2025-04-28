@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-proving what is well-pleasing unto the Lord;
+proving what is well pleasing to the Lord.

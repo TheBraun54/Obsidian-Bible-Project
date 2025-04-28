@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Israel went forth out of Egypt, The house of Jacob from a people of strange language;
+When Israel went forth out of Egypt, the house of Jacob from a people of foreign language;

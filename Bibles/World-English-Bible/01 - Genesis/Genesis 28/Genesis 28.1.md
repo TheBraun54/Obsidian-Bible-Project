@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac called Jacob, and blessed him, and charged him, and said unto him, Thou shalt not take a wife of the daughters of Canaan.
+Isaac called Jacob, blessed him, and commanded him, "You shall not take a wife of the daughters of Canaan.

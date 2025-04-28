@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he said these things, all his adversaries were put to shame: and all the multitude rejoiced for all the glorious things that were done by him.
+As he said these things, all his adversaries were disappointed, and all the multitude rejoiced for all the glorious things that were done by him.

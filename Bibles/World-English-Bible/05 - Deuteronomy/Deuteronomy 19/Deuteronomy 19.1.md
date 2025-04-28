@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jehovah thy God shall cut off the nations, whose land Jehovah thy God giveth thee, and thou succeedest them, and dwellest in their cities, and in their houses;
+When Yahweh your God shall cut off the nations, whose land Yahweh your God gives you, and you succeed them, and dwell in their cities, and in their houses;

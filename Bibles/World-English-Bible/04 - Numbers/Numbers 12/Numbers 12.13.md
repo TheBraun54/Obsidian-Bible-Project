@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses cried unto Jehovah, saying, Heal her, O God, I beseech thee.
+Moses cried to Yahweh, saying, "Heal her, God, I beg you!"

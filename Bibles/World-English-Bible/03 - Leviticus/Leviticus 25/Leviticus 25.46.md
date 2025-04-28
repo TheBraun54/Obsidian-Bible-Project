@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall make them an inheritance for your children after you, to hold for a possession; of them shall ye take your bondmen for ever: but over your brethren the children of Israel ye shall not rule, one over another, with rigor.
+You may make them an inheritance for your children after you, to hold for a possession; of them may you take your slaves forever: but over your brothers the children of Israel you shall not rule, one over another, with harshness.

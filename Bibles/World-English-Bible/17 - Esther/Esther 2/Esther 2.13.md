@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then in this wise came the maiden unto the king: whatsoever she desired was given her to go with her out of the house of the women unto the king's house.
+The young woman then came to the king like this: whatever she desired was given her to go with her out of the women's house to the king's house.

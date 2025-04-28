@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is he that saith, and it cometh to pass, when the Lord commandeth it not?
+Who is he who says, and it comes to pass, when the Lord doesn't command it?

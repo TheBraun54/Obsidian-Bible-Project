@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw when the Lamb opened one of the seven seals, and I heard one of the four living creatures saying as with a voice of thunder, Come.
+I saw that the Lamb opened one of the seven seals, and I heard one of the four living creatures saying, as with a voice of thunder, "Come and see!"

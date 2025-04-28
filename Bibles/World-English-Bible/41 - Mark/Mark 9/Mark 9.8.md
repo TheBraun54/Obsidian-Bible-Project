@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And suddenly looking round about, they saw no one any more, save Jesus only with themselves.
+Suddenly looking around, they saw no one with them any more, except Jesus only.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that labor in the city, out of all the tribes of Israel, shall till it.
+Those who labor in the city, out of all the tribes of Israel, shall cultivate it.

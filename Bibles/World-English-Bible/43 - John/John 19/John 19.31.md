@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore, because it was the Preparation, that the bodies should not remain on the cross upon the sabbath (for the day of that sabbath was a high [day] ), asked of Pilate that their legs might be broken, and [that] they might be taken away.
+Therefore the Jews, because it was the Preparation Day, so that the bodies wouldn't remain on the cross on the Sabbath (for that Sabbath was a special one), asked of Pilate that their legs might be broken, and that they might be taken away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The refining pot is for silver, and the furnace for gold; And a man is [tried] by his praise.
+The crucible is for silver, and the furnace for gold; but man is refined by his praise.

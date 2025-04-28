@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are not straitened in us, but ye are straitened in your own affections.
+You are not restricted by us, but you are restricted by your own affections.

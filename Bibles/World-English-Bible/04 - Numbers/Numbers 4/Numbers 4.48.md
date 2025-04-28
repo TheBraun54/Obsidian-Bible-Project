@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even those that were numbered of them, were eight thousand and five hundred and fourscore.
+even those who were numbered of them, were eight thousand five hundred eighty.

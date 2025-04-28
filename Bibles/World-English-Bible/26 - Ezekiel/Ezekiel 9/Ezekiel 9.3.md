@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glory of the God of Israel was gone up from the cherub, whereupon it was, to the threshold of the house: and he called to the man clothed in linen, who had the writer's inkhorn by his side.
+The glory of the God of Israel was gone up from the cherub, whereupon it was, to the threshold of the house: and he called to the man clothed in linen, who had the writer's inkhorn by his side.

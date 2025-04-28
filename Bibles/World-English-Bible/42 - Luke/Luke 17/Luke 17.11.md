@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as they were on the way to Jerusalem, that he was passing along the borders of Samaria and Galilee.
+It happened as he was on his way to Jerusalem, that he was passing along the borders of Samaria and Galilee.

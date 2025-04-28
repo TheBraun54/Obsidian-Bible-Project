@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And why call ye me, Lord, Lord, and do not the things which I say?
+"Why do you call me, 'Lord, Lord,' and don't do the things which I say?

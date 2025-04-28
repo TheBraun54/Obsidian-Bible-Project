@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Adam was not beguiled, but the woman being beguiled hath fallen into transgression:
+Adam wasn't deceived, but the woman, being deceived, has fallen into disobedience;

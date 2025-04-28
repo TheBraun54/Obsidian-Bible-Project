@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he heard the words of Laban's sons, saying, Jacob hath taken away all that was our father's; and of that which was our father's hath he gotten all this glory.
+He heard the words of Laban's sons, saying, "Jacob has taken away all that was our father's. From that which was our father's, has he gotten all this wealth."

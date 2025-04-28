@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they asked him, and said unto him, Why then baptizest thou, if thou art not the Christ, neither Elijah, neither the prophet?
+They asked him, "Why then do you baptize, if you are not the Christ, nor Elijah, nor the prophet?"

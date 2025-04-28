@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His eyes are like doves beside the water-brooks, Washed with milk, [and] fitly set.
+His eyes are like doves beside the water brooks, washed with milk, mounted like jewels.

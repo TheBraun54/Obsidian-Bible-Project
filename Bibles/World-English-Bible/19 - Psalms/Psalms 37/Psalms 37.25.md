@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have been young, and now am old; Yet have I not seen the righteous forsaken, Nor his seed begging bread.
+I have been young, and now am old, yet I have not seen the righteous forsaken, nor his children begging for bread.

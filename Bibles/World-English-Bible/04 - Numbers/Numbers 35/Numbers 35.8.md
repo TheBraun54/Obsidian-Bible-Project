@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And concerning the cities which ye shall give of the possession of the children of Israel, from the many ye shall take many; and from the few ye shall take few: every one according to his inheritance which he inheriteth shall give of his cities unto the Levites.
+Concerning the cities which you shall give of the possession of the children of Israel, from the many you shall take many; and from the few you shall take few: everyone according to his inheritance which he inherits shall give of his cities to the Levites."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Get thee up into this mountain of Abarim, unto mount Nebo, which is in the land of Moab, that is over against Jericho; and behold the land of Canaan, which I give unto the children of Israel for a possession;
+"Go up into this mountain of Abarim, to Mount Nebo, which is in the land of Moab, that is over against Jericho; and see the land of Canaan, which I give to the children of Israel for a possession;

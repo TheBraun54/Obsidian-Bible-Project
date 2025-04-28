@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the thief be found breaking in, and be smitten so that he dieth, there shall be no bloodguiltiness for him.
+If the thief is found breaking in, and is struck so that he dies, there shall be no guilt of bloodshed for him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard the altar saying, Yea, O Lord God, the Almighty, true and righteous are thy judgments.
+I heard the altar saying, "Yes, Lord God, the Almighty, true and righteous are your judgments."

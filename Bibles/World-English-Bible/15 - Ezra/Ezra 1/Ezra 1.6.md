@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all they that were round about them strengthened their hands with vessels of silver, with gold, with goods, and with beasts, and with precious things, besides all that was willingly offered.
+All those who were around them strengthened their hands with vessels of silver, with gold, with goods, and with animals, and with precious things, besides all that was willingly offered.

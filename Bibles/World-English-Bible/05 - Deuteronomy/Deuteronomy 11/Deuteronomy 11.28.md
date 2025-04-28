@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the curse, if ye shall not hearken unto the commandments of Jehovah your God, but turn aside out of the way which I command you this day, to go after other gods, which ye have not known.
+and the curse, if you shall not listen to the commandments of Yahweh your God, but turn aside out of the way which I command you this day, to go after other gods, which you have not known.

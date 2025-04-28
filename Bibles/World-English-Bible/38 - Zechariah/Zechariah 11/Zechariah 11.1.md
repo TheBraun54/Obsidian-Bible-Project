@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Open thy doors, O Lebanon, that the fire may devour thy cedars.
+Open your doors, Lebanon, that the fire may devour your cedars.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Abel offered unto God a more excellent sacrifice than Cain, through which he had witness borne to him that he was righteous, God bearing witness in respect of his gifts: and through it he being dead yet speaketh.
+By faith, Abel offered to God a more excellent sacrifice than Cain, through which he had testimony given to him that he was righteous, God testifying with respect to his gifts; and through it he, being dead, still speaks.

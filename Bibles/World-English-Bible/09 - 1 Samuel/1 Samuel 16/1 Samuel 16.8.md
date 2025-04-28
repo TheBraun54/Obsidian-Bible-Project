@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jesse called Abinadab, and made him pass before Samuel. And he said, Neither hath Jehovah chosen this.
+Then Jesse called Abinadab, and made him pass before Samuel. He said, "Neither has Yahweh chosen this one."

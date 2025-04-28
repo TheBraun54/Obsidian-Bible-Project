@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, What communications are these that ye have one with another, as ye walk? And they stood still, looking sad.
+He said to them, "What are you talking about as you walk, and are sad?"

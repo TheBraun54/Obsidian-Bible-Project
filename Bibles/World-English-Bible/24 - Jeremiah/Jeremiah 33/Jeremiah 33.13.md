@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the cities of the hill-country, in the cities of the lowland, and in the cities of the South, and in the land of Benjamin, and in the places about Jerusalem, and in the cities of Judah, shall the flocks again pass under the hands of him that numbereth them, saith Jehovah.
+In the cities of the hill country, in the cities of the lowland, and in the cities of the South, and in the land of Benjamin, and in the places about Jerusalem, and in the cities of Judah, shall the flocks again pass under the hands of him who numbers them, says Yahweh.

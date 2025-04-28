@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it came to pass that we had accomplished the days, we departed and went on our journey; and they all, with wives and children, brought us on our way till we were out of the city: and kneeling down on the beach, we prayed, and bade each other farewell;
+When it happened that we had accomplished the days, we departed and went on our journey. They all, with wives and children, brought us on our way until we were out of the city. Kneeling down on the beach, we prayed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am against thee, O inhabitant of the valley, [and] of the rock of the plain, saith Jehovah; you that say, Who shall come down against us? or who shall enter into our habitations?
+Behold, I am against you, O inhabitant of the valley, [and] of the rock of the plain, says Yahweh; you that say, Who shall come down against us? or who shall enter into our habitations?

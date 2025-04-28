@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall describe the land into seven portions, and bring [the description] hither to me; and I will cast lots for you here before Jehovah our God.
+You shall survey the land into seven parts, and bring the description here to me; and I will cast lots for you here before Yahweh our God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the cities which ye shall give to the Levites shall be forty and eight cities; them [shall ye give] with their suburbs.
+All the cities which you shall give to the Levites shall be forty-eight cities together with their suburbs.

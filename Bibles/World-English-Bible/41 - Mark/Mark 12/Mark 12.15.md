@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall we give, or shall we not give? But he, knowing their hypocrisy, said unto them, Why make ye trial of me? bring me a denarius, that I may see it.
+Shall we give, or shall we not give?" But he, knowing their hypocrisy, said to them, "Why do you test me? Bring me a denarius, that I may see it."

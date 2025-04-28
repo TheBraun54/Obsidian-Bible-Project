@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall defile the overlaying of thy graven images of silver, and the plating of thy molten images of gold: thou shalt cast them away as an unclean thing; thou shalt say unto it, Get thee hence.
+You shall defile the overlaying of your engraved images of silver, and the plating of your molten images of gold. You shall cast them away as an unclean thing. You shall tell it, "Go away!"

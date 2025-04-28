@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the eyes of Jehovah run to and fro throughout the whole earth, to show himself strong in the behalf of them whose heart is perfect toward him. Herein thou hast done foolishly; for from henceforth thou shalt have wars.
+For the eyes of Yahweh run back and forth throughout the whole earth, to show himself strong in the behalf of them whose heart is perfect toward him. Herein you have done foolishly; for from henceforth you shall have wars."

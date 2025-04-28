@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto them, If ye think good, give me my hire; and if not, forbear. So they weighed for my hire thirty [pieces] of silver.
+I said to them, "If you think it best, give me my wages; and if not, keep them." So they weighed for my wages thirty pieces of silver.

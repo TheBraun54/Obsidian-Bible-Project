@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this I beheld, and, lo, another, like a leopard, which had upon its back four wings of a bird; the beast had also four heads; and dominion was given to it.
+After this I saw, and behold, another, like a leopard, which had on its back four wings of a bird; the animal had also four heads; and dominion was given to it.

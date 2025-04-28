@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now thou hast cast [us] off, and brought us to dishonor, And goest not forth with our hosts.
+But now you rejected us, and brought us to dishonor, and don't go out with our armies.

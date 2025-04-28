@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God did not cast off his people which he foreknew. Or know ye not what the scripture saith of Elijah? how he pleadeth with God against Israel:
+God didn't reject his people, which he foreknew. Or don't you know what the Scripture says about Elijah? How he pleads with God against Israel:

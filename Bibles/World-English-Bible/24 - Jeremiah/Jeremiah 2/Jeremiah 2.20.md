@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For of old time I have broken thy yoke, and burst thy bonds; and thou saidst, I will not serve; for upon every high hill and under every green tree thou didst bow thyself, playing the harlot.
+"For of old time I have broken your yoke, and burst your bonds; and you said, 'I will not serve;' for on every high hill and under every green tree you bowed yourself, playing the prostitute.

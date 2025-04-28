@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah is the instruction of wisdom; And before honor [goeth] humility.
+The fear of Yahweh teaches wisdom. Before honor is humility.

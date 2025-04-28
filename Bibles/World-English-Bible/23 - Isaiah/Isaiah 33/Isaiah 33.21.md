@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there Jehovah will be with us in majesty, a place of broad rivers and streams, wherein shall go no galley with oars, neither shall gallant ship pass thereby.
+But there Yahweh will be with us in majesty, a place of broad rivers and streams, in which no galley with oars will go, neither will any gallant ship pass by there.

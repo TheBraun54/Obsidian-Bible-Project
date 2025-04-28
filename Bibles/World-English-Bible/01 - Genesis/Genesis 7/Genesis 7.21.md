@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all flesh died that moved upon the earth, both birds, and cattle, and beasts, and every creeping thing that creepeth upon the earth, and every man:
+All flesh died that moved on the earth, including birds, livestock, animals, every creeping thing that creeps on the earth, and every man.

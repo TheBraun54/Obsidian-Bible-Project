@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by thy sword shalt thou live, and thou shalt serve thy brother; And it shall come to pass, when thou shalt break loose, That thou shalt shake his yoke from off thy neck.
+By your sword will you live, and you will serve your brother. It will happen, when you will break loose, that you shall shake his yoke from off your neck."

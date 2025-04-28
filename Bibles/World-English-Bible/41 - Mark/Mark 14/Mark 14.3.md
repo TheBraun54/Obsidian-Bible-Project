@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while he was in Bethany in the house of Simon the leper, as he sat at meat, there came a woman having an alabaster cruse of ointment of pure nard very costly; [and] she brake the cruse, and poured it over his head.
+While he was at Bethany, in the house of Simon the leper, as he sat at the table, a woman came having an alabaster jar of ointment of pure nard--very costly. She broke the jar, and poured it over his head.

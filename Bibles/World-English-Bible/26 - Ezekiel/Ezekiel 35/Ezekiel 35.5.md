@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thou hast had a perpetual enmity, and hast given over the children of Israel to the power of the sword in the time of their calamity, in the time of the iniquity of the end;
+Because you have had a perpetual enmity, and have given over the children of Israel to the power of the sword in the time of their calamity, in the time of the iniquity of the end;

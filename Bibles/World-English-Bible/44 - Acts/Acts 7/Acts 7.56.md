@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, Behold, I see the heavens opened, and the Son of Man standing on the right hand of God.
+and said, "Behold, I see the heavens opened, and the Son of Man standing at the right hand of God!"

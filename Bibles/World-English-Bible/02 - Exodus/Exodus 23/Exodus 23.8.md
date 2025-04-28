@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take no bribe: for a bribe blindeth them that have sight, and perverteth the words of the righteous.
+"You shall take no bribe, for a bribe blinds those who have sight and perverts the words of the righteous.

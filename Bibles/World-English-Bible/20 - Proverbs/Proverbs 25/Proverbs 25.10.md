@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest he that heareth it revile thee, And thine infamy turn not away.
+lest one who hears it put you to shame, and your bad reputation never depart.

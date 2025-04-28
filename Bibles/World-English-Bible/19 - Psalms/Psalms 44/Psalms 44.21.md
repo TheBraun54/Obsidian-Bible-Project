@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will not God search this out? For he knoweth the secrets of the heart.
+won't God search this out? For he knows the secrets of the heart.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Spirit of Jehovah spake by me, And his word was upon my tongue.
+"The Spirit of Yahweh spoke by me. His word was on my tongue.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to the multitude of the years thou shalt increase the price thereof, and according to the fewness of the years thou shalt diminish the price of it; for the number of the crops doth he sell unto thee.
+According to the length of the years you shall increase its price, and according to the shortness of the years you shall diminish its price; for he is selling the number of the crops to you.

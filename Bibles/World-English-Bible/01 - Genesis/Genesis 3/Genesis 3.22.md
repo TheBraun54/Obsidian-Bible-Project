@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God said, Behold, the man is become as one of us, to know good and evil; and now, lest he put forth his hand, and take also of the tree of life, and eat, and live for ever--
+Yahweh God said, "Behold, the man has become like one of us, knowing good and evil. Now, lest he put forth his hand, and also take of the tree of life, and eat, and live forever..."

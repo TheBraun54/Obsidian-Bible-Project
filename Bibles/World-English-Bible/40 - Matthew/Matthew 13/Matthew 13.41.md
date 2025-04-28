@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Son of man shall send forth his angels, and they shall gather out of his kingdom all things that cause stumbling, and them that do iniquity,
+The Son of Man will send out his angels, and they will gather out of his Kingdom all things that cause stumbling, and those who do iniquity,

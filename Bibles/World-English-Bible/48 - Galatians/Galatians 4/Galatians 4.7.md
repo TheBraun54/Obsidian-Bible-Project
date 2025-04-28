@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that thou art no longer a bondservant, but a son; and if a son, then an heir through God.
+So you are no longer a bondservant, but a son; and if a son, then an heir of God through Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so; for he rose up early on the morrow, and pressed the fleece together, and wrung the dew out of the fleece, a bowlful of water.
+It was so; for he rose up early on the next day, and pressed the fleece together, and wrung the dew out of the fleece, a bowl full of water.

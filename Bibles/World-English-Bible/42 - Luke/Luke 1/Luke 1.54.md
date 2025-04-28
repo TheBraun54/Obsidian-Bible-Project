@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath given help to Israel his servant, That he might remember mercy
+He has given help to Israel, his servant, that he might remember mercy,

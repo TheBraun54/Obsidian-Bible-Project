@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day did the Lord, Jehovah of hosts, call to weeping, and to mourning, and to baldness, and to girding with sackcloth:
+In that day, the Lord, Yahweh of Armies, called to weeping, and to mourning, and to baldness, and to dressing in sackcloth:

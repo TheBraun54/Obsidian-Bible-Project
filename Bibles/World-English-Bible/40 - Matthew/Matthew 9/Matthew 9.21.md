@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for she said within herself, If I do but touch his garment, I shall be made whole.
+for she said within herself, "If I just touch his garment, I will be made well."

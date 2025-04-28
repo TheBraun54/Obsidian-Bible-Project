@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that pass by the way rob him: He is become a reproach to his neighbors.
+All who pass by the way rob him. He has become a reproach to his neighbors.

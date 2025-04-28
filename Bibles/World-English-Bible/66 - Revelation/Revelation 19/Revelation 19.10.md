@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I fell down before his feet to worship him. And he saith unto me, See thou do it not: I am a fellow-servant with thee and with thy brethren that hold the testimony of Jesus: worship God; for the testimony of Jesus is the spirit of prophecy.
+I fell down before his feet to worship him. He said to me, "Look! Don't do it! I am a fellow bondservant with you and with your brothers who hold the testimony of Jesus. Worship God, for the testimony of Jesus is the Spirit of Prophecy."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Adoram was over the men subject to taskwork; and Jehoshaphat the son of Ahilud was the recorder;
+and Adoram was over the men subject to forced labor; and Jehoshaphat the son of Ahilud was the recorder;

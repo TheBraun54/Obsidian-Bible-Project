@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we will continue stedfastly in prayer, and in the ministry of the word.
+But we will continue steadfastly in prayer and in the ministry of the word."

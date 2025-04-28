@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto whom coming, a living stone, rejected indeed of men, but with God elect, precious,
+coming to him, a living stone, rejected indeed by men, but chosen by God, precious.

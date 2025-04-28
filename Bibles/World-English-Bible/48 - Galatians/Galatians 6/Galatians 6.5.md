@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For each man shall bear his own burden.
+For each man will bear his own burden.

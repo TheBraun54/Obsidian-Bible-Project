@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall be eighteen thousand [reeds] round about: and the name of the city from that day shall be, Jehovah is there.
+It shall be eighteen thousand [reeds] around: and the name of the city from that day shall be, Yahweh is there.

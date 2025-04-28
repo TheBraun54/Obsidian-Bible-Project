@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou shalt eat the labor of thy hands: Happy shalt thou be, and it shall be well with thee.
+For you will eat the labor of your hands. You will be happy, and it will be well with you.

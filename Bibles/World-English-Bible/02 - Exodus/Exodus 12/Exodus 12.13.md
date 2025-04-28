@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the blood shall be to you for a token upon the houses where ye are: and when I see the blood, I will pass over you, and there shall no plague be upon you to destroy you, when I smite the land of Egypt.
+The blood shall be to you for a token on the houses where you are: and when I see the blood, I will pass over you, and there shall no plague be on you to destroy you, when I strike the land of Egypt.

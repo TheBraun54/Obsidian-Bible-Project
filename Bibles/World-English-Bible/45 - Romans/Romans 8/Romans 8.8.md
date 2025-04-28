@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they that are in the flesh cannot please God.
+Those who are in the flesh can't please God.

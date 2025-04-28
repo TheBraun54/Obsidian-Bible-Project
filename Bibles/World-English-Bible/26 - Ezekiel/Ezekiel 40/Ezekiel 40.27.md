@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was a gate to the inner court toward the south: and he measured from gate to gate toward the south a hundred cubits.
+There was a gate to the inner court toward the south: and he measured from gate to gate toward the south a hundred cubits.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Aaron, and unto Eleazar and unto Ithamar, his sons, Let not the hair of your heads go loose, neither rend your clothes; that ye die not, and that he be not wroth with all the congregation: but let your brethren, the whole house of Israel, bewail the burning which Jehovah hath kindled.
+Moses said to Aaron, and to Eleazar and to Ithamar, his sons, "Don't let the hair of your heads go loose, neither tear your clothes; that you don't die, and that he not be angry with all the congregation: but let your brothers, the whole house of Israel, bewail the burning which Yahweh has kindled.

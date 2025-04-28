@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they baked unleavened cakes of the dough which they brought forth out of Egypt; for it was not leavened, because they were thrust out of Egypt, and could not tarry, neither had they prepared for themselves any victuals.
+They baked unleavened cakes of the dough which they brought forth out of Egypt; for it wasn't leavened, because they were thrust out of Egypt, and couldn't wait, neither had they prepared for themselves any food.

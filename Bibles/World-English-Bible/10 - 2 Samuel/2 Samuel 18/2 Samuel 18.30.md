@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Turn aside, and stand here. And he turned aside, and stood still.
+The king said, "Turn aside, and stand here." He turned aside, and stood still.

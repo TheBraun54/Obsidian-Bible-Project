@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also thou shalt take of the ram the fat, and the fat tail, and the fat that covereth the inwards, and the caul of the liver, and the two kidneys, and the fat that is upon them, and the right thigh (for it is a ram of consecration),
+Also you shall take some of the ram's fat, the fat tail, the fat that covers the innards, the cover of the liver, the two kidneys, the fat that is on them, and the right thigh (for it is a ram of consecration),

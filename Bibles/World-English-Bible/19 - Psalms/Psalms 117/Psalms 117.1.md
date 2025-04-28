@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O praise Jehovah, all ye nations; Laud him, all ye peoples.
+Praise Yahweh, all you nations! Extol him, all you peoples!

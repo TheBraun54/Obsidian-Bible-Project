@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath made me to dwell in dark places, as those that have been long dead.
+He has made me to dwell in dark places, as those that have been long dead.

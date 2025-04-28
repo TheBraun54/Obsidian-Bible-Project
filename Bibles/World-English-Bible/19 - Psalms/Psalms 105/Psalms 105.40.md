@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They asked, and he brought quails, And satisfied them with the bread of heaven.
+They asked, and he brought quails, and satisfied them with the bread of the sky.

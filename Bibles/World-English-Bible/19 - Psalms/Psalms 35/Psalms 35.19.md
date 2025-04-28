@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not them that are mine enemies wrongfully rejoice over me; Neither let them wink with the eye that hate me without a cause.
+Don't let those who are my enemies wrongfully rejoice over me; neither let those who hate me without a cause wink their eyes.

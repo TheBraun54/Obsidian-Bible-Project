@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that it may be well with thee, and thou mayest live long on the earth.
+"that it may be well with you, and you may live long on the earth."

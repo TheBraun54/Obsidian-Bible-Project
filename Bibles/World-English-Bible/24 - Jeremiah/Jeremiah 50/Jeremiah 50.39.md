@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the wild beasts of the desert with the wolves shall dwell there, and the ostriches shall dwell therein: and it shall be no more inhabited for ever; neither shall it be dwelt in from generation to generation.
+Therefore the wild animals of the desert with the wolves shall dwell there, and the ostriches shall dwell therein: and it shall be no more inhabited forever; neither shall it be lived in from generation to generation.

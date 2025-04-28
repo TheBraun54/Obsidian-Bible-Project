@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing, O ye heavens, for Jehovah hath done it; shout, ye lower parts of the earth; break forth into singing, ye mountains, O forest, and every tree therein: for Jehovah hath redeemed Jacob, and will glorify himself in Israel.
+Sing, you heavens, for Yahweh has done it! Shout, you lower parts of the earth! Break out into singing, you mountains, O forest, all of your trees, for Yahweh has redeemed Jacob, and will glorify himself in Israel.

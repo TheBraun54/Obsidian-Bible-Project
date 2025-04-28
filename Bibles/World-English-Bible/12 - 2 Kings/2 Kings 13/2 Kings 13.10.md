@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the thirty and seventh year of Joash king of Judah began Jehoash the son of Jehoahaz to reign over Israel in Samaria, [and reigned] sixteen years.
+In the thirty-seventh year of Joash king of Judah began Jehoash the son of Jehoahaz to reign over Israel in Samaria, [and reigned] sixteen years.

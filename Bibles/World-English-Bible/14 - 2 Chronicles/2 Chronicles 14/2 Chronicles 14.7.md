@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he said unto Judah, Let us build these cities, and make about them walls, and towers, gates, and bars; the land is yet before us, because we have sought Jehovah our God; we have sought him, and he hath given us rest on every side. So they built and prospered.
+For he said to Judah, "Let us build these cities, and make walls around them, with towers, gates, and bars. The land is yet before us, because we have sought Yahweh our God; we have sought him, and he has given us rest on every side." So they built and prospered.

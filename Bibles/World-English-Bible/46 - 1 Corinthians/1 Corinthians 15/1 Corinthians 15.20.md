@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now hath Christ been raised from the dead, the firstfruits of them that are asleep.
+But now Christ has been raised from the dead. He became the first fruits of those who are asleep.

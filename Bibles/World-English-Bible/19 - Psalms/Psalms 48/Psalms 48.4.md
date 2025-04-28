@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, the kings assembled themselves, They passed by together.
+For, behold, the kings assembled themselves, they passed by together.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Baana the son of Ahilud, in Taanach and Megiddo, and all Beth-shean which is beside Zarethan, beneath Jezreel, from Beth-shean to Abel-meholah, as far as beyond Jokmeam;
+Baana the son of Ahilud, in Taanach and Megiddo, and all Beth Shean which is beside Zarethan, beneath Jezreel, from Beth Shean to Abel Meholah, as far as beyond Jokmeam;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For yourselves, brethren, know our entering in unto you, that it hath not been found vain:
+For you yourselves know, brothers, our visit to you wasn't in vain,

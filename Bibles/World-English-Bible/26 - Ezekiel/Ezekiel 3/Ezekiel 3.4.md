@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Son of man, go, get thee unto the house of Israel, and speak with my words unto them.
+He said to me, Son of man, go to the house of Israel, and speak my words to them.

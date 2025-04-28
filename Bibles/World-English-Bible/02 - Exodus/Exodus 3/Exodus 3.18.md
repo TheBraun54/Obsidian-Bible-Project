@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall hearken to thy voice: and thou shalt come, thou and the elders of Israel, unto the king of Egypt, and ye shall say unto him, Jehovah, the God of the Hebrews, hath met with us: and now let us go, we pray thee, three days' journey into the wilderness, that we may sacrifice to Jehovah our God.
+They will listen to your voice, and you shall come, you and the elders of Israel, to the king of Egypt, and you shall tell him, 'Yahweh, the God of the Hebrews, has met with us. Now please let us go three days' journey into the wilderness, that we may sacrifice to Yahweh, our God.'

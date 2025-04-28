@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall ye say unto Joseph, Forgive, I pray thee now, the transgression of thy brethren, and their sin, for that they did unto thee evil. And now, we pray thee, forgive the transgression of the servants of the God of thy father. And Joseph wept when they spake unto him.
+'You shall tell Joseph, "Now please forgive the disobedience of your brothers, and their sin, because they did evil to you."' Now, please forgive the disobedience of the servants of the God of your father." Joseph wept when they spoke to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that uttereth truth showeth forth righteousness; But a false witness, deceit.
+He who is truthful testifies honestly, but a false witness lies.

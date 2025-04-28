@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After two days will he revive us: on the third day he will raise us up, and we shall live before him.
+After two days he will revive us. On the third day he will raise us up, and we will live before him.

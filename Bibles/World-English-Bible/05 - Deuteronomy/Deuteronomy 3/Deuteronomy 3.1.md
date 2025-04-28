@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then we turned, and went up the way to Bashan: and Og the king of Bashan came out against us, he and all his people, unto battle at Edrei.
+Then we turned, and went up the way to Bashan: and Og the king of Bashan came out against us, he and all his people, to battle at Edrei.

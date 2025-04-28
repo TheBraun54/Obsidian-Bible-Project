@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said to Joab the captain of the host, who was with him, Go now to and fro through all the tribes of Israel, from Dan even to Beer-sheba, and number ye the people, that I may know the sum of the people.
+The king said to Joab the captain of the army, who was with him, "Now go back and forth through all the tribes of Israel, from Dan even to Beersheba, and number the people, that I may know the sum of the people."

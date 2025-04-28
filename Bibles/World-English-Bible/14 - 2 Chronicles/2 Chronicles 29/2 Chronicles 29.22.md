@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they killed the bullocks, and the priests received the blood, and sprinkled it on the altar: and they killed the rams, and sprinkled the blood upon the altar: they killed also the lambs, and sprinkled the blood upon the altar.
+So they killed the bulls, and the priests received the blood, and sprinkled it on the altar: and they killed the rams, and sprinkled the blood on the altar: they killed also the lambs, and sprinkled the blood on the altar.

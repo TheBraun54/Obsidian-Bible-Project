@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beheld at that time because of the voice of the great words which the horn spake; I beheld even till the beast was slain, and its body destroyed, and it was given to be burned with fire.
+I saw at that time because of the voice of the great words which the horn spoke; I saw even until the animal was slain, and its body destroyed, and it was given to be burned with fire.

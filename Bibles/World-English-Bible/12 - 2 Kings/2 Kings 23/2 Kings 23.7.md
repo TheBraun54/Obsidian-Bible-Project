@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brake down the houses of the sodomites, that were in the house of Jehovah, where the women wove hangings for the Asherah.
+He broke down the houses of the sodomites, that were in the house of Yahweh, where the women wove hangings for the Asherah.

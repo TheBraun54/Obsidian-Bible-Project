@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, all his fellows shall be put to shame; and the workmen, they are of men: let them all be gathered together, let them stand up; they shall fear, they shall be put to shame together.
+Behold, all his fellows will be disappointed; and the workmen are mere men. Let them all be gathered together. Let them stand up. They will fear. They will be put to shame together.

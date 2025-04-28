@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou wilt bless the righteous; O Jehovah, thou wilt compass him with favor as with a shield.
+For you will bless the righteous. Yahweh, you will surround him with favor as with a shield. For the Chief Musician; on stringed instruments, upon the eight-stringed lyre. A Psalm by David.

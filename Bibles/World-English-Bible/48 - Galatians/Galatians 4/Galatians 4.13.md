@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye know that because of an infirmity of the flesh I preached the gospel unto you the first time:
+but you know that because of weakness of the flesh I preached the Good News to you the first time.

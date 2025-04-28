@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then is my reward? That, when I preach the gospel, I may make the gospel without charge, so as not to use to the full my right in the gospel.
+What then is my reward? That, when I preach the Good News, I may present the Good News of Christ without charge, so as not to abuse my authority in the Good News.

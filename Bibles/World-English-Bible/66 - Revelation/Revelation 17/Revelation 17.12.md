@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ten horns that thou sawest are ten kings, who have received no kingdom as yet; but they receive authority as kings, with the beast, for one hour.
+The ten horns that you saw are ten kings who have received no kingdom as yet, but they receive authority as kings, with the beast, for one hour.

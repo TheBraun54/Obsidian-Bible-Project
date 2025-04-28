@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Beth-zur, and Soco, and Adullam,
+Beth Zur, and Soco, and Adullam,

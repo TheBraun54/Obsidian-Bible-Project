@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Noah did according unto all that Jehovah commanded him.
+Noah did everything that Yahweh commanded him.

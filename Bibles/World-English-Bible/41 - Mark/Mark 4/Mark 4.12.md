@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that seeing they may see, and not perceive; and hearing they may hear, and not understand; lest haply they should turn again, and it should be forgiven them.
+that 'seeing they may see, and not perceive; and hearing they may hear, and not understand; lest perhaps they should turn again, and their sins should be forgiven them.'"

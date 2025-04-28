@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went out from Pharaoh, and entreated Jehovah.
+He went out from Pharaoh, and prayed to Yahweh.

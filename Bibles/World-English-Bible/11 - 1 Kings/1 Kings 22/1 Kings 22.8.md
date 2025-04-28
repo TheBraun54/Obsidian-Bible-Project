@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel said unto Jehoshaphat, there is yet one man by whom we may inquire of Jehovah, Micaiah the son of Imlah: but I hate him; for he doth not prophesy good concerning me, but evil. And Jehoshaphat said, Let not the king say so.
+The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of Yahweh, Micaiah the son of Imlah; but I hate him; for he does not prophesy good concerning me, but evil." Jehoshaphat said, "Don't let the king say so."

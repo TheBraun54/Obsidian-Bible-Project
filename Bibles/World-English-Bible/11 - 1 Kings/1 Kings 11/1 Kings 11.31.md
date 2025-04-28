@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said to Jeroboam, Take thee ten pieces; for thus saith Jehovah, the God of Israel, Behold, I will rend the kingdom out of the hand of Solomon, and will give ten tribes to thee
+He said to Jeroboam, "Take ten pieces; for thus says Yahweh, the God of Israel, 'Behold, I will tear the kingdom out of the hand of Solomon, and will give ten tribes to you

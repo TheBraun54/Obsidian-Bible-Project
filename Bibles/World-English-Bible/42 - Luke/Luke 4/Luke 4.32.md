@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they were astonished at his teaching; for his word was with authority.
+and they were astonished at his teaching, for his word was with authority.

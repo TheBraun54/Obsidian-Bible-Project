@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cease ye from man, whose breath is in his nostrils; for wherein is he to be accounted of?
+Stop trusting in man, whose breath is in his nostrils; for of what account is he?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob went on his way, and the angels of God met him.
+Jacob went on his way, and the angels of God met him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy sons have fainted, they lie at the head of all the streets, as an antelope in a net; they are full of the wrath of Jehovah, the rebuke of thy God.
+Your sons have fainted, they lie at the head of all the streets, as an antelope in a net; they are full of the wrath of Yahweh, the rebuke of your God.

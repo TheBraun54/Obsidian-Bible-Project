@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He becometh poor that worketh with a slack hand; But the hand of the diligent maketh rich.
+He becomes poor who works with a lazy hand, but the hand of the diligent brings wealth.

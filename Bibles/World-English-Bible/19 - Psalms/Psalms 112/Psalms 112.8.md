@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His heart is established, he shall not be afraid, Until he see [his desire] upon his adversaries.
+His heart is established. He will not be afraid in the end when he sees his adversaries.

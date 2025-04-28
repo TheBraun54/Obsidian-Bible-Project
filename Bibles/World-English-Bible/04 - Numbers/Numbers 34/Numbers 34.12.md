@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border shall go down to the Jordan, and the goings out thereof shall be at the Salt Sea. This shall be your land according to the borders thereof round about.
+and the border shall go down to the Jordan, and the goings out of it shall be at the Salt Sea. This shall be your land according to its borders around it.'"

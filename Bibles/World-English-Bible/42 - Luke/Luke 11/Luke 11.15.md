@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But some of them said, By Beelzebub the prince of the demons casteth he out demons.
+But some of them said, "He casts out demons by Beelzebul, the prince of the demons."

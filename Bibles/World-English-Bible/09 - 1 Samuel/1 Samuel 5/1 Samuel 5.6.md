@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the hand of Jehovah was heavy upon them of Ashdod, and he destroyed them, and smote them with tumors, even Ashdod and the borders thereof.
+But the hand of Yahweh was heavy on them of Ashdod, and he destroyed them, and struck them with tumors, even Ashdod and its borders.

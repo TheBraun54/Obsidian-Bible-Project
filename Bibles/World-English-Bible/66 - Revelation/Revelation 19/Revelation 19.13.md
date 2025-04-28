@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he [is] arrayed in a garment sprinkled with blood: and his name is called The Word of God.
+He is clothed in a garment sprinkled with blood. His name is called "The Word of God."

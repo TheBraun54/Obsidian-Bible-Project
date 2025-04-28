@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The people of the land have used oppression, and exercised robbery; yea, they have vexed the poor and needy, and have oppressed the sojourner wrongfully.
+The people of the land have used oppression, and exercised robbery; yes, they have troubled the poor and needy, and have oppressed the foreigner wrongfully.

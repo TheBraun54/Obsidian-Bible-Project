@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From out of the populous city men groan, And the soul of the wounded crieth out: Yet God regardeth not the folly.
+From out of the populous city, men groan. The soul of the wounded cries out, yet God doesn't regard the folly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway the king sent forth a soldier of his guard, and commanded to bring his head: and he went and beheaded him in the prison,
+Immediately the king sent out a soldier of his guard, and commanded to bring John's head, and he went and beheaded him in the prison,

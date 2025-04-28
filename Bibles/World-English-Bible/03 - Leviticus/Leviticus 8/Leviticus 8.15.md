@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he slew it; and Moses took the blood, and put it upon the horns of the altar round about with his finger, and purified the altar, and poured out the blood at the base of the altar, and sanctified it, to make atonement for it.
+He killed it; and Moses took the blood, and put it around on the horns of the altar with his finger, and purified the altar, and poured out the blood at the base of the altar, and sanctified it, to make atonement for it.

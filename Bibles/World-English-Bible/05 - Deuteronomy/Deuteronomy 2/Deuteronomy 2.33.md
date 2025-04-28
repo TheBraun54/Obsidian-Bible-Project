@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah our God delivered him up before us; and we smote him, and his sons, and all his people.
+Yahweh our God delivered him up before us; and we struck him, and his sons, and all his people.

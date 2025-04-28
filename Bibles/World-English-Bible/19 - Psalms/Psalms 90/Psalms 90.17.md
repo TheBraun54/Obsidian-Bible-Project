@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let the favor of the Lord our God be upon us; And establish thou the work of our hands upon us; Yea, the work of our hands establish thou it.
+Let the favor of the Lord our God be on us; establish the work of our hands for us; yes, establish the work of our hands.

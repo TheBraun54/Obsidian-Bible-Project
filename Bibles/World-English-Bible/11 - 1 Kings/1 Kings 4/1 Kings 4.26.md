@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon had forty thousand stalls of horses for his chariots, and twelve thousand horsemen.
+Solomon had forty thousand stalls of horses for his chariots, and twelve thousand horsemen.

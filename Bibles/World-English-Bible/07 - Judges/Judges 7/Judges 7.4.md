@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Gideon, The people are yet too many; bring them down unto the water, and I will try them for thee there: and it shall be, that of whom I say unto thee, This shall go with thee, the same shall go with thee; and of whomsoever I say unto thee, This shall not go with thee, the same shall not go.
+Yahweh said to Gideon, "The people are still too many. Bring them down to the water, and I will test them for you there. It shall be, that of whom I tell you, 'This shall go with you,' the same shall go with you; and of whoever I tell you, 'This shall not go with you,' the same shall not go."

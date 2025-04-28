@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was dumb with silence, I held my peace, even from good; And my sorrow was stirred.
+I was mute with silence. I held my peace, even from good. My sorrow was stirred.

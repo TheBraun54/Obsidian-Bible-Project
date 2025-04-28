@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when much time was spent, and the voyage was now dangerous, because the Fast was now already gone by, Paul admonished them,
+When much time had passed and the voyage was now dangerous, because the Fast had now already gone by, Paul admonished them,

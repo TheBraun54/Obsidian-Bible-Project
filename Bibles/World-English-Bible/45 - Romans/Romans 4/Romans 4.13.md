@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For not through the law was the promise to Abraham or to his seed that he should be heir of the world, but through the righteousness of faith.
+For the promise to Abraham and to his seed that he should be heir of the world wasn't through the law, but through the righteousness of faith.

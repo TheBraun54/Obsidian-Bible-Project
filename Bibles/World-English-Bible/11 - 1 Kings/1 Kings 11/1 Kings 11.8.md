@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And so did he for all his foreign wives, who burnt incense and sacrificed unto their gods.
+So did he for all his foreign wives, who burnt incense and sacrificed to their gods.

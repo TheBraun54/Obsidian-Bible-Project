@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are my friends, if ye do the things which I command you.
+You are my friends, if you do whatever I command you.

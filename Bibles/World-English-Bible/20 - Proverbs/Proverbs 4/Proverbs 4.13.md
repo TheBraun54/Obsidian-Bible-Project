@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take fast hold of instruction; Let her not go: Keep her; For she is thy life.
+Take firm hold of instruction. Don't let her go. Keep her, for she is your life.

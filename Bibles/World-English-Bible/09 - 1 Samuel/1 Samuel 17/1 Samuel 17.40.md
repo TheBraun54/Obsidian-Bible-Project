@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took his staff in his hand, and chose him five smooth stones out of the brook, and put them in the shepherd's bag which he had, even in his wallet; and his sling was in his hand: and he drew near to the Philistine.
+He took his staff in his hand, and chose for himself five smooth stones out of the brook, and put them in the shepherd's bag which he had, even in his wallet. His sling was in his hand; and he drew near to the Philistine.

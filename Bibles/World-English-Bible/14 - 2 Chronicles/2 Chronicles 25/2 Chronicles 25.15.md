@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore the anger of Jehovah was kindled against Amaziah, and he sent unto him a prophet, who said unto him, Why hast thou sought after the gods of the people, which have not delivered their own people out of thy hand?
+Therefore the anger of Yahweh was kindled against Amaziah, and he sent to him a prophet, who said to him, "Why have you sought after the gods of the people, which have not delivered their own people out of your hand?"

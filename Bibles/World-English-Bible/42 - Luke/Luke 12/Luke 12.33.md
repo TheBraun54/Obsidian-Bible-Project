@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sell that which ye have, and give alms; make for yourselves purses which wax not old, a treasure in the heavens that faileth not, where no thief draweth near, neither moth destroyeth.
+Sell that which you have, and give gifts to the needy. Make for yourselves purses which don't grow old, a treasure in the heavens that doesn't fail, where no thief approaches, neither moth destroys.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went away and told it unto the rest: neither believed they them.
+They went away and told it to the rest. They didn't believe them, either.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Murmur not, brethren, one against another, that ye be not judged: behold, the judge standeth before the doors.
+Don't grumble, brothers, against one another, so that you won't be judged. Behold, the judge stands at the door.

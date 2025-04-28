@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron said unto all the children of Israel, At even, then ye shall know that Jehovah hath brought you out from the land of Egypt;
+Moses and Aaron said to all the children of Israel, "At evening, then you shall know that Yahweh has brought you out from the land of Egypt;

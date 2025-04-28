@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was given me a reed like unto a rod: and one said, Rise, and measure the temple of God, and the altar, and them that worship therein.
+A reed like a rod was given to me. Someone said, "Rise, and measure God's temple, and the altar, and those who worship in it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt make thee no molten gods.
+"You shall make no cast idols for yourselves.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and two chains of pure gold; like cords shalt thou make them, of wreathen work: and thou shalt put the wreathen chains on the settings.
+and two chains of pure gold; you shall make them like cords of braided work: and you shall put the braided chains on the settings.

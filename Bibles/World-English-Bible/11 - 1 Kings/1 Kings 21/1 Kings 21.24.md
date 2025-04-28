@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Him that dieth of Ahab in the city the dogs shall eat; and him that dieth in the field shall the birds of the heavens eat.
+The dogs will eat he who dies of Ahab in the city; and the birds of the sky will eat he who dies in the field."

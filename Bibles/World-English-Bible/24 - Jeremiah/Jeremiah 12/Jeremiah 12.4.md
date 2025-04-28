@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long shall the land mourn, and the herbs of the whole country wither? for the wickedness of them that dwell therein, the beasts are consumed, and the birds; because they said, He shall not see our latter end.
+How long shall the land mourn, and the herbs of the whole country wither? for the wickedness of those who dwell therein, the animals are consumed, and the birds; because they said, He shall not see our latter end.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Shem, the father of all the children of Eber, the elder brother of Japheth, to him also were children born.
+To Shem, the father of all the children of Eber, the elder brother of Japheth, to him also were children born.

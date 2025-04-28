@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O house of Israel, bless ye Jehovah: O house of Aaron, bless ye Jehovah:
+House of Israel, praise Yahweh! House of Aaron, praise Yahweh!

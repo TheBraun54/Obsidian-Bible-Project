@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, We cannot, until all the flocks be gathered together, and they roll the stone from the well's mouth; then we water the sheep.
+They said, "We can't, until all the flocks are gathered together, and they roll the stone from the well's mouth. Then we water the sheep."

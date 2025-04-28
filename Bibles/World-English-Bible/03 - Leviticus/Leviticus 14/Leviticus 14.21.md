@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he be poor, and cannot get so much, then he shall take one he-lamb for a trespass-offering to be waved, to make atonement for him, and one tenth part [of an ephah] of fine flour mingled with oil for a meal-offering, and a log of oil;
+"If he is poor, and can't afford so much, then he shall take one male lamb for a trespass offering to be waved, to make atonement for him, and one tenth of an ephah of fine flour mingled with oil for a meal offering, and a log of oil;

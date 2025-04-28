@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto them, What seemeth you best I will do. And the king stood by the gate-side, and all the people went out by hundreds and by thousands.
+The king said to them, "I will do what seems best to you." The king stood beside the gate, and all the people went out by hundreds and by thousands.

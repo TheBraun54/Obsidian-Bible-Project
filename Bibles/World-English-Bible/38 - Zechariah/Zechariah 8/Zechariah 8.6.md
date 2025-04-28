@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: If it be marvellous in the eyes of the remnant of this people in those days, should it also be marvellous in mine eyes? saith Jehovah of hosts.
+Thus says Yahweh of Armies: "If it is marvelous in the eyes of the remnant of this people in those days, should it also be marvelous in my eyes?" says Yahweh of Armies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt destroy them that speak lies: Jehovah abhorreth the blood-thirsty and deceitful man.
+You will destroy those who speak lies. Yahweh abhors the bloodthirsty and deceitful man.

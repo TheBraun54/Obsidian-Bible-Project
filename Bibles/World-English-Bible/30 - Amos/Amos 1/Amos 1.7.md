@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will send a fire on the wall of Gaza, and it shall devour the palaces thereof.
+but I will send a fire on the wall of Gaza, and it will devour its palaces.

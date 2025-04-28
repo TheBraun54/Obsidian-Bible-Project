@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, All their sins shall be forgiven unto the sons of men, and their blasphemies wherewith soever they shall blaspheme:
+Most certainly I tell you, all sins of the descendants of man will be forgiven, including their blasphemies with which they may blaspheme;

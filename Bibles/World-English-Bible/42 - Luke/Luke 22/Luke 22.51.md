@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus answered and said, Suffer ye [them] thus far. And he touched his ear, and healed him.
+But Jesus answered, "Let me at least do this"--and he touched his ear, and healed him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us not become vainglorious, provoking one another, envying one another.
+Let's not become conceited, provoking one another, and envying one another.

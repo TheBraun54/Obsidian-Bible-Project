@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according as it is written, God gave them a spirit of stupor, eyes that they should not see, and ears that they should not hear, unto this very day.
+According as it is written, "God gave them a spirit of stupor, eyes that they should not see, and ears that they should not hear, to this very day."

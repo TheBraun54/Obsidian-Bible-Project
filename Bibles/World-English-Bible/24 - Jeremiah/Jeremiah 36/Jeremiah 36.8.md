@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Baruch the son of Neriah did according to all that Jeremiah the prophet commanded him, reading in the book the words of Jehovah in Jehovah's house.
+Baruch the son of Neriah did according to all that Jeremiah the prophet commanded him, reading in the book the words of Yahweh in Yahweh's house.

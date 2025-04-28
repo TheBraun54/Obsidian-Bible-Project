@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that the father of Publius lay sick of fever and dysentery: unto whom Paul entered in, and prayed, and laying his hands on him healed him.
+It happened that the father of Publius lay sick of fever and dysentery. Paul entered in to him, prayed, and laying his hands on him, healed him.

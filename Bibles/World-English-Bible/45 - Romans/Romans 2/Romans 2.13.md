@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for not the hearers of the law are just before God, but the doers of the law shall be justified:
+For it isn't the hearers of the law who are righteous before God, but the doers of the law will be justified

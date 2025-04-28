@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is there a thing whereof it may be said, See, this is new? it hath been long ago, in the ages which were before us.
+Is there a thing of which it may be said, "Behold, this is new?" It has been long ago, in the ages which were before us.

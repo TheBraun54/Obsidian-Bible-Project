@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make them linen breeches to cover the flesh of their nakedness; from the loins even unto the thighs they shall reach:
+You shall make them linen breeches to cover the flesh of their nakedness; from the waist even to the thighs they shall reach:

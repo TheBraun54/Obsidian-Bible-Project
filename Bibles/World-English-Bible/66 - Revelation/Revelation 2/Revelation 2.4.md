@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have [this] against thee, that thou didst leave thy first love.
+But I have this against you, that you left your first love.

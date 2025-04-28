@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on great waters the seed of the Shihor, the harvest of the Nile, was her revenue; and she was the mart of nations.
+On great waters, the seed of the Shihor, the harvest of the Nile, was her revenue. She was the market of nations.

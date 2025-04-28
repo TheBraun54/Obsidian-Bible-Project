@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if all prophesy, and there come in one unbelieving or unlearned, he is reproved by all, he is judged by all;
+But if all prophesy, and someone unbelieving or unlearned comes in, he is reproved by all, and he is judged by all.

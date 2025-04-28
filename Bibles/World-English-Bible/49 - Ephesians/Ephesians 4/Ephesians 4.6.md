@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one God and Father of all, who is over all, and through all, and in all.
+one God and Father of all, who is over all, and through all, and in us all.

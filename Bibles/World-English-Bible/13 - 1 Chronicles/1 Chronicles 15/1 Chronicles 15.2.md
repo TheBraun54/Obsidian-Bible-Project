@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David said, None ought to carry the ark of God but the Levites: for them hath Jehovah chosen to carry the ark of God, and to minister unto him for ever.
+Then David said, "No one ought to carry the ark of God but the Levites. For Yahweh has chosen them to carry the ark of God, and to minister to him forever."

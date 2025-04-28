@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [as] from the day that I commanded judges to be over my people Israel; and I will cause thee to rest from all thine enemies. Moreover Jehovah telleth thee that Jehovah will make thee a house.
+and as from the day that I commanded judges to be over my people Israel. I will cause you to rest from all your enemies. Moreover Yahweh tells you that Yahweh will make you a house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Debate thy cause with thy neighbor [himself], And disclose not the secret of another;
+Debate your case with your neighbor, and don't betray the confidence of another;

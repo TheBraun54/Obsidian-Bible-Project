@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My days are like a shadow that declineth; And I am withered like grass.
+My days are like a long shadow. I have withered like grass.

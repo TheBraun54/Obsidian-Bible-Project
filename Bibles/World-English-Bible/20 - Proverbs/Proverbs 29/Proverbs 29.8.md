@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Scoffers set a city in a flame; But wise men turn away wrath.
+Mockers stir up a city, but wise men turn away anger.

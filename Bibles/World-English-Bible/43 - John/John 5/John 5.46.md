@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if ye believed Moses, ye would believe me; for he wrote of me.
+For if you believed Moses, you would believe me; for he wrote about me.

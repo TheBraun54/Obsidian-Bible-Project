@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel went out, and smote the horses and chariots, and slew the Syrians with a great slaughter.
+The king of Israel went out, and struck the horses and chariots, and killed the Syrians with a great slaughter.

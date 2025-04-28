@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Handle not, nor taste, nor touch
+"Don't handle, nor taste, nor touch"

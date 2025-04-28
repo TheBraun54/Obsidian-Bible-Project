@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye shall say, Thy servants have been keepers of cattle from our youth even until now, both we, and our fathers: that ye may dwell in the land of Goshen; for every shepherd is an abomination unto the Egyptians.
+that you shall say, 'Your servants have been keepers of livestock from our youth even until now, both we, and our fathers:' that you may dwell in the land of Goshen; for every shepherd is an abomination to the Egyptians."

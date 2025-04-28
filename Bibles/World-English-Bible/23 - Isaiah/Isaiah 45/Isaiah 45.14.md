@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, The labor of Egypt, and the merchandise of Ethiopia, and the Sabeans, men of stature, shall come over unto thee, and they shall be thine: they shall go after thee, in chains they shall come over; and they shall fall down unto thee, they shall make supplication unto thee, [saying], Surely God is in thee; and there is none else, there is no God.
+Thus says Yahweh: "The labor of Egypt, and the merchandise of Ethiopia, and the Sabeans, men of stature, shall come over to you, and they shall be yours. They will go after you. They shall come over in chains; and they will bow down to you. They will make supplication to you: 'Surely God is in you; and there is none else. There is no other god.

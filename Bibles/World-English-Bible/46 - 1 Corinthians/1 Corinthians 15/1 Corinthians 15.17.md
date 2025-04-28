@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if Christ hath not been raised, your faith is vain; ye are yet in your sins.
+If Christ has not been raised, your faith is vain; you are still in your sins.

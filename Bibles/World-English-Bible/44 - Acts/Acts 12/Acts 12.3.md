@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he saw that it pleased the Jews, he proceeded to seize Peter also. And [those] were the days of unleavened bread.
+When he saw that it pleased the Jews, he proceeded to seize Peter also. This was during the days of unleavened bread.

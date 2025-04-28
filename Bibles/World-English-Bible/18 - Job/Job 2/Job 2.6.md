@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Satan, Behold, he is in thy hand; only spare his life.
+Yahweh said to Satan, "Behold, he is in your hand. Only spare his life."

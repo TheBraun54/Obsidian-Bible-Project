@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What man of you, having a hundred sheep, and having lost one of them, doth not leave the ninety and nine in the wilderness, and go after that which is lost, until he find it?
+"Which of you men, if you had one hundred sheep, and lost one of them, wouldn't leave the ninety-nine in the wilderness, and go after the one that was lost, until he found it?

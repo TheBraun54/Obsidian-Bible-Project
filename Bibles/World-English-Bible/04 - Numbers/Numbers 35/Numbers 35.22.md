@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he thrust him suddenly without enmity, or hurled upon him anything without lying in wait,
+"'But if he thrust him suddenly without enmity, or hurled on him anything without lying in wait,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My foot hath held fast to his steps; His way have I kept, and turned not aside.
+My foot has held fast to his steps. I have kept his way, and not turned aside.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were gathered together the chief priests, and the elders of the people, unto the court of the high priest, who was called Caiaphas;
+Then the chief priests, the scribes, and the elders of the people were gathered together in the court of the high priest, who was called Caiaphas.

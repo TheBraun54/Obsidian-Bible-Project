@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all the princes said unto all the congregation, We have sworn unto them by Jehovah, the God of Israel: now therefore we may not touch them.
+But all the princes said to all the congregation, "We have sworn to them by Yahweh, the God of Israel: now therefore we may not touch them.

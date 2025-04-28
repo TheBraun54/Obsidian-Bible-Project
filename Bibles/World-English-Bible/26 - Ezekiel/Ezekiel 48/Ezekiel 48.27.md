@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Zebulun, from the east side unto the west side, Gad, one [portion] .
+By the border of Zebulun, from the east side to the west side, Gad, one [portion].

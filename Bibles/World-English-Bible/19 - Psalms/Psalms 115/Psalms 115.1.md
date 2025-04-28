@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not unto us, O Jehovah, not unto us, But unto thy name give glory, For thy lovingkindness, and for thy truth's sake.
+Not to us, Yahweh, not to us, but to your name give glory, for your loving kindness, and for your truth's sake.

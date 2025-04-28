@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If one of them that believe not biddeth you [to a feast], and ye are disposed to go; whatsoever is set before you, eat, asking no question for conscience' sake.
+But if one of those who don't believe invites you to a meal, and you are inclined to go, eat whatever is set before you, asking no questions for the sake of conscience.

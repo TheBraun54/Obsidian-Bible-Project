@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall keep my statutes. Thou shalt not let thy cattle gender with a diverse kind: thou shalt not sow thy field with two kinds of seed: neither shall there come upon thee a garment of two kinds of stuff mingled together.
+"'You shall keep my statutes. "'You shall not crossbreed different kinds of animals. "'you shall not sow your field with two kinds of seed; "'neither shall there come upon on you a garment made of two kinds of material.

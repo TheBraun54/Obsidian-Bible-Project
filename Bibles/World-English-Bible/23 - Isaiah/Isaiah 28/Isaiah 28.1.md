@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to the crown of pride of the drunkards of Ephraim, and to the fading flower of his glorious beauty, which is on the head of the fat valley of them that are overcome with wine!
+Woe to the crown of pride of the drunkards of Ephraim, and to the fading flower of his glorious beauty, which is on the head of the fertile valley of those who are overcome with wine!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast not given water to the weary to drink, And thou hast withholden bread from the hungry.
+You haven't given water to the weary to drink, and you have withheld bread from the hungry.

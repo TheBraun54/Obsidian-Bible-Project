@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto the wicked God saith, What hast thou to do to declare my statutes, And that thou hast taken my covenant in thy mouth,
+But to the wicked God says, "What right do you have to declare my statutes, that you have taken my covenant on your lips,

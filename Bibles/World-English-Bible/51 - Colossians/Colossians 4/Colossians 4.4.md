@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I may make it manifest, as I ought to speak.
+that I may reveal it as I ought to speak.

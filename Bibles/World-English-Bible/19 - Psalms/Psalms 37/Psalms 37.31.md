@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The law of his God is in his heart; None of his steps shall slide.
+The law of his God is in his heart. None of his steps shall slide.

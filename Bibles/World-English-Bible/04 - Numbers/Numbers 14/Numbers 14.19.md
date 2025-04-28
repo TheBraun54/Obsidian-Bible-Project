@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pardon, I pray thee, the iniquity of this people according unto the greatness of thy lovingkindness, and according as thou hast forgiven this people, from Egypt even until now.
+Please pardon the iniquity of this people according to the greatness of your loving kindness, and according as you have forgiven this people, from Egypt even until now."

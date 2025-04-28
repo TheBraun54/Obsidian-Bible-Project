@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and upon all the ships of Tarshish, and upon all pleasant imagery.
+For all the ships of Tarshish, and for all pleasant imagery.

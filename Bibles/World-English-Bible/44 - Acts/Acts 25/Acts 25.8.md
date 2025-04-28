@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-while Paul said in his defense, Neither against the law of the Jews, nor against the temple, nor against Caesar, have I sinned at all.
+while he said in his defense, "Neither against the law of the Jews, nor against the temple, nor against Caesar, have I sinned at all."

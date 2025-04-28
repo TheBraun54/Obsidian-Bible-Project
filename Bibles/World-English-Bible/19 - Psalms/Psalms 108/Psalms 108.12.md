@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give us help against the adversary; For vain is the help of man.
+Give us help against the enemy, for the help of man is vain.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the priests were come out of the holy place, (for all the priests that were present had sanctified themselves, and did not keep their courses;
+It happened, when the priests were come out of the holy place, (for all the priests who were present had sanctified themselves, and did not keep their divisions;

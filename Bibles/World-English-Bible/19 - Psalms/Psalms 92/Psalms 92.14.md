@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall still bring forth fruit in old age; They shall be full of sap and green:
+They will still bring forth fruit in old age. They will be full of sap and green,

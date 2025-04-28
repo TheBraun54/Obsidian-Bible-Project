@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not thy heart envy sinners; But [be thou] in the fear of Jehovah all the day long:
+Don't let your heart envy sinners; but rather fear Yahweh all the day long.

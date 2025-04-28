@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Asa brought out silver and gold out of the treasures of the house of Jehovah and of the king's house, and sent to Ben-hadad king of Syria, that dwelt at Damascus, saying,
+Then Asa brought out silver and gold out of the treasures of the house of Yahweh and of the king's house, and sent to Ben Hadad king of Syria, who lived at Damascus, saying,

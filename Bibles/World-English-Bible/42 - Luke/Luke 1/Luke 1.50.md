@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his mercy is unto generations and generations On them that fear him.
+His mercy is for generations of generations on those who fear him.

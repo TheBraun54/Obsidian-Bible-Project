@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Prayer of David]. Hear the right, O Jehovah, attend unto my cry; Give ear unto my prayer, that goeth not out of feigned lips.
+Hear, Yahweh, my righteous plea; Give ear to my prayer, that doesn't go out of deceitful lips.

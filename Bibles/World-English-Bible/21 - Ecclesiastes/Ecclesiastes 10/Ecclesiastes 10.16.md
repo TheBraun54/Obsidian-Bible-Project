@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to thee, O land, when thy king is a child, and thy princes eat in the morning!
+Woe to you, land, when your king is a child, and your princes eat in the morning!

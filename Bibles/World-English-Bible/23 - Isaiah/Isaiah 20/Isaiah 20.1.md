@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the year that Tartan came unto Ashdod, when Sargon the king of Assyria sent him, and he fought against Ashdod and took it;
+In the year that Tartan came to Ashdod, when Sargon the king of Assyria sent him, and he fought against Ashdod and took it;

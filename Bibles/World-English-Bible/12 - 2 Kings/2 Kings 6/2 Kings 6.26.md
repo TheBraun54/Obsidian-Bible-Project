@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as the king of Israel was passing by upon the wall, there cried a woman unto him, saying, Help, my lord, O king.
+As the king of Israel was passing by on the wall, a woman cried to him, saying, "Help, my lord, O king!"

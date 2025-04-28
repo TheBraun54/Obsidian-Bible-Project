@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall let nothing of it remain until the morning; but that which remaineth of it until the morning ye shall burn with fire.
+You shall let nothing of it remain until the morning; but that which remains of it until the morning you shall burn with fire.

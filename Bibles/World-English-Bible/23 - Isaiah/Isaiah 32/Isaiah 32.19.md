@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it shall hail in the downfall of the forest; and the city shall be utterly laid low.
+Though hail flattens the forest, and the city is leveled completely.

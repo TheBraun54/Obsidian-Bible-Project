@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joseph died, being a hundred and ten years old: and they embalmed him, and he was put in a coffin in Egypt.
+So Joseph died, being one hundred ten years old, and they embalmed him, and he was put in a coffin in Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt take five shekels apiece by the poll; after the shekel of the sanctuary shalt thou take them (the shekel is twenty gerahs):
+you shall take five shekels apiece for each one; after the shekel of the sanctuary you shall take them (the shekel is twenty gerahs):

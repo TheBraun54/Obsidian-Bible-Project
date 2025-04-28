@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will do unto them as he did to Sihon and to Og, the kings of the Amorites, and unto their land; whom he destroyed.
+Yahweh will do to them as he did to Sihon and to Og, the kings of the Amorites, and to their land; whom he destroyed.

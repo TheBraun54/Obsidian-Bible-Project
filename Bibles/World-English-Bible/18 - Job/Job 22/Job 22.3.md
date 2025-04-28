@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it any pleasure to the Almighty, that thou art righteous? Or is it gain [to him], that thou makest thy ways perfect?
+Is it any pleasure to the Almighty, that you are righteous? Or does it benefit him, that you make your ways perfect?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the wild beasts of the desert shall meet with the wolves, and the wild goat shall cry to his fellow; yea, the night-monster shall settle there, and shall find her a place of rest.
+The wild animals of the desert will meet with the wolves, and the wild goat will cry to his fellow. Yes, the night creature shall settle there, and shall find herself a place of rest.

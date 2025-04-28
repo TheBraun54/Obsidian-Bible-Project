@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to change the face of the matter hath thy servant Joab done this thing: and my lord is wise, according to the wisdom of an angel of God, to know all things that are in the earth.
+to change the face of the matter has your servant Joab done this thing. My lord is wise, according to the wisdom of an angel of God, to know all things that are in the earth."

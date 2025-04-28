@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus said the Lord Jehovah: Because thou art exalted in stature, and he hath set his top among the thick boughs, and his heart is lifted up in his height; [
+Therefore thus said the Lord Yahweh: Because you are exalted in stature, and he has set his top among the thick boughs, and his heart is lifted up in his height;

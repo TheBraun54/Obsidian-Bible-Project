@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the fifth year shall ye eat of the fruit thereof, that it may yield unto you the increase thereof: I am Jehovah your God.
+In the fifth year you shall eat its fruit, that it may yield its increase to you. I am Yahweh your God.

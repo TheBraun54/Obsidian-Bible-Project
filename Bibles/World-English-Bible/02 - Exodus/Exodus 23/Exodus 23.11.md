@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the seventh year thou shalt let it rest and lie fallow, that the poor of thy people may eat: and what they leave the beast of the field shall eat. In like manner thou shalt deal with thy vineyard, [and] with thy oliveyard.
+but the seventh year you shall let it rest and lie fallow, that the poor of your people may eat; and what they leave the animal of the field shall eat. In the same way, you shall deal with your vineyard and with your olive grove.

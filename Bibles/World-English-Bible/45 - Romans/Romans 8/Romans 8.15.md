@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye received not the spirit of bondage again unto fear; but ye received the spirit of adoption, whereby we cry, Abba, Father.
+For you didn't receive the spirit of bondage again to fear, but you received the Spirit of adoption, by whom we cry, "Abba! Father!"

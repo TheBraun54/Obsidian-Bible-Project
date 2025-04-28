@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Zalmonah, and encamped in Punon.
+They traveled from Zalmonah, and encamped in Punon.

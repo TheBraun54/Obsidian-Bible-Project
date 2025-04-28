@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that, when Abram was come into Egypt, the Egyptians beheld the woman that she was very fair.
+It happened that when Abram had come into Egypt, the Egyptians saw that the woman was very beautiful.

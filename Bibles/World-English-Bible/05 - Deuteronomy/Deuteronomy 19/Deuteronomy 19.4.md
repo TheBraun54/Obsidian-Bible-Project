@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the case of the manslayer, that shall flee thither and live: whoso killeth his neighbor unawares, and hated him not in time past;
+This is the case of the manslayer, that shall flee there and live: whoever kills his neighbor unawares, and didn't hate him in time past;

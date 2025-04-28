@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have [this] against thee, that thou sufferest the woman Jezebel, who calleth herself a prophetess; and she teacheth and seduceth my servants to commit fornication, and to eat things sacrificed to idols.
+But I have this against you, that you tolerate your woman, Jezebel, who calls herself a prophetess. She teaches and seduces my servants to commit sexual immorality, and to eat things sacrificed to idols.

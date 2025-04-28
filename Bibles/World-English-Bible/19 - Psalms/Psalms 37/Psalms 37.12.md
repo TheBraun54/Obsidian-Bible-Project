@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked plotteth against the just, And gnasheth upon him with his teeth.
+The wicked plots against the just, and gnashes at him with his teeth.

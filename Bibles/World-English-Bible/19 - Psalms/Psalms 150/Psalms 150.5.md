@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise him with loud cymbals: Praise him with high sounding cymbals.
+Praise him with loud cymbals! Praise him with resounding cymbals!

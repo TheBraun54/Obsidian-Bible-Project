@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As in the days of thy coming forth out of the land of Egypt will I show unto them marvellous things.
+"As in the days of your coming forth out of the land of Egypt, I will show them marvelous things."

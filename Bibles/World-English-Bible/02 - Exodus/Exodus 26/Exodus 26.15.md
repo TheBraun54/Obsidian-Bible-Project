@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the boards for the tabernacle of acacia wood, standing up.
+"You shall make the boards for the tabernacle of acacia wood, standing up.

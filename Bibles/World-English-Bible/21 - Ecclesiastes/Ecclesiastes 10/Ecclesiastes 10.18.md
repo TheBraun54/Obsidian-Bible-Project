@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By slothfulness the roof sinketh in; and through idleness of the hands the house leaketh.
+By slothfulness the roof sinks in; and through idleness of the hands the house leaks.

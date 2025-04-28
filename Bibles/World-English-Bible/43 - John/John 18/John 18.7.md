@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again therefore he asked them, Whom seek ye? And they said, Jesus of Nazareth.
+Again therefore he asked them, "Who are you looking for?" They said, "Jesus of Nazareth."

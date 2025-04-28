@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst drive out the nations with thy hand; But them thou didst plant: Thou didst afflict the peoples; But them thou didst spread abroad.
+You drove out the nations with your hand, but you planted them. You afflicted the peoples, but you spread them abroad.

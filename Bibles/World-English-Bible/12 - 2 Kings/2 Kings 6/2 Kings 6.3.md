@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one said, Be pleased, I pray thee, to go with thy servants. And he answered, I will go.
+One said, "Please be pleased to go with your servants." He answered, "I will go."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt furnish him liberally out of thy flock, and out of thy threshing-floor, and out of thy winepress; as Jehovah thy God hath blessed thee thou shalt give unto him.
+you shall furnish him liberally out of your flock, and out of your threshing floor, and out of your winepress; as Yahweh your God has blessed you, you shall give to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they heard that he spake unto them in the Hebrew language, they were the more quiet: and he saith,
+When they heard that he spoke to them in the Hebrew language, they were even more quiet. He said,

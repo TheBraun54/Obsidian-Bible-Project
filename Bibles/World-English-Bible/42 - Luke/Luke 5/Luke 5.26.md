@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And amazement took hold on all, and they glorified God; and they were filled with fear, saying, We have seen strange things to-day.
+Amazement took hold on all, and they glorified God. They were filled with fear, saying, "We have seen strange things today."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not afraid of the king of Babylon, of whom ye are afraid; be not afraid of him, saith Jehovah: for I am with you to save you, and to deliver you from his hand.
+Don't be afraid of the king of Babylon, of whom you are afraid; don't be afraid of him, says Yahweh: for I am with you to save you, and to deliver you from his hand.

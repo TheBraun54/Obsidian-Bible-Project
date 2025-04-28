@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seeing the multitudes, he went up into the mountain: and when he had sat down, his disciples came unto him:
+Seeing the multitudes, he went up onto the mountain. When he had sat down, his disciples came to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his daughters, And where is he? Why is it that ye have left the man? Call him, that he may eat bread.
+He said to his daughters, "Where is he? Why is it that you have left the man? Call him, that he may eat bread."

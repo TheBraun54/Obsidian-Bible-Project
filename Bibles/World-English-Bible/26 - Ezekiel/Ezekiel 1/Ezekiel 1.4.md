@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I looked, and, behold, a stormy wind came out of the north, a great cloud, with a fire infolding itself, and a brightness round about it, and out of the midst thereof as it were glowing metal, out of the midst of the fire.
+I looked, and behold, a stormy wind came out of the north, a great cloud, with flashing lightning, and a brightness around it, and out of its midst as it were glowing metal, out of the midst of the fire.

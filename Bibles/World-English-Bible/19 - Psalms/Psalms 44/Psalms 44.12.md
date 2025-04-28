@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou sellest thy people for nought, And hast not increased [thy wealth] by their price.
+You sell your people for nothing, and have gained nothing from their sale.

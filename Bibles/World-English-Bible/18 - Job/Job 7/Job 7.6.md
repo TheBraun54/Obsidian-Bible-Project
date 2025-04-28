@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My days are swifter than a weaver's shuttle, And are spent without hope.
+My days are swifter than a weaver's shuttle, and are spent without hope.

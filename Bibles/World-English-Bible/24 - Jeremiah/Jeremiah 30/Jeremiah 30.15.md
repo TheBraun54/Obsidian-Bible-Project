@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why criest thou for thy hurt? thy pain is incurable: for the greatness of thine iniquity, because thy sins were increased, I have done these things unto thee.
+Why do you cry for your hurt? Your pain is incurable: for the greatness of your iniquity, because your sins were increased, I have done these things to you.

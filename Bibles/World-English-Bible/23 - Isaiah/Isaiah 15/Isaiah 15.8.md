@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the cry is gone round about the borders of Moab; the wailing thereof unto Eglaim, and the wailing thereof unto Beer-elim.
+For the cry has gone around the borders of Moab; its wailing to Eglaim, and its wailing to Beer Elim.

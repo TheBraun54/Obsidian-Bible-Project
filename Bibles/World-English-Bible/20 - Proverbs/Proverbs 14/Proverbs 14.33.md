@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom resteth in the heart of him that hath understanding; But [that which is] in the inward part of fools is made known.
+Wisdom rests in the heart of one who has understanding, and is even made known in the inward part of fools.

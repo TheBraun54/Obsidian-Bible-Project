@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they shall leave none of it unto the morning, nor break a bone thereof: according to all the statute of the passover they shall keep it.
+They shall leave none of it until the morning, nor break a bone of it. According to all the statute of the Passover they shall keep it.

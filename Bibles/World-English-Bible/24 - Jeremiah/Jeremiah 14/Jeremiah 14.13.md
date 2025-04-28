@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Ah, Lord Jehovah! behold, the prophets say unto them, Ye shall not see the sword, neither shall ye have famine; but I will give you assured peace in this place.
+Then I said, Ah, Lord Yahweh! behold, the prophets tell them, You shall not see the sword, neither shall you have famine; but I will give you assured peace in this place.

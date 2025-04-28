@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they of the circumcision that believed were amazed, as many as came with Peter, because that on the Gentiles also was poured out the gift of the Holy Spirit.
+They of the circumcision who believed were amazed, as many as came with Peter, because the gift of the Holy Spirit was also poured out on the Gentiles.

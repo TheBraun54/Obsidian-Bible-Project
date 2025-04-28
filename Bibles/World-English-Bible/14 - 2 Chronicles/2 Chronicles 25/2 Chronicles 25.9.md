@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Amaziah said to the man of God, But what shall we do for the hundred talents which I have given to the army of Israel? And the man of God answered, Jehovah is able to give thee much more than this.
+Amaziah said to the man of God, "But what shall we do for the hundred talents which I have given to the army of Israel?" The man of God answered, "Yahweh is able to give you much more than this."

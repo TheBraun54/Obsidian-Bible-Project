@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ascribe unto Jehovah the glory due unto his name: Bring an offering, and come into his courts.
+Ascribe to Yahweh the glory due to his name. Bring an offering, and come into his courts.

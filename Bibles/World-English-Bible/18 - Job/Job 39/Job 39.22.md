@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He mocketh at fear, and is not dismayed; Neither turneth he back from the sword.
+He mocks at fear, and is not dismayed, neither does he turn back from the sword.

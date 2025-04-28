@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day ye shall ask in my name: and I say not unto you, that I will pray the Father for you;
+In that day you will ask in my name; and I don't say to you, that I will pray to the Father for you,

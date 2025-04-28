@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the morning came the word of Jehovah unto me, saying,
+In the morning came the word of Yahweh to me, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I think therefore that this is good by reason of the distress that is upon us, [namely], that it is good for a man to be as he is.
+I think that it is good therefore, because of the distress that is on us, that it is good for a man to be as he is.

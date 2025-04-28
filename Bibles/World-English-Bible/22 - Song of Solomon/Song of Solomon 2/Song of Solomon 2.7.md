@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I adjure you, O daughters of Jerusalem, By the roes, or by the hinds of the field, That ye stir not up, nor awake [my] love, Until he please.
+I adjure you, daughters of Jerusalem, by the roes, or by the hinds of the field, that you not stir up, nor awaken love, until it so desires.

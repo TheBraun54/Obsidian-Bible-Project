@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the end that ye be not quickly shaken from your mind, nor yet be troubled, either by spirit, or by word, or by epistle as from us, as that the day of the Lord is just at hand;
+not to be quickly shaken in your mind, nor yet be troubled, either by spirit, or by word, or by letter as from us, saying that the day of Christ had come.

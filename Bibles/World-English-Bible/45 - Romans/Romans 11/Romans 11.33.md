@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O the depth of the riches both of the wisdom and the knowledge of God! how unsearchable are his judgments, and his ways past tracing out!
+Oh the depth of the riches both of the wisdom and the knowledge of God! How unsearchable are his judgments, and his ways past tracing out!

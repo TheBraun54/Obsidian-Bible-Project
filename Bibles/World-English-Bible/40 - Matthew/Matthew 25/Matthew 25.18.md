@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that received the one went away and digged in the earth, and hid his lord's money.
+But he who received the one went away and dug in the earth, and hid his lord's money.

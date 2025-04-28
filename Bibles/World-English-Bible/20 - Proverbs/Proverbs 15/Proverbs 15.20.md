@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wise son maketh a glad father; But a foolish man despiseth his mother.
+A wise son makes a father glad, but a foolish man despises his mother.

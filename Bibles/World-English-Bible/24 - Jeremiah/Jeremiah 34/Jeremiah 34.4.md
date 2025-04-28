@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet hear the word of Jehovah, O Zedekiah king of Judah: thus saith Jehovah concerning thee, Thou shalt not die by the sword;
+Yet hear the word of Yahweh, O Zedekiah king of Judah: thus says Yahweh concerning you, You shall not die by the sword;

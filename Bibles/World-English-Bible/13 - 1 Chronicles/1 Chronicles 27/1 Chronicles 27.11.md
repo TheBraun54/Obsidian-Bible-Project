@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eighth [captain] for the eighth month was Sibbecai the Hushathite, of the Zerahites: and in his course were twenty and four thousand.
+The eighth [captain] for the eighth month was Sibbecai the Hushathite, of the Zerahites: and in his division were twenty-four thousand.

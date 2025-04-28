@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as ye have drunk upon my holy mountain, so shall all the nations drink continually; yea, they shall drink, and swallow down, and shall be as though they had not been.
+For as you have drunk on my holy mountain, so will all the nations drink continually. Yes, they will drink, swallow down, and will be as though they had not been.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Seth lived after he begat Enosh eight hundred and seven years, and begat sons and daughters:
+Seth lived after he became the father of Enosh eight hundred seven years, and became the father of sons and daughters.

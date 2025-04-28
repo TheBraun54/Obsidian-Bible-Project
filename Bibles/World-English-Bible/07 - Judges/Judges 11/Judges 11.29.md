@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the Spirit of Jehovah came upon Jephthah, and he passed over Gilead and Manasseh, and passed over Mizpeh of Gilead, and from Mizpeh of Gilead he passed over unto the children of Ammon.
+Then the Spirit of Yahweh came on Jephthah, and he passed over Gilead and Manasseh, and passed over Mizpeh of Gilead, and from Mizpeh of Gilead he passed over to the children of Ammon.

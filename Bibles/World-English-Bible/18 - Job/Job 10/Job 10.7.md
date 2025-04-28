@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Although thou knowest that I am not wicked, And there is none that can deliver out of thy hand?
+Although you know that I am not wicked, there is no one who can deliver out of your hand.

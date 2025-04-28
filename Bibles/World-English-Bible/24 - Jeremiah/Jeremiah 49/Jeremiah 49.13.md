@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have sworn by myself, saith Jehovah, that Bozrah shall become an astonishment, a reproach, a waste, and a curse; and all the cities thereof shall be perpetual wastes.
+For I have sworn by myself, says Yahweh, that Bozrah shall become an astonishment, a reproach, a waste, and a curse; and all its cities shall be perpetual wastes.

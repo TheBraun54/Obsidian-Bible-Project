@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make loops of blue upon the edge of the one curtain from the selvedge in the coupling; and likewise shalt thou make in the edge of the curtain that is outmost in the second coupling.
+You shall make loops of blue on the edge of the one curtain from the edge in the coupling; and likewise you shall make in the edge of the curtain that is outmost in the second coupling.

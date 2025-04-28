@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even so have these also now been disobedient, that by the mercy shown to you they also may now obtain mercy.
+even so these also have now been disobedient, that by the mercy shown to you they may also obtain mercy.

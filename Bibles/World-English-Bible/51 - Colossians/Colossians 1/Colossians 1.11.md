@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-strengthened with all power, according to the might of his glory, unto all patience and longsuffering with joy;
+strengthened with all power, according to the might of his glory, for all endurance and perseverance with joy;

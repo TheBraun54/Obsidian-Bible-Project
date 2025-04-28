@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Cain told Abel his brother. And it came to pass, when they were in the field, that Cain rose up against Abel his brother, and slew him.
+Cain said to Abel, his brother, "Let's go into the field." It happened when they were in the field, that Cain rose up against Abel, his brother, and killed him.

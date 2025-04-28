@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they returned, and came to En-mishpat (the same is Kadesh), and smote all the country of the Amalekites, and also the Amorites, that dwelt in Hazazon-tamar.
+They returned, and came to En Mishpat (the same is Kadesh), and struck all the country of the Amalekites, and also the Amorites, that lived in Hazazon Tamar.

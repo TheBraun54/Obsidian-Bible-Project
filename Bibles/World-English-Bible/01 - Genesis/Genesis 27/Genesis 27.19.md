@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob said unto his father, I am Esau thy first-born; I have done according as thou badest me: arise, I pray thee, sit and eat of my venison, that thy soul may bless me.
+Jacob said to his father, "I am Esau your firstborn. I have done what you asked me to do. Please arise, sit and eat of my venison, that your soul may bless me."

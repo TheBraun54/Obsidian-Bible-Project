@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I behaved myself as though it had been my friend or my brother: I bowed down mourning, as one that bewaileth his mother.
+I behaved myself as though it had been my friend or my brother. I bowed down mourning, as one who mourns his mother.

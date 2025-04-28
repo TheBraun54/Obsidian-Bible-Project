@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his daughter was Sheerah, who built Beth-horon the nether and the upper, and Uzzen-sheerah.
+His daughter was Sheerah, who built Beth Horon the lower and the upper, and Uzzen Sheerah.

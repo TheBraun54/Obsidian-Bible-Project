@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her children rise up, and call her blessed; Her husband [also], and he praiseth her, [saying] :
+Her children rise up and call her blessed. Her husband also praises her:

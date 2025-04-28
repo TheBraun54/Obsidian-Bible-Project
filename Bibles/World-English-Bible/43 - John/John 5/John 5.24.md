@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, He that heareth my word, and believeth him that sent me, hath eternal life, and cometh not into judgment, but hath passed out of death into life.
+"Most certainly I tell you, he who hears my word, and believes him who sent me, has eternal life, and doesn't come into judgment, but has passed out of death into life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if they would learn anything, let them ask their own husbands at home: for it is shameful for a woman to speak in the church.
+If they desire to learn anything, let them ask their own husbands at home, for it is shameful for a woman to chatter in the assembly.

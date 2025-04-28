@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David behaved himself wisely in all his ways; and Jehovah was with him.
+David behaved himself wisely in all his ways; and Yahweh was with him.

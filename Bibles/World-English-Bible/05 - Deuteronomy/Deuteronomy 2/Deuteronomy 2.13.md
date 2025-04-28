@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now rise up, and get you over the brook Zered. And we went over the brook Zered.
+"Now rise up, and cross over the brook Zered." We went over the brook Zered.

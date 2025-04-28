@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: When the whole earth rejoiceth, I will make thee desolate.
+Thus says the Lord Yahweh: When the whole earth rejoices, I will make you desolate.

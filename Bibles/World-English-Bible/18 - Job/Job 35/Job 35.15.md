@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now, because he hath not visited in his anger, Neither doth he greatly regard arrogance;
+But now, because he has not visited in his anger, neither does he greatly regard arrogance.

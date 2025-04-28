@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any one ask you, Why do ye loose him? thus shall ye say, The Lord hath need of him.
+If anyone asks you, 'Why are you untying it?' say to him: 'The Lord needs it.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his brethren, My money is restored; and, lo, it is even in my sack: and their heart failed them, and they turned trembling one to another, saying, What is this that God hath done unto us?
+He said to his brothers, "My money is restored! Behold, it is in my sack!" Their hearts failed them, and they turned trembling one to another, saying, "What is this that God has done to us?"

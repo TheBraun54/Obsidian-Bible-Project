@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have found David my servant; With my holy oil have I anointed him:
+I have found David, my servant. I have anointed him with my holy oil,

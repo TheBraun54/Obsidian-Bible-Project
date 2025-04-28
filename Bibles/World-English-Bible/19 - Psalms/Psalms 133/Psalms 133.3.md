@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Like the dew of Hermon, That cometh down upon the mountains of Zion: For there Jehovah commanded the blessing, Even life for evermore.
+like the dew of Hermon, that comes down on the hills of Zion: for there Yahweh gives the blessing, even life forevermore. A Song of Ascents.

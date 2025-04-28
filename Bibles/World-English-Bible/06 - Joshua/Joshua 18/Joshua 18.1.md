@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the whole congregation of the children of Israel assembled themselves together at Shiloh, and set up the tent of meeting there: and the land was subdued before them.
+The whole congregation of the children of Israel assembled themselves together at Shiloh, and set up the Tent of Meeting there. The land was subdued before them.

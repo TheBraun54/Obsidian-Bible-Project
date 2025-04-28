@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there shall be no remnant unto them: for I will bring evil upon the men of Anathoth, even the year of their visitation.
+and there shall be no remnant to them: for I will bring evil on the men of Anathoth, even the year of their visitation.

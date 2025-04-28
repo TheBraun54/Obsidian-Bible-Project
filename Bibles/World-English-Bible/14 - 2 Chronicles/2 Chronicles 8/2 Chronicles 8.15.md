@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they departed not from the commandment of the king unto the priests and Levites concerning any matter, or concerning the treasures.
+They didn't depart from the commandment of the king to the priests and Levites concerning any matter, or concerning the treasures.

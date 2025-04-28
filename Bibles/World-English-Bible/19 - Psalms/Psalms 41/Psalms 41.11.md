@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By this I know that thou delightest in me, Because mine enemy doth not triumph over me.
+By this I know that you delight in me, because my enemy doesn't triumph over me.

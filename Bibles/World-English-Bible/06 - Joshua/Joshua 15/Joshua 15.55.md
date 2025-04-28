@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Maon, Carmel, and Ziph, and Jutah,
+Maon, Carmel, Ziph, Jutah,

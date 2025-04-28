@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him the porter openeth; and the sheep hear his voice: and he calleth his own sheep by name, and leadeth them out.
+The gatekeeper opens the gate for him, and the sheep listen to his voice. He calls his own sheep by name, and leads them out.

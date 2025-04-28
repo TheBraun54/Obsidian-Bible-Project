@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn away my reproach whereof I am afraid; For thine ordinances are good.
+Take away my disgrace that I dread, for your ordinances are good.

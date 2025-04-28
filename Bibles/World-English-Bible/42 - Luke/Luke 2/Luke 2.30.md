@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For mine eyes have seen thy salvation,
+for my eyes have seen your salvation,

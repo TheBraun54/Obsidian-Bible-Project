@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With more than the weeping of Jazer will I weep for thee, O vine of Sibmah: thy branches passed over the sea, they reached even to the sea of Jazer: upon thy summer fruits and upon thy vintage the destroyer is fallen.
+With more than the weeping of Jazer will I weep for you, vine of Sibmah: your branches passed over the sea, they reached even to the sea of Jazer: on your summer fruits and on your vintage the destroyer is fallen.

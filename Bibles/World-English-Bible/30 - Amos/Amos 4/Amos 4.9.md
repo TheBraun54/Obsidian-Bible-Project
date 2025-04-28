@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have smitten you with blasting and mildew: the multitude of your gardens and your vineyards and your fig-trees and your olive-trees hath the palmer-worm devoured: yet have ye not returned unto me, saith Jehovah.
+"I struck you with blight and mildew many times in your gardens and your vineyards; and your fig trees and your olive trees have the swarming locust devoured: yet you haven't returned to me," says Yahweh.

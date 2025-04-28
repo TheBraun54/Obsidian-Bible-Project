@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if she bear a maid-child, then she shall be unclean two weeks, as in her impurity; and she shall continue in the blood of [her] purifying threescore and six days.
+But if she bears a female child, then she shall be unclean two weeks, as in her period; and she shall continue in the blood of purification sixty-six days.

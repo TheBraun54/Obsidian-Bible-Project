@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt till the land for him, thou, and thy sons, and thy servants; and thou shalt bring in [the fruits], that thy master's son may have bread to eat: but Mephibosheth thy master's son shall eat bread alway at my table. Now Ziba had fifteen sons and twenty servants.
+You shall till the land for him, you, and your sons, and your servants; and you shall bring in [the fruits], that your master's son may have bread to eat: but Mephibosheth your master's son shall eat bread always at my table." Now Ziba had fifteen sons and twenty servants.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Solomon purposed to build a house for the name of Jehovah, and a house for his kingdom.
+Now Solomon purposed to build a house for the name of Yahweh, and a house for his kingdom.

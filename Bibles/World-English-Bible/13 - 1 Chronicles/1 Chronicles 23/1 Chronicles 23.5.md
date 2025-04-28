@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and four thousand were doorkeepers; and four thousand praised Jehovah with the instruments which I made, [said David], to praise therewith.
+four thousand were doorkeepers; and four thousand praised Yahweh with the instruments which I made, for giving praise."

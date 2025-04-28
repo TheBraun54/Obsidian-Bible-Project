@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep me from the snare which they have laid for me, And from the gins of the workers of iniquity.
+Keep me from the snare which they have laid for me, from the traps of the workers of iniquity.

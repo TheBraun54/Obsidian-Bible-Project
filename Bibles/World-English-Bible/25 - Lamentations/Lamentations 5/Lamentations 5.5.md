@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our pursuers are upon our necks: We are weary, and have no rest.
+Our pursuers are on our necks: We are weary, and have no rest.

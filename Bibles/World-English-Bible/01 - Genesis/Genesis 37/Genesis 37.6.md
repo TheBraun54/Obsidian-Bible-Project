@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Hear, I pray you, this dream which I have dreamed:
+He said to them, "Please hear this dream which I have dreamed:

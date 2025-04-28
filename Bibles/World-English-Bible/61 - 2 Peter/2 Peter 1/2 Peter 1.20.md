@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing this first, that no prophecy of scripture is of private interpretation.
+knowing this first, that no prophecy of Scripture is of private interpretation.

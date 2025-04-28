@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But of late my people is risen up as an enemy: ye strip the robe from off the garment from them that pass by securely [as men] averse from war.
+But lately my people have risen up as an enemy. You strip the robe and clothing from those who pass by without a care, returning from battle.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and turn ye not aside; for [then would ye go] after vain things which cannot profit nor deliver, for they are vain.
+Don't turn aside; for [then you would go] after vain things which can't profit nor deliver, for they are vain.

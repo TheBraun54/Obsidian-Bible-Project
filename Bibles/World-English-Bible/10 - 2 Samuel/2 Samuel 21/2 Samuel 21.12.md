@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went and took the bones of Saul and the bones of Jonathan his son from the men of Jabesh-gilead, who had stolen them from the street of Beth-shan, where the Philistines had hanged them, in the day that the Philistines slew Saul in Gilboa;
+David went and took the bones of Saul and the bones of Jonathan his son from the men of Jabesh Gilead, who had stolen them from the street of Beth Shan, where the Philistines had hanged them, in the day that the Philistines killed Saul in Gilboa;

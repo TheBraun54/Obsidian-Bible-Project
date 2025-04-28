@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus came into the ruler's house, and saw the flute-players, and the crowd making a tumult,
+When Jesus came into the ruler's house, and saw the flute players, and the crowd in noisy disorder,

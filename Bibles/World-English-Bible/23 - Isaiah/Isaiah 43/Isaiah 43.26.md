@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put me in remembrance; let us plead together: set thou forth [thy cause], that thou mayest be justified.
+Put me in remembrance. Let us plead together. Set forth your case, that you may be justified.

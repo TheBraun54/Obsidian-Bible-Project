@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rehoboam slept with his fathers, and was buried with his fathers in the city of David: and his mother's name was Naamah the Ammonitess. And Abijam his son reigned in his stead.
+Rehoboam slept with his fathers, and was buried with his fathers in the city of David: and his mother's name was Naamah the Ammonitess. Abijam his son reigned in his place.

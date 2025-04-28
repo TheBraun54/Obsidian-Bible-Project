@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she bare him Zimran, and Jokshan, and Medan, and Midian, and Ishbak, and Shuah.
+She bore him Zimran, Jokshan, Medan, Midian, Ishbak, and Shuah.

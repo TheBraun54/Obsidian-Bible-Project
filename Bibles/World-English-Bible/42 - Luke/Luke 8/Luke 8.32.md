@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there was there a herd of many swine feeding on the mountain: and they entreated him that he would give them leave to enter into them. And he gave them leave.
+Now there was there a herd of many pigs feeding on the mountain, and they begged him that he would allow them to enter into those. He allowed them.

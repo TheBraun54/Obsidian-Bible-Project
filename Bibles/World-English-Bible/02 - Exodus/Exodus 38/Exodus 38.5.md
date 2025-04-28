@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cast four rings for the four ends of the grating of brass, to be places for the staves.
+He cast four rings for the four ends of brass grating, to be places for the poles.

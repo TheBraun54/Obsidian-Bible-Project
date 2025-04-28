@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the son said unto him, Father, I have sinned against heaven, and in thy sight: I am no more worthy to be called thy son .
+The son said to him, 'Father, I have sinned against heaven, and in your sight. I am no longer worthy to be called your son.'

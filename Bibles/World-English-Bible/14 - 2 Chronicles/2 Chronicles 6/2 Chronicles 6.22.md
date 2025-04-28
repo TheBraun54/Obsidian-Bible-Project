@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man sin against his neighbor, and an oath be laid upon him to cause him to swear, and he come [and] swear before thine altar in this house;
+"If a man sin against his neighbor, and an oath is laid on him to cause him to swear, and he comes and swears before your altar in this house;

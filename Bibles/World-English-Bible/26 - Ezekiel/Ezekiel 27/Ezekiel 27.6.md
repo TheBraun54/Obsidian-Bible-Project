@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the oaks of Bashan have they made thine oars; they have made thy benches of ivory inlaid in boxwood, from the isles of Kittim.
+Of the oaks of Bashan have they made your oars; they have made your benches of ivory inlaid in boxwood, from the islands of Kittim.

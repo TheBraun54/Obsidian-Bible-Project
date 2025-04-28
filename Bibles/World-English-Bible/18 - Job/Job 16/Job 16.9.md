@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath torn me in his wrath, and persecuted me; He hath gnashed upon me with his teeth: Mine adversary sharpeneth his eyes upon me.
+He has torn me in his wrath, and persecuted me. He has gnashed on me with his teeth. My adversary sharpens his eyes on me.

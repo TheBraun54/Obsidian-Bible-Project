@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An evil and adulterous generation seeketh after a sign; and there shall no sign be given unto it, but the sign of Jonah. And he left them, and departed.
+An evil and adulterous generation seeks after a sign, and there will be no sign given to it, except the sign of the prophet Jonah." He left them, and departed.

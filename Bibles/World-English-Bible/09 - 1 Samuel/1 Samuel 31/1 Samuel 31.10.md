@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put his armor in the house of the Ashtaroth; and they fastened his body to the wall of Beth-shan.
+They put his armor in the house of the Ashtaroth; and they fastened his body to the wall of Beth Shan.

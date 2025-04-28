@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth the wild ass bray when he hath grass? Or loweth the ox over his fodder?
+Does the wild donkey bray when he has grass? Or does the ox low over his fodder?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Samuel: the first-born, [Joel], and the second Abijah.
+The sons of Samuel: the firstborn [Joel], and the second Abijah.

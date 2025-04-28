@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Grant unto us that we may sit, one on thy right hand, and one on [thy] left hand, in thy glory.
+They said to him, "Grant to us that we may sit, one at your right hand, and one at your left hand, in your glory."

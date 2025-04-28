@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the younger of them said to his father, Father, give me the portion of [thy] substance that falleth to me. And he divided unto them his living.
+The younger of them said to his father, 'Father, give me my share of your property.' He divided his livelihood between them.

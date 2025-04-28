@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Some [trust] in chariots, and some in horses; But we will make mention of the name of Jehovah our God.
+Some trust in chariots, and some in horses, but we trust the name of Yahweh our God.

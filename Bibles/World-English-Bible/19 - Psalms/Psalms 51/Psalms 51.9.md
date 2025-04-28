@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hide thy face from my sins, And blot out all mine iniquities.
+Hide your face from my sins, and blot out all of my iniquities.

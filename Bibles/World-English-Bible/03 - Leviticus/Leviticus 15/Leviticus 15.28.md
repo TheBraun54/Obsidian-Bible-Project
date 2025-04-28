@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if she be cleansed of her issue, then she shall number to herself seven days, and after that she shall be clean.
+"'But if she is cleansed of her discharge, then she shall count to herself seven days, and after that she shall be clean.

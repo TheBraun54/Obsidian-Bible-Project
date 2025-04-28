@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Sing with gladness for Jacob, and shout for the chief of the nations: publish ye, praise ye, and say, O Jehovah, save thy people, the remnant of Israel.
+For thus says Yahweh, Sing with gladness for Jacob, and shout for the chief of the nations: publish, praise, and say, Yahweh, save your people, the remnant of Israel.

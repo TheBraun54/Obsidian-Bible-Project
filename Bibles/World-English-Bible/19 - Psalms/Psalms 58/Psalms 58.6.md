@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Break their teeth, O God, in their mouth: Break out the great teeth of the young lions, O Jehovah.
+Break their teeth, God, in their mouth. Break out the great teeth of the young lions, Yahweh.

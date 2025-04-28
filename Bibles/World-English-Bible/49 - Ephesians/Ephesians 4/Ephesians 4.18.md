@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being darkened in their understanding, alienated from the life of God, because of the ignorance that is in them, because of the hardening of their heart;
+being darkened in their understanding, alienated from the life of God, because of the ignorance that is in them, because of the hardening of their hearts;

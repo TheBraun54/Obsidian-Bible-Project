@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then will I cut off Israel out of the land which I have given them; and this house, which I have hallowed for my name, will I cast out of my sight; and Israel shall be a proverb and a byword among all peoples.
+then will I cut off Israel out of the land which I have given them; and this house, which I have made holy for my name, will I cast out of my sight; and Israel shall be a proverb and a byword among all peoples.

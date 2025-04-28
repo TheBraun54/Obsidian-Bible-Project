@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, my brethren, desire earnestly to prophesy, and forbid not to speak with tongues.
+Therefore, brothers, desire earnestly to prophesy, and don't forbid speaking with other languages.

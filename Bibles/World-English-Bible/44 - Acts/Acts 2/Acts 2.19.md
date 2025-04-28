@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will show wonders in the heaven above, And signs on the earth beneath; Blood, and fire, and vapor of smoke:
+I will show wonders in the sky above, and signs on the earth beneath; blood, and fire, and billows of smoke.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God was displeased with this thing; therefore he smote Israel.
+God was displeased with this thing; therefore he struck Israel.

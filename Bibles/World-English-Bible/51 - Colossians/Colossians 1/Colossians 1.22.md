@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet now hath he reconciled in the body of his flesh through death, to present you holy and without blemish and unreproveable before him:
+yet now he has reconciled in the body of his flesh through death, to present you holy and without blemish and blameless before him,

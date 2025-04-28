@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul came to the city of Amalek, and laid wait in the valley.
+Saul came to the city of Amalek, and laid wait in the valley.

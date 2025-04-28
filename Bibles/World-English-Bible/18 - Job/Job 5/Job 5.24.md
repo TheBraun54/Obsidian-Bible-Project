@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt know that thy tent is in peace; And thou shalt visit thy fold, and shalt miss nothing.
+You shall know that your tent is in peace. You shall visit your fold, and shall miss nothing.

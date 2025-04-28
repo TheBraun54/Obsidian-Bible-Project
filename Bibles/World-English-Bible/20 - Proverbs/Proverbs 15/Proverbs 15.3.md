@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eyes of Jehovah are in every place, Keeping watch upon the evil and the good.
+Yahweh's eyes are everywhere, keeping watch on the evil and the good.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass on the day when the sons of God came to present themselves before Jehovah, that Satan also came among them.
+Now it happened on the day when God's sons came to present themselves before Yahweh, that Satan also came among them.

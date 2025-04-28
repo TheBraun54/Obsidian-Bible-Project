@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them praise his name in the dance: Let them sing praises unto him with timbrel and harp.
+Let them praise his name in the dance! Let them sing praises to him with tambourine and harp!

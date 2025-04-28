@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord will deliver me from every evil work, and will save me unto his heavenly kingdom: to whom [be] the glory for ever and ever. Amen.
+And the Lord will deliver me from every evil work, and will preserve me for his heavenly Kingdom; to whom be the glory forever and ever. Amen.

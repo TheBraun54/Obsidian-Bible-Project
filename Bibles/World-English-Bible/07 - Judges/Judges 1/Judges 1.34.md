@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Amorites forced the children of Dan into the hill-country; for they would not suffer them to come down to the valley;
+The Amorites forced the children of Dan into the hill country; for they would not allow them to come down to the valley;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for God is not unrighteous to forget your work and the love which ye showed toward his name, in that ye ministered unto the saints, and still do minister.
+For God is not unrighteous, so as to forget your work and the labor of love which you showed toward his name, in that you served the saints, and still do serve them.

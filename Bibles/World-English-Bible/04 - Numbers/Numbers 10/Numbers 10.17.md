@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tabernacle was taken down; and the sons of Gershon and the sons of Merari, who bare the tabernacle, set forward.
+The tabernacle was taken down; and the sons of Gershon and the sons of Merari, who bore the tabernacle, went forward.

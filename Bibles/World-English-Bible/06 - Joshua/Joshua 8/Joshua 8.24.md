@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Israel had made an end of slaying all the inhabitants of Ai in the field, in the wilderness wherein they pursued them, and they were all fallen by the edge of the sword, until they were consumed, that all Israel returned unto Ai, and smote it with the edge of the sword.
+It happened, when Israel had made an end of killing all the inhabitants of Ai in the field, in the wilderness in which they pursued them, and they had all fallen by the edge of the sword, until they were consumed, that all Israel returned to Ai, and struck it with the edge of the sword.

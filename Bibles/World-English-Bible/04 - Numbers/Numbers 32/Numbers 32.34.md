@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Gad built Dibon, and Ataroth, and Aroer,
+The children of Gad built Dibon, and Ataroth, and Aroer,

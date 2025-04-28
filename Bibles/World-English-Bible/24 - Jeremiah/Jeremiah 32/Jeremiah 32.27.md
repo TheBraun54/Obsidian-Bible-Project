@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am Jehovah, the God of all flesh: is there anything too hard for me?
+Behold, I am Yahweh, the God of all flesh: is there anything too hard for me?

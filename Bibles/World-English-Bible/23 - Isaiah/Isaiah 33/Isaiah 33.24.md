@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the inhabitant shall not say, I am sick: the people that dwell therein shall be forgiven their iniquity.
+The inhabitant won't say, "I am sick." The people who dwell therein will be forgiven their iniquity.

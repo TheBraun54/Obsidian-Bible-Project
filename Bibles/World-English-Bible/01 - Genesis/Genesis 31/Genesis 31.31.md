@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob answered and said to Laban, Because I was afraid: for I said, Lest thou shouldest take thy daughters from me by force.
+Jacob answered Laban, "Because I was afraid, for I said, 'Lest you should take your daughters from me by force.'

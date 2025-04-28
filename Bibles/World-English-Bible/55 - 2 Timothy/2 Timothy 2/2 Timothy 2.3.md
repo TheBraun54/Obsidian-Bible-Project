@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Suffer hardship with [me], as a good soldier of Christ Jesus.
+You therefore must endure hardship, as a good soldier of Christ Jesus.

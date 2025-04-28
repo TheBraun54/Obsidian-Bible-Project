@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have longed for thy salvation, O Jehovah; And thy law is my delight.
+I have longed for your salvation, Yahweh. Your law is my delight.

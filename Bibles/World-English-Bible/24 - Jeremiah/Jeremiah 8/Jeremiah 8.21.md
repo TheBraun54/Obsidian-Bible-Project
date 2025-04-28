@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the hurt of the daughter of my people am I hurt: I mourn; dismay hath taken hold on me.
+For the hurt of the daughter of my people am I hurt: I mourn; dismay has taken hold on me.

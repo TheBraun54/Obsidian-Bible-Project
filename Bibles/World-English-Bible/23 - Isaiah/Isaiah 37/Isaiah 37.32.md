@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For out of Jerusalem shall go forth a remnant, and out of mount Zion they that shall escape. The zeal of Jehovah of hosts will perform this.
+For out of Jerusalem a remnant will go forth, and survivors will escape from Mount Zion. The zeal of Yahweh of Armies will perform this.'

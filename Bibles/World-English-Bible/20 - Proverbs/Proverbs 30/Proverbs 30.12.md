@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a generation that are pure in their own eyes, And [yet] are not washed from their filthiness.
+There is a generation that is pure in their own eyes, yet are not washed from their filthiness.

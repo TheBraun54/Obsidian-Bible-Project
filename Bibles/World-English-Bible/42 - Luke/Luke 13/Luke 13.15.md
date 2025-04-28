@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Lord answered him, and said, Ye hypocrites, doth not each one of you on the sabbath loose his ox or his ass from the stall, and lead him away to watering?
+Therefore the Lord answered him, "You hypocrites! Doesn't each one of you free his ox or his donkey from the stall on the Sabbath, and lead him away to water?

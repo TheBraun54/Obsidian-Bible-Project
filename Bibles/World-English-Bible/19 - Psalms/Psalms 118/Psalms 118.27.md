@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is God, and he hath given us light: Bind the sacrifice with cords, even unto the horns of the altar.
+Yahweh is God, and he has given us light. Bind the sacrifice with cords, even to the horns of the altar.

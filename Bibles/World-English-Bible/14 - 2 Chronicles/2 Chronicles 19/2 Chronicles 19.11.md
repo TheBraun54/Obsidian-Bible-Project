@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, Amariah the chief priest is over you in all matters of Jehovah; and Zebadiah the son of Ishmael, the ruler of the house of Judah, in all the king's matters: also the Levites shall be officers before you. [ Deal courageously, and Jehovah be with the good.
+Behold, Amariah the chief priest is over you in all matters of Yahweh; and Zebadiah the son of Ishmael, the ruler of the house of Judah, in all the king's matters: also the Levites shall be officers before you. Deal courageously, and may Yahweh be with the good."

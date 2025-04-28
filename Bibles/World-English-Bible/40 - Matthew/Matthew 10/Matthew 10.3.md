@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Philip, and Bartholomew; Thomas, and Matthew the publican; James the [son] of Alphaeus, and Thaddaeus;
+Philip; Bartholomew; Thomas; Matthew the tax collector; James the son of Alphaeus; Lebbaeus, whose surname was Thaddaeus;

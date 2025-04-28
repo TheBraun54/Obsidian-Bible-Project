@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel judged Israel all the days of his life.
+Samuel judged Israel all the days of his life.

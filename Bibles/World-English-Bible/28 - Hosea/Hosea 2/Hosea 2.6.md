@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, I will hedge up thy way with thorns, and I will build a wall against her, that she shall not find her paths.
+Therefore, behold, I will hedge up your way with thorns, and I will build a wall against her, that she can't find her way.

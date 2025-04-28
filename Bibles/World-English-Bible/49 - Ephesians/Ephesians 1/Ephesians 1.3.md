@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed [be] the God and Father of our Lord Jesus Christ, who hath blessed us with every spiritual blessing in the heavenly [places] in Christ:
+Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenly places in Christ;

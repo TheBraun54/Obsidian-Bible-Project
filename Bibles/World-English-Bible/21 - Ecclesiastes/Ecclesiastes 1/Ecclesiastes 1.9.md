@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which hath been is that which shall be; and that which hath been done is that which shall be done: and there is no new thing under the sun.
+That which has been is that which shall be; and that which has been done is that which shall be done: and there is no new thing under the sun.

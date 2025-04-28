@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the sum of the prey that was taken, both of man and of beast, thou, and Eleazar the priest, and the heads of the fathers' [houses] of the congregation;
+"Take the sum of the prey that was taken, both of man and of animal, you, and Eleazar the priest, and the heads of the fathers' [houses] of the congregation;

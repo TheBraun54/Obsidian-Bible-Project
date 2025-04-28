@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put ye in the sickle; for the harvest is ripe: come, tread ye; for the winepress is full, the vats overflow; for their wickedness is great.
+Put in the sickle; for the harvest is ripe. Come, tread, for the winepress is full, the vats overflow, for their wickedness is great."

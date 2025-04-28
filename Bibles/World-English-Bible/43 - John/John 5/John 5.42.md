@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I know you, that ye have not the love of God in yourselves.
+But I know you, that you don't have God's love in yourselves.

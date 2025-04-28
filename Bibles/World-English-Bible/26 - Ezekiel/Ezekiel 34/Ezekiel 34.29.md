@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will raise up unto them a plantation for renown, and they shall be no more consumed with famine in the land, neither bear the shame of the nations any more.
+I will raise up to them a plantation for renown, and they shall be no more consumed with famine in the land, neither bear the shame of the nations any more.

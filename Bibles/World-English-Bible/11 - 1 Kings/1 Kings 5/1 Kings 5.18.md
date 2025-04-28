@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon's builders and Hiram's builders and the Gebalites did fashion them, and prepared the timber and the stones to build the house.
+Solomon's builders and Hiram's builders and the Gebalites did fashion them, and prepared the timber and the stones to build the house.

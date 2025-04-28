@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He was twenty and five years old when he began to reign; and he reigned twenty and nine years in Jerusalem: and his mother's name was Jehoaddin of Jerusalem.
+He was twenty-five years old when he began to reign; and he reigned twenty-nine years in Jerusalem: and his mother's name was Jehoaddin of Jerusalem.

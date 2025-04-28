@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that Tyre shall be forgotten seventy years, according to the days of one king: after the end of seventy years it shall be unto Tyre as in the song of the harlot.
+It will come to pass in that day that Tyre will be forgotten seventy years, according to the days of one king. After the end of seventy years it will be to Tyre like in the song of the prostitute.

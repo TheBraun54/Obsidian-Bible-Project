@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the priest of Midian had seven daughters: and they came and drew water, and filled the troughs to water their father's flock.
+Now the priest of Midian had seven daughters. They came and drew water, and filled the troughs to water their father's flock.

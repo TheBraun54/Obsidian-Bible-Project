@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and behold, a spirit taketh him, and he suddenly crieth out; and it teareth him that he foameth, and it hardly departeth from him, bruising him sorely.
+Behold, a spirit takes him, he suddenly cries out, and it convulses him so that he foams, and it hardly departs from him, bruising him severely.

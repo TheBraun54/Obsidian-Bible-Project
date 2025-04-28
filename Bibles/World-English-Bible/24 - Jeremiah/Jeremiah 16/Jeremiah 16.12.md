@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye have done evil more than your fathers; for, behold, ye walk every one after the stubbornness of his evil heart, so that ye hearken not unto me:
+and you have done evil more than your fathers; for, behold, you walk every one after the stubbornness of his evil heart, so that you don't listen to me:

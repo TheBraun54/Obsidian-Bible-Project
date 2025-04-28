@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I bought her to me for fifteen [pieces] of silver, and a homer of barley, and a half-homer of barley;
+So I bought her for myself for fifteen pieces of silver and a homer and a half of barley.

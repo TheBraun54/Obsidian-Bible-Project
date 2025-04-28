@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath declared it from the beginning, that we may know? and beforetime, that we may say, [He is] right? yea, there is none that declareth, yea, there is none that showeth, yea, there is none that heareth your words.
+Who has declared it from the beginning, that we may know? And before, that we may say, 'He is right?' Surely, there is no one who declares. Surely, there is no one who shows. Surely, there is no one who hears your words.

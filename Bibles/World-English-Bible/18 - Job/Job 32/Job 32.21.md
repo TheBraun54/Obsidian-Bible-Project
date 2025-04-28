@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let me not, I pray you, respect any man's person; Neither will I give flattering titles unto any man.
+Please don't let me respect any man's person, neither will I give flattering titles to any man.

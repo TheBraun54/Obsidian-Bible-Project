@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then thy elders and thy judges shall come forth, and they shall measure unto the cities which are round about him that is slain:
+then your elders and your judges shall come forth, and they shall measure to the cities which are around him who is slain:

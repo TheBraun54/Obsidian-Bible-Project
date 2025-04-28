@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If therefore thy whole body be full of light, having no part dark, it shall be wholly full of light, as when the lamp with its bright shining doth give thee light.
+If therefore your whole body is full of light, having no part dark, it will be wholly full of light, as when the lamp with its bright shining gives you light."

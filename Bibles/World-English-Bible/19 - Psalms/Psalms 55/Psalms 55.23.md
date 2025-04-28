@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O God, wilt bring them down into the pit of destruction: Bloodthirsty and deceitful men shall not live out half their days; But I will trust in thee.
+But you, God, will bring them down into the pit of destruction. Bloodthirsty and deceitful men shall not live out half their days, but I will trust in you. For the Chief Musician. To the tune of "Silent Dove in Distant Lands." A poem by David, when the Philistines seized him in Gath.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zedekiah the son of Josiah reigned as king, instead of Coniah the son of Jehoiakim, whom Nebuchadrezzar king of Babylon made king in the land of Judah.
+Zedekiah the son of Josiah reigned as king, instead of Coniah the son of Jehoiakim, whom Nebuchadnezzar king of Babylon made king in the land of Judah.

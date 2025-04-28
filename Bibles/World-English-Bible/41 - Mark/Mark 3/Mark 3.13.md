@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he goeth up into the mountain, and calleth unto him whom he himself would; and they went unto him.
+He went up into the mountain, and called to himself those whom he wanted, and they went to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they worshipped him, and returned to Jerusalem with great joy:
+They worshiped him, and returned to Jerusalem with great joy,

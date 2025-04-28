@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will get me unto the great men, and will speak unto them; for they know the way of Jehovah, and the law of their God. But these with one accord have broken the yoke, and burst the bonds.
+I will go to the great men, and will speak to them; for they know the way of Yahweh, and the law of their God." But these with one accord have broken the yoke, and burst the bonds.

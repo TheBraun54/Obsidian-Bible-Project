@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any woman that believeth hath widows, let her relieve them, and let not the church be burdened; that it may relieve them that are widows indeed.
+If any man or woman who believes has widows, let them relieve them, and don't let the assembly be burdened; that it might relieve those who are widows indeed.

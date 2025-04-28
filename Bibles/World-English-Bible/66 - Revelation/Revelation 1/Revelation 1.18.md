@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Living one; and I was dead, and behold, I am alive for evermore, and I have the keys of death and of Hades.
+and the Living one. I was dead, and behold, I am alive forevermore. Amen. I have the keys of Death and of Hades.

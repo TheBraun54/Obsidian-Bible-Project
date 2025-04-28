@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Him God raised up the third day, and gave him to be made manifest,
+God raised him up the third day, and gave him to be revealed,

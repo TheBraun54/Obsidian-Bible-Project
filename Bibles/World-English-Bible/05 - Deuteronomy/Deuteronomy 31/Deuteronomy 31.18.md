@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will surely hide my face in that day for all the evil which they shall have wrought, in that they are turned unto other gods.
+I will surely hide my face in that day for all the evil which they shall have worked, in that they are turned to other gods.

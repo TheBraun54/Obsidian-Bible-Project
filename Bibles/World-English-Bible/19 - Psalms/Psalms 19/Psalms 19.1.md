@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. The heavens declare the glory of God; And the firmament showeth his handiwork.
+The heavens declare the glory of God. The expanse shows his handiwork.

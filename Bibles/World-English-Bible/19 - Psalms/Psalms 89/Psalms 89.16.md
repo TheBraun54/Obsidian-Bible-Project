@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In thy name do they rejoice all the day; And in thy righteousness are they exalted.
+In your name they rejoice all day. In your righteousness, they are exalted.

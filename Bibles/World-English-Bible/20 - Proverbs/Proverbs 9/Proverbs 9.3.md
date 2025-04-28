@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She hath sent forth her maidens; She crieth upon the highest places of the city:
+She has sent out her maidens. She cries from the highest places of the city:

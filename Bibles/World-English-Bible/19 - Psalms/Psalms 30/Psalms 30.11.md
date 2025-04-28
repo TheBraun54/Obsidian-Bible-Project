@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast turned for me my mourning into dancing; Thou hast loosed my sackcloth, and girded me with gladness;
+You have turned my mourning into dancing for me. You have removed my sackcloth, and clothed me with gladness,

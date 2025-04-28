@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And put a knife to thy throat, If thou be a man given to appetite.
+put a knife to your throat, if you are a man given to appetite.

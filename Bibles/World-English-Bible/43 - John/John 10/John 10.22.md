@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was the feast of the dedication at Jerusalem:
+It was the Feast of the Dedication at Jerusalem.

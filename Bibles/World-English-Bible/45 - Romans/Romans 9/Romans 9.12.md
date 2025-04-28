@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it was said unto her, The elder shall serve the younger.
+it was said to her, "The elder will serve the younger."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus saw that he answered discreetly, he said unto him, Thou art not far from the kingdom of God. And no man after that durst ask him any question.
+When Jesus saw that he answered wisely, he said to him, "You are not far from the Kingdom of God." No one dared ask him any question after that.

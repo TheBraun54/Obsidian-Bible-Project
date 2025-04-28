@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Why is light given] to a man whose way is hid, And whom God hath hedged in?
+Why is light given to a man whose way is hidden, whom God has hedged in?

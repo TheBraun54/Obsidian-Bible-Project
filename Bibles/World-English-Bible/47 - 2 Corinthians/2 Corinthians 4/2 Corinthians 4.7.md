@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we have this treasure in earthen vessels, that the exceeding greatness of the power may be of God, and not from ourselves;
+But we have this treasure in clay vessels, that the exceeding greatness of the power may be of God, and not from ourselves.

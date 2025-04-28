@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that the glory of Jacob shall be made thin, and the fatness of his flesh shall wax lean.
+"It will happen in that day that the glory of Jacob will be made thin, and the fatness of his flesh will become lean.

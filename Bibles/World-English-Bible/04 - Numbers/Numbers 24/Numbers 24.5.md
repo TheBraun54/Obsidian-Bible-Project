@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How goodly are thy tents, O Jacob, Thy tabernacles, O Israel!
+How goodly are your tents, Jacob, and your tents, Israel!

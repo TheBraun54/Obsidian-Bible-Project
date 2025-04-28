@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say therefore unto the blind man again, What sayest thou of him, in that he opened thine eyes? And he said, He is a prophet.
+Therefore they asked the blind man again, "What do you say about him, because he opened your eyes?" He said, "He is a prophet."

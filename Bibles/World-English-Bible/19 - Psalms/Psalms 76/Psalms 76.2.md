@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In Salem also is his tabernacle, And his dwelling-place in Zion.
+His tabernacle is also in Salem; His dwelling place in Zion.

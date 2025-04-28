@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah grant you that ye may find rest, each of you in the house of her husband. Then she kissed them, and they lifted up their voice, and wept.
+Yahweh grant you that you may find rest, each of you in the house of her husband." Then she kissed them, and they lifted up their voice, and wept.

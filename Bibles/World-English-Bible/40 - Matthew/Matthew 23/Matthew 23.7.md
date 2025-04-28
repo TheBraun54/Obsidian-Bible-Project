@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the salutations in the marketplaces, and to be called of men, Rabbi.
+the salutations in the marketplaces, and to be called 'Rabbi, Rabbi' by men.

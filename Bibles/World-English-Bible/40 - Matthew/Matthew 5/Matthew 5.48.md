@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye therefore shall be perfect, as your heavenly Father is perfect.
+Therefore you shall be perfect, just as your Father in heaven is perfect.

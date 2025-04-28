@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the most part of the multitude spread their garments in the way; and others cut branches from the trees, and spread them in the way.
+A very great multitude spread their clothes on the road. Others cut branches from the trees, and spread them on the road.

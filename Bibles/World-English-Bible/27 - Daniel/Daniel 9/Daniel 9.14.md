@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore hath Jehovah watched over the evil, and brought it upon us; for Jehovah our God is righteous in all his works which he doeth, and we have not obeyed his voice.
+Therefore has Yahweh watched over the evil, and brought it on us; for Yahweh our God is righteous in all his works which he does, and we have not obeyed his voice.

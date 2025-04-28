@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, When a man shall accomplish a vow, the persons shall be for Jehovah by thy estimation.
+"Speak to the children of Israel, and say to them, 'When a man makes a vow, the persons shall be for Yahweh by your valuation.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of the heads of fathers' [houses], when they came to the house of Jehovah which is in Jerusalem, offered willingly for the house of God to set it up in its place:
+Some of the heads of fathers' [houses], when they came to the house of Yahweh which is in Jerusalem, offered willingly for the house of God to set it up in its place:

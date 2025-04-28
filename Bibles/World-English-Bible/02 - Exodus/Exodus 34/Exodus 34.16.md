@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou take of their daughters unto thy sons, and their daughters play the harlot after their gods, and make thy sons play the harlot after their gods.
+and you take of their daughters to your sons, and their daughters play the prostitute after their gods, and make your sons play the prostitute after their gods.

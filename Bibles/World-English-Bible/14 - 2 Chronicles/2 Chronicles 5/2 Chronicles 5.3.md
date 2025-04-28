@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the men of Israel assembled themselves unto the king at the feast, which was [in] the seventh month.
+And all the men of Israel assembled themselves to the king at the feast, which was [in] the seventh month.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He taketh the wise in their own craftiness; And the counsel of the cunning is carried headlong.
+He takes the wise in their own craftiness; the counsel of the cunning is carried headlong.

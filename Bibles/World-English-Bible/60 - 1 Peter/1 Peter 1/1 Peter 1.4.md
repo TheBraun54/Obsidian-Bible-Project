@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto an inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you,
+to an incorruptible and undefiled inheritance that doesn't fade away, reserved in Heaven for you,

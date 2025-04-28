@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in the high-priesthood of Annas and Caiaphas, the word of God came unto John the son of Zacharias in the wilderness.
+in the high priesthood of Annas and Caiaphas, the word of God came to John, the son of Zacharias, in the wilderness.

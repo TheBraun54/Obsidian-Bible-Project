@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the battle increased that day: and the king was stayed up in his chariot against the Syrians, and died at even; and the blood ran out of the wound into the bottom of the chariot.
+The battle increased that day. The king was propped up in his chariot facing the Syrians, and died at evening. The blood ran out of the wound into the bottom of the chariot.

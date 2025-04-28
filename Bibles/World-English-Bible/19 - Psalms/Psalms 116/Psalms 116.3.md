@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The cords of death compassed me, And the pains of Sheol gat hold upon me: I found trouble and sorrow.
+The cords of death surrounded me, the pains of Sheol got a hold of me. I found trouble and sorrow.

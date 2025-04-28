@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they should seek God, if haply they might feel after him and find him, though he is not far from each one of us:
+that they should seek the Lord, if perhaps they might reach out for him and find him, though he is not far from each one of us.

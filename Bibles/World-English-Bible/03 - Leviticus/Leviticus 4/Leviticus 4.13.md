@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the whole congregation of Israel err, and the thing be hid from the eyes of the assembly, and they have done any of the things which Jehovah hath commanded not to be done, and are guilty;
+"'If the whole congregation of Israel sins, and the thing is hidden from the eyes of the assembly, and they have done any of the things which Yahweh has commanded not to be done, and are guilty;

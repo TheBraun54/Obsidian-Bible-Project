@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel said, Alas! for Jehovah hath called these three kings together to deliver them into the hand of Moab.
+The king of Israel said, "Alas! For Yahweh has called these three kings together to deliver them into the hand of Moab."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If then thou countest me a partner, receive him as myself.
+If then you count me a partner, receive him as you would receive me.

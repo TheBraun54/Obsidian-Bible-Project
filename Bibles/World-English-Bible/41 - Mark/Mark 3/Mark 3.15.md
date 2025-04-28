@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to have authority to cast out demons:
+and to have authority to heal sicknesses and to cast out demons:

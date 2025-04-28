@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that at what time ye hear the sound of the cornet, flute, harp, sackbut, psaltery, dulcimer, and all kinds of music, ye fall down and worship the golden image that Nebuchadnezzar the king hath set up;
+that whenever you hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, you fall down and worship the golden image that Nebuchadnezzar the king has set up;

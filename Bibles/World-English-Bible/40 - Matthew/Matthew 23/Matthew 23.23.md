@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you, scribes and Pharisees, hypocrites! for ye tithe mint and anise and cummin, and have left undone the weightier matters of the law, justice, and mercy, and faith: but these ye ought to have done, and not to have left the other undone.
+"Woe to you, scribes and Pharisees, hypocrites! For you tithe mint, dill, and cumin, and have left undone the weightier matters of the law: justice, mercy, and faith. But you ought to have done these, and not to have left the other undone.

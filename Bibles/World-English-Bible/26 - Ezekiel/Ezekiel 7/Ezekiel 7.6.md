@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An end is come, the end is come; it awaketh against thee; behold, it cometh.
+An end has come, the end has come; it awakes against you; behold, it comes.

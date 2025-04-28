@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all these kings met together; and they came and encamped together at the waters of Merom, to fight with Israel.
+All these kings met together; and they came and encamped together at the waters of Merom, to fight with Israel.

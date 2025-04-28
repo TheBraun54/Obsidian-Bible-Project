@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but with righteousness shall he judge the poor, and decide with equity for the meek of the earth; and he shall smite the earth with the rod of his mouth; and with the breath of his lips shall he slay the wicked.
+but with righteousness he will judge the poor, and decide with equity for the humble of the earth. He will strike the earth with the rod of his mouth; and with the breath of his lips he will kill the wicked.

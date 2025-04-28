@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a nation of fierce countenance, that shall not regard the person of the old, nor show favor to the young,
+a nation of fierce facial expressions, that shall not respect the person of the old, nor show favor to the young,

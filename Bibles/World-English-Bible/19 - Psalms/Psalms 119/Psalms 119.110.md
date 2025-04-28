@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked have laid a snare for me; Yet have I not gone astray from thy precepts.
+The wicked have laid a snare for me, yet I haven't gone astray from your precepts.

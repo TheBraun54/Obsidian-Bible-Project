@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be of the same mind one toward another. Set not your mind on high things, but condescend to things that are lowly. Be not wise in your own conceits.
+Be of the same mind one toward another. Don't set your mind on high things, but associate with the humble. Don't be wise in your own conceits.

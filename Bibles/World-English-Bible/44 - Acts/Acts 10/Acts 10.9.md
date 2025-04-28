@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now on the morrow, as they were on their journey, and drew nigh unto the city, Peter went up upon the housetop to pray, about the sixth hour:
+Now on the next day as they were on their journey, and got close to the city, Peter went up on the housetop to pray at about noon.

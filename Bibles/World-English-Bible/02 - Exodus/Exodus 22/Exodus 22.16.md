@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man entice a virgin that is not betrothed, and lie with her, he shall surely pay a dowry for her to be his wife.
+"If a man entices a virgin who isn't pledged to be married, and lies with her, he shall surely pay a dowry for her to be his wife.

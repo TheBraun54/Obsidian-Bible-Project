@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Michal took the teraphim, and laid it in the bed, and put a pillow of goats' [hair] at the head thereof, and covered it with the clothes.
+Michal took the teraphim, and laid it in the bed, and put a pillow of goats' [hair] at its head, and covered it with the clothes.

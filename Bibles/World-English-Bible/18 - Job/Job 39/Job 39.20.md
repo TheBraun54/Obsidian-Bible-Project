@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou made him to leap as a locust? The glory of his snorting is terrible.
+Have you made him to leap as a locust? The glory of his snorting is awesome.

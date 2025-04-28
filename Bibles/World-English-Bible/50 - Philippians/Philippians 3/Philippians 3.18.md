@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For many walk, of whom I told you often, and now tell you even weeping, [that they are] the enemies of the cross of Christ:
+For many walk, of whom I told you often, and now tell you even weeping, as the enemies of the cross of Christ,

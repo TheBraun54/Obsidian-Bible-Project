@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only take heed to thyself, and keep thy soul diligently, lest thou forget the things which thine eyes saw, and lest they depart from thy heart all the days of thy life; but make them known unto thy children and thy children's children;
+Only take heed to yourself, and keep your soul diligently, lest you forget the things which your eyes saw, and lest they depart from your heart all the days of your life; but make them known to your children and your children's children;

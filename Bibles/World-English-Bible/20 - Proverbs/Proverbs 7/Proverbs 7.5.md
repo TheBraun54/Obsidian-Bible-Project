@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That they may keep thee from the strange woman, From the foreigner that flattereth with her words.
+that they may keep you from the strange woman, from the foreigner who flatters with her words.

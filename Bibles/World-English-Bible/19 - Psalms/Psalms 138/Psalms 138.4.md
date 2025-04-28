@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the kings of the earth shall give thee thanks, O Jehovah, For they have heard the words of thy mouth.
+All the kings of the earth will give you thanks, Yahweh, for they have heard the words of your mouth.

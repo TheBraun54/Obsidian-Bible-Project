@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they lodged round about the house of God, because the charge [thereof] was upon them; and to them pertained the opening thereof morning by morning.
+They lodged around the house of God, because that duty was on them; and to them pertained its opening morning by morning.

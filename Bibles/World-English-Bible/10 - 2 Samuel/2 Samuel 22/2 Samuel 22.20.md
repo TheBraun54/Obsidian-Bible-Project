@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He brought me forth also into a large place; He delivered me, because he delighted in me.
+He also brought me out into a large place. He delivered me, because he delighted in me.

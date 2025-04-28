@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, Hearken not unto the words of the prophets that prophesy unto you: they teach you vanity; they speak a vision of their own heart, and not out of the mouth of Jehovah.
+Thus says Yahweh of Armies, Don't listen to the words of the prophets who prophesy to you: they teach you vanity; they speak a vision of their own heart, and not out of the mouth of Yahweh.

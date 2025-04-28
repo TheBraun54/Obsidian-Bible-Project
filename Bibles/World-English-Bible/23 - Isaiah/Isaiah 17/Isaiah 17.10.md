@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast forgotten the God of thy salvation, and hast not been mindful of the rock of thy strength; therefore thou plantest pleasant plants, and settest it with strange slips.
+For you have forgotten the God of your salvation, and have not remembered the rock of your strength. Therefore you plant pleasant plants, and set out foreign seedlings.

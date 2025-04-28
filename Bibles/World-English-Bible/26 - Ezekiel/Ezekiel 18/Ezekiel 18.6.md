@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, neither hath defiled his neighbor's wife, neither hath come near to a woman in her impurity,
+and has not eaten on the mountains, neither has lifted up his eyes to the idols of the house of Israel, neither has defiled his neighbor's wife, neither has come near to a woman in her impurity,

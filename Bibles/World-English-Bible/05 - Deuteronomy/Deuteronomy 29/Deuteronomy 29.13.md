@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that he may establish thee this day unto himself for a people, and that he may be unto thee a God, as he spake unto thee, and as he sware unto thy fathers, to Abraham, to Isaac, and to Jacob.
+that he may establish you this day to himself for a people, and that he may be to you a God, as he spoke to you, and as he swore to your fathers, to Abraham, to Isaac, and to Jacob.

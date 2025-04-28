@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he hath set his love upon me, therefore will I deliver him: I will set him on high, because he hath known my name.
+"Because he has set his love on me, therefore I will deliver him. I will set him on high, because he has known my name.

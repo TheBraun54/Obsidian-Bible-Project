@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, I pray thee, hearken thou also unto the voice of thy handmaid, and let me set a morsel of bread before thee; and eat, that thou mayest have strength, when thou goest on thy way.
+Now therefore, please listen also to the voice of your handmaid, and let me set a morsel of bread before you; and eat, that you may have strength, when you go on your way."

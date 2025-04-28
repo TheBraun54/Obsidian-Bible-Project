@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the drinking was according to the law; none could compel: for so the king had appointed to all the officers of his house, that they should do according to every man's pleasure.
+In accordance with the law, the drinking was not compulsory; for so the king had instructed all the officials of his house, that they should do according to every man's pleasure.

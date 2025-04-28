@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or can one walk upon hot coals, And his feet not be scorched?
+Or can one walk on hot coals, and his feet not be scorched?

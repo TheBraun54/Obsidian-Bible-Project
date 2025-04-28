@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it is good for me to draw near unto God: I have made the Lord Jehovah my refuge, That I may tell of all thy works.
+But it is good for me to come close to God. I have made the Lord Yahweh my refuge, that I may tell of all your works. A contemplation by Asaph.

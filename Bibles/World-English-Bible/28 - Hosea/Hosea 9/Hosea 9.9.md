@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have deeply corrupted themselves, as in the days of Gibeah: he will remember their iniquity, he will visit their sins.
+They have deeply corrupted themselves, as in the days of Gibeah. He will remember their iniquity. He will punish them for their sins.

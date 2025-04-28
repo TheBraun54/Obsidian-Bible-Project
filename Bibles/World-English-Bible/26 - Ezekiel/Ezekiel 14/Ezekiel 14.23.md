@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall comfort you, when ye see their way and their doings; and ye shall know that I have not done without cause all that I have done in it, saith the Lord Jehovah.
+They shall comfort you, when you see their way and their doings; and you shall know that I have not done without cause all that I have done in it, says the Lord Yahweh.

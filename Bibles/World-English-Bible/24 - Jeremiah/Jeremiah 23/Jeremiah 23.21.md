@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I sent not these prophets, yet they ran: I spake not unto them, yet they prophesied.
+I sent not these prophets, yet they ran: I didn't speak to them, yet they prophesied.

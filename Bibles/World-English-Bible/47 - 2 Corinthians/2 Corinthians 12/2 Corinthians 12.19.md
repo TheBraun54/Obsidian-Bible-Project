@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye think all this time that we are excusing ourselves unto you. In the sight of God speak we in Christ. But all things, beloved, [are] for your edifying.
+Again, do you think that we are excusing ourselves to you? In the sight of God we speak in Christ. But all things, beloved, are for your edifying.

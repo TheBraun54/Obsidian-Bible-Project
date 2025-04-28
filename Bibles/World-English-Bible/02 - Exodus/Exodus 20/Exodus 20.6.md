@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and showing lovingkindness unto thousands of them that love me and keep my commandments.
+and showing loving kindness to thousands of those who love me and keep my commandments.

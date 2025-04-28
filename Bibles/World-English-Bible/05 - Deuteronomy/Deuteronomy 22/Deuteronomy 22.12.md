@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt make thee fringes upon the four borders of thy vesture, wherewith thou coverest thyself.
+You shall make yourselves fringes on the four borders of your cloak, with which you cover yourself.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the tabernacle, its tent, and its covering, its clasps, and its boards, its bars, its pillars, and its sockets;
+the tabernacle, its outer covering, its roof, its clasps, its boards, its bars, its pillars, and its sockets;

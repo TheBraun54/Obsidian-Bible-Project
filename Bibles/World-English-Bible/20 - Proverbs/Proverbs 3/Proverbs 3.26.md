@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will be thy confidence, And will keep thy foot from being taken.
+for Yahweh will be your confidence, and will keep your foot from being taken.

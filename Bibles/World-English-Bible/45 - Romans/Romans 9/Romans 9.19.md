@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt say then unto me, Why doth he still find fault? For who withstandeth his will?
+You will say then to me, "Why does he still find fault? For who withstands his will?"

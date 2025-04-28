@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye men of Israel, hear these words: Jesus of Nazareth, a man approved of God unto you by mighty works and wonders and signs which God did by him in the midst of you, even as ye yourselves know; [
+"Men of Israel, hear these words! Jesus of Nazareth, a man approved by God to you by mighty works and wonders and signs which God did by him in the midst of you, even as you yourselves know,

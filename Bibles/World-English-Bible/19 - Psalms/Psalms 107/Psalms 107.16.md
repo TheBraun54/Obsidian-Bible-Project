@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath broken the gates of brass, And cut the bars of iron in sunder.
+For he has broken the gates of brass, and cut through bars of iron.

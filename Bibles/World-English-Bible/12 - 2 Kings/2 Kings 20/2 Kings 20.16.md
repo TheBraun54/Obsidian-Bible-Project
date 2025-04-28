@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaiah said unto Hezekiah, Hear the word of Jehovah.
+Isaiah said to Hezekiah, "Hear the word of Yahweh.

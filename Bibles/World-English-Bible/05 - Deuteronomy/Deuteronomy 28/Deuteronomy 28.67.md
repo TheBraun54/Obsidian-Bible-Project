@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the morning thou shalt say, Would it were even! and at even thou shalt say, Would it were morning! for the fear of thy heart which thou shalt fear, and for the sight of thine eyes which thou shalt see.
+In the morning you shall say, "I wish it were evening!" and at evening you shall say, "I wish it were morning!" for the fear of your heart which you shall fear, and for the sight of your eyes which you shall see.

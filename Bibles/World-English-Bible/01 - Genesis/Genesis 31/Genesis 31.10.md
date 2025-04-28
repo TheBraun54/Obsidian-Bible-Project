@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the time that the flock conceive, that I lifted up mine eyes, and saw in a dream, and, behold, the he-goats which leaped upon the flock were ringstreaked, speckled, and grizzled.
+It happened during mating season that I lifted up my eyes, and saw in a dream, and behold, the male goats which leaped on the flock were streaked, speckled, and grizzled.

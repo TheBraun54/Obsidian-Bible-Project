@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice over her, thou heaven, and ye saints, and ye apostles, and ye prophets; for God hath judged your judgment on her.
+"Rejoice over her, O heaven, you saints, apostles, and prophets; for God has judged your judgment on her."

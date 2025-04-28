@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-without father, without mother, without genealogy, having neither beginning of days nor end of life, but made like unto the Son of God), abideth a priest continually.
+without father, without mother, without genealogy, having neither beginning of days nor end of life, but made like the Son of God), remains a priest continually.

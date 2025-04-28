@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I turned and came down from the mount, and put the tables in the ark which I had made; and there they are as Jehovah commanded me.
+I turned and came down from the mountain, and put the tables in the ark which I had made; and there they are as Yahweh commanded me.

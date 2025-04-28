@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even a fool, when he holdeth his peace, is counted wise; When he shutteth his lips, he is [esteemed as] prudent.
+Even a fool, when he keeps silent, is counted wise. When he shuts his lips, he is thought to be discerning.

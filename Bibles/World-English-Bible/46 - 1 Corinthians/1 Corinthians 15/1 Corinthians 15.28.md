@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all things have been subjected unto him, then shall the Son also himself be subjected to him that did subject all things unto him, that God may be all in all.
+When all things have been subjected to him, then the Son will also himself be subjected to him who subjected all things to him, that God may be all in all.

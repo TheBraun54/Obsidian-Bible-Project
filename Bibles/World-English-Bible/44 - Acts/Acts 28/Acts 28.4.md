@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the barbarians saw the [venomous] creature hanging from his hand, they said one to another, No doubt this man is a murderer, whom, though he hath escaped from the sea, yet Justice hath not suffered to live.
+When the natives saw the creature hanging from his hand, they said one to another, "No doubt this man is a murderer, whom, though he has escaped from the sea, yet Justice has not allowed to live."

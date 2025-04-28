@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there sat in the window a certain young man named Eutychus, borne down with deep sleep; and as Paul discoursed yet longer, being borne down by his sleep he fell down from the third story, and was taken up dead.
+A certain young man named Eutychus sat in the window, weighed down with deep sleep. As Paul spoke still longer, being weighed down by his sleep, he fell down from the third story, and was taken up dead.

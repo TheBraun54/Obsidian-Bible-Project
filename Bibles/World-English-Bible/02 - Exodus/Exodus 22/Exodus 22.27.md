@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for that is his only covering, it is his garment for his skin: wherein shall he sleep? and it shall come to pass, when he crieth unto me, that I will hear; for I am gracious.
+for that is his only covering, it is his garment for his skin. What would he sleep in? It will happen, when he cries to me, that I will hear, for I am gracious.

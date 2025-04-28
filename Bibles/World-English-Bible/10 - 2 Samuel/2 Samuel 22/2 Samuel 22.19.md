@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They came upon me in the day of my calamity; But Jehovah was my stay.
+They came on me in the day of my calamity, but Yahweh was my support.

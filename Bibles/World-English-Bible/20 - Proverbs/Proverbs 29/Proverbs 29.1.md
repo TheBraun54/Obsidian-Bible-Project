@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that being often reproved hardeneth his neck Shall suddenly be destroyed, and that without remedy.
+He who is often rebuked and stiffens his neck will be destroyed suddenly, with no remedy.

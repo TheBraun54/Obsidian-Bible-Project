@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy temples are like a piece of a pomegranate Behind thy veil.
+Your temples are like a piece of a pomegranate behind your veil.

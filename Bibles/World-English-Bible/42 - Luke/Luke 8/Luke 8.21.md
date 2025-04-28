@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said unto them, My mother and my brethren are these that hear the word of God, and do it.
+But he answered them, "My mother and my brothers are these who hear the word of God, and do it."

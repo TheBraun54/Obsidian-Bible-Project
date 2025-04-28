@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his father-in-law, the damsel's father, retained him; and he abode with him three days: so they did eat and drink, and lodged there.
+His father-in-law, the young lady's father, retained him; and he stayed with him three days: so they ate and drink, and lodged there.

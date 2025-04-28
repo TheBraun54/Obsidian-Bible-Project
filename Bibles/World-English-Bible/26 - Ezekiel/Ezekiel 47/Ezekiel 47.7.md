@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when I had returned, behold, upon the bank of the river were very many trees on the one side and on the other.
+Now when I had returned, behold, on the bank of the river were very many trees on the one side and on the other.

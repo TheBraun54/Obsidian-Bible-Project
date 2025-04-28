@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall make a firm covenant with many for one week: and in the midst of the week he shall cause the sacrifice and the oblation to cease; and upon the wing of abominations [shall come] one that maketh desolate; and even unto the full end, and that determined, shall [wrath] be poured out upon the desolate.
+He shall make a firm covenant with many for one week: and in the midst of the week he shall cause the sacrifice and the offering to cease; and on the wing of abominations [shall come] one who makes desolate; and even to the full end, and that determined, shall [wrath] be poured out on the desolate.

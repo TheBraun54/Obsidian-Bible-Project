@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah thy God will cast out those nations before thee by little and little: thou mayest not consume them at once, lest the beasts of the field increase upon thee.
+Yahweh your God will cast out those nations before you by little and little: you may not consume them at once, lest the animals of the field increase on you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say thou unto the king and to the queen-mother, Humble yourselves, sit down; for your headtires are come down, even the crown of your glory.
+Say to the king and to the queen mother, Humble yourselves, sit down; for your headdresses have come down, even the crown of your glory.

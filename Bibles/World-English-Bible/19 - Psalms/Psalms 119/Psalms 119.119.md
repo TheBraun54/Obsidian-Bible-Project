@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou puttest away all the wicked of the earth like dross: Therefore I love thy testimonies.
+You put away all the wicked of the earth like dross. Therefore I love your testimonies.

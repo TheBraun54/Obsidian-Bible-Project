@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehoshaphat said, Is there not here a prophet of Jehovah, that we may inquire of Jehovah by him? And one of the king of Israel's servants answered and said, Elisha the son of Shaphat is here, who poured water on the hands of Elijah.
+But Jehoshaphat said, "Isn't there here a prophet of Yahweh, that we may inquire of Yahweh by him?" One of the king of Israel's servants answered, "Elisha the son of Shaphat is here, who poured water on the hands of Elijah."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked is a ransom for the righteous; And the treacherous [cometh] in the stead of the upright.
+The wicked is a ransom for the righteous; the treacherous for the upright.

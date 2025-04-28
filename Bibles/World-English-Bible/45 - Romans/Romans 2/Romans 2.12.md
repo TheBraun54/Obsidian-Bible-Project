@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as many as have sinned without law shall also perish without the law: and as many as have sinned under the law shall be judged by the law;
+For as many as have sinned without law will also perish without the law. As many as have sinned under the law will be judged by the law.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent young men of the children of Israel, who offered burnt-offerings, and sacrificed peace-offerings of oxen unto Jehovah.
+He sent young men of the children of Israel, who offered burnt offerings and sacrificed peace offerings of cattle to Yahweh.

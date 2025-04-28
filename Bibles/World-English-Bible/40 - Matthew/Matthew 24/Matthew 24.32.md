@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now from the fig tree learn her parable: when her branch is now become tender, and putteth forth its leaves, ye know that the summer is nigh;
+"Now from the fig tree learn this parable. When its branch has now become tender, and puts forth its leaves, you know that the summer is near.

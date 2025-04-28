@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will send a fire on the wall of Tyre, and it shall devour the palaces thereof.
+but I will send a fire on the wall of Tyre, and it will devour its palaces."

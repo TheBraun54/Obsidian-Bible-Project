@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In God (I will praise [his] word), In Jehovah (I will praise [his] word),
+In God, I will praise his word. In Yahweh, I will praise his word.

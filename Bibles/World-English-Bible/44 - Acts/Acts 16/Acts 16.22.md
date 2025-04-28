@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitude rose up together against them: and the magistrates rent their garments off them, and commanded to beat them with rods.
+The multitude rose up together against them, and the magistrates tore their clothes off of them, and commanded them to be beaten with rods.

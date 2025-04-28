@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For David, after he had in his own generation served the counsel of God, fell asleep, and was laid unto his fathers, and saw corruption:
+For David, after he had in his own generation served the counsel of God, fell asleep, and was laid with his fathers, and saw decay.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our fathers sinned, and are not; And we have borne their iniquities.
+Our fathers sinned, and are no more; We have borne their iniquities.

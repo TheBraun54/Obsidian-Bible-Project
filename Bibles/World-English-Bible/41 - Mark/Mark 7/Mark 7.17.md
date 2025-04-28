@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was entered into the house from the multitude, his disciples asked of him the parable.
+When he had entered into a house away from the multitude, his disciples asked him about the parable.

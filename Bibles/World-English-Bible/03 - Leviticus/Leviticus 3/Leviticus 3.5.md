@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron's sons shall burn it on the altar upon the burnt-offering, which is upon the wood that is on the fire: it is an offering made by fire, of a sweet savor unto Jehovah.
+Aaron's sons shall burn it on the altar on the burnt offering, which is on the wood that is on the fire: it is an offering made by fire, of a pleasant aroma to Yahweh.

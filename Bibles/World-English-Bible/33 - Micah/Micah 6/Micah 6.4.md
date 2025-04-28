@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I brought thee up out of the land of Egypt, and redeemed thee out of the house of bondage; and I sent before thee Moses, Aaron, and Miriam.
+For I brought you up out of the land of Egypt, and redeemed you out of the house of bondage. I sent before you Moses, Aaron, and Miriam.

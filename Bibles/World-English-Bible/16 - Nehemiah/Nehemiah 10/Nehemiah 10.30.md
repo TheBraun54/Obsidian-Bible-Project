@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that we would not give our daughters unto the peoples of the land, nor take their daughters for our sons;
+and that we would not give our daughters to the peoples of the land, nor take their daughters for our sons;

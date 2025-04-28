@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naomi her mother-in-law said unto her, My daughter, shall I not seek rest for thee, that it may be well with thee?
+Naomi her mother-in-law said to her, "My daughter, shall I not seek rest for you, that it may be well with you?

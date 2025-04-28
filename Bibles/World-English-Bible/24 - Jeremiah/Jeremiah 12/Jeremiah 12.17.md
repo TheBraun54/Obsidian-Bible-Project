@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if they will not hear, then will I pluck up that nation, plucking up and destroying it, saith Jehovah.
+But if they will not hear, then will I pluck up that nation, plucking up and destroying it, says Yahweh.

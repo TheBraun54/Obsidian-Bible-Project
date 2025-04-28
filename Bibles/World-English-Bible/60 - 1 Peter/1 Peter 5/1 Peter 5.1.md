@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The elders among you I exhort, who am a fellow-elder, and a witness of the sufferings of Christ, who am also a partaker of the glory that shall be revealed:
+I exhort the elders among you, as a fellow elder, and a witness of the sufferings of Christ, and who will also share in the glory that will be revealed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall mortal man be more just than God? Shall a man be more pure than his Maker?
+'Shall mortal man be more just than God? Shall a man be more pure than his Maker?

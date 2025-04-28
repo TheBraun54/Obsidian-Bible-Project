@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Daniel spake and said, I saw in my vision by night, and, behold, the four winds of heaven brake forth upon the great sea.
+Daniel spoke and said, I saw in my vision by night, and, behold, the four winds of the sky broke forth on the great sea.

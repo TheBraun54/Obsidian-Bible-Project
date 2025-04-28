@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the swine, because he parteth the hoof, and is clovenfooted, but cheweth not the cud, he is unclean unto you.
+The pig, because he has a split hoof, and is cloven-footed, but doesn't chew the cud, he is unclean to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest again when I come my God should humble me before you, and I should mourn for many of them that have sinned heretofore, and repented not of the uncleanness and fornication and lasciviousness which they committed.
+that again when I come my God would humble me before you, and I would mourn for many of those who have sinned before now, and not repented of the uncleanness and sexual immorality and lustfulness which they committed.

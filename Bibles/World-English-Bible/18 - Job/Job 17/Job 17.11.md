@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My days are past, my purposes are broken off, Even the thoughts of my heart.
+My days are past, my plans are broken off, as are the thoughts of my heart.

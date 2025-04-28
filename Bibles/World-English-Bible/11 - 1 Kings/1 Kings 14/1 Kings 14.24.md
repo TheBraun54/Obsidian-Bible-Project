@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there were also sodomites in the land: they did according to all the abominations of the nations which Jehovah drove out before the children of Israel.
+and there were also sodomites in the land: they did according to all the abominations of the nations which Yahweh drove out before the children of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He remembereth his nobles: they stumble in their march; they make haste to the wall thereof, and the mantelet is prepared.
+He summons his picked troops. They stumble on their way. They dash to its wall, and the protective shield is put in place.

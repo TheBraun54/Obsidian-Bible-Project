@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the oath of Jehovah shall be between them both, whether he hath not put his hand unto his neighbor's goods; and the owner thereof shall accept it, and he shall not make restitution.
+the oath of Yahweh shall be between them both, whether he hasn't put his hand to his neighbor's goods; and its owner shall accept it, and he shall not make restitution.

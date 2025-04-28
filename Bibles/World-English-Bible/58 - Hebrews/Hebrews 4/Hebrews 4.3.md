@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we who have believed do enter into that rest; even as he hath said, As I sware in my wrath, They shall not enter into my rest: although the works were finished from the foundation of the world.
+For we who have believed do enter into that rest, even as he has said, "As I swore in my wrath, they will not enter into my rest;" although the works were finished from the foundation of the world.

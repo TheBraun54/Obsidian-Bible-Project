@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say unto them, Whatsoever man there be of the house of Israel, or of the strangers that sojourn among them, that offereth a burnt-offering or sacrifice,
+"You shall say to them, 'Any man there is of the house of Israel, or of the strangers who live as foreigners among them, who offers a burnt offering or sacrifice,

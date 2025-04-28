@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king said to the servants, Bind him hand and foot, and cast him out into the outer darkness; there shall be the weeping and the gnashing of teeth.
+Then the king said to the servants, 'Bind him hand and foot, take him away, and throw him into the outer darkness; there is where the weeping and grinding of teeth will be.'

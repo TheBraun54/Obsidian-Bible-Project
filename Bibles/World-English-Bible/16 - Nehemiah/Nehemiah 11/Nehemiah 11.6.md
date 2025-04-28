@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the sons of Perez that dwelt in Jerusalem were four hundred threescore and eight valiant men.
+All the sons of Perez who lived in Jerusalem were four hundred sixty-eight valiant men.

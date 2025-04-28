@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-together with Onesimus, the faithful and beloved brother, who is one of you. They shall make known unto you all things that [are done] here.
+together with Onesimus, the faithful and beloved brother, who is one of you. They will make known to you everything that is going on here.

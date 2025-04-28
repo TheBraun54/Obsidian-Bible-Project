@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan answered and said to Adonijah, Verily our lord king David hath made Solomon king:
+Jonathan answered Adonijah, "Most certainly our lord king David has made Solomon king.

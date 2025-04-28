@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the laver between the tent of meeting and the altar, and put water therein, wherewith to wash.
+He set the basin between the Tent of Meeting and the altar, and put water therein, with which to wash.

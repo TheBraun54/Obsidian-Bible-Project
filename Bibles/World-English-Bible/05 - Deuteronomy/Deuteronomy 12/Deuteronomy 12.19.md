@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed to thyself that thou forsake not the Levite as long as thou livest in thy land.
+Take heed to yourself that you don't forsake the Levite as long as you live in your land.

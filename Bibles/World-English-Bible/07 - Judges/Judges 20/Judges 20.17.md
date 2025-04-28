@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel, besides Benjamin, were numbered four hundred thousand men that drew sword: all these were men of war.
+The men of Israel, besides Benjamin, were numbered four hundred thousand men who drew sword: all these were men of war.

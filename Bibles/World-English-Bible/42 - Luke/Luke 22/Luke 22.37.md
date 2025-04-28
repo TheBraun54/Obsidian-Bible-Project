@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I say unto you, that this which is written must be fulfilled in me, And he was reckoned with transgressors: for that which concerneth me hath fulfilment.
+For I tell you that this which is written must still be fulfilled in me: 'He was counted with transgressors.' For that which concerns me has an end."

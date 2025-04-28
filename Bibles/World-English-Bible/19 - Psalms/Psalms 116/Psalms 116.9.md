@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will walk before Jehovah In the land of the living.
+I will walk before Yahweh in the land of the living.

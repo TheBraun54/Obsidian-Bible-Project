@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteousness of the upright shall deliver them; But the treacherous shall be taken in their own iniquity.
+The righteousness of the upright shall deliver them, but the unfaithful will be trapped by evil desires.

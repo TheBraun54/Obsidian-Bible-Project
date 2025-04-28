@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are new every morning; great is thy faithfulness.
+They are new every morning; great is your faithfulness.

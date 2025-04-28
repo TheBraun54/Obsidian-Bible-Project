@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the suburbs of the cities, which ye shall give unto the Levites, shall be from the wall of the city and outward a thousand cubits round about.
+"The suburbs of the cities, which you shall give to the Levites, shall be from the wall of the city and outward one thousand cubits around it.

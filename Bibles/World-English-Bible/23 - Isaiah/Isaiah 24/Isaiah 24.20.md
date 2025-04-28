@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth shall stagger like a drunken man, and shall sway to and fro like a hammock; and the transgression thereof shall be heavy upon it, and it shall fall, and not rise again.
+The earth will stagger like a drunken man, and will sway back and forth like a hammock. Its disobedience will be heavy on it, and it will fall and not rise again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah therefore be judge, and give sentence between me and thee, and see, and plead my cause, and deliver me out of thy hand.
+May Yahweh therefore be judge, and give sentence between me and you, and see, and plead my cause, and deliver me out of your hand."

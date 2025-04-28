@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Woe unto you lawyers also! for ye load men with burdens grievous to be borne, and ye yourselves touch not the burdens with one of your fingers.
+He said, "Woe to you lawyers also! For you load men with burdens that are difficult to carry, and you yourselves won't even lift one finger to help carry those burdens.

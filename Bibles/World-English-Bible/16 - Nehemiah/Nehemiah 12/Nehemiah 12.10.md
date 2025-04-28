@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeshua begat Joiakim, and Joiakim begat Eliashib, and Eliashib begat Joiada,
+Jeshua became the father of Joiakim, and Joiakim became the father of Eliashib, and Eliashib became the father of Joiada,

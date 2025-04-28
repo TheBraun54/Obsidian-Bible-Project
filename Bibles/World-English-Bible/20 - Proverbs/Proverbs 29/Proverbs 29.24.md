@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso is partner with a thief hateth his own soul; He heareth the adjuration and uttereth nothing.
+Whoever is an accomplice of a thief is an enemy of his own soul. He takes an oath, but dares not testify.

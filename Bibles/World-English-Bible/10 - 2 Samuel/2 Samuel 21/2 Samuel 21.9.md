@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he delivered them into the hands of the Gibeonites, and they hanged them in the mountain before Jehovah, and they fell [all] seven together. And they were put to death in the days of harvest, in the first days, at the beginning of barley harvest.
+He delivered them into the hands of the Gibeonites, and they hanged them in the mountain before Yahweh, and all seven of them fell together. They were put to death in the days of harvest, in the first days, at the beginning of barley harvest.

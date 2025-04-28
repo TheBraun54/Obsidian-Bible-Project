@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He believeth not that he shall return out of darkness, And he is waited for of the sword.
+He doesn't believe that he shall return out of darkness. He is waited for by the sword.

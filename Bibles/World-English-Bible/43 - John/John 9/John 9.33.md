@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If this man were not from God, he could do nothing.
+If this man were not from God, he could do nothing."

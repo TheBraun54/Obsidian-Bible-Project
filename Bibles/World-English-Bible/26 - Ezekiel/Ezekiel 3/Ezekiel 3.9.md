@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As an adamant harder than flint have I made thy forehead: fear them not, neither be dismayed at their looks, though they are a rebellious house.
+As an adamant harder than flint have I made your forehead: don't be afraid of them, neither be dismayed at their looks, though they are a rebellious house.

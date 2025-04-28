@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and upon Kiriathaim, and upon Beth-gamul, and upon Beth-meon,
+and on Kiriathaim, and on Beth Gamul, and on Beth Meon,

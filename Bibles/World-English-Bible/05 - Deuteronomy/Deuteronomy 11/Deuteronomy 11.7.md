@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but your eyes have seen all the great work of Jehovah which he did.
+but your eyes have seen all the great work of Yahweh which he did.

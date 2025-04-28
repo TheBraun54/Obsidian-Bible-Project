@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron went from the presence of the assembly unto the door of the tent of meeting, and fell upon their faces: and the glory of Jehovah appeared unto them.
+Moses and Aaron went from the presence of the assembly to the door of the Tent of Meeting, and fell on their faces: and the glory of Yahweh appeared to them.

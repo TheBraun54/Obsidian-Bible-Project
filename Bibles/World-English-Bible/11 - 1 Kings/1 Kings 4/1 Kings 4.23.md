@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ten fat oxen, and twenty oxen out of the pastures, and a hundred sheep, besides harts, and gazelles, and roebucks, and fatted fowl.
+ten head of fat cattle, and twenty head of cattle out of the pastures, and one hundred sheep, besides harts, and gazelles, and roebucks, and fattened fowl.

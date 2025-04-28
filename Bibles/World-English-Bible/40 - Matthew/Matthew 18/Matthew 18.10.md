@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See that ye despise not one of these little ones; for I say unto you, that in heaven their angels do always behold the face of my Father who is in heaven.
+See that you don't despise one of these little ones, for I tell you that in heaven their angels always see the face of my Father who is in heaven.

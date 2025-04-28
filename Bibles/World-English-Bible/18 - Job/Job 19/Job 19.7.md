@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I cry out of wrong, but I am not heard: I cry for help, but there is no justice.
+"Behold, I cry out of wrong, but I am not heard. I cry for help, but there is no justice.

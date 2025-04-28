@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He smote also all the first-born in their land, The chief of all their strength.
+He struck also all the firstborn in their land, the first fruits of all their manhood.

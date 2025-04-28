@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the mouth of two witnesses, or three witnesses, shall he that is to die be put to death; at the mouth of one witness he shall not be put to death.
+At the mouth of two witnesses, or three witnesses, shall he who is to die be put to death; at the mouth of one witness he shall not be put to death.

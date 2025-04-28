@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath brought upon them their own iniquity, And will cut them off in their own wickedness; Jehovah our God will cut them off.
+He has brought on them their own iniquity, and will cut them off in their own wickedness. Yahweh, our God, will cut them off.

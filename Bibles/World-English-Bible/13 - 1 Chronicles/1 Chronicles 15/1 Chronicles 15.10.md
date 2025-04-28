@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the sons of Uzziel, Amminadab the chief, and his brethren a hundred and twelve.
+of the sons of Uzziel, Amminadab the chief, and his brothers one hundred twelve.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave heed to him, because that of long time he had amazed them with his sorceries.
+They listened to him, because for a long time he had amazed them with his sorceries.

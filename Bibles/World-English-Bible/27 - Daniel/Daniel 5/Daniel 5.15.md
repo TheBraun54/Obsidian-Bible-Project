@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now the wise men, the enchanters, have been brought in before me, that they should read this writing, and make known unto me the interpretation thereof; but they could not show the interpretation of the thing.
+Now the wise men, the enchanters, have been brought in before me, that they should read this writing, and make known to me its interpretation; but they could not show the interpretation of the thing.

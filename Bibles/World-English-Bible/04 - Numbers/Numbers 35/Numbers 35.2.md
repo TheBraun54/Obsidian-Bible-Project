@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Command the children of Israel, that they give unto the Levites of the inheritance of their possession cities to dwell in; and suburbs for the cities round about them shall ye give unto the Levites.
+"Command the children of Israel that they give to the Levites of the inheritance of their possession cities to dwell in; and you shall give suburbs for the cities around them to the Levites.

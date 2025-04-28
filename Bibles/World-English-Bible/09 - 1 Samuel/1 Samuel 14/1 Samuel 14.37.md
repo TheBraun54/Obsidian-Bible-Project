@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul asked counsel of God, Shall I go down after the Philistines? wilt thou deliver them into the hand of Israel? But he answered him not that day.
+Saul asked counsel of God, "Shall I go down after the Philistines? Will you deliver them into the hand of Israel?" But he didn't answer him that day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ezra the priest brought the law before the assembly, both men and women, and all that could hear with understanding, upon the first day of the seventh month.
+Ezra the priest brought the law before the assembly, both men and women, and all who could hear with understanding, on the first day of the seventh month.

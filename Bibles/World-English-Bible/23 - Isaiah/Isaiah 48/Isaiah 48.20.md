@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye forth from Babylon, flee ye from the Chaldeans; with a voice of singing declare ye, tell this, utter it even to the end of the earth: say ye, Jehovah hath redeemed his servant Jacob.
+Go forth from Babylon, flee from the Chaldeans; with a voice of singing declare, tell this, utter it even to the end of the earth: say, Yahweh has redeemed his servant Jacob.

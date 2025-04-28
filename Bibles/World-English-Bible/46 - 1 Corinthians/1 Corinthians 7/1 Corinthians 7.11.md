@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(but should she depart, let her remain unmarried, or else be reconciled to her husband); and that the husband leave not his wife.
+(but if she departs, let her remain unmarried, or else be reconciled to her husband), and that the husband not leave his wife.

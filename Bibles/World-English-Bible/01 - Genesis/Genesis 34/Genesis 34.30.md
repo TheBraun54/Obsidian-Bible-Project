@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob said to Simeon and Levi, Ye have troubled me, to make me odious to the inhabitants of the land, among the Canaanites and the Perizzites: and, I being few in number, they will gather themselves together against me and smite me; and I shall be destroyed, I and my house.
+Jacob said to Simeon and Levi, "You have troubled me, to make me odious to the inhabitants of the land, among the Canaanites and the Perizzites. I am few in number. They will gather themselves together against me and strike me, and I will be destroyed, I and my house."

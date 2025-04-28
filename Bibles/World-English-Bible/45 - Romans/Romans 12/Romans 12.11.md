@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in diligence not slothful; fervent in spirit; serving the Lord;
+not lagging in diligence; fervent in spirit; serving the Lord;

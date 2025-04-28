@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have pity upon me, have pity upon me, O ye my friends; For the hand of God hath touched me.
+"Have pity on me, have pity on me, you my friends; for the hand of God has touched me.

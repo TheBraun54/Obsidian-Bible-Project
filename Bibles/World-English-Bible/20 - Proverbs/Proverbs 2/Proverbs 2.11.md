@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Discretion shall watch over thee; Understanding shall keep thee:
+Discretion will watch over you. Understanding will keep you,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the praise of the glory of his grace, which he freely bestowed on us in the Beloved:
+to the praise of the glory of his grace, by which he freely bestowed favor on us in the Beloved,

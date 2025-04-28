@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not many [of you] teachers, my brethren, knowing that we shall receive heavier judgment.
+Let not many of you be teachers, my brothers, knowing that we will receive heavier judgment.

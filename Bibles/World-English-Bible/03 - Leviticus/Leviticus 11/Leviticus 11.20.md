@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All winged creeping things that go upon all fours are an abomination unto you.
+"'All flying insects that walk on all fours are an abomination to you.

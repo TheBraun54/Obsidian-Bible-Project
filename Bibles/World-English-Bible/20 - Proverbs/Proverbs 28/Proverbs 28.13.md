@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that covereth his transgressions shall not prosper: But whoso confesseth and forsaketh them shall obtain mercy.
+He who conceals his sins doesn't prosper, but whoever confesses and renounces them finds mercy.

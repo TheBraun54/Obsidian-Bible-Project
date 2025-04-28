@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king commanded, and they brought Daniel, and cast him into the den of lions. [Now] the king spake and said unto Daniel, Thy God whom thou servest continually, he will deliver thee.
+Then the king commanded, and they brought Daniel, and cast him into the den of lions. [Now] the king spoke and said to Daniel, Your God whom you serve continually, he will deliver you.

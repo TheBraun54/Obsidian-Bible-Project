@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David arose, and fled that day for fear of Saul, and went to Achish the king of Gath.
+David arose, and fled that day for fear of Saul, and went to Achish the king of Gath.

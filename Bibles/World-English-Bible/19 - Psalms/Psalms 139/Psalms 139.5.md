@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast beset me behind and before, And laid thy hand upon me.
+You hem me in behind and before. You laid your hand on me.

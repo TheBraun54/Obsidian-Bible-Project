@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they tarried no little time with the disciples.
+They stayed there with the disciples for a long time.

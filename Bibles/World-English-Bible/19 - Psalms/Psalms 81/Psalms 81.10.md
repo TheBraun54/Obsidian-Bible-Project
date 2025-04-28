@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am Jehovah thy God, Who brought thee up out of the land of Egypt: Open thy mouth wide, and I will fill it.
+I am Yahweh, your God, who brought you up out of the land of Egypt. Open your mouth wide, and I will fill it.

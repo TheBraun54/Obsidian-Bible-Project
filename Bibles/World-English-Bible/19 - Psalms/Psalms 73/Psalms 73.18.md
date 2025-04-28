@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely thou settest them in slippery places: Thou castest them down to destruction.
+Surely you set them in slippery places. You throw them down to destruction.

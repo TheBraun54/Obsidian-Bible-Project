@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David; when he changed his behavior before Abimelech, who drove him away, and he departed]. I will bless Jehovah at all times: His praise shall continually be in my mouth.
+I will bless Yahweh at all times. His praise will always be in my mouth.

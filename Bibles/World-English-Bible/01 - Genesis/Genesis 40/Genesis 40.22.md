@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he hanged the chief baker: as Joseph had interpreted to them.
+but he hanged the chief baker, as Joseph had interpreted to them.

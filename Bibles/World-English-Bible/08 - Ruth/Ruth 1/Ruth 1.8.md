@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naomi said unto her two daughters-in-law, Go, return each of you to her mother's house: Jehovah deal kindly with you, as ye have dealt with the dead, and with me.
+Naomi said to her two daughters-in-law, "Go, return each of you to her mother's house: Yahweh deal kindly with you, as you have dealt with the dead, and with me.

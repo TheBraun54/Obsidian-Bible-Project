@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for kings and all that are in high place; that we may lead a tranquil and quiet life in all godliness and gravity.
+for kings and all who are in high places; that we may lead a tranquil and quiet life in all godliness and reverence.

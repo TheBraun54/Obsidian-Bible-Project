@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Instead of your shame [ye shall have] double; and instead of dishonor they shall rejoice in their portion: therefore in their land they shall possess double; everlasting joy shall be unto them.
+Instead of your shame [you shall have] double; and instead of dishonor they shall rejoice in their portion: therefore in their land they shall possess double; everlasting joy shall be to them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of whom do thou also beware; for he greatly withstood our words.
+of whom you also must beware; for he greatly opposed our words.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that doth not take his cross and follow after me, is not worthy of me.
+He who doesn't take his cross and follow after me, isn't worthy of me.

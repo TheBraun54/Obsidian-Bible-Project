@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answering saith unto him, Lord, let it alone this year also, till I shall dig about it, and dung it:
+He answered, 'Lord, leave it alone this year also, until I dig around it, and fertilize it.

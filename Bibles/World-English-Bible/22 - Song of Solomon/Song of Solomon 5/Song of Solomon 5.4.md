@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My beloved put in his hand by the hole [of the door], And my heart was moved for him.
+My beloved thrust his hand in through the latch opening. My heart pounded for him.

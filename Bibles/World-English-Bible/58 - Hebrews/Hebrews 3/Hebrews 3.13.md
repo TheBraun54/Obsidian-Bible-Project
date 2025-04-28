@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but exhort one another day by day, so long as it is called To-day; lest any one of you be hardened by the deceitfulness of sin:
+but exhort one another day by day, so long as it is called "today;" lest any one of you be hardened by the deceitfulness of sin.

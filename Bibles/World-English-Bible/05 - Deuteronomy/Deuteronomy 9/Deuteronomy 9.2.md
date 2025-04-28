@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a people great and tall, the sons of the Anakim, whom thou knowest, and of whom thou hast heard say, Who can stand before the sons of Anak?
+a people great and tall, the sons of the Anakim, whom you know, and of whom you have heard say, "Who can stand before the sons of Anak?"

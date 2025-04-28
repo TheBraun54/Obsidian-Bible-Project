@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wings of the ostrich wave proudly; [But] are they the pinions and plumage of love?
+"The wings of the ostrich wave proudly; but are they the feathers and plumage of love?

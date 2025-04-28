@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the fire of Jehovah fell, and consumed the burnt-offering, and the wood, and the stones, and the dust, and licked up the water that was in the trench.
+Then the fire of Yahweh fell, and consumed the burnt offering, and the wood, and the stones, and the dust, and licked up the water that was in the trench.

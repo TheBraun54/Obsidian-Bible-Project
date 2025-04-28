@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They were put to shame because they had hoped; They came thither, and were confounded.
+They were distressed because they were confident. They came there, and were confounded.

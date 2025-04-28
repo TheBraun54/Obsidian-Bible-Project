@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hide not thy face from me; Put not thy servant away in anger: Thou hast been my help; Cast me not off, neither forsake me, O God of my salvation.
+Don't hide your face from me. Don't put your servant away in anger. You have been my help. Don't abandon me, neither forsake me, God of my salvation.

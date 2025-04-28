@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that see thee shall gaze at thee, they shall consider thee, [saying], Is this the man that made the earth to tremble, that did shake kingdoms;
+Those who see you will stare at you. They will ponder you, saying, "Is this the man who made the earth to tremble, who shook kingdoms;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when they shall fall, they shall be helped with a little help; but many shall join themselves unto them with flatteries.
+Now when they shall fall, they shall be helped with a little help; but many shall join themselves to them with flatteries.

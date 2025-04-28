@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-holding faith and a good conscience; which some having thrust from them made shipwreck concerning the faith:
+holding faith and a good conscience; which some having thrust away made a shipwreck concerning the faith;

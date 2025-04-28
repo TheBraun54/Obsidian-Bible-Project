@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell ye your children of it, and [let] your children [tell] their children, and their children another generation.
+Tell your children about it, and have your children tell their children, and their children, another generation.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-brought beds, and basins, and earthen vessels, and wheat, and barley, and meal, and parched [grain], and beans, and lentils, and parched [pulse] ,
+brought beds, and basins, and earthen vessels, and wheat, and barley, and meal, and parched [grain], and beans, and lentils, and parched [pulse],

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To-morrow go ye down against them: behold, they come up by the ascent of Ziz; and ye shall find them at the end of the valley, before the wilderness of Jeruel.
+Tomorrow go down against them. Behold, they are coming up by the ascent of Ziz. You shall find them at the end of the valley, before the wilderness of Jeruel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For was not Israel a derision unto thee? was he found among thieves? for as often as thou speakest of him, thou waggest the head.
+For wasn't Israel a derision to you? was he found among thieves? for as often as you speak of him, you shake your head.

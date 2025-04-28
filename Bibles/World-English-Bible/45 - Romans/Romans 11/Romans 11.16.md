@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the firstfruit is holy, so is the lump: and if the root is holy, so are the branches.
+If the first fruit is holy, so is the lump. If the root is holy, so are the branches.

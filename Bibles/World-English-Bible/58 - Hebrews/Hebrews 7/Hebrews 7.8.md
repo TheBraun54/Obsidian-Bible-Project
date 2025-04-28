@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And here men that die receive tithes; but there one, of whom it is witnessed that he liveth.
+Here people who die receive tithes, but there one receives tithes of whom it is testified that he lives.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, the cry of the children of Israel is come unto me: moreover I have seen the oppression wherewith the Egyptians oppress them.
+Now, behold, the cry of the children of Israel has come to me. Moreover I have seen the oppression with which the Egyptians oppress them.

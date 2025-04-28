@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fifth angel sounded, and I saw a star from heaven fallen unto the earth: and there was given to him the key of the pit of the abyss.
+The fifth angel sounded, and I saw a star from the sky which had fallen to the earth. The key to the pit of the abyss was given to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the days come, saith the Lord Jehovah, that I will send a famine in the land, not a famine of bread, nor a thirst for water, but of hearing the words of Jehovah.
+Behold, the days come," says the Lord Yahweh, "that I will send a famine in the land, not a famine of bread, nor a thirst for water, but of hearing the words of Yahweh.

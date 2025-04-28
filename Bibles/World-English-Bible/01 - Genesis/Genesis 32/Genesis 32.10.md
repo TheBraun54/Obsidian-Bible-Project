@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am not worthy of the least of all the lovingkindnesses, and of all the truth, which thou hast showed unto thy servant; for with my staff I passed over this Jordan; and now I am become two companies.
+I am not worthy of the least of all the loving kindnesses, and of all the truth, which you have shown to your servant; for with just my staff I passed over this Jordan; and now I have become two companies.

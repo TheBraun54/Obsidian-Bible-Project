@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as he interpreted to us, so it was; me he restored unto mine office, and him he hanged.
+It happened, as he interpreted to us, so it was: he restored me to my office, and he hanged him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dost thou know the balancings of the clouds, The wondrous works of him who is perfect in knowledge?
+Do you know the workings of the clouds, the wondrous works of him who is perfect in knowledge?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make haste, my beloved, And be thou like to a roe or to a young hart Upon the mountains of spices.
+Come away, my beloved! Be like a gazelle or a young stag on the mountains of spices!

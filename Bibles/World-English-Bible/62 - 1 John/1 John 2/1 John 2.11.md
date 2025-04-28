@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that hateth his brother is in the darkness, and walketh in the darkness, and knoweth not whither he goeth, because the darkness hath blinded his eyes.
+But he who hates his brother is in the darkness, and walks in the darkness, and doesn't know where he is going, because the darkness has blinded his eyes.

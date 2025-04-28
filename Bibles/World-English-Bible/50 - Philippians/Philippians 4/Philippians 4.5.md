@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let your forbearance be known unto all men. The Lord is at hand.
+Let your gentleness be known to all men. The Lord is at hand.

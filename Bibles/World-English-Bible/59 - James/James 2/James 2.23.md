@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the scripture was fulfilled which saith, And Abraham believed God, and it was reckoned unto him for righteousness; and he was called the friend of God.
+and the Scripture was fulfilled which says, "Abraham believed God, and it was accounted to him as righteousness;" and he was called the friend of God.

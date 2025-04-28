@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Ahab sent unto all the children of Israel, and gathered the prophets together unto mount Carmel.
+So Ahab sent to all the children of Israel, and gathered the prophets together to Mount Carmel.

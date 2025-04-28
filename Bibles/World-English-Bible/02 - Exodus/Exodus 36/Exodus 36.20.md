@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the boards for the tabernacle, of acacia wood, standing up.
+He made the boards for the tabernacle of acacia wood, standing up.

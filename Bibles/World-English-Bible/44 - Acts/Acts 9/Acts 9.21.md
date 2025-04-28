@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that heard him were amazed, and said, Is not this he that in Jerusalem made havoc of them that called on this name? and he had come hither for this intent, that he might bring them bound before the chief priests.
+All who heard him were amazed, and said, "Isn't this he who in Jerusalem made havoc of those who called on this name? And he had come here intending to bring them bound before the chief priests!"

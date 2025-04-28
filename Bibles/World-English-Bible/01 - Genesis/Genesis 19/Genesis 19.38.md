@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the younger, she also bare a son, and called his name Ben-ammi: the same is the father of the children of Ammon unto this day.
+The younger also bore a son, and called his name Ben Ammi. He is the father of the children of Ammon to this day.

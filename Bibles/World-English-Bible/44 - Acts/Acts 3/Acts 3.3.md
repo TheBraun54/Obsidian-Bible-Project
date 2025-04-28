@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who seeing Peter and John about to go into the temple, asked to receive an alms.
+Seeing Peter and John about to go into the temple, he asked to receive gifts for the needy.

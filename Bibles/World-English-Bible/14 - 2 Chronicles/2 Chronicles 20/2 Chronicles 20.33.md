@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit the high places were not taken away; neither as yet had the people set their hearts unto the God of their fathers.
+However the high places were not taken away; neither as yet had the people set their hearts to the God of their fathers.

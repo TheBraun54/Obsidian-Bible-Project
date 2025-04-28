@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But go thou thy way till the end be; for thou shalt rest, and shalt stand in thy lot, at the end of the days.
+But go you your way until the end; for you shall rest, and shall stand in your lot, at the end of the days.

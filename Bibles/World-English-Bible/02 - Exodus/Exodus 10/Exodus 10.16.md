@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Pharaoh called for Moses and Aaron in haste; and he said, I have sinned against Jehovah your God, and against you.
+Then Pharaoh called for Moses and Aaron in haste, and he said, "I have sinned against Yahweh your God, and against you.

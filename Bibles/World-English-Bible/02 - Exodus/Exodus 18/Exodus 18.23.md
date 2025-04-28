@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou shalt do this thing, and God command thee so, then thou shalt be able to endure, and all this people also shall go to their place in peace.
+If you will do this thing, and God commands you so, then you will be able to endure, and all of these people also will go to their place in peace."

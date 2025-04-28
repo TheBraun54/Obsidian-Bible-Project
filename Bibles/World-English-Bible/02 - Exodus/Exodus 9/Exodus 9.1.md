@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehovah said unto Moses, Go in unto Pharaoh, and tell him, Thus saith Jehovah, the God of the Hebrews, Let my people go, that they may serve me.
+Then Yahweh said to Moses, "Go in to Pharaoh, and tell him, 'This is what Yahweh, the God of the Hebrews, says: "Let my people go, that they may serve me.

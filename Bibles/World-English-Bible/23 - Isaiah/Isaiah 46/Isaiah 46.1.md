@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bel boweth down, Nebo stoopeth; their idols are upon the beasts, and upon the cattle: the things that ye carried about are made a load, a burden to the weary [beast] .
+Bel bows down, Nebo stoops; their idols are on the animals, and on the livestock: the things that you carried about are made a load, a burden to the weary [animal].

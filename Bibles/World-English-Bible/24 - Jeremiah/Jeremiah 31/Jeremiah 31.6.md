@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there shall be a day, that the watchmen upon the hills of Ephraim shall cry, Arise ye, and let us go up to Zion unto Jehovah our God.
+For there shall be a day, that the watchmen on the hills of Ephraim shall cry, Arise, and let us go up to Zion to Yahweh our God.

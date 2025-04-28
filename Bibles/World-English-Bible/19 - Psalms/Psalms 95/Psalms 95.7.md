@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he is our God, And we are the people of his pasture, and the sheep of his hand. To-day, oh that ye would hear his voice!
+for he is our God. We are the people of his pasture, and the sheep in his care. Today, oh that you would hear his voice!

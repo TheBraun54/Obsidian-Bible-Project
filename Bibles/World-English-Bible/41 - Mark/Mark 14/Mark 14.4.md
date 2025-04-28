@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there were some that had indignation among themselves, [saying], To what purpose hath this waste of the ointment been made?
+But there were some who were indignant among themselves, saying, "Why has this ointment been wasted?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, Oh that I had wings like a dove! Then would I fly away, and be at rest.
+I said, "Oh that I had wings like a dove! Then I would fly away, and be at rest.

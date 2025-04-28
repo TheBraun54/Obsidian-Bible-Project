@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is the love of God, that we keep his commandments: and his commandments are not grievous.
+For this is the love of God, that we keep his commandments. His commandments are not grievous.

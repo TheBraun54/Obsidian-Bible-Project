@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely there is a mine for silver, And a place for gold which they refine.
+"Surely there is a mine for silver, and a place for gold which they refine.

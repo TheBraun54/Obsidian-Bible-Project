@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a mighty king shall stand up, that shall rule with great dominion, and do according to his will.
+A mighty king shall stand up, who shall rule with great dominion, and do according to his will.

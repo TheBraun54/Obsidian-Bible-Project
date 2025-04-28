@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but they that are accounted worthy to attain to that world, and the resurrection from the dead, neither marry, nor are given in marriage:
+But those who are considered worthy to attain to that age and the resurrection from the dead, neither marry, nor are given in marriage.

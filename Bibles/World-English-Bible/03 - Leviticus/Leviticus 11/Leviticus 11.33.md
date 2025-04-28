@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every earthen vessel, whereinto any of them falleth, whatsoever is in it shall be unclean, and it ye shall break.
+Every earthen vessel, into which any of them falls, all that is in it shall be unclean, and you shall break it.

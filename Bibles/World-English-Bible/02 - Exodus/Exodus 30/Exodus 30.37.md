@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the incense which thou shalt make, according to the composition thereof ye shall not make for yourselves: it shall be unto thee holy for Jehovah.
+The incense which you shall make, according to its composition you shall not make for yourselves: it shall be to you holy for Yahweh.

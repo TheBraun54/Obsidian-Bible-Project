@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the God of Beth-el, where thou anointedst a pillar, where thou vowedst a vow unto me: now arise, get thee out from this land, and return unto the land of thy nativity.
+I am the God of Bethel, where you anointed a pillar, where you vowed a vow to me. Now arise, get out from this land, and return to the land of your birth.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereas angels, though greater in might and power, bring not a railing judgment against them before the Lord.
+whereas angels, though greater in might and power, don't bring a railing judgment against them before the Lord.

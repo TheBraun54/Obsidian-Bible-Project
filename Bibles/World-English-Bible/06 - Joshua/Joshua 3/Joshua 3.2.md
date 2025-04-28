@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after three days, that the officers went through the midst of the camp;
+It happened after three days, that the officers went through the midst of the camp;

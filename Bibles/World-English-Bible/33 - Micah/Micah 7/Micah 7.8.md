@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice not against me, O mine enemy: when I fall, I shall arise; when I sit in darkness, Jehovah will be a light unto me.
+Don't rejoice against me, my enemy. When I fall, I will arise. When I sit in darkness, Yahweh will be a light to me.

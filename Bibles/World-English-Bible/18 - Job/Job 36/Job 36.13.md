@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they that are godless in heart lay up anger: They cry not for help when he bindeth them.
+"But those who are godless in heart lay up anger. They don't cry for help when he binds them.

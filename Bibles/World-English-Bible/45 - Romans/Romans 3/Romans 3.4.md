@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God forbid: yea, let God be found true, but every man a liar; as it is written, That thou mightest be justified in thy words, And mightest prevail when thou comest into judgment.
+May it never be! Yes, let God be found true, but every man a liar. As it is written, "That you might be justified in your words, and might prevail when you come into judgment."

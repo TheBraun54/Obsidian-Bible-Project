@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I say into you, that Elijah is come already, and they knew him not, but did unto him whatsoever they would. Even so shall the Son of man also suffer of them.
+but I tell you that Elijah has come already, and they didn't recognize him, but did to him whatever they wanted to. Even so the Son of Man will also suffer by them."

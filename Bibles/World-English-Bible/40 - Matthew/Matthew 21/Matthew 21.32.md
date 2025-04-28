@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For John came unto you in the way of righteousness, and ye believed him not; but the publicans and the harlots believed him: and ye, when ye saw it, did not even repent yourselves afterward, that ye might believe him.
+For John came to you in the way of righteousness, and you didn't believe him, but the tax collectors and the prostitutes believed him. When you saw it, you didn't even repent afterward, that you might believe him.

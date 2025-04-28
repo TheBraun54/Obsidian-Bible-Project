@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast ascended on high, thou hast led away captives; Thou hast received gifts among men, Yea, [among] the rebellious also, that Jehovah God might dwell [with them] .
+You have ascended on high. You have led away captives. You have received gifts among men, yes, among the rebellious also, that Yah God might dwell there.

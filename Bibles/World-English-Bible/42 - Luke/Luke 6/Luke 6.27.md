@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say unto you that hear, Love your enemies, do good to them that hate you,
+"But I tell you who hear: love your enemies, do good to those who hate you,

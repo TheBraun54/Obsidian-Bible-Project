@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the voice of harpers and minstrels and flute-players and trumpeters shall be heard no more at all in thee; and no craftsman, of whatsoever craft, shall be found any more at all in thee; and the voice of a mill shall be heard no more at all in thee;
+The voice of harpists, minstrels, flute players, and trumpeters will be heard no more at all in you. No craftsman, of whatever craft, will be found any more at all in you. The sound of a mill will be heard no more at all in you.

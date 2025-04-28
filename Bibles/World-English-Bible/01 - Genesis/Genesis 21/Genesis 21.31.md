@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore he called that place Beer-sheba; because there they sware both of them.
+Therefore he called that place Beersheba, because they both swore there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, when they heard it, lifted up their voice to God with one accord, and said, O Lord, thou that didst make the heaven and the earth and the sea, and all that in them is:
+When they heard it, they lifted up their voice to God with one accord, and said, "O Lord, you are God, who made the heaven, the earth, the sea, and all that is in them;

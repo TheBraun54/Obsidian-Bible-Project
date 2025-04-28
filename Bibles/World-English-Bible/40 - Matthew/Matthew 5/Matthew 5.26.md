@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto thee, thou shalt by no means come out thence, till thou have paid the last farthing.
+Most certainly I tell you, you shall by no means get out of there, until you have paid the last penny.

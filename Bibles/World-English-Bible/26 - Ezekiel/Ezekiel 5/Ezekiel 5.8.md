@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith the Lord Jehovah: Behold, I, even I, am against thee; and I will execute judgments in the midst of thee in the sight of the nations.
+therefore thus says the Lord Yahweh: Behold, I, even I, am against you; and I will execute judgments in the midst of you in the sight of the nations.

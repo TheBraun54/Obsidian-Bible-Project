@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not lie carnally with thy neighbor's wife, to defile thyself with her.
+"'You shall not lie carnally with your neighbor's wife, and defile yourself with her.

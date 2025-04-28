@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Christ redeemed us from the curse of the law, having become a curse for us; for it is written, Cursed is every one that hangeth on a tree:
+Christ redeemed us from the curse of the law, having become a curse for us. For it is written, "Cursed is everyone who hangs on a tree,"

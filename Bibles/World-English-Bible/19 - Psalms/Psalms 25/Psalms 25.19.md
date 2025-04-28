@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider mine enemies, for they are many; And they hate me with cruel hatred.
+Consider my enemies, for they are many. They hate me with cruel hatred.

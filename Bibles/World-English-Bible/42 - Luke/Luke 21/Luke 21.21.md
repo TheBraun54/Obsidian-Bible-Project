@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then let them that are in Judaea flee unto the mountains; and let them that are in the midst of her depart out; and let not them that are in the country enter therein.
+Then let those who are in Judea flee to the mountains. Let those who are in the midst of her depart. Let those who are in the country not enter therein.

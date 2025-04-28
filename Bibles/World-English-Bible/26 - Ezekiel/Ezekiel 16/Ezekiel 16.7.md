@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I caused thee to multiply as that which groweth in the field, and thou didst increase and wax great, and thou attainedst to excellent ornament; thy breasts were fashioned, and thy hair was grown; yet thou wast naked and bare.
+I caused you to multiply as that which grows in the field, and you increased and grew great, and you attained to excellent ornament; your breasts were fashioned, and your hair was grown; yet you were naked and bare.

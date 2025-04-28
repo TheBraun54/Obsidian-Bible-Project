@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] coals are to hot embers, and wood to fire, So is a contentious man to inflame strife.
+As coals are to hot embers, and wood to fire, so is a contentious man to kindling strife.

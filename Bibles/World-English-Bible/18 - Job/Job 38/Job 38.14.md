@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is changed as clay under the seal; And [all things] stand forth as a garment:
+It is changed as clay under the seal, and stands forth as a garment.

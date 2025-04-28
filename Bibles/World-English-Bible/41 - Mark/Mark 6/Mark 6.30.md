@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the apostles gather themselves together unto Jesus; and they told him all things, whatsoever they had done, and whatsoever they had taught.
+The apostles gathered themselves together to Jesus, and they told him all things, whatever they had done, and whatever they had taught.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will keep the feet of his holy ones; But the wicked shall be put to silence in darkness; For by strength shall no man prevail.
+He will keep the feet of his holy ones, but the wicked shall be put to silence in darkness; for no man shall prevail by strength.

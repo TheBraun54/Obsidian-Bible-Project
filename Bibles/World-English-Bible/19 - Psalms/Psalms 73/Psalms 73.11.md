@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they say, How doth God know? And is there knowledge in the Most High?
+They say, "How does God know? Is there knowledge in the Most High?"

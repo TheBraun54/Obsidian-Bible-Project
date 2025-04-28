@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will smite thy bow out of thy left hand, and will cause thine arrows to fall out of thy right hand.
+and I will strike your bow out of your left hand, and will cause your arrows to fall out of your right hand.

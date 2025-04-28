@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha said unto her, What shall I do for thee? tell me; what hast thou in the house? And she said, Thy handmaid hath not anything in the house, save a pot of oil.
+Elisha said to her, "What shall I do for you? Tell me: what do you have in the house?" She said, "Your handmaid has nothing in the house, except a pot of oil."

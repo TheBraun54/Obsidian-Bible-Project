@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For that they hated knowledge, And did not choose the fear of Jehovah:
+because they hated knowledge, and didn't choose the fear of Yahweh.

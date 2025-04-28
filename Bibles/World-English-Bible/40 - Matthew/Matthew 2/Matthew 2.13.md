@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when they were departed, behold, an angel of the Lord appeareth to Joseph in a dream, saying, Arise and take the young child and his mother, and flee into Egypt, and be thou there until I tell thee: for Herod will seek the young child to destroy him.
+Now when they had departed, behold, an angel of the Lord appeared to Joseph in a dream, saying, "Arise and take the young child and his mother, and flee into Egypt, and stay there until I tell you, for Herod will seek the young child to destroy him."

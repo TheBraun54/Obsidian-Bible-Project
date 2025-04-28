@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the eighth day ye shall have a solemn assembly: ye shall do no servile work;
+"'On the eighth day you shall have a solemn assembly: you shall do no servile work;

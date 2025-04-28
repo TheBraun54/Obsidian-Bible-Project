@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall my righteousness answer for me hereafter, when thou shalt come concerning my hire that is before thee: every one that is not speckled and spotted among the goats, and black among the sheep, that, [if found] with me, shall be counted stolen.
+So my righteousness will answer for me hereafter, when you come concerning my hire that is before you. Every one that is not speckled and spotted among the goats, and black among the sheep, that might be with me, will be counted stolen."

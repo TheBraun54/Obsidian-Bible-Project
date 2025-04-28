@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the fifth to Nethaniah, his sons and his brethren, twelve:
+the fifth to Nethaniah, his sons and his brothers, twelve:

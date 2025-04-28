@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hay is carried, and the tender grass showeth itself, And the herbs of the mountains are gathered in.
+The hay is removed, and the new growth appears, the grasses of the hills are gathered in.

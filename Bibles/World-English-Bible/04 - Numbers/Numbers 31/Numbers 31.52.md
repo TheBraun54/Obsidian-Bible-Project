@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the gold of the heave-offering that they offered up to Jehovah, of the captains of thousands, and of the captains of hundreds, was sixteen thousand seven hundred and fifty shekels.
+All the gold of the wave offering that they offered up to Yahweh, of the captains of thousands, and of the captains of hundreds, was sixteen thousand seven hundred fifty shekels.

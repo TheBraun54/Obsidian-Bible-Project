@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon went up thither to the brazen altar before Jehovah, which was at the tent of meeting, and offered a thousand burnt-offerings upon it.
+Solomon went up there to the bronze altar before Yahweh, which was at the Tent of Meeting, and offered one thousand burnt offerings on it.

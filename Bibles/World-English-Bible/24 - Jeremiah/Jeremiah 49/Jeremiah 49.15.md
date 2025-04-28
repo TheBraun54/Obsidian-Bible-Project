@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, I have made thee small among the nations, and despised among men.
+For, behold, I have made you small among the nations, and despised among men.

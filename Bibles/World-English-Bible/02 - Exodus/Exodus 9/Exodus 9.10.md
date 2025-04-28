@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled it up toward heaven; and it became a boil breaking forth with blains upon man and upon beast.
+They took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled it up toward the sky; and it became a boil breaking forth with boils on man and on animal.

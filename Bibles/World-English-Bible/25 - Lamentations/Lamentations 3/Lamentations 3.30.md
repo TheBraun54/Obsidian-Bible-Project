@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let him give his cheek to him that smiteth him; let him be filled full with reproach.
+Let him give his cheek to him who strikes him; let him be filled full with reproach.

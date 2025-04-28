@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She obeyed not the voice; she received not correction; she trusted not in Jehovah; she drew not near to her God.
+She didn't obey the voice. She didn't receive correction. She didn't trust in Yahweh. She didn't draw near to her God.

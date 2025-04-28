@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the brethren immediately sent away Paul and Silas by night unto Beroea: who when they were come thither went into the synagogue of the Jews.
+The brothers immediately sent Paul and Silas away by night to Beroea. When they arrived, they went into the Jewish synagogue.

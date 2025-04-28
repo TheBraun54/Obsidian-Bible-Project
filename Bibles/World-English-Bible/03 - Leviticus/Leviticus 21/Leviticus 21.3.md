@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for his sister a virgin, that is near unto him, that hath had no husband; for her may he defile himself.
+and for his virgin sister who is near to him, who has had no husband; for her he may defile himself.

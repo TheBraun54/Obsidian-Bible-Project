@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto Jehovah a new song, and his praise from the end of the earth; ye that go down to the sea, and all that is therein, the isles, and the inhabitants thereof.
+Sing to Yahweh a new song, and his praise from the end of the earth, you who go down to the sea, and all that is therein, the islands and their inhabitants.

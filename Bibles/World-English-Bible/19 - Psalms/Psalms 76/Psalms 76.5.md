@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The stouthearted are made a spoil, They have slept their sleep; And none of the men of might have found their hands.
+Valiant men lie plundered, they have slept their last sleep. None of the men of war can lift their hands.

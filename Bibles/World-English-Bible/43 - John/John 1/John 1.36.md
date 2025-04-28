@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he looked upon Jesus as he walked, and saith, Behold, the Lamb of God!
+and he looked at Jesus as he walked, and said, "Behold, the Lamb of God!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and eastward he dwelt even unto the entrance of the wilderness from the river Euphrates, because their cattle were multiplied in the land of Gilead.
+and eastward he lived even to the entrance of the wilderness from the river Euphrates, because their livestock were multiplied in the land of Gilead.

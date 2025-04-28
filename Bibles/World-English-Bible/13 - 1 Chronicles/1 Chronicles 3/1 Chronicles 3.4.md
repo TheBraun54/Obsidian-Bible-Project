@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-six were born unto him in Hebron; and there he reigned seven years and six months. And in Jerusalem he reigned thirty and three years;
+six were born to him in Hebron; and there he reigned seven years and six months. In Jerusalem he reigned thirty-three years;

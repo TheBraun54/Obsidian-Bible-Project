@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So we wrought in the work: and half of them held the spears from the rising of the morning till the stars appeared.
+So we worked in the work: and half of them held the spears from the rising of the morning until the stars appeared.

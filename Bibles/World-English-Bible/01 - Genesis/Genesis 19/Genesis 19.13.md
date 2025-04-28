@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for we will destroy this place, because the cry of them is waxed great before Jehovah; and Jehovah hath sent us to destroy it.
+for we will destroy this place, because the outcry against them has grown great before Yahweh that Yahweh has sent us to destroy it."

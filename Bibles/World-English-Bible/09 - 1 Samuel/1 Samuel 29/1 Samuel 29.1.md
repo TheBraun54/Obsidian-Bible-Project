@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the Philistines gathered together all their hosts to Aphek: and the Israelites encamped by the fountain which is in Jezreel.
+Now the Philistines gathered together all their armies to Aphek: and the Israelites encamped by the spring which is in Jezreel.

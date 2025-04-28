@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they entered in, and found not the body of the Lord Jesus.
+They entered in, and didn't find the Lord Jesus' body.

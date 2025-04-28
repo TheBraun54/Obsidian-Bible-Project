@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Marvellous things did he in the sight of their fathers, In the land of Egypt, in the field of Zoan.
+He did marvelous things in the sight of their fathers, in the land of Egypt, in the field of Zoan.

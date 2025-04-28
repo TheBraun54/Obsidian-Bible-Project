@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again, Isaiah saith, There shall be the root of Jesse, And he that ariseth to rule over the Gentiles; On him shall the Gentiles hope.
+Again, Isaiah says, "There will be the root of Jesse, he who arises to rule over the Gentiles; in him the Gentiles will hope."

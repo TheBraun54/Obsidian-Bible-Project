@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have heard that it was said, Thou shalt not commit adultery:
+"You have heard that it was said, 'You shall not commit adultery;'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they blindfolded him, and asked him, saying, Prophesy: who is he that struck thee?
+Having blindfolded him, they struck him on the face and asked him, "Prophesy! Who is the one who struck you?"

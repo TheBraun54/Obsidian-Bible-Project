@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will bring forth a seed out of Jacob, and out of Judah an inheritor of my mountains; and my chosen shall inherit it, and my servants shall dwell there.
+I will bring forth a seed out of Jacob, and out of Judah an inheritor of my mountains; and my chosen shall inherit it, and my servants shall dwell there.

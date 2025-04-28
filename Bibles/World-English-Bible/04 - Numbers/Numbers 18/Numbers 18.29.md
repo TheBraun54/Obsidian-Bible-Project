@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of all your gifts ye shall offer every heave-offering of Jehovah, of all the best thereof, even the hallowed part thereof out of it.
+Out of all your gifts you shall offer every wave offering of Yahweh, of all its best, even the holy part of it out of it.'

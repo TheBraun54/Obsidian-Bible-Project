@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there are no pangs in their death; But their strength is firm.
+For there are no struggles in their death, but their strength is firm.

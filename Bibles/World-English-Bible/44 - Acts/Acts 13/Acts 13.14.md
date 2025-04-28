@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they, passing through from Perga, came to Antioch of Pisidia; and they went into the synagogue on the sabbath day, and sat down.
+But they, passing on from Perga, came to Antioch of Pisidia. They went into the synagogue on the Sabbath day, and sat down.

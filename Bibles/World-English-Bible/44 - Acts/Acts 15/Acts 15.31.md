@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had read it, they rejoiced for the consolation.
+When they had read it, they rejoiced over the encouragement.

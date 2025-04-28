@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then all the assembly answered and said with a loud voice, As thou hast said concerning us, so must we do.
+Then all the assembly answered with a loud voice, "As you have said concerning us, so must we do.

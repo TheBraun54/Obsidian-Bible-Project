@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ashhur the father of Tekoa had two wives, Helah and Naarah.
+Ashhur the father of Tekoa had two wives, Helah and Naarah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy hand or thy foot causeth thee to stumble, cut it off, and cast it from thee: it is good for thee to enter into life maimed or halt, rather than having two hands or two feet to be cast into the eternal fire.
+If your hand or your foot causes you to stumble, cut it off, and cast it from you. It is better for you to enter into life maimed or crippled, rather than having two hands or two feet to be cast into the eternal fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he knoweth not that the dead are there; That her guests are in the depths of Sheol.
+But he doesn't know that the dead are there, that her guests are in the depths of Sheol.

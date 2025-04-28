@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this I mean, that each one of you saith, I am of Paul; and I of Apollos: and I of Cephas; and I of Christ.
+Now I mean this, that each one of you says, "I follow Paul," "I follow Apollos," "I follow Cephas," and, "I follow Christ."

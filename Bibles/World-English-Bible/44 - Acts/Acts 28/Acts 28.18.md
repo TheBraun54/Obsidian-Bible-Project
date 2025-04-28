@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, when they had examined me, desired to set me at liberty, because there was no cause of death in me.
+who, when they had examined me, desired to set me free, because there was no cause of death in me.

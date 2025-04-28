@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, O Jehovah, the God of Israel, there is no God like thee, in heaven, or on earth; who keepest covenant and lovingkindness with thy servants, that walk before thee with all their heart;
+and he said, "Yahweh, the God of Israel, there is no God like you, in heaven, or on earth; you who keep covenant and loving kindness with your servants, who walk before you with all their heart;

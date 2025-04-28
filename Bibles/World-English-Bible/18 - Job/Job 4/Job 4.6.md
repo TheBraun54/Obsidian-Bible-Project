@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not thy fear [of God] thy confidence, [And] the integrity of thy ways thy hope?
+Isn't your piety your confidence? Isn't the integrity of your ways your hope?

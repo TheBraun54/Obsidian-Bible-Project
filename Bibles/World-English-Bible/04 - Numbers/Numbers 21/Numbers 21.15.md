@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the slope of the valleys That inclineth toward the dwelling of Ar, And leaneth upon the border of Moab.
+the slope of the valleys that incline toward the dwelling of Ar, leans on the border of Moab."

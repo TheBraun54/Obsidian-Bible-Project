@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Ampliatus my beloved in the Lord.
+Greet Amplias, my beloved in the Lord.

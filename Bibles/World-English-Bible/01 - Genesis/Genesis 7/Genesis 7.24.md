@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the waters prevailed upon the earth a hundred and fifty days.
+The waters prevailed on the earth one hundred fifty days.

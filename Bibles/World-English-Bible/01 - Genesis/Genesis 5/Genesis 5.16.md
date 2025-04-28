@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mahalalel lived after he begat Jared eight hundred and thirty years, and begat sons and daughters:
+Mahalalel lived after he became the father of Jared eight hundred thirty years, and became the father of sons and daughters.

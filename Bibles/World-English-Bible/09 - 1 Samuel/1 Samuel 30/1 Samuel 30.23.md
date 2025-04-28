@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said David, Ye shall not do so, my brethren, with that which Jehovah hath given unto us, who hath preserved us, and delivered the troop that came against us into our hand.
+Then David said, "You shall not do so, my brothers, with that which Yahweh has given to us, who has preserved us, and delivered the troop that came against us into our hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, in the ninth year, in the tenth month, in the tenth [day] of the month, the word of Jehovah came unto me, saying,
+Again, in the ninth year, in the tenth month, in the tenth [day] of the month, the word of Yahweh came to me, saying,

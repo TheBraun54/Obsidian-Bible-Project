@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he gave him authority to execute judgment, because he is a son of man.
+He also gave him authority to execute judgment, because he is a son of man.

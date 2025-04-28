@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, When ye are come into the land of your habitations, which I give unto you,
+"Speak to the children of Israel, and tell them, 'When you have come into the land of your habitations, which I give to you,

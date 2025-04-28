@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Clouds and darkness are round about him: Righteousness and justice are the foundation of his throne.
+Clouds and darkness are around him. Righteousness and justice are the foundation of his throne.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There the prisoners are at ease together; They hear not the voice of the taskmaster.
+There the prisoners are at ease together. They don't hear the voice of the taskmaster.

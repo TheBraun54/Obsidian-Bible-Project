@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto him, If a man love me, he will keep my word: and my Father will love him, and we will come unto him, and make our abode with him.
+Jesus answered him, "If a man loves me, he will keep my word. My Father will love him, and we will come to him, and make our home with him.

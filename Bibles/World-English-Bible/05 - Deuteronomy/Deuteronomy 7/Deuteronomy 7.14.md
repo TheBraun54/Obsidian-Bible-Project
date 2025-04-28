@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt be blessed above all peoples: there shall not be male or female barren among you, or among your cattle.
+You shall be blessed above all peoples: there shall not be male or female barren among you, or among your livestock.

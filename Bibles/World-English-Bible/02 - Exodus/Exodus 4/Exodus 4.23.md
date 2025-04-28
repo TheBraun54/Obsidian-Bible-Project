@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I have said unto thee, Let my son go, that he may serve me; and thou hast refused to let him go: behold, I will slay thy son, thy first-born.
+and I have said to you, "Let my son go, that he may serve me;" and you have refused to let him go. Behold, I will kill your son, your firstborn.'"

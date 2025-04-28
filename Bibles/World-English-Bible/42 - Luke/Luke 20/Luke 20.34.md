@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, The sons of this world marry, and are given in marriage:
+Jesus said to them, "The children of this age marry, and are given in marriage.

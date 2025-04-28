@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart is fixed, O God, my heart is fixed: I will sing, yea, I will sing praises.
+My heart is steadfast, God, my heart is steadfast. I will sing, yes, I will sing praises.

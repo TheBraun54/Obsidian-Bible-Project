@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the serjeants reported these words unto the magistrates: and they feared when they heard that they were Romans;
+The sergeants reported these words to the magistrates, and they were afraid when they heard that they were Romans,

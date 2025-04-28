@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from thirty years old and upward even unto fifty years old, every one that entered in to do the work of service, and the work of bearing burdens in the tent of meeting,
+from thirty years old and upward even to fifty years old, everyone who entered in to do the work of service, and the work of bearing burdens in the Tent of Meeting,

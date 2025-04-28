@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the days come, that all that is in thy house, and that which thy fathers have laid up in store unto this day, shall be carried to Babylon: nothing shall be left, saith Jehovah.
+'Behold, the days come, that all that is in your house, and that which your fathers have laid up in store to this day, shall be carried to Babylon. Nothing shall be left,' says Yahweh.

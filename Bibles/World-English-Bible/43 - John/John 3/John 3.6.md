@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which is born of the flesh is flesh; and that which is born of the Spirit is spirit.
+That which is born of the flesh is flesh. That which is born of the Spirit is spirit.

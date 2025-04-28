@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, he that formeth the mountains, and createth the wind, and declareth unto man what is his thought; that maketh the morning darkness, and treadeth upon the high places of the earth--Jehovah, the God of hosts, is his name.
+For, behold, he who forms the mountains, and creates the wind, and declares to man what is his thought; who makes the morning darkness, and treads on the high places of the Earth: Yahweh, the God of Armies, is his name."

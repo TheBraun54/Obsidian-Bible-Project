@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the heaven was removed as a scroll when it is rolled up; and every mountain and island were moved out of their places.
+The sky was removed like a scroll when it is rolled up. Every mountain and island were moved out of their places.

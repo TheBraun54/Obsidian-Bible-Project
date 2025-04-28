@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I stand [here] to be judged for the hope of the promise made of God unto our fathers;
+Now I stand here to be judged for the hope of the promise made by God to our fathers,

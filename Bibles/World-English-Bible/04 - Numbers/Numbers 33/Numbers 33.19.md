@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Rithmah, and encamped in Rimmon-perez.
+They traveled from Rithmah, and encamped in Rimmon Perez.

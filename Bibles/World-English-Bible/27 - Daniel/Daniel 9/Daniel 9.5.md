@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-we have sinned, and have dealt perversely, and have done wickedly, and have rebelled, even turning aside from thy precepts and from thine ordinances;
+we have sinned, and have dealt perversely, and have done wickedly, and have rebelled, even turning aside from your precepts and from your ordinances;

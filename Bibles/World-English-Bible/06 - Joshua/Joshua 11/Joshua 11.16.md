@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua took all that land, the hill-country, and all the South, and all the land of Goshen, and the lowland, and the Arabah, and the hill-country of Israel, and the lowland of the same;
+So Joshua captured all that land, the hill country, all the South, all the land of Goshen, the lowland, the Arabah, the hill country of Israel, and the lowland of the same;

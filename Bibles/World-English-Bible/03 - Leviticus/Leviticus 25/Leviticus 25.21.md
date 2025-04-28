@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then I will command my blessing upon you in the sixth year, and it shall bring forth fruit for the three years.
+then I will command my blessing on you in the sixth year, and it shall bring forth fruit for the three years.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the standard of the camp of the children of Ephraim set forward according to their hosts: and over his host was Elishama the son of Ammihud.
+The standard of the camp of the children of Ephraim set forward according to their armies. Elishama the son of Ammihud was over his army.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David answered and said, Behold the spear, O king! let then one of the young men come over and fetch it.
+David answered, "Behold the spear, O king! Then let one of the young men come over and get it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are they not all ministering spirits, sent forth to do service for the sake of them that shall inherit salvation?
+Aren't they all serving spirits, sent out to do service for the sake of those who will inherit salvation?

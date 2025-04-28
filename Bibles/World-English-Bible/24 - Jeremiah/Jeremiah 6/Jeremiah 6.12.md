@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their houses shall be turned unto others, their fields and their wives together; for I will stretch out my hand upon the inhabitants of the land, saith Jehovah.
+Their houses shall be turned to others, their fields and their wives together; for I will stretch out my hand on the inhabitants of the land, says Yahweh."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ways of Zion do mourn, because none come to the solemn assembly; All her gates are desolate, her priests do sigh: Her virgins are afflicted, and she herself is in bitterness.
+The ways of Zion do mourn, because none come to the solemn assembly; all her gates are desolate, her priests do sigh: her virgins are afflicted, and she herself is in bitterness.

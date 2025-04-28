@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the kingdom of God is not eating and drinking, but righteousness and peace and joy in the Holy Spirit.
+for the Kingdom of God is not eating and drinking, but righteousness, peace, and joy in the Holy Spirit.

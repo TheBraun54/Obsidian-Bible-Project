@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For that which befalleth the sons of men befalleth beasts; even one thing befalleth them: as the one dieth, so dieth the other; yea, they have all one breath; and man hath no preeminence above the beasts: for all is vanity.
+For that which happens to the sons of men happens to animals. Even one thing happens to them. As the one dies, so the other dies. Yes, they have all one breath; and man has no advantage over the animals: for all is vanity.

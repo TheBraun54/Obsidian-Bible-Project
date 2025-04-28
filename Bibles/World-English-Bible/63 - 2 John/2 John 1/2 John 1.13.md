@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of thine elect sister salute thee.
+The children of your chosen sister greet you. Amen.

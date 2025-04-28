@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Behold, I will give the land of Egypt unto Nebuchadrezzar king of Babylon; and he shall carry off her multitude, and take her spoil, and take her prey; and it shall be the wages for his army.
+Therefore thus says the Lord Yahweh: Behold, I will give the land of Egypt to Nebuchadnezzar king of Babylon; and he shall carry off her multitude, and take her spoil, and take her prey; and it shall be the wages for his army.

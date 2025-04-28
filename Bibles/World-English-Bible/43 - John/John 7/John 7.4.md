@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For no man doeth anything in secret, and himself seeketh to be known openly. If thou doest these things, manifest thyself to the world.
+For no one does anything in secret, and himself seeks to be known openly. If you do these things, reveal yourself to the world."

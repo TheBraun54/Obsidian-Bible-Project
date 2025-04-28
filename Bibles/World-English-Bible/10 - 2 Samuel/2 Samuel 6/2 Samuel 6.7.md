@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anger of Jehovah was kindled against Uzzah; and God smote him there for his error; and there he died by the ark of God.
+The anger of Yahweh was kindled against Uzzah; and God struck him there for his error; and there he died by the ark of God.

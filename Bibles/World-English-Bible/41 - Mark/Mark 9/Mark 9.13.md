@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say unto you, that Elijah is come, and they have also done unto him whatsoever they would, even as it is written of him.
+But I tell you that Elijah has come, and they have also done to him whatever they wanted to, even as it is written about him."

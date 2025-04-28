@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Bakbukiah and Unno, their brethren, were over against them according to their offices.
+Also Bakbukiah and Unno, their brothers, were over against them according to their offices.

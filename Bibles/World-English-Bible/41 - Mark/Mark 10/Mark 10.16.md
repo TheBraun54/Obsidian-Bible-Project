@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took them in his arms, and blessed them, laying his hands upon them.
+He took them in his arms, and blessed them, laying his hands on them.

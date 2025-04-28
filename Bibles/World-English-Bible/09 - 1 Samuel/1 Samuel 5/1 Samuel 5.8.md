@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They sent therefore and gathered all the lords of the Philistines unto them, and said, What shall we do with the ark of the God of Israel? And they answered, Let the ark of the God of Israel be carried about unto Gath. And they carried the ark of the God of Israel [thither] .
+They sent therefore and gathered all the lords of the Philistines to them, and said, "What shall we do with the ark of the God of Israel?" They answered, "Let the ark of the God of Israel be carried over to Gath." They carried the ark of the God of Israel [there].

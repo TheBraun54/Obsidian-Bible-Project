@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, These are the living things which ye may eat among all the beasts that are on the earth.
+"Speak to the children of Israel, saying, 'These are the living things which you may eat among all the animals that are on the earth.

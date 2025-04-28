@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Like as a woman with child, that draweth near the time of her delivery, is in pain and crieth out in her pangs; so we have been before thee, O Jehovah.
+Like as a woman with child, who draws near the time of her delivery, is in pain and cries out in her pangs; so we have been before you, Yahweh.

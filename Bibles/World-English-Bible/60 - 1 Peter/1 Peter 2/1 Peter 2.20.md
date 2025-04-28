@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what glory is it, if, when ye sin, and are buffeted [for it], ye shall take it patiently? but if, when ye do well, and suffer [for it], ye shall take it patiently, this is acceptable with God.
+For what glory is it if, when you sin, you patiently endure beating? But if, when you do well, you patiently endure suffering, this is commendable with God.

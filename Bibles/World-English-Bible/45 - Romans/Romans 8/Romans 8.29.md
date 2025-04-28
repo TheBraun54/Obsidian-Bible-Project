@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whom he foreknew, he also foreordained [to be] conformed to the image of his Son, that he might be the firstborn among many brethren:
+For whom he foreknew, he also predestined to be conformed to the image of his Son, that he might be the firstborn among many brothers.

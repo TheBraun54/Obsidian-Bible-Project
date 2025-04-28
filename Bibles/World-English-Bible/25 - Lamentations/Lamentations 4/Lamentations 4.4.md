@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tongue of the sucking child cleaveth to the roof of his mouth for thirst: The young children ask bread, and no man breaketh it unto them.
+The tongue of the nursing child clings to the roof of his mouth for thirst: The young children ask bread, and no man breaks it to them.

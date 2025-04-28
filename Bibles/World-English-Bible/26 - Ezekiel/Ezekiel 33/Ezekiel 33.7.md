@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So thou, son of man, I have set thee a watchman unto the house of Israel; therefore hear the word at my mouth, and give them warning from me.
+So you, son of man, I have set you a watchman to the house of Israel; therefore hear the word at my mouth, and give them warning from me.

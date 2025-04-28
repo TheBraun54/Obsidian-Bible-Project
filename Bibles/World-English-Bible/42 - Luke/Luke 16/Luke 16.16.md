@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The law and the prophets [were] until John: from that time the gospel of the kingdom of God is preached, and every man entereth violently into it.
+The law and the prophets were until John. From that time the Good News of the Kingdom of God is preached, and everyone is forcing his way into it.

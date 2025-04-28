@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which maketh a man to be desired is his kindness; And a poor man is better than a liar.
+That which makes a man to be desired is his kindness. A poor man is better than a liar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua passed from Libnah, and all Israel with him, unto Lachish, and encamped against it, and fought against it:
+Joshua passed from Libnah, and all Israel with him, to Lachish, and encamped against it, and fought against it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses and unto Aaron, Take to you handfuls of ashes of the furnace, and let Moses sprinkle it toward heaven in the sight of Pharaoh.
+Yahweh said to Moses and to Aaron, "Take to you handfuls of ashes of the furnace, and let Moses sprinkle it toward the sky in the sight of Pharaoh.

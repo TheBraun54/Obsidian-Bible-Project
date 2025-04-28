@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will put forth my hand, and smite Egypt with all my wonders which I will do in the midst thereof: and after that he will let you go.
+I will put forth my hand and strike Egypt with all my wonders which I will do in its midst, and after that he will let you go.

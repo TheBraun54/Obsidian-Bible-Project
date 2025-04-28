@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Abram, after that Lot was separated from him, Lift up now thine eyes, and look from the place where thou art, northward and southward and eastward and westward:
+Yahweh said to Abram, after Lot was separated from him, "Now, lift up your eyes, and look from the place where you are, northward and southward and eastward and westward,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fool hath no delight in understanding, But only that his heart may reveal itself.
+A fool has no delight in understanding, but only in revealing his own opinion.

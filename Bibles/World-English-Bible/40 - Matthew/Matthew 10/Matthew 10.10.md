@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-no wallet for [your] journey, neither two coats, nor shoes, nor staff: for the laborer is worthy of his food.
+Take no bag for your journey, neither two coats, nor shoes, nor staff: for the laborer is worthy of his food.

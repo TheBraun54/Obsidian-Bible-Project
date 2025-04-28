@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that thou shouldest visit him every morning, And try him every moment?
+that you should visit him every morning, and test him every moment?

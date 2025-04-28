@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Ziba unto the king, According to all that my lord the king commandeth his servant, so shall thy servant do. As for Mephibosheth, [said the king], he shall eat at my table, as one of the king's sons.
+Then Ziba said to the king, "According to all that my lord the king commands his servant, so your shall servant do." So Mephibosheth ate at the king's table, like one of the king's sons.

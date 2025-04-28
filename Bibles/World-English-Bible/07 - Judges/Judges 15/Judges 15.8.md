@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he smote them hip and thigh with a great slaughter: and he went down and dwelt in the cleft of the rock of Etam.
+He struck them hip and thigh with a great slaughter: and he went down and lived in the cleft of the rock of Etam.

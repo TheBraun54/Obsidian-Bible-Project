@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was in the days of Herod, king of Judaea, a certain priest named Zacharias, of the course of Abijah: and he had a wife of the daughters of Aaron, and her name was Elisabeth.
+There was in the days of Herod, the king of Judea, a certain priest named Zacharias, of the priestly division of Abijah. He had a wife of the daughters of Aaron, and her name was Elizabeth.

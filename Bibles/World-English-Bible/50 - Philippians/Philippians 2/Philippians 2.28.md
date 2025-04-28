@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have sent him therefore the more diligently, that, when ye see him again, ye may rejoice, and that I may be the less sorrowful.
+I have sent him therefore the more diligently, that, when you see him again, you may rejoice, and that I may be the less sorrowful.

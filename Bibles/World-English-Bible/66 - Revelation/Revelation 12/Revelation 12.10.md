@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard a great voice in heaven, saying, Now is come the salvation, and the power, and the kingdom of our God, and the authority of his Christ: for the accuser of our brethren is cast down, who accuseth them before our God day and night.
+I heard a loud voice in heaven, saying, "Now is come the salvation, the power, and the Kingdom of our God, and the authority of his Christ; for the accuser of our brothers has been thrown down, who accuses them before our God day and night.

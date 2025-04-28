@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them! for they have wandered from me; destruction unto them! for they have trespassed against me: though I would redeem them, yet they have spoken lies against me.
+Woe to them! For they have wandered from me. Destruction to them! For they have trespassed against me. Though I would redeem them, yet they have spoken lies against me.

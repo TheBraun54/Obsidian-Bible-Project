@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is one God, one mediator also between God and men, [himself] man, Christ Jesus,
+For there is one God, and one mediator between God and men, the man Christ Jesus,

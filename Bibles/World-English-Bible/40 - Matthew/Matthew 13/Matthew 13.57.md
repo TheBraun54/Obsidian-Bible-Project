@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were offended in him. But Jesus said unto them, A prophet is not without honor, save in his own country, and in his own house.
+They were offended by him. But Jesus said to them, "A prophet is not without honor, except in his own country, and in his own house."

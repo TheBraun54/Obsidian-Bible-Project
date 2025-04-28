@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, When ye come into the land whither I bring you,
+"Speak to the children of Israel, and tell them, 'When you come into the land where I bring you,

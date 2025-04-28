@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he searched, [and] began at the eldest, and left off at the youngest: and the cup was found in Benjamin's sack.
+He searched, beginning with the eldest, and ending at the youngest. The cup was found in Benjamin's sack.

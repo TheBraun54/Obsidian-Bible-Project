@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his father and his mother were marvelling at the things which were spoken concerning him;
+Joseph and his mother were marveling at the things which were spoken concerning him,

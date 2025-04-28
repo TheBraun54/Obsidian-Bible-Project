@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Long time therefore they tarried [there] speaking boldly in the Lord, who bare witness unto the word of his grace, granting signs and wonders to be done by their hands.
+Therefore they stayed there a long time, speaking boldly in the Lord, who testified to the word of his grace, granting signs and wonders to be done by their hands.

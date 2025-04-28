@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Zophar the Naamathite, and said,
+Then Zophar the Naamathite answered,

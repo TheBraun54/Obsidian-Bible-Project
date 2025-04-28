@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the king of Jericho, one; the king of Ai, which is beside Beth-el, one;
+the king of Jericho, one; the king of Ai, which is beside Bethel, one;

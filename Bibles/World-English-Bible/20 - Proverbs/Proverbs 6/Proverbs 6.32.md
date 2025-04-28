@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that committeth adultery with a woman is void of understanding: He doeth it who would destroy his own soul.
+He who commits adultery with a woman is void of understanding. He who does it destroys his own soul.

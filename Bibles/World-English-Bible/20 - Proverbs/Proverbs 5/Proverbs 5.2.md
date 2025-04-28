@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thou mayest preserve discretion, And that thy lips may keep knowledge.
+that you may maintain discretion, that your lips may preserve knowledge.

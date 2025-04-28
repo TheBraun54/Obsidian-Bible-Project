@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He uncovereth deep things out of darkness, And bringeth out to light the shadow of death.
+He uncovers deep things out of darkness, and brings out to light the shadow of death.

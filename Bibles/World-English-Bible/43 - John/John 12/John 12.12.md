@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the morrow a great multitude that had come to the feast, when they heard that Jesus was coming to Jerusalem,
+On the next day a great multitude had come to the feast. When they heard that Jesus was coming to Jerusalem,

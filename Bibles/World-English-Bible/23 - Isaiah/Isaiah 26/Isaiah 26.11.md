@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, thy hand is lifted up, yet they see not: but they shall see [thy] zeal for the people, and be put to shame; yea, fire shall devour thine adversaries. [
+Yahweh, your hand is lifted up, yet they don't see; but they will see your zeal for the people, and be disappointed. Yes, fire will consume your adversaries.

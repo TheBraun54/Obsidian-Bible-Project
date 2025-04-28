@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Israel, return unto Jehovah thy God; for thou hast fallen by thine iniquity.
+Israel, return to Yahweh your God; for you have fallen because of your sin.

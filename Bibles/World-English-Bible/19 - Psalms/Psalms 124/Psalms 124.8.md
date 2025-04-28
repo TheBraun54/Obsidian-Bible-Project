@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our help is in the name of Jehovah, Who made heaven and earth.
+Our help is in the name of Yahweh, who made heaven and earth. A Song of Ascents.

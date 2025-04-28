@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Sarai, Abram's wife, took Hagar the Egyptian, her handmaid, after Abram had dwelt ten years in the land of Canaan, and gave her to Abram her husband to be his wife.
+Sarai, Abram's wife, took Hagar the Egyptian, her handmaid, after Abram had lived ten years in the land of Canaan, and gave her to Abram her husband to be his wife.

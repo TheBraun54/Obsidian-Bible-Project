@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Circumcise therefore the foreskin of your heart, and be no more stiffnecked.
+Circumcise therefore the foreskin of your heart, and be no more stiff-necked.

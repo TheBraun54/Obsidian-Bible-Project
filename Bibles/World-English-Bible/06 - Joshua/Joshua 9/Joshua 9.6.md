@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went to Joshua unto the camp at Gilgal, and said unto him, and to the men of Israel, We are come from a far country: now therefore make ye a covenant with us.
+They went to Joshua to the camp at Gilgal, and said to him, and to the men of Israel, "We have come from a far country. Now therefore make a covenant with us."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I, Jehovah, love justice, I hate robbery with iniquity; and I will give them their recompense in truth, and I will make an everlasting covenant with them.
+"For I, Yahweh, love justice, I hate robbery with iniquity; and I will give them their recompense in truth, and I will make an everlasting covenant with them.

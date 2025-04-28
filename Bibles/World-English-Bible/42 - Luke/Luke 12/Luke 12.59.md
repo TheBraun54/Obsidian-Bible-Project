@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto thee, Thou shalt by no means come out thence, till thou have paid the very last mite.
+I tell you, you will by no means get out of there, until you have paid the very last penny."

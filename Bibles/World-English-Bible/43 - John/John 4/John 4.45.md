@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So when he came into Galilee, the Galilaeans received him, having seen all the things that he did in Jerusalem at the feast: for they also went unto the feast.
+So when he came into Galilee, the Galileans received him, having seen all the things that he did in Jerusalem at the feast, for they also went to the feast.

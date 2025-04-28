@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will bring a nation against thee from far, from the end of the earth, as the eagle flieth; a nation whose tongue thou shalt not understand;
+Yahweh will bring a nation against you from far, from the end of the earth, as the eagle flies; a nation whose language you shall not understand;

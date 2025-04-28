@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah that made thee, and formed thee from the womb, who will help thee: Fear not, O Jacob my servant; and thou, Jeshurun, whom I have chosen.
+This is what Yahweh who made you, and formed you from the womb, who will help you says: "Don't be afraid, Jacob my servant; and you, Jeshurun, whom I have chosen.

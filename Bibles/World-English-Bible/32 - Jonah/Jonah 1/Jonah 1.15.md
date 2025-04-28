@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they took up Jonah, and cast him forth into the sea; and the sea ceased from its raging.
+So they took up Jonah, and threw him into the sea; and the sea ceased its raging.

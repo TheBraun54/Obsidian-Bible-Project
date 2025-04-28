@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of the sons of Asher according to those that were numbered of them, fifty and three thousand and four hundred.
+These are the families of the sons of Asher according to those who were numbered of them, fifty-three thousand and four hundred.

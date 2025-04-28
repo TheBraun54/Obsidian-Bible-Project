@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, Let them set a clean mitre upon his head. So they set a clean mitre upon his head, and clothed him with garments; and the angel of Jehovah was standing by. [
+I said, "Let them set a clean turban on his head." So they set a clean turban on his head, and clothed him; and the angel of Yahweh was standing by.

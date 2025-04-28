@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Joseph in the land of Egypt were born Manasseh and Ephraim, whom Asenath, the daughter of Poti-phera priest of On, bare unto him.
+To Joseph in the land of Egypt were born Manasseh and Ephraim, whom Asenath, the daughter of Potiphera, priest of On, bore to him.

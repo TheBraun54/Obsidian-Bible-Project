@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All my affairs shall Tychicus make known unto you, the beloved brother and faithful minister and fellow-servant in the Lord:
+All my affairs will be made known to you by Tychicus, the beloved brother, faithful servant, and fellow bondservant in the Lord.

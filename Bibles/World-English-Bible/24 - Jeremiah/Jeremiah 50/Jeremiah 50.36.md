@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A sword is upon the boasters, and they shall become fools; a sword is upon her mighty men, and they shall be dismayed.
+A sword is on the boasters, and they shall become fools; a sword is on her mighty men, and they shall be dismayed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fear came upon every soul: and many wonders and signs were done through the apostles.
+Fear came on every soul, and many wonders and signs were done through the apostles.

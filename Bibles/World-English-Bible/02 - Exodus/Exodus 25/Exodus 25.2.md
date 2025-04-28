@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, that they take for me an offering: of every man whose heart maketh him willing ye shall take my offering.
+"Speak to the children of Israel, that they take an offering for me. From everyone whose heart makes him willing you shall take my offering.

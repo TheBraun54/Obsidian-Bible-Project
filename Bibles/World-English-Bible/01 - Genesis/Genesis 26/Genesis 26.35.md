@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they were a grief of mind unto Isaac and to Rebekah.
+They grieved Isaac's and Rebekah's spirits.

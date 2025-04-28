@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To receive instruction in wise dealing, In righteousness and justice and equity;
+to receive instruction in wise dealing, in righteousness, justice, and equity;

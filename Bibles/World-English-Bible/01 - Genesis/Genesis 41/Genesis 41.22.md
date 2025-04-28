@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw in my dream, and, behold, seven ears came up upon one stalk, full and good:
+I saw in my dream, and behold, seven heads of grain came up on one stalk, full and good:

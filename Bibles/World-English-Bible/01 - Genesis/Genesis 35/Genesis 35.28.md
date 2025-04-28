@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the days of Isaac were a hundred and fourscore years.
+The days of Isaac were one hundred eighty years.

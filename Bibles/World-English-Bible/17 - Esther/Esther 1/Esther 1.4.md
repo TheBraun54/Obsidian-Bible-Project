@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when he showed the riches of his glorious kingdom and the honor of his excellent majesty many days, even a hundred and fourscore days.
+He displayed the riches of his glorious kingdom and the honor of his excellent majesty many days, even one hundred eighty days.

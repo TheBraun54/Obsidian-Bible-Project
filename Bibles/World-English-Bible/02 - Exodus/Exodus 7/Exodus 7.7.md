@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses was fourscore years old, and Aaron fourscore and three years old, when they spake unto Pharaoh.
+Moses was eighty years old, and Aaron eighty-three years old, when they spoke to Pharaoh.

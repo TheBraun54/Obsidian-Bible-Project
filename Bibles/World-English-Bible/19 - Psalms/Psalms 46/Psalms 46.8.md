@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, behold the works of Jehovah, What desolations he hath made in the earth.
+Come, see Yahweh's works, what desolations he has made in the earth.

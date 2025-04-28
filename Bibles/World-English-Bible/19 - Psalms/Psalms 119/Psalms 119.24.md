@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy testimonies also are my delight [And] my counsellors.
+Indeed your statutes are my delight, and my counselors. DALED

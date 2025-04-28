@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of gold for the [things of] gold, and of silver for the [things of] silver, and for all manner of work [to be made] by the hands of artificers. Who then offereth willingly to consecrate himself this day unto Jehovah?
+of gold for the [things of] gold, and of silver for the [things of] silver, and for all kinds of work [to be made] by the hands of artificers. Who then offers willingly to consecrate himself this day to Yahweh?"

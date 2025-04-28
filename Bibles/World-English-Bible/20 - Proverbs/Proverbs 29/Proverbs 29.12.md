@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a ruler hearkeneth to falsehood, All his servants are wicked.
+If a ruler listens to lies, all of his officials are wicked.

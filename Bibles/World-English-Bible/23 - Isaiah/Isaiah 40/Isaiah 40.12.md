@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath measured the waters in the hollow of his hand, and meted out heaven with the span, and comprehended the dust of the earth in a measure, and weighed the mountains in scales, and the hills in a balance?
+Who has measured the waters in the hollow of his hand, and marked off the sky with his span, and calculated the dust of the earth in a measure, and weighed the mountains in scales, and the hills in a balance?

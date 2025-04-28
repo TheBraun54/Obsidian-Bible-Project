@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet let no man strive, neither let any man reprove; for thy people are as they that strive with the priest.
+"Yet let no man bring a charge, neither let any man accuse; For your people are like those who bring charges against a priest.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The pots also, and the shovels, and the flesh-hooks, and all the vessels thereof, did Huram his father make for king Solomon for the house of Jehovah of bright brass.
+The pots also, and the shovels, and the forks, and all its vessels, did Huram his father make for king Solomon for the house of Yahweh of bright brass.

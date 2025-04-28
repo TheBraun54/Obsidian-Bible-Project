@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There the wicked cease from troubling; And there the weary are at rest.
+There the wicked cease from troubling. There the weary are at rest.

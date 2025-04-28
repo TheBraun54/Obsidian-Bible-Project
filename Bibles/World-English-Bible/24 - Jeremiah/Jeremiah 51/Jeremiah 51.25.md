@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am against thee, O destroying mountain, saith Jehovah, which destroyest all the earth; and I will stretch out my hand upon thee, and roll thee down from the rocks, and will make thee a burnt mountain.
+Behold, I am against you, destroying mountain, says Yahweh, which destroys all the earth; and I will stretch out my hand on you, and roll you down from the rocks, and will make you a burnt mountain.

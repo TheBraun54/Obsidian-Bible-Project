@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judah mourneth, and the gates thereof languish, they sit in black upon the ground; and the cry of Jerusalem is gone up.
+Judah mourns, and its gates languish, they sit in black on the ground; and the cry of Jerusalem is gone up.

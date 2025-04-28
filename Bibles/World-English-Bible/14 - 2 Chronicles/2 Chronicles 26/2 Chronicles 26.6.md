@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went forth and warred against the Philistines, and brake down the wall of Gath, and the wall of Jabneh, and the wall of Ashdod; and he built cities in [the country of] Ashdod, and among the Philistines.
+He went forth and warred against the Philistines, and broke down the wall of Gath, and the wall of Jabneh, and the wall of Ashdod; and he built cities in [the country of] Ashdod, and among the Philistines.

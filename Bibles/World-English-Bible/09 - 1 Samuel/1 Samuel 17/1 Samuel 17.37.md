@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said, Jehovah that delivered me out of the paw of the lion, and out of the paw of the bear, he will deliver me out of the hand of this Philistine. And Saul said unto David, Go, and Jehovah shall be with thee.
+David said, "Yahweh who delivered me out of the paw of the lion, and out of the paw of the bear, he will deliver me out of the hand of this Philistine." Saul said to David, "Go; and Yahweh shall be with you."

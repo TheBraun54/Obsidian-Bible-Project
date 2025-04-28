@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Moses entered into the Tent, the pillar of cloud descended, and stood at the door of the Tent: and [Jehovah] spake with Moses.
+It happened, when Moses entered into the Tent, that the pillar of cloud descended, stood at the door of the Tent, and spoke with Moses.

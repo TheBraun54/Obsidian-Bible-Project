@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He raiseth up the poor out of the dust, And lifteth up the needy from the dunghill;
+He raises up the poor out of the dust. Lifts up the needy from the ash heap;

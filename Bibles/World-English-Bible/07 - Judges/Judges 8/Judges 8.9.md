@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake also unto the men of Penuel, saying, When I come again in peace, I will break down this tower.
+He spoke also to the men of Penuel, saying, "When I come again in peace, I will break down this tower."

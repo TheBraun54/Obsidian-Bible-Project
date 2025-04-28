@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The evil bow down before the good; And the wicked, at the gates of the righteous.
+The evil bow down before the good, and the wicked at the gates of the righteous.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For days beyond a year shall ye be troubled, ye careless women; for the vintage shall fail, the ingathering shall not come.
+For days beyond a year you will be troubled, you careless women; for the vintage shall fail. The harvest won't come.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the king's servants, and the people of the king's provinces, do know, that whosoever, whether man or woman, shall come unto the king into the inner court, who is not called, there is one law for him, that he be put to death, except those to whom the king shall hold out the golden sceptre, that he may live: but I have not been called to come in unto the king these thirty days.
+"All the king's servants, and the people of the king's provinces, know, that whoever, whether man or woman, comes to the king into the inner court without being called, there is one law for him, that he be put to death, except those to whom the king might hold out the golden scepter, that he may live. I have not been called to come in to the king these thirty days."

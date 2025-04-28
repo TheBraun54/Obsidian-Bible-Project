@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not fear them; for Jehovah your God, he it is that fighteth for you.
+You shall not fear them; for Yahweh your God, he it is who fights for you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is the stone which was set at nought of you the builders, which was made the head of the corner.
+He is 'the stone which was regarded as worthless by you, the builders, which has become the head of the corner.'

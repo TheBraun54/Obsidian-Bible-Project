@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ruth the Moabitess said, Yea, he said unto me, Thou shalt keep fast by my young men, until they have ended all my harvest.
+Ruth the Moabitess said, "Yes, he said to me, 'You shall stay close to my young men, until they have ended all my harvest.'"

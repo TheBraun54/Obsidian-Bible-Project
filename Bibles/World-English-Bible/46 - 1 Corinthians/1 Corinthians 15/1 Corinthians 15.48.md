@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As is the earthy, such are they also that are earthy: and as is the heavenly, such are they also that are heavenly.
+As is the one made of dust, such are those who are also made of dust; and as is the heavenly, such are they also that are heavenly.

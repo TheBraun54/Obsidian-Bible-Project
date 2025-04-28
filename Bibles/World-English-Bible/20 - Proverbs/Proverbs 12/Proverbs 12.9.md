@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is he that is lightly esteemed, and hath a servant, Than he that honoreth himself, and lacketh bread.
+Better is he who is lightly esteemed, and has a servant, than he who honors himself, and lacks bread.

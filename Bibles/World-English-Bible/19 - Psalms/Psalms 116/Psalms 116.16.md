@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, truly I am thy servant: I am thy servant, the son of thy handmaid; Thou hast loosed my bonds.
+Yahweh, truly I am your servant. I am your servant, the son of your handmaid. You have freed me from my chains.

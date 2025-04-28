@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of the word of Jehovah concerning Israel. [Thus] saith Jehovah, who stretcheth forth the heavens, and layeth the foundation of the earth, and formeth the spirit of man within him:
+An oracle. The word of Yahweh concerning Israel. Yahweh, who stretches out the heavens, and lays the foundation of the earth, and forms the spirit of man within him says:

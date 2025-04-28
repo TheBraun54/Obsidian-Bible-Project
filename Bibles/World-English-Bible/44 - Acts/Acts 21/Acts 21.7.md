@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when we had finished the voyage from Tyre, we arrived at Ptolemais; and we saluted the brethren, and abode with them one day.
+When we had finished the voyage from Tyre, we arrived at Ptolemais. We greeted the brothers, and stayed with them one day.

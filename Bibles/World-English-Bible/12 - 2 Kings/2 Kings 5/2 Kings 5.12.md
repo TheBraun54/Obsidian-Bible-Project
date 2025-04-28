@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are not Abanah and Pharpar, the rivers of Damascus, better than all the waters of Israel? may I not wash in them, and be clean? So he turned and went away in a rage.
+Aren't Abanah and Pharpar, the rivers of Damascus, better than all the waters of Israel? Couldn't I wash in them, and be clean?" So he turned and went away in a rage.

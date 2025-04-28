@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I know your thoughts, And the devices wherewith ye would wrong me.
+"Behold, I know your thoughts, the devices with which you would wrong me.

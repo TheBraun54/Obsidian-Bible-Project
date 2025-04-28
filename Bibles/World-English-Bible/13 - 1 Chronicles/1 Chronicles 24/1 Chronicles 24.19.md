@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This was the ordering of them in their service, to come into the house of Jehovah according to the ordinance [given] unto them by Aaron their father, as Jehovah, the God of Israel, had commanded him.
+This was the ordering of them in their service, to come into the house of Yahweh according to the ordinance [given] to them by Aaron their father, as Yahweh, the God of Israel, had commanded him.

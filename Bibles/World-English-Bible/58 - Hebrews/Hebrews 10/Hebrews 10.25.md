@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not forsaking our own assembling together, as the custom of some is, but exhorting [one another] ; and so much the more, as ye see the day drawing nigh.
+not forsaking our own assembling together, as the custom of some is, but exhorting one another; and so much the more, as you see the Day approaching.

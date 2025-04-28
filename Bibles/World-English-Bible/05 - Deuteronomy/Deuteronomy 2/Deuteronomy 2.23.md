@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Avvim, that dwelt in villages as far as Gaza, the Caphtorim, that came forth out of Caphtor, destroyed them, and dwelt in their stead.)
+and the Avvim, who lived in villages as far as Gaza, the Caphtorim, who came forth out of Caphtor, destroyed them, and lived in their place.)

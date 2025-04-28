@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is all one; therefore I say, He destroyeth the perfect and the wicked.
+"It is all the same. Therefore I say he destroys the blameless and the wicked.

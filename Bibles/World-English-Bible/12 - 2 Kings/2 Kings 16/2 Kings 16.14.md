@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the brazen altar, which was before Jehovah, he brought from the forefront of the house, from between his altar and the house of Jehovah, and put it on the north side of his altar.
+The bronze altar, which was before Yahweh, he brought from the forefront of the house, from between his altar and the house of Yahweh, and put it on the north side of his altar.

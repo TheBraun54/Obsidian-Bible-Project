@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being made manifest that ye are an epistle of Christ, ministered by us, written not with ink, but with the Spirit of the living God; not in tables of stone, but in tables [that are] hearts of flesh.
+being revealed that you are a letter of Christ, served by us, written not with ink, but with the Spirit of the living God; not in tablets of stone, but in tablets that are hearts of flesh.

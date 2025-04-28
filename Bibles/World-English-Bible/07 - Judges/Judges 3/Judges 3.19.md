@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he himself turned back from the quarries that were by Gilgal, and said, I have a secret errand unto thee, O king. And he said, Keep silence. And all that stood by him went out from him.
+But he himself turned back from the quarries that were by Gilgal, and said, "I have a secret errand to you, king." The king said, "Keep silence!" All who stood by him went out from him.

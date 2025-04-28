@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that saw it told them how he that was possessed with demons was made whole.
+Those who saw it told them how he who had been possessed by demons was healed.

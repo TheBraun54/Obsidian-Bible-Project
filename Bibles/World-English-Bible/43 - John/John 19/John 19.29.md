@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was set there a vessel full of vinegar: so they put a sponge full of the vinegar upon hyssop, and brought it to his mouth.
+Now a vessel full of vinegar was set there; so they put a sponge full of the vinegar on hyssop, and held it at his mouth.

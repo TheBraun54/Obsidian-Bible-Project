@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For strangers are risen up against me, And violent men have sought after my soul: They have not set God before them. {{Selah
+For strangers have risen up against me. Violent men have sought after my soul. They haven't set God before them. Selah.

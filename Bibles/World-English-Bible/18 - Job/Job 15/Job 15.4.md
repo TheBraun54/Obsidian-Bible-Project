@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, thou doest away with fear, And hinderest devotion before God.
+Yes, you do away with fear, and hinder devotion before God.

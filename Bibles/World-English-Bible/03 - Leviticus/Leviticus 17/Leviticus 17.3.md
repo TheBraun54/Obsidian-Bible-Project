@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What man soever there be of the house of Israel, that killeth an ox, or lamb, or goat, in the camp, or that killeth it without the camp,
+Whatever man there is of the house of Israel, who kills a bull, or lamb, or goat, in the camp, or who kills it outside the camp,

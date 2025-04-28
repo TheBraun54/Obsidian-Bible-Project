@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am against the prophets, saith Jehovah, that use their tongues, and say, He saith.
+Behold, I am against the prophets, says Yahweh, who use their tongues, and say, He says.

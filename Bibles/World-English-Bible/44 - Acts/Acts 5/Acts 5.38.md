@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I say unto you, Refrain from these men, and let them alone: for if this counsel or this work be of men, it will be overthrown:
+Now I tell you, withdraw from these men, and leave them alone. For if this counsel or this work is of men, it will be overthrown.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His work is honor and majesty; And his righteousness endureth for ever.
+His work is honor and majesty. His righteousness endures forever.

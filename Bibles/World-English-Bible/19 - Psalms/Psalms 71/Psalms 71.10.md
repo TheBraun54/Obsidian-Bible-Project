@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For mine enemies speak concerning me; And they that watch for my soul take counsel together,
+For my enemies talk about me. Those who watch for my soul conspire together,

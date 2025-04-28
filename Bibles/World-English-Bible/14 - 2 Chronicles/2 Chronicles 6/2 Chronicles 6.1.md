@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake Solomon, Jehovah hath said that he would dwell in the thick darkness.
+Then Solomon said, "Yahweh has said that he would dwell in the thick darkness.

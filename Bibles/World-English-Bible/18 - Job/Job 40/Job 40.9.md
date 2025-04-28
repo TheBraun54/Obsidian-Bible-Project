@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or hast thou an arm like God? And canst thou thunder with a voice like him?
+Or do you have an arm like God? Can you thunder with a voice like him?

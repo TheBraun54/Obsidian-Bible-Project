@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are of the Dispersion, greeting.
+James, a servant of God and of the Lord Jesus Christ, to the twelve tribes which are in the Dispersion: Greetings.

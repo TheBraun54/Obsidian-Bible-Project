@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the first day there shall be to you a holy convocation, and in the seventh day a holy convocation; no manner of work shall be done in them, save that which every man must eat, that only may be done by you.
+In the first day there shall be to you a holy convocation, and in the seventh day a holy convocation; no kind of work shall be done in them, except that which every man must eat, that only may be done by you.

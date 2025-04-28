@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon said unto God, If thou wilt save Israel by my hand, as thou hast spoken,
+Gideon said to God, "If you will save Israel by my hand, as you have spoken,

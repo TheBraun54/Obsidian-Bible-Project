@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a sojourner shalt thou not wrong, neither shalt thou oppress him: for ye were sojourners in the land of Egypt.
+"You shall not wrong an alien, neither shall you oppress him, for you were aliens in the land of Egypt.

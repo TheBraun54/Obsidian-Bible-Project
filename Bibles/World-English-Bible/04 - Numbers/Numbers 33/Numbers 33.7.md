@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Etham, and turned back unto Pi-hahiroth, which is before Baal-zephon: and they encamped before Migdol.
+They traveled from Etham, and turned back to Pihahiroth, which is before Baal Zephon: and they encamped before Migdol.

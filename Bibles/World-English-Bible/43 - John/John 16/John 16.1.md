@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things have I spoken unto you, that ye should not be caused to stumble.
+"These things have I spoken to you, so that you wouldn't be caused to stumble.

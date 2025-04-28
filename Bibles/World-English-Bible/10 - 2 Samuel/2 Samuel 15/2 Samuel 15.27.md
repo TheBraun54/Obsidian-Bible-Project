@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king said also unto Zadok the priest, Art thou [not] a seer? return into the city in peace, and your two sons with you, Ahimaaz thy son, and Jonathan the son of Abiathar.
+The king said also to Zadok the priest, "Aren't you a seer? Return into the city in peace, and your two sons with you, Ahimaaz your son, and Jonathan the son of Abiathar.

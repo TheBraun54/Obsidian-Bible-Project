@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the morrow they entered into Caesarea. And Cornelius was waiting for them, having called together his kinsmen and his near friends.
+On the next day they entered into Caesarea. Cornelius was waiting for them, having called together his relatives and his near friends.

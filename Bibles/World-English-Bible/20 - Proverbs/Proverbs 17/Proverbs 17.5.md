@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso mocketh the poor reproacheth his Maker; [And] he that is glad at calamity shall not be unpunished.
+Whoever mocks the poor reproaches his Maker. He who is glad at calamity shall not be unpunished.

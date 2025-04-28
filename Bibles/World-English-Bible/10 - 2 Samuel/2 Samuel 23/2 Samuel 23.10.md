@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He arose, and smote the Philistines until his hand was weary, and his hand clave unto the sword; and Jehovah wrought a great victory that day; and the people returned after him only to take spoil.
+He arose, and struck the Philistines until his hand was weary, and his hand froze to the sword; and Yahweh worked a great victory that day; and the people returned after him only to take spoil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for in him were all things created, in the heavens and upon the earth, things visible and things invisible, whether thrones or dominions or principalities or powers; all things have been created through him, and unto him;
+For by him all things were created, in the heavens and on the earth, things visible and things invisible, whether thrones or dominions or principalities or powers; all things have been created through him, and for him.

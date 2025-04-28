@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say, [thy] counsel and strength for the war are but vain words: now on whom dost thou trust, that thou hast rebelled against me?
+I say that your counsel and strength for the war are only vain words. Now in whom do you trust, that you have rebelled against me?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeroboam said in his heart, Now will the kingdom return to the house of David:
+Jeroboam said in his heart, "Now the kingdom will return to the house of David.

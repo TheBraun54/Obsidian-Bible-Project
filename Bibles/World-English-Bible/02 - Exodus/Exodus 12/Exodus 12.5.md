@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your lamb shall be without blemish, a male a year old: ye shall take it from the sheep, or from the goats:
+Your lamb shall be without blemish, a male a year old. You shall take it from the sheep, or from the goats:

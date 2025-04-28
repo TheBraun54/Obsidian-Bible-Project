@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Jether: Jephunneh, and Pispa, and Ara.
+The sons of Jether: Jephunneh, and Pispa, and Ara.

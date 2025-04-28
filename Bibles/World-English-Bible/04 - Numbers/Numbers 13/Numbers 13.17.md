@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses sent them to spy out the land of Canaan, and said unto them, Get you up this way by the South, and go up into the hill-country:
+Moses sent them to spy out the land of Canaan, and said to them, "Go up this way by the South, and go up into the hill country:

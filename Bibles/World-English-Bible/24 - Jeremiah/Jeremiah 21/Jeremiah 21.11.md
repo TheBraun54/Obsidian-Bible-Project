@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And touching the house of the king of Judah, hear ye the word of Jehovah:
+Touching the house of the king of Judah, hear the word of Yahweh:

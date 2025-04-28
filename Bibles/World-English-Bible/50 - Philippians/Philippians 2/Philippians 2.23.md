@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Him therefore I hope to send forthwith, so soon as I shall see how it will go with me:
+Therefore I hope to send him at once, as soon as I see how it will go with me.

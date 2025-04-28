@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto him, If thou wouldest be perfect, go, sell that which thou hast, and give to the poor, and thou shalt have treasure in heaven: and come, follow me.
+Jesus said to him, "If you want to be perfect, go, sell what you have, and give to the poor, and you will have treasure in heaven; and come, follow me."

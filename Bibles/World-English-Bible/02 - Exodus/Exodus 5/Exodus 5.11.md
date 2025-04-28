@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go yourselves, get you straw where ye can find it; for nought of your work shall be diminished.
+Go yourselves, get straw where you can find it, for nothing of your work shall be diminished.'"

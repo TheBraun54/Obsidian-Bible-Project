@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that was sown upon the rocky places, this is he that heareth the word, and straightway with joy receiveth it;
+What was sown on the rocky places, this is he who hears the word, and immediately with joy receives it;

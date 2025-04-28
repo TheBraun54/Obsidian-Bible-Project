@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall return no more to his house, Neither shall his place know him any more.
+He shall return no more to his house, neither shall his place know him any more.

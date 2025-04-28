@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cities which ye shall give shall be for you six cities of refuge.
+The cities which you shall give shall be for you six cities of refuge.

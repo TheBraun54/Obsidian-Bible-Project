@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as often as I speak, I cry out; I cry, Violence and destruction! because the word of Jehovah is made a reproach unto me, and a derision, all the day.
+For as often as I speak, I cry out; I cry, Violence and destruction! because the word of Yahweh is made a reproach to me, and a derision, all the day.

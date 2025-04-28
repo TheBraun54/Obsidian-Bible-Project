@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But chose the tribe of Judah, The mount Zion which he loved.
+But chose the tribe of Judah, Mount Zion which he loved.

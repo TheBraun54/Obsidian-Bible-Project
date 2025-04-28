@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Redeem me from the oppression of man: So will I observe thy precepts.
+Redeem me from the oppression of man, so I will observe your precepts.

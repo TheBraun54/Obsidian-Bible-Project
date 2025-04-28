@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have more understanding than all my teachers; For thy testimonies are my meditation.
+I have more understanding than all my teachers, for your testimonies are my meditation.

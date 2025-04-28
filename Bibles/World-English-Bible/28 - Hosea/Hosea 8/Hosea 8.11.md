@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because Ephraim hath multiplied altars for sinning, altars have been unto him for sinning.
+Because Ephraim has multiplied altars for sinning, they became for him altars for sinning.

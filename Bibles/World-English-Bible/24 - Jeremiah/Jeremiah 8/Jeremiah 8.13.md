@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will utterly consume them, saith Jehovah: there shall be no grapes on the vine, nor figs on the fig-tree, and the leaf shall fade; and [the things that] I have given them shall pass away from them.
+I will utterly consume them, says Yahweh: no grapes shall be on the vine, nor figs on the fig tree, and the leaf shall fade; and [the things that] I have given them shall pass away from them.

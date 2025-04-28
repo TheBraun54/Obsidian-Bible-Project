@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I say unto the wicked, Thou shalt surely die; and thou givest him not warning, nor speakest to warn the wicked from his wicked way, to save his life; the same wicked man shall die in his iniquity; but his blood will I require at thy hand.
+When I tell the wicked, You shall surely die; and you give him no warning, nor speak to warn the wicked from his wicked way, to save his life; the same wicked man shall die in his iniquity; but his blood will I require at your hand.

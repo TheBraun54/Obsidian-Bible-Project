@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And others are they that are sown among the thorns; these are they that have heard the word,
+Others are those who are sown among the thorns. These are those who have heard the word,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he saith to the snow, Fall thou on the earth; Likewise to the shower of rain, And to the showers of his mighty rain.
+For he says to the snow, 'Fall on the earth;' likewise to the shower of rain, and to the showers of his mighty rain.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a third part shall be at the king's house; and a third part at the gate of the foundation: and all the people shall be in the courts of the house of Jehovah.
+A third part shall be at the king's house; and a third part at the gate of the foundation. All the people shall be in the courts of Yahweh's house.

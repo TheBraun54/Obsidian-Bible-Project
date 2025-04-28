@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We certify the king that, if this city be builded, and the walls finished, by this means thou shalt have no portion beyond the River.
+We inform the king that, if this city be built, and the walls finished, by this means you shall have no portion beyond the River.

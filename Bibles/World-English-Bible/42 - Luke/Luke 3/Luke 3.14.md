@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And soldiers also asked him, saying, And we, what must we do? And he said unto them, Extort from no man by violence, neither accuse [any one] wrongfully; and be content with your wages. [
+Soldiers also asked him, saying, "What about us? What must we do?" He said to them, "Extort from no one by violence, neither accuse anyone wrongfully. Be content with your wages."

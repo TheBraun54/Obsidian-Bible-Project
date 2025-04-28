@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt sacrifice peace-offerings, and shalt eat there; and thou shalt rejoice before Jehovah thy God.
+and you shall sacrifice peace offerings, and shall eat there; and you shall rejoice before Yahweh your God.

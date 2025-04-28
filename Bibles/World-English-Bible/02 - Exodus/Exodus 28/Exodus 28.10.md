@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-six of their names on the one stone, and the names of the six that remain on the other stone, according to their birth.
+six of their names on the one stone, and the names of the six that remain on the other stone, in the order of their birth.

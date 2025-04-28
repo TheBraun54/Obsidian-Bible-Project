@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she went down unto the threshing-floor, and did according to all that her mother-in-law bade her.
+She went down to the threshing floor, and did according to all that her mother-in-law told her.

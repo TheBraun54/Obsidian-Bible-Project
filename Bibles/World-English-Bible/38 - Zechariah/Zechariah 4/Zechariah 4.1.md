@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel that talked with me came again, and waked me, as a man that is wakened out of his sleep.
+The angel who talked with me came again, and wakened me, as a man who is wakened out of his sleep.

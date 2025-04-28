@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when Jehovah thy God shall deliver them up before thee, and thou shalt smite them; then thou shalt utterly destroy them: thou shalt make no covenant with them, nor show mercy unto them;
+and when Yahweh your God shall deliver them up before you, and you shall strike them; then you shall utterly destroy them: you shall make no covenant with them, nor show mercy to them;

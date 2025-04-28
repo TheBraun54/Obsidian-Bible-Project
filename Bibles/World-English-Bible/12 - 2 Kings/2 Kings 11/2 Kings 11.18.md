@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people of the land went to the house of Baal, and brake it down; his altars and his images brake they in pieces thoroughly, and slew Mattan the priest of Baal before the altars. And the priest appointed [ officers over the house of Jehovah.
+All the people of the land went to the house of Baal, and broke it down; his altars and his images broke they in pieces thoroughly, and killed Mattan the priest of Baal before the altars. The priest appointed officers over the house of Yahweh.

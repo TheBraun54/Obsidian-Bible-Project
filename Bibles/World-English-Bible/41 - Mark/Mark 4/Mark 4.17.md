@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they have no root in themselves, but endure for a while; then, when tribulation or persecution ariseth because of the word, straightway they stumble.
+They have no root in themselves, but are short-lived. When oppression or persecution arises because of the word, immediately they stumble.

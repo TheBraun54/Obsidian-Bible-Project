@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and come and stand before me in this house, which is called by my name, and say, We are delivered; that ye may do all these abominations?
+and come and stand before me in this house, which is called by my name, and say, We are delivered; that you may do all these abominations?

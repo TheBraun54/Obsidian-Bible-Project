@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: How much more when I send my four sore judgments upon Jerusalem, the sword, and the famine, and the evil beasts, and the pestilence, to cut off from it man and beast!
+For thus says the Lord Yahweh: How much more when I send my four severe judgments on Jerusalem, the sword, and the famine, and the evil animals, and the pestilence, to cut off from it man and animal!

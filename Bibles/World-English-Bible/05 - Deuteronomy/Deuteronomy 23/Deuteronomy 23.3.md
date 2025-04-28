@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An Ammonite or a Moabite shall not enter into the assembly of Jehovah; even to the tenth generation shall none belonging to them enter into the assembly of Jehovah for ever:
+An Ammonite or a Moabite shall not enter into the assembly of Yahweh; even to the tenth generation shall none belonging to them enter into the assembly of Yahweh forever:

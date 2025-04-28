@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But them that are without God judgeth. Put away the wicked man from among yourselves.
+But those who are outside, God judges. "Put away the wicked man from among yourselves."

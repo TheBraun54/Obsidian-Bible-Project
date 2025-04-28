@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham drew near, and said, Wilt thou consume the righteous with the wicked?
+Abraham drew near, and said, "Will you consume the righteous with the wicked?

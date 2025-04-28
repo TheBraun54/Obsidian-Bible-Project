@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tongue of the wise uttereth knowledge aright; But the mouth of fools poureth out folly.
+The tongue of the wise commends knowledge, but the mouth of fools gush out folly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through God we shall do valiantly; For he it is that will tread down our adversaries.
+Through God we shall do valiantly, for it is he who will tread down our adversaries. For the Chief Musician. For a stringed instrument. By David.

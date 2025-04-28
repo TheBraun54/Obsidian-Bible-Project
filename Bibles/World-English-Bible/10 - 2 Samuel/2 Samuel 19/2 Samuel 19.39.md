@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people went over the Jordan, and the king went over: and the king kissed Barzillai, and blessed him; and he returned unto his own place.
+All the people went over the Jordan, and the king went over. Then the king kissed Barzillai, and blessed him; and he returned to his own place.

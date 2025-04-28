@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that came to Jeremiah from Jehovah in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadrezzar.
+The word that came to Jeremiah from Yahweh in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar.

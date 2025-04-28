@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is none like unto thee among the gods, O Lord; Neither [are there any works] like unto thy works.
+There is no one like you among the gods, Lord, nor any deeds like your deeds.

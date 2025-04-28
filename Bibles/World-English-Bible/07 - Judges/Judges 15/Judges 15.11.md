@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then three thousand men of Judah went down to the cleft of the rock of Etam, and said to Samson, Knowest thou not that the Philistines are rulers over us? what then is this that thou hast done unto us? And he said unto them, As they did unto me, so have I done unto them.
+Then three thousand men of Judah went down to the cleft of the rock of Etam, and said to Samson, "Don't you know that the Philistines are rulers over us? What then is this that you have done to us?" He said to them, "As they did to me, so have I done to them."

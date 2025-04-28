@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in the place where he was crucified there was a garden; and in the garden a new tomb wherein was never man yet laid.
+Now in the place where he was crucified there was a garden. In the garden was a new tomb in which no man had ever yet been laid.

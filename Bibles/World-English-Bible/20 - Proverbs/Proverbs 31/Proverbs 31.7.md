@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let him drink, and forget his poverty, And remember his misery no more.
+Let him drink, and forget his poverty, and remember his misery no more.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, I will answer, saith Jehovah, I will answer the heavens, and they shall answer the earth;
+It will happen in that day, I will respond," says Yahweh, "I will respond to the heavens, and they will respond to the earth;

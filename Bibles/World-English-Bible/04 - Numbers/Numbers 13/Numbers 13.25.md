@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they returned from spying out the land at the end of forty days.
+They returned from spying out the land at the end of forty days.

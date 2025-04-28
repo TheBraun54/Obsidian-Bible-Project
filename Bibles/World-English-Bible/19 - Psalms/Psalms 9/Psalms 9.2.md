@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will be glad and exult in thee; I will sing praise to thy name, O thou Most High.
+I will be glad and rejoice in you. I will sing praise to your name, O Most High.

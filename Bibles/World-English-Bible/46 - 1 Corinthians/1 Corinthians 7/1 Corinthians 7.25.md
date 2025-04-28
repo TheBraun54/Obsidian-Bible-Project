@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now concerning virgins I have no commandment of the Lord: but I give my judgment, as one that hath obtained mercy of the Lord to be trustworthy.
+Now concerning virgins, I have no commandment from the Lord, but I give my judgment as one who has obtained mercy from the Lord to be trustworthy.

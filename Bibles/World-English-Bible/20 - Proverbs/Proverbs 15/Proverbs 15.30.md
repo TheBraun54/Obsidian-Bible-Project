@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The light of the eyes rejoiceth the heart; [And] good tidings make the bones fat.
+The light of the eyes rejoices the heart. Good news gives health to the bones.

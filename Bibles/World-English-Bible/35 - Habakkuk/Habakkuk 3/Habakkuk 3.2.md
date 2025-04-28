@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, I have heard the report of thee, and am afraid: O Jehovah, revive thy work in the midst of the years; In the midst of the years make it known; In wrath remember mercy.
+Yahweh, I have heard of your fame. I stand in awe of your deeds, Yahweh. Renew your work in the midst of the years. In the midst of the years make it known. In wrath, you remember mercy.

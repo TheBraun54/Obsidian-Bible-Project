@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with pestilence and with blood will I enter into judgment with him; and I will rain upon him, and upon his hordes, and upon the many peoples that are with him, an overflowing shower, and great hailstones, fire, and brimstone.
+With pestilence and with blood will I enter into judgment with him; and I will rain on him, and on his hordes, and on the many peoples who are with him, an overflowing shower, and great hailstones, fire, and sulfur.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fruits which thy soul lusted after are gone from thee, and all things that were dainty and sumptuous are perished from thee, and [men] shall find them no more at all.
+The fruits which your soul lusted after have been lost to you, and all things that were dainty and sumptuous have perished from you, and you will find them no more at all.

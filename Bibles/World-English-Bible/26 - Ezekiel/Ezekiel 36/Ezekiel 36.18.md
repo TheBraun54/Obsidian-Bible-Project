@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I poured out my wrath upon them for the blood which they had poured out upon the land, and because they had defiled it with their idols;
+Therefore I poured out my wrath on them for the blood which they had poured out on the land, and because they had defiled it with their idols;

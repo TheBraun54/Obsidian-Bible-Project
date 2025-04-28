@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God appointed us not into wrath, but unto the obtaining of salvation through our Lord Jesus Christ,
+For God didn't appoint us to wrath, but to the obtaining of salvation through our Lord Jesus Christ,

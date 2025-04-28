@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her daughters that are in the field shall be slain with the sword: and they shall know that I am Jehovah.
+Her daughters who are in the field shall be slain with the sword: and they shall know that I am Yahweh.

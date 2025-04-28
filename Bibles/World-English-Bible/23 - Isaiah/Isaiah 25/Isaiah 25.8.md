@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath swallowed up death for ever; and the Lord Jehovah will wipe away tears from off all faces; and the reproach of his people will he take away from off all the earth: for Jehovah hath spoken it.
+He has swallowed up death forever! The Lord Yahweh will wipe away tears from off all faces. He will take the reproach of his people away from off all the earth, for Yahweh has spoken it.

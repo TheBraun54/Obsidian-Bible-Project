@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The latter glory of this house shall be greater than the former, saith Jehovah of hosts; and in this place will I give peace, saith Jehovah of hosts.
+'The latter glory of this house will be greater than the former,' says Yahweh of Armies; 'and in this place will I give peace,' says Yahweh of Armies."

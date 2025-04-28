@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou hast not wherewith to pay, Why should he take away thy bed from under thee?
+If you don't have means to pay, why should he take away your bed from under you?

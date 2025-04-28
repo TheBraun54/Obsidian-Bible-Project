@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave the money that was weighed out into the hands of them that did the work, that had the oversight of the house of Jehovah: and they paid it out to the carpenters and the builders, that wrought upon the house of Jehovah,
+They gave the money that was weighed out into the hands of those who did the work, who had the oversight of the house of Yahweh: and they paid it out to the carpenters and the builders, who worked on the house of Yahweh,

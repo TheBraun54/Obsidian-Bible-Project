@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I have filled him with the Spirit of God, in wisdom, and in understanding, and in knowledge, and in all manner of workmanship,
+and I have filled him with the Spirit of God, in wisdom, and in understanding, and in knowledge, and in all kinds of workmanship,

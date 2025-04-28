@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then king Rehoboam sent Adoram, who was over the men subject to taskwork; and all Israel stoned him to death with stones. And king Rehoboam made speed to get him up to his chariot, to flee to Jerusalem.
+Then king Rehoboam sent Adoram, who was over the men subject to forced labor; and all Israel stoned him to death with stones. King Rehoboam made speed to get him up to his chariot, to flee to Jerusalem.

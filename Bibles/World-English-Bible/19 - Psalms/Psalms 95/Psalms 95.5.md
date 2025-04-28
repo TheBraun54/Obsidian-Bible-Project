@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sea is his, and he made it; And his hands formed the dry land.
+The sea is his, and he made it. His hands formed the dry land.

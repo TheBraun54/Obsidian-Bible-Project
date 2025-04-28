@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the channels of waters appeared, And the foundations of the world were laid bare, At thy rebuke, O Jehovah, At the blast of the breath of thy nostrils.
+Then the channels of waters appeared. The foundations of the world were laid bare at your rebuke, Yahweh, at the blast of the breath of your nostrils.

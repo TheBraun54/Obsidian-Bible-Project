@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take counsel together, and it shall be brought to nought; speak the word, and it shall not stand: for God is with us.
+Take counsel together, and it will be brought to nothing; speak the word, and it will not stand: for God is with us."

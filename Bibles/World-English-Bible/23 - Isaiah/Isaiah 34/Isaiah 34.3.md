@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their slain also shall be cast out, and the stench of their dead bodies shall come up; and the mountains shall be melted with their blood.
+Their slain will also be cast out, and the stench of their dead bodies will come up; and the mountains will melt in their blood.

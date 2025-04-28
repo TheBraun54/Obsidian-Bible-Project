@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But [it is] not as though the word of God hath come to nought. For they are not all Israel, that are of Israel:
+But it is not as though the word of God has come to nothing. For they are not all Israel, that are of Israel.

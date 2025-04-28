@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They therefore that were scattered abroad upon the tribulation that arose about Stephen travelled as far as Phoenicia, and Cyprus, and Antioch, speaking the word to none save only to Jews.
+They therefore who were scattered abroad by the oppression that arose about Stephen traveled as far as Phoenicia, Cyprus, and Antioch, speaking the word to no one except to Jews only.

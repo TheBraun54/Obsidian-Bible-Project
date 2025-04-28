@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass about ten days after, that Jehovah smote Nabal, so that he died.
+It happened about ten days after, that Yahweh struck Nabal, so that he died.

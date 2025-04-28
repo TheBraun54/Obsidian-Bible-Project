@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the judgment shall be set, and they shall take away his dominion, to consume and to destroy it unto the end.
+But the judgment shall be set, and they shall take away his dominion, to consume and to destroy it to the end.

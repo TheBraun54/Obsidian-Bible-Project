@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will praise thee, O Lord my God, with my whole heart; And I will glorify thy name for evermore.
+I will praise you, Lord my God, with my whole heart. I will glorify your name forevermore.

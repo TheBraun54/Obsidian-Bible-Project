@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Either a bullock or a lamb that hath anything superfluous or lacking in his parts, that mayest thou offer for a freewill-offering; but for a vow it shall not be accepted.
+Either a bull or a lamb that has any deformity or lacking in his parts, that you may offer for a freewill offering; but for a vow it shall not be accepted.

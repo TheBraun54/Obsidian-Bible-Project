@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Zion said, Jehovah hath forsaken me, and the Lord hath forgotten me.
+But Zion said, "Yahweh has forsaken me, and the Lord has forgotten me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto the people, Sanctify yourselves; for to-morrow Jehovah will do wonders among you.
+Joshua said to the people, "Sanctify yourselves; for tomorrow Yahweh will do wonders among you."

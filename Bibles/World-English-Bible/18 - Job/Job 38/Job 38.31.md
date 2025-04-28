@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou bind the cluster of the Pleiades, Or loose the bands of Orion?
+"Can you bind the cluster of the Pleiades, or loosen the cords of Orion?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this commandment which I command thee this day, it is not too hard for thee, neither is it far off.
+For this commandment which I command you this day, it is not too hard for you, neither is it far off.

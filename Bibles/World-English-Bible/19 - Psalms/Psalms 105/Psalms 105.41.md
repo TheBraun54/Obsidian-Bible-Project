@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He opened the rock, and waters gushed out; They ran in the dry places [like] a river.
+He opened the rock, and waters gushed out. They ran as a river in the dry places.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph answered and said, This is the interpretation thereof: the three baskets are three days;
+Joseph answered, "This is its interpretation. The three baskets are three days.

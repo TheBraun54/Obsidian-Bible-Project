@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-without natural affection, implacable, slanderers, without self-control, fierce, no lovers of good,
+without natural affection, unforgiving, slanderers, without self-control, fierce, no lovers of good,

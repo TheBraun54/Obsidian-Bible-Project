@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts is with us; The God of Jacob is our refuge. {{Selah
+Yahweh of Armies is with us. The God of Jacob is our refuge. Selah. For the Chief Musician. A Psalm by the sons of Korah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cherubim shall spread out their wings on high, covering the mercy-seat with their wings, with their faces one to another; toward the mercy-seat shall the faces of the cherubim be.
+The cherubim shall spread out their wings upward, covering the mercy seat with their wings, with their faces toward one another. The faces of the cherubim shall be toward the mercy seat.

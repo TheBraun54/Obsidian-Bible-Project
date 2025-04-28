@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David removed not the ark unto him into the city of David, but carried it aside into the house of Obed-edom the Gittite.
+So David didn't move the ark to him into the city of David, but carried it aside into the house of Obed-Edom the Gittite.

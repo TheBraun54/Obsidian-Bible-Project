@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have transgressed and have rebelled; thou hast not pardoned.
+We have transgressed and have rebelled; you have not pardoned.

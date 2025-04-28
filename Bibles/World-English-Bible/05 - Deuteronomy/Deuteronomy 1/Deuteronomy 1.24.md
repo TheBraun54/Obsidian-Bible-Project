@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they turned and went up into the hill-country, and came unto the valley of Eshcol, and spied it out.
+and they turned and went up into the hill country, and came to the valley of Eshcol, and spied it out.

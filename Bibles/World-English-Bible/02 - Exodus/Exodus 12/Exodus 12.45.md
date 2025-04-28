@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A sojourner and a hired servant shall not eat thereof.
+A foreigner and a hired servant shall not eat of it.

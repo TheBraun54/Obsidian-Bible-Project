@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will punish you according to the fruit of your doings, saith Jehovah; and I will kindle a fire in her forest, and it shall devour all that is round about her.
+I will punish you according to the fruit of your doings, says Yahweh; and I will kindle a fire in her forest, and it shall devour all that is around her.

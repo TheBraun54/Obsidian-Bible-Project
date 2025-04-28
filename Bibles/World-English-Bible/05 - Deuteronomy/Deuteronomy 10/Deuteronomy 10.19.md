@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Love ye therefore the sojourner; for ye were sojourners in the land of Egypt.
+Therefore love the foreigner; for you were foreigners in the land of Egypt.

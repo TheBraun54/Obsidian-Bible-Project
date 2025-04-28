@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I received of the Lord that which also I delivered unto you, that the Lord Jesus in the night in which he was betrayed took bread;
+For I received from the Lord that which also I delivered to you, that the Lord Jesus on the night in which he was betrayed took bread.

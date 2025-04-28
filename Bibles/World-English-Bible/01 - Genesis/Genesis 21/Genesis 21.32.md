@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they made a covenant at Beer-sheba: and Abimelech rose up, and Phicol the captain of his host, and they returned into the land of the Philistines.
+So they made a covenant at Beersheba. Abimelech rose up with Phicol, the captain of his army, and they returned into the land of the Philistines.

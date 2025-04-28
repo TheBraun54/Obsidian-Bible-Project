@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the east border was the Salt Sea, even unto the end of the Jordan. And the border of the north quarter was from the bay of the sea at the end of the Jordan;
+The east border was the Salt Sea, even to the end of the Jordan. The border of the north quarter was from the bay of the sea at the end of the Jordan.

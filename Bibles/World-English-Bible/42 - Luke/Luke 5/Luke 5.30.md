@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Pharisees and their scribes murmured against his disciples, saying, Why do ye eat and drink with the publicans and sinners?
+Their scribes and the Pharisees murmured against his disciples, saying, "Why do you eat and drink with the tax collectors and sinners?"

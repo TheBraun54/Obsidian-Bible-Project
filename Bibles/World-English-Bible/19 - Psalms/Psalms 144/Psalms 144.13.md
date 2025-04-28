@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ When] our garners are full, affording all manner of store, [And] our sheep bring forth thousands and ten thousands in our fields;
+Our barns are full, filled with all kinds of provision. Our sheep bring forth thousands and ten thousands in our fields.

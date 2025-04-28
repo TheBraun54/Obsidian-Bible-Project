@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sucking child shall play on the hole of the asp, and the weaned child shall put his hand on the adder's den.
+The nursing child will play near a cobra's hole, and the weaned child will put his hand on the viper's den.

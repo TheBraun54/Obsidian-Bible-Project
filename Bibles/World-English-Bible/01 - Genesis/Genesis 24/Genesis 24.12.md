@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, O Jehovah, the God of my master Abraham, send me, I pray thee, good speed this day, and show kindness unto my master Abraham.
+He said, "Yahweh, the God of my master Abraham, please give me success this day, and show kindness to my master Abraham.

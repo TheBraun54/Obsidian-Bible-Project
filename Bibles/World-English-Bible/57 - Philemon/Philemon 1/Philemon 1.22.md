@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But withal prepare me also a lodging: for I hope that through your prayers I shall be granted unto you.
+Also, prepare a guest room for me, for I hope that through your prayers I will be restored to you.

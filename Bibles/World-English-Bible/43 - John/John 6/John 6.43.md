@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto them, Murmur not among yourselves.
+Therefore Jesus answered them, "Don't murmur among yourselves.

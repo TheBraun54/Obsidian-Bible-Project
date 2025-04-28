@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye returned and wept before Jehovah; but Jehovah hearkened not to your voice, nor gave ear unto you.
+You returned and wept before Yahweh; but Yahweh didn't listen to your voice, nor gave ear to you.

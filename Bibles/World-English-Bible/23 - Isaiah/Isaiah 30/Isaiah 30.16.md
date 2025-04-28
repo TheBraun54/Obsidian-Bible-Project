@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye said, No, for we will flee upon horses; therefore shall ye flee: and, We will ride upon the swift; therefore shall they that pursue you be swift.
+but you said, "No, for we will flee on horses;" therefore you will flee; and, "We will ride on the swift;" therefore those who pursue you will be swift.

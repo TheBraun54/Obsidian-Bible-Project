@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Receive my instruction, and not silver; And knowledge rather than choice gold.
+Receive my instruction rather than silver; knowledge rather than choice gold.

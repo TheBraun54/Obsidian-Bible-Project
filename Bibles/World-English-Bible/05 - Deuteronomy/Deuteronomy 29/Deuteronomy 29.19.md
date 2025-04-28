@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it come to pass, when he heareth the words of this curse, that he bless himself in his heart, saying, I shall have peace, though I walk in the stubbornness of my heart, to destroy the moist with the dry.
+and it happen, when he hears the words of this curse, that he bless himself in his heart, saying, "I shall have peace, though I walk in the stubbornness of my heart, to destroy the moist with the dry."

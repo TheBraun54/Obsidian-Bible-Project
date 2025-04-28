@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then all the children of Israel, and all the people, went up, and came unto Beth-el, and wept, and sat there before Jehovah, and fasted that day until even; and they offered burnt-offerings and peace-offerings before Jehovah.
+Then all the children of Israel, and all the people, went up, and came to Bethel, and wept, and sat there before Yahweh, and fasted that day until evening; and they offered burnt offerings and peace offerings before Yahweh.

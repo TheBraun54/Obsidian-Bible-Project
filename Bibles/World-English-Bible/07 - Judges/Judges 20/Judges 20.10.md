@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and we will take ten men of a hundred throughout all the tribes of Israel, and a hundred of a thousand, and a thousand out of ten thousand, to fetch victuals for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that they have wrought in Israel.
+and we will take ten men of one hundred throughout all the tribes of Israel, and one hundred of one thousand, and a thousand out of ten thousand, to get food for the people, that they may do, when they come to Gibeah of Benjamin, according to all the folly that they have worked in Israel."

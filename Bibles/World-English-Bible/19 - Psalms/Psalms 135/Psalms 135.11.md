@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sihon king of the Amorites, And Og king of Bashan, And all the kingdoms of Canaan,
+Sihon king of the Amorites, Og king of Bashan, and all the kingdoms of Canaan,

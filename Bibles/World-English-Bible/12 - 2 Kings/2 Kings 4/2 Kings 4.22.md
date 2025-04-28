@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she called unto her husband, and said, Send me, I pray thee, one of the servants, and one of the asses, that I may run to the man of God, and come again.
+She called to her husband, and said, "Please send me one of the servants, and one of the donkeys, that I may run to the man of God, and come again."

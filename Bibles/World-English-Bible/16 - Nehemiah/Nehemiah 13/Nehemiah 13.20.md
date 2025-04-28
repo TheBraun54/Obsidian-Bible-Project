@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the merchants and sellers of all kind of wares lodged without Jerusalem once or twice.
+So the merchants and sellers of all kinds of wares lodged outside of Jerusalem once or twice.

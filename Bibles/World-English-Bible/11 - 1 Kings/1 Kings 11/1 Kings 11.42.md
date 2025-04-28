@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the time that Solomon reigned in Jerusalem over all Israel was forty years.
+The time that Solomon reigned in Jerusalem over all Israel was forty years.

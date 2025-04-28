@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then let me sow, and let another eat; Yea, let the produce of my field be rooted out.
+then let me sow, and let another eat. Yes, let the produce of my field be rooted out.

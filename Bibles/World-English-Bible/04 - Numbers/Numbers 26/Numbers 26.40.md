@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Bela were Ard and Naaman: [of Ard], the family of the Ardites; of Naaman, the family of the Naamites.
+The sons of Bela were Ard and Naaman: [of Ard], the family of the Ardites; of Naaman, the family of the Naamites.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto Jether his first-born, Up, and slay them. But the youth drew not his sword; for he feared, because he was yet a youth.
+He said to Jether his firstborn, "Get up, and kill them!" But the youth didn't draw his sword; for he was afraid, because he was yet a youth.

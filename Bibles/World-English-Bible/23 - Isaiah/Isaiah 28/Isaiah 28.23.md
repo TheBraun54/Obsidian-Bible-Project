@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give ye ear, and hear my voice; hearken, and hear my speech.
+Give ear, and hear my voice! Listen, and hear my speech!

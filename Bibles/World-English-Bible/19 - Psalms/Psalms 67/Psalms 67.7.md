@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God will bless us; And all the ends of the earth shall fear him.
+God will bless us. All the ends of the earth shall fear him. For the Chief Musician. A Psalm by David. A song.

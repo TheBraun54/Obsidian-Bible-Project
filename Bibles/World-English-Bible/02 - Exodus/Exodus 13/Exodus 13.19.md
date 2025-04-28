@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took the bones of Joseph with him: for he had straitly sworn the children of Israel, saying, God will surely visit you; and ye shall carry up my bones away hence with you.
+Moses took the bones of Joseph with him, for he had made the children of Israel swear, saying, "God will surely visit you, and you shall carry up my bones away from here with you."

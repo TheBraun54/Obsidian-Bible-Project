@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As smoke is driven away, so drive them away: As wax melteth before the fire, So let the wicked perish at the presence of God.
+As smoke is driven away, so drive them away. As wax melts before the fire, so let the wicked perish at the presence of God.

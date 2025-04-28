@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he sanctify unto Jehovah a field which he hath bought, which is not of the field of his possession;
+"'If he dedicates to Yahweh a field which he has bought, which is not of the field of his possession,

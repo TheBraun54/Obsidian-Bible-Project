@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the great and first commandment.
+This is the first and great commandment.

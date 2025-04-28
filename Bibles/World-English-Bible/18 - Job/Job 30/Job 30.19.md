@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath cast me into the mire, And I am become like dust and ashes.
+He has cast me into the mire. I have become like dust and ashes.

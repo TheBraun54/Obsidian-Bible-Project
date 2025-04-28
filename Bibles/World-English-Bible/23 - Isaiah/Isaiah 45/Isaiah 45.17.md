@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ But] Israel shall be saved by Jehovah with an everlasting salvation: ye shall not be put to shame nor confounded world without end.
+Israel will be saved by Yahweh with an everlasting salvation. You will not be disappointed nor confounded to ages everlasting.

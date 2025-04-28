@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It will be health to thy navel, And marrow to thy bones.
+It will be health to your body, and nourishment to your bones.

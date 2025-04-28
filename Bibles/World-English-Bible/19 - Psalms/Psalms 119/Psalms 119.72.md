@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The law of thy mouth is better unto me Than thousands of gold and silver.
+The law of your mouth is better to me than thousands of pieces of gold and silver. YUD

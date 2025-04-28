@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then asked we those elders, and said unto them thus, Who gave you a decree to build this house, and to finish this wall?
+Then we asked those elders, and said to them thus, "Who gave you a decree to build this house, and to finish this wall?"

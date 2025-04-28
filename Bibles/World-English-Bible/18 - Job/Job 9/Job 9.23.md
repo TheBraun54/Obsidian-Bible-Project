@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the scourge slay suddenly, He will mock at the trial of the innocent.
+If the scourge kills suddenly, he will mock at the trial of the innocent.

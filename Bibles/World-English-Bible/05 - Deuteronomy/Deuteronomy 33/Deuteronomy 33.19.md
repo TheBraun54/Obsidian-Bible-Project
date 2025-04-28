@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall call the peoples unto the mountain; There shall they offer sacrifices of righteousness: For they shall suck the abundance of the seas, And the hidden treasures of the sand.
+They shall call the peoples to the mountain. There they will offer sacrifices of righteousness, for they shall draw out the abundance of the seas, the hidden treasures of the sand."

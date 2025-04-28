@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye say, The burden of Jehovah; therefore thus saith Jehovah: Because ye say this word, The burden of Jehovah, and I have sent unto you, saying, Ye shall not say, The burden of Jehovah;
+But if you say, The burden of Yahweh; therefore thus says Yahweh: Because you say this word, The burden of Yahweh, and I have sent to you, saying, You shall not say, The burden of Yahweh;

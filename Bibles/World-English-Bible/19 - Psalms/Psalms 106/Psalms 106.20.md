@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus they changed their glory For the likeness of an ox that eateth grass.
+Thus they exchanged their glory for an image of a bull that eats grass.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in whom ye also are builded together for a habitation of God in the Spirit.
+in whom you also are built together for a habitation of God in the Spirit.

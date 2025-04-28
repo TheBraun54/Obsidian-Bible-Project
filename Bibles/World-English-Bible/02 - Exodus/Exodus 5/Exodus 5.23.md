@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For since I came to Pharaoh to speak in thy name, he hath dealt ill with this people; neither hast thou delivered thy people at all.
+For since I came to Pharaoh to speak in your name, he has brought trouble on this people; neither have you delivered your people at all."

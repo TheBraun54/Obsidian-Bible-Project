@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hold the pattern of sound words which thou hast heard from me, in faith and love which is in Christ Jesus.
+Hold the pattern of sound words which you have heard from me, in faith and love which is in Christ Jesus.

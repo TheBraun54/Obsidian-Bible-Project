@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And being in an agony he prayed more earnestly; and his sweat became as it were great drops of blood falling down upon the ground.
+Being in agony he prayed more earnestly. His sweat became like great drops of blood falling down on the ground.

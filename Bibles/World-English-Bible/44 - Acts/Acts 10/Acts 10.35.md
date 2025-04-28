@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in every nation he that feareth him, and worketh righteousness, is acceptable to him.
+but in every nation he who fears him and works righteousness is acceptable to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Holon with its suburbs, and Debir with its suburbs,
+Holon with its suburbs, Debir with its suburbs,

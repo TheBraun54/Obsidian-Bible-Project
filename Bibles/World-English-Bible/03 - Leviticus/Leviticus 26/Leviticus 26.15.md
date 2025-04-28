@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if ye shall reject my statutes, and if your soul abhor mine ordinances, so that ye will not do all my commandments, but break my covenant;
+and if you shall reject my statutes, and if your soul abhors my ordinances, so that you will not do all my commandments, but break my covenant;

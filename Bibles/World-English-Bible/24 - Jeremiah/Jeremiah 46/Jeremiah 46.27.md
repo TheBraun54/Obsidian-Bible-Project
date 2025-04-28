@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But fear not thou, O Jacob my servant, neither be dismayed, O Israel: for, lo, I will save thee from afar, and thy seed from the land of their captivity; and Jacob shall return, and shall be quiet and at ease, and none shall make him afraid.
+But don't you be afraid, Jacob my servant, neither be dismayed, Israel: for, behold, I will save you from afar, and your seed from the land of their captivity; and Jacob shall return, and shall be quiet and at ease, and none shall make him afraid.

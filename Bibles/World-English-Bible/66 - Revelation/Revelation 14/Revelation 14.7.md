@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he saith with a great voice, Fear God, and give him glory; for the hour of his judgment is come: and worship him that made the heaven and the earth and sea and fountains of waters.
+He said with a loud voice, "Fear the Lord, and give him glory; for the hour of his judgment has come. Worship him who made the heaven, the earth, the sea, and the springs of waters!"

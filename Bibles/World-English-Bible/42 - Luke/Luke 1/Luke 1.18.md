@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zacharias said unto the angel, Whereby shall I know this? for I am an old man, and my wife well stricken in years.
+Zacharias said to the angel, "How can I be sure of this? For I am an old man, and my wife is well advanced in years."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a fire is kindled in mine anger, And burneth unto the lowest Sheol, And devoureth the earth with its increase, And setteth on fire the foundations of the mountains.
+For a fire is kindled in my anger, Burns to the lowest Sheol, Devours the earth with its increase, and sets the foundations of the mountains on fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they told him, and said, We came unto the land whither thou sentest us; and surely it floweth with milk and honey; and this is the fruit of it.
+They told him, and said, "We came to the land where you sent us; and surely it flows with milk and honey; and this is its fruit.

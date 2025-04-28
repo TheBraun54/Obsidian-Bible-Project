@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she went forth out of the place where she was, and her two daughters-in-law with her; and they went on the way to return unto the land of Judah.
+She went forth out of the place where she was, and her two daughters-in-law with her; and they went on the way to return to the land of Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But about midnight Paul and Silas were praying and singing hymns unto God, and the prisoners were listening to them;
+But about midnight Paul and Silas were praying and singing hymns to God, and the prisoners were listening to them.

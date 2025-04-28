@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it came to pass, when we came to the lodging-place, that we opened our sacks, and, behold, every man's money was in the mouth of his sack, our money in full weight: and we have brought it again in our hand.
+When we came to the lodging place, we opened our sacks, and behold, each man's money was in the mouth of his sack, our money in full weight. We have brought it back in our hand.

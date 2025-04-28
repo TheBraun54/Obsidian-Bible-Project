@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, Whosoever shall swear by the altar, it is nothing; but whosoever shall swear by the gift that is upon it, he is a debtor.
+'Whoever swears by the altar, it is nothing; but whoever swears by the gift that is on it, he is obligated?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are driven forth from the midst [of men] ; They cry after them as after a thief;
+They are driven out from the midst of men. They cry after them as after a thief;

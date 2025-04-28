@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man did as Joseph bade; and the man brought the men to Joseph's house.
+The man did as Joseph commanded, and the man brought the men to Joseph's house.

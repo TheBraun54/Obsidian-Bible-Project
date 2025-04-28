@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-testifying both to Jews and to Greeks repentance toward God, and faith toward our Lord Jesus Christ.
+testifying both to Jews and to Greeks repentance toward God, and faith toward our Lord Jesus.

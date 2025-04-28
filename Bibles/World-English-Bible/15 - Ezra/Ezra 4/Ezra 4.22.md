@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And take heed that ye be not slack herein: why should damage grow to the hurt of the kings?
+Take heed that you not be slack herein: why should damage grow to the hurt of the kings?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+Now he had to release one prisoner to them at the feast.

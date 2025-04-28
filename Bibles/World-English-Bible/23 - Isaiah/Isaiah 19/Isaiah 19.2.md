@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will stir up the Egyptians against the Egyptians: and they shall fight every one against his brother, and every one against his neighbor; city against city, [and] kingdom against kingdom.
+I will stir up the Egyptians against the Egyptians, and they will fight everyone against his brother, and everyone against his neighbor; city against city, and kingdom against kingdom.

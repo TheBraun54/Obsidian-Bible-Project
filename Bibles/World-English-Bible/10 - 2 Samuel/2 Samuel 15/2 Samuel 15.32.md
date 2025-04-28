@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that, when David was come to the top [of the ascent], where God was worshipped, behold, Hushai the Archite came to meet him with his coat rent, and earth upon his head.
+It happened that when David had come to the top [of the ascent], where God was worshiped, behold, Hushai the Archite came to meet him with his coat torn, and earth on his head.

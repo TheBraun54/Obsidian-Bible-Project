@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Levites: the children of Jeshua, of Kadmiel, of the children of Hodevah, seventy and four.
+The Levites: the children of Jeshua, of Kadmiel, of the children of Hodevah, seventy-four.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear ye not me? saith Jehovah: will ye not tremble at my presence, who have placed the sand for the bound of the sea, by a perpetual decree, that it cannot pass it? and though the waves thereof toss themselves, yet can they not prevail; though they roar, yet can they not pass over it.
+Don't you fear me?' says Yahweh 'Won't you tremble at my presence, who have placed the sand for the bound of the sea, by a perpetual decree, that it can't pass it? and though its waves toss themselves, yet they can't prevail; though they roar, yet they can't pass over it.'

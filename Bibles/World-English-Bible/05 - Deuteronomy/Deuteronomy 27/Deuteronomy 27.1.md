@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and the elders of Israel commanded the people, saying, Keep all the commandment which I command you this day.
+Moses and the elders of Israel commanded the people, saying, "Keep all the commandment which I command you this day.

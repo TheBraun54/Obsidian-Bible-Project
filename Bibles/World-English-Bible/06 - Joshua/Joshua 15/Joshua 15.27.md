@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hazar-gaddah, and Heshmon, and Beth-pelet,
+Hazar Gaddah, Heshmon, Beth Pelet,

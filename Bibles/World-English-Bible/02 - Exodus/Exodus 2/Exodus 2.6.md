@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she opened it, and saw the child: and, behold, the babe wept. And she had compassion on him, and said, This is one of the Hebrews' children.
+She opened it, and saw the child, and behold, the baby cried. She had compassion on him, and said, "This is one of the Hebrews' children."

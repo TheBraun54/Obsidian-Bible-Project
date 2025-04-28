@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the message which we have heard from him and announce unto you, that God is light, and in him is no darkness at all.
+This is the message which we have heard from him and announce to you, that God is light, and in him is no darkness at all.

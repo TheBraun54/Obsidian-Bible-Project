@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, What are ye willing to give me, and I will deliver him unto you? And they weighed unto him thirty pieces of silver.
+and said, "What are you willing to give me, that I should deliver him to you?" They weighed out for him thirty pieces of silver.

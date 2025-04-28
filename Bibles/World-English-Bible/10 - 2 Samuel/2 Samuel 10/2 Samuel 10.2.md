@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said, I will show kindness unto Hanun the son of Nahash, as his father showed kindness unto me. So David sent by his servants to comfort him concerning his father. And David's servants came into the land of the children of Ammon.
+David said, "I will show kindness to Hanun the son of Nahash, as his father showed kindness to me." So David sent by his servants to comfort him concerning his father. David's servants came into the land of the children of Ammon.

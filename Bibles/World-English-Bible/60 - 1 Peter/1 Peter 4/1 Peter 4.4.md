@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherein they think it strange that ye run not with [them] into the same excess of riot, speaking evil of [you] :
+They think it is strange that you don't run with them into the same excess of riot, blaspheming:

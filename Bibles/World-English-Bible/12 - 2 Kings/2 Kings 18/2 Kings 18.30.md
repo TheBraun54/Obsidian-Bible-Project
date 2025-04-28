@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither let Hezekiah make you trust in Jehovah, saying, Jehovah will surely deliver us, and this city shall not be given into the hand of the king of Assyria.
+Neither let Hezekiah make you trust in Yahweh, saying, "Yahweh will surely deliver us, and this city shall not be given into the hand of the king of Assyria."

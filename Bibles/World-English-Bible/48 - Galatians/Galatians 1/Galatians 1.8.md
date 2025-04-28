@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But though we, or an angel from heaven, should preach unto you any gospel other than that which we preached unto you, let him be anathema.
+But even though we, or an angel from heaven, should preach to you any "good news" other than that which we preached to you, let him be cursed.

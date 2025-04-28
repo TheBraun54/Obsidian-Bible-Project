@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore strove one with another, saying, How can this man give us his flesh to eat?
+The Jews therefore contended with one another, saying, "How can this man give us his flesh to eat?"

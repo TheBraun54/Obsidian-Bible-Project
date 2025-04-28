@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and laid them at the apostles' feet: and distribution was made unto each, according as any one had need.
+and laid them at the apostles' feet, and distribution was made to each, according as anyone had need.

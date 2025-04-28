@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ham, the father of Canaan, saw the nakedness of his father, and told his two brethren without.
+Ham, the father of Canaan, saw the nakedness of his father, and told his two brothers outside.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they worshipped the dragon, because he gave his authority unto the beast; and they worshipped the beast, saying, Who is like unto the beast? And who is able to war with him?
+They worshiped the dragon, because he gave his authority to the beast, and they worshiped the beast, saying, "Who is like the beast? Who is able to make war with him?"

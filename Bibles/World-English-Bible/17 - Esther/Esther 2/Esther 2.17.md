@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king loved Esther above all the women, and she obtained favor and kindness in his sight more than all the virgins; so that he set the royal crown upon her head, and made her queen instead of Vashti.
+The king loved Esther more than all the women, and she obtained favor and kindness in his sight more than all the virgins; so that he set the royal crown on her head, and made her queen instead of Vashti.

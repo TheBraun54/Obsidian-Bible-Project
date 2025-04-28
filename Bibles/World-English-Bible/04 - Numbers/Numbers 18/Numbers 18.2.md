@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy brethren also, the tribe of Levi, the tribe of thy father, bring thou near with thee, that they may be joined unto thee, and minister unto thee: but thou and thy sons with thee shall be before the tent of the testimony.
+Your brothers also, the tribe of Levi, the tribe of your father, bring near with you, that they may be joined to you, and minister to you: but you and your sons with you shall be before the tent of the testimony.

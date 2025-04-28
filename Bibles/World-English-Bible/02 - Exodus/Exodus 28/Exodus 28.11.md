@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With the work of an engraver in stone, like the engravings of a signet, shalt thou engrave the two stones, according to the names of the children of Israel: thou shalt make them to be inclosed in settings of gold.
+With the work of an engraver in stone, like the engravings of a signet, you shall engrave the two stones, according to the names of the children of Israel: you shall make them to be enclosed in settings of gold.

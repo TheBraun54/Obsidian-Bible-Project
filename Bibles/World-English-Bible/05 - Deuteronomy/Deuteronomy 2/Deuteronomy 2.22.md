@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as he did for the children of Esau, that dwell in Seir, when he destroyed the Horites from before them; and they succeeded them, and dwelt in their stead even unto this day:
+as he did for the children of Esau, who dwell in Seir, when he destroyed the Horites from before them; and they succeeded them, and lived in their place even to this day:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the governor had beckoned unto him to speak, Paul answered, Forasmuch as I know that thou hast been of many years a judge unto this nation, I cheerfully make my defense:
+When the governor had beckoned to him to speak, Paul answered, "Because I know that you have been a judge of this nation for many years, I cheerfully make my defense,

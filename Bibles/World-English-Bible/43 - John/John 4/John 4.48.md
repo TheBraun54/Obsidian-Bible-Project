@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said unto him, Except ye see signs and wonders, ye will in no wise believe.
+Jesus therefore said to him, "Unless you see signs and wonders, you will in no way believe."

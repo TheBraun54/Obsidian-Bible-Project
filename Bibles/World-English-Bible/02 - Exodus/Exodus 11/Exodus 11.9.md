@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Pharaoh will not hearken unto you; that my wonders may be multiplied in the land of Egypt.
+Yahweh said to Moses, "Pharaoh won't listen to you, that my wonders may be multiplied in the land of Egypt."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the heavens and the earth were finished, and all the host of them.
+The heavens and the earth were finished, and all their vast array.

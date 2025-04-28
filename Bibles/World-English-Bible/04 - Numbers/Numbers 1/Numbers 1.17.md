@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron took these men that are mentioned by name:
+Moses and Aaron took these men who are mentioned by name.

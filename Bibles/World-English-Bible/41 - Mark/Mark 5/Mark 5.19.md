@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he suffered him not, but saith unto him, Go to thy house unto thy friends, and tell them how great things the Lord hath done for thee, and [how] he had mercy on thee.
+He didn't allow him, but said to him, "Go to your house, to your friends, and tell them what great things the Lord has done for you, and how he had mercy on you."

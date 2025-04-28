@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you! for ye build the tombs of the prophets, and your fathers killed them.
+Woe to you! For you build the tombs of the prophets, and your fathers killed them.

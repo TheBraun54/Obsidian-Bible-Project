@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he, fastening his eyes upon him, and being affrighted, said, What is it, Lord? And he said unto him, Thy prayers and thine alms are gone up for a memorial before God.
+He, fastening his eyes on him, and being frightened, said, "What is it, Lord?" He said to him, "Your prayers and your gifts to the needy have gone up for a memorial before God.

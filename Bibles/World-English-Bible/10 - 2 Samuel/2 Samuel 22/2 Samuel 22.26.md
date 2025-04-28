@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With the merciful thou wilt show thyself merciful; With the perfect man thou wilt show thyself perfect;
+With the merciful you will show yourself merciful. With the perfect man you will show yourself perfect.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the thing pleased me well; and I took twelve men of you, one man for every tribe:
+The thing pleased me well; and I took twelve men of you, one man for every tribe:

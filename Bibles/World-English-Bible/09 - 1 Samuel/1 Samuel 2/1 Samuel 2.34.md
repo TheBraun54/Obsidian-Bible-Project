@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be the sign unto thee, that shall come upon thy two sons, on Hophni and Phinehas: in one day they shall die both of them.
+"'This shall be the sign to you, that shall come on your two sons, on Hophni and Phinehas: in one day they shall both die.

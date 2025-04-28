@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thy brother, a Hebrew man, or a Hebrew woman, be sold unto thee, and serve thee six years; then in the seventh year thou shalt let him go free from thee.
+If your brother, a Hebrew man, or a Hebrew woman, is sold to you, and serves you six years; then in the seventh year you shall let him go free from you.

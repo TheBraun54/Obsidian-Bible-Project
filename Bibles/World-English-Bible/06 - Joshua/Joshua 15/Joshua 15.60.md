@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Kiriath-baal (the same is Kiriath-jearim), and Rabbah; two cities with their villages.
+Kiriath Baal (the same is Kiriath Jearim), and Rabbah; two cities with their villages.

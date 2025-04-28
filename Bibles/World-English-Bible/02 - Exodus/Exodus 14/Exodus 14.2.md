@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, that they turn back and encamp before Pi-hahiroth, between Migdol and the sea, before Baal-zephon: over against it shall ye encamp by the sea.
+"Speak to the children of Israel, that they turn back and encamp before Pihahiroth, between Migdol and the sea, before Baal Zephon. You shall encamp opposite it by the sea.

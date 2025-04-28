@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One law shall be to him that is home-born, and unto the stranger that sojourneth among you.
+One law shall be to him who is born at home, and to the stranger who lives as a foreigner among you."

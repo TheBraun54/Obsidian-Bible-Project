@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the screen for the gate of the court was the work of the embroiderer, of blue, and purple, and scarlet, and fine twined linen: and twenty cubits was the length, and the height in the breadth was five cubits, answerable to the hangings of the court.
+The screen for the gate of the court was the work of the embroiderer, of blue, purple, scarlet, and fine twined linen. Twenty cubits was the length, and the height in the breadth was five cubits, like to the hangings of the court.

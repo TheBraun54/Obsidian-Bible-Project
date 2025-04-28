@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lofty looks of man shall be brought low, and the haughtiness of men shall be bowed down, and Jehovah alone shall be exalted in that day.
+The lofty looks of man will be brought low, the haughtiness of men will be bowed down, and Yahweh alone will be exalted in that day.

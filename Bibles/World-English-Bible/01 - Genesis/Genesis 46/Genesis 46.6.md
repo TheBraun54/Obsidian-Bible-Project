@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took their cattle, and their goods, which they had gotten in the land of Canaan, and came into Egypt, Jacob, and all his seed with him:
+They took their livestock, and their goods, which they had gotten in the land of Canaan, and came into Egypt--Jacob, and all his seed with him,

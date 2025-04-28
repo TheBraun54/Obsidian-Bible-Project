@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of their brethren, of the sons of the Kohathites, were over the showbread, to prepare it every sabbath.
+Some of their brothers, of the sons of the Kohathites, were over the show bread, to prepare it every Sabbath.

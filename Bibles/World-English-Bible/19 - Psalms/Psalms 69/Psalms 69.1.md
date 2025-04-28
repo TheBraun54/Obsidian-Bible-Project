@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to Shoshannim, [A Psalm] of David]. Save me, O God; For the waters are come in unto my soul.
+Save me, God, for the waters have come up to my neck!

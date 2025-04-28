@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore prophesy concerning the land of Israel, and say unto the mountains and to the hills, to the watercourses and to the valleys, Thus saith the Lord Jehovah: Behold, I have spoken in my jealousy and in my wrath, because ye have borne the shame of the nations:
+Therefore prophesy concerning the land of Israel, and tell the mountains and to the hills, to the watercourses and to the valleys, Thus says the Lord Yahweh: Behold, I have spoken in my jealousy and in my wrath, because you have borne the shame of the nations:

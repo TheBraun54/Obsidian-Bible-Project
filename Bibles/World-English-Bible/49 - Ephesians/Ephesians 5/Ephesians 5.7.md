@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not ye therefore partakers with them;
+Therefore don't be partakers with them.

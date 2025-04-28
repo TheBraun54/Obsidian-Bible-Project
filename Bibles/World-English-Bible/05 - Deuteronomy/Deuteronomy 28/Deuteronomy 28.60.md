@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will bring upon thee again all the diseases of Egypt, which thou wast afraid of; and they shall cleave unto thee.
+He will bring on you again all the diseases of Egypt, which you were afraid of; and they shall cling to you.

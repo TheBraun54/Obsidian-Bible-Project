@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one young bullock, one ram, one he-lamb a year old, for a burnt-offering;
+one young bull, one ram, one male lamb a year old, for a burnt offering;

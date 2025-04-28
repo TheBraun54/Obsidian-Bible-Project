@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, My presence shall go [with thee], and I will give thee rest.
+He said, "My presence will go with you, and I will give you rest."

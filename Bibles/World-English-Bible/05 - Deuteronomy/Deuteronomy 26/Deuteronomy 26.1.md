@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when thou art come in unto the land which Jehovah thy God giveth thee for an inheritance, and possessest it, and dwellest therein,
+It shall be, when you are come in to the land which Yahweh your God gives you for an inheritance, and possess it, and dwell therein,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel: Ye have seen all the evil that I have brought upon Jerusalem, and upon all the cities of Judah; and, behold, this day they are a desolation, and no man dwelleth therein,
+Thus says Yahweh of Armies, the God of Israel: You have seen all the evil that I have brought on Jerusalem, and on all the cities of Judah; and behold, this day they are a desolation, and no man dwells therein,

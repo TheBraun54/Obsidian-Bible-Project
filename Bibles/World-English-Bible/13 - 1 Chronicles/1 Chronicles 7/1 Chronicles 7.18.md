@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his sister Hammolecheth bare Ishhod, and Abiezer, and Mahlah.
+His sister Hammolecheth bore Ishhod, and Abiezer, and Mahlah.

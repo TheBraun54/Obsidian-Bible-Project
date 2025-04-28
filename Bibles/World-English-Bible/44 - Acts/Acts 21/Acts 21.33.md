@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the chief captain came near, and laid hold on him, and commanded him to be bound with two chains; and inquired who he was, and what he had done.
+Then the commanding officer came near, arrested him, commanded him to be bound with two chains, and inquired who he was and what he had done.

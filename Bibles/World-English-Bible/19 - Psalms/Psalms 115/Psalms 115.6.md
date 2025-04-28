@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have ears, but they hear not; Noses have they, but they smell not;
+They have ears, but they don't hear. They have noses, but they don't smell.

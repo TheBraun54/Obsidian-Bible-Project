@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which is hath been long ago; and that which is to be hath long ago been: and God seeketh again that which is passed away.
+That which is has been long ago, and that which is to be has been long ago: and God seeks again that which is passed away.

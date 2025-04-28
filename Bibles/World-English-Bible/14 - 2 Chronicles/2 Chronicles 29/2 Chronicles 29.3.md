@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He in the first year of his reign, in the first month, opened the doors of the house of Jehovah, and repaired them.
+He in the first year of his reign, in the first month, opened the doors of the house of Yahweh, and repaired them.

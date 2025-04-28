@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But wilt thou know, O vain man, that faith apart from works is barren?
+But do you want to know, vain man, that faith apart from works is dead?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A seed shall serve him; It shall be told of the Lord unto the [next] generation.
+Posterity shall serve him. Future generations shall be told about the Lord.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I, even I, am Jehovah; and besides me there is no saviour.
+I myself am Yahweh; and besides me there is no savior.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In whose heart is perverseness, Who deviseth evil continually, Who soweth discord.
+in whose heart is perverseness, who devises evil continually, who always sows discord.

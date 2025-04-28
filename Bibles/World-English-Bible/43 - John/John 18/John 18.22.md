@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had said this, one of the officers standing by struck Jesus with his hand, saying, Answerest thou the high priest so?
+When he had said this, one of the officers standing by slapped Jesus with his hand, saying, "Do you answer the high priest like that?"

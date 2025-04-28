@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had appointed for them elders in every church, and had prayed with fasting, they commended them to the Lord, on whom they had believed.
+When they had appointed elders for them in every assembly, and had prayed with fasting, they commended them to the Lord, on whom they had believed.

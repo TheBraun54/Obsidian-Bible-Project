@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The woman also with whom a man shall lie with seed of copulation, they shall both bathe themselves in water, and be unclean until the even.
+If a man lies with a woman and there is an emission of semen, they shall both bathe themselves in water, and be unclean until the evening.

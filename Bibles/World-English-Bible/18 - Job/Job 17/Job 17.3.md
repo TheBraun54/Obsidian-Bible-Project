@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give now a pledge, be surety for me with thyself; Who is there that will strike hands with me?
+"Now give a pledge, be collateral for me with yourself. Who is there who will strike hands with me?

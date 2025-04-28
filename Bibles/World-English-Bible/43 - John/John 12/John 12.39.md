@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause they could not believe, for that Isaiah said again,
+For this cause they couldn't believe, for Isaiah said again,

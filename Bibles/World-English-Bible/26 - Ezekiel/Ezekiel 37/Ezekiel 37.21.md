@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And say unto them, Thus saith the Lord Jehovah: Behold, I will take the children of Israel from among the nations, whither they are gone, and will gather them on every side, and bring them into their own land:
+Say to them, Thus says the Lord Yahweh: Behold, I will take the children of Israel from among the nations, where they are gone, and will gather them on every side, and bring them into their own land:

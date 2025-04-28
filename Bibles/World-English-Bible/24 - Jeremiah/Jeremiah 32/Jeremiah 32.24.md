@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the mounds, they are come unto the city to take it; and the city is given into the hand of the Chaldeans that fight against it, because of the sword, and of the famine, and of the pestilence; and what thou hast spoken is come to pass; and, behold, thou seest it.
+Behold, the mounds, they are come to the city to take it; and the city is given into the hand of the Chaldeans who fight against it, because of the sword, and of the famine, and of the pestilence; and what you have spoken has happened; and behold, you see it.

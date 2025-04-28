@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt burn the whole ram upon the altar: it is a burnt-offering unto Jehovah; it is a sweet savor, an offering made by fire unto Jehovah.
+You shall burn the whole ram on the altar: it is a burnt offering to Yahweh; it is a pleasant aroma, an offering made by fire to Yahweh.

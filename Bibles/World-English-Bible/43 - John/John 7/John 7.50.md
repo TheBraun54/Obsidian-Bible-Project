@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nicodemus saith unto them (he that came to him before, being one of them),
+Nicodemus (he who came to him by night, being one of them) said to them,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give us this day our daily bread.
+Give us today our daily bread.

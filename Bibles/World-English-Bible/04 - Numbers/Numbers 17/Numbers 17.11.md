@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did Moses: as Jehovah commanded him, so did he.
+Moses did so. As Yahweh commanded him, so he did.

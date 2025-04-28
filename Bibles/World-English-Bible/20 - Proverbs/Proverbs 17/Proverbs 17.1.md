@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is a dry morsel, and quietness therewith, Than a house full of feasting with strife.
+Better is a dry morsel with quietness, than a house full of feasting with strife.

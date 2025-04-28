@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had kindled a fire in the midst of the court, and had sat down together, Peter sat in the midst of them.
+When they had kindled a fire in the middle of the courtyard, and had sat down together, Peter sat among them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt offer for the drink-offering half a hin of wine, for an offering made by fire, of a sweet savor unto Jehovah.
+and you shall offer for the drink offering half a hin of wine, for an offering made by fire, of a pleasant aroma to Yahweh.

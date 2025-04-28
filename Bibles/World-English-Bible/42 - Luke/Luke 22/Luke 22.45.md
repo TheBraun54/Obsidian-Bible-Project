@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he rose up from his prayer, he came unto the disciples, and found them sleeping for sorrow,
+When he rose up from his prayer, he came to the disciples, and found them sleeping because of grief,

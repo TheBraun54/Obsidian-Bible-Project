@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after this Job lived a hundred and forty years, and saw his sons, and his sons' sons, [even] four generations.
+After this Job lived one hundred forty years, and saw his sons, and his sons' sons, to four generations.

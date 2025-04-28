@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it was evening he cometh with the twelve.
+When it was evening he came with the twelve.

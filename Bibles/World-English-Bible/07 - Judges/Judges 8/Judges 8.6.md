@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the princes of Succoth said, Are the hands of Zebah and Zalmunna now in thy hand, that we should give bread unto thine army?
+The princes of Succoth said, "Are the hands of Zebah and Zalmunna now in your hand, that we should give bread to your army?"

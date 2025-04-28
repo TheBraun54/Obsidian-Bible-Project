@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because all those men that have seen my glory, and my signs, which I wrought in Egypt and in the wilderness, yet have tempted me these ten times, and have not hearkened to my voice;
+because all those men who have seen my glory, and my signs, which I worked in Egypt and in the wilderness, yet have tempted me these ten times, and have not listened to my voice;

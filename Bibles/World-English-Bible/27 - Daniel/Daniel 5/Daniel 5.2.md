@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Belshazzar, while he tasted the wine, commanded to bring the golden and silver vessels which Nebuchadnezzar his father had taken out of the temple which was in Jerusalem; that the king and his lords, his wives and his concubines, might drink therefrom.
+Belshazzar, while he tasted the wine, commanded to bring the golden and silver vessels which Nebuchadnezzar his father had taken out of the temple which was in Jerusalem; that the king and his lords, his wives and his concubines, might drink from them.

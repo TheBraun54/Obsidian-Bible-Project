@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and have sold the children of Judah and the children of Jerusalem unto the sons of the Grecians, that ye may remove them far from their border;
+and have sold the children of Judah and the children of Jerusalem to the sons of the Greeks, that you may remove them far from their border.

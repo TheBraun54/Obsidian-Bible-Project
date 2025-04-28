@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she was delivered of a son, a man child, who is to rule all the nations with a rod of iron: and her child was caught up unto God, and unto his throne.
+She gave birth to a son, a male child, who is to rule all the nations with a rod of iron. Her child was caught up to God, and to his throne.

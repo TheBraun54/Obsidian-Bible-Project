@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when I prophesied, that Pelatiah the son of Benaiah died. Then fell I down upon my face, and cried with a loud voice, and said, Ah Lord Jehovah! wilt thou make a full end of the remnant of Israel?
+It happened, when I prophesied, that Pelatiah the son of Benaiah died. Then fell I down on my face, and cried with a loud voice, and said, Ah Lord Yahweh! will you make a full end of the remnant of Israel?

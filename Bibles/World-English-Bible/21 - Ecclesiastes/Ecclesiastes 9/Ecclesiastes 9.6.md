@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As well their love, as their hatred and their envy, is perished long ago; neither have they any more a portion for ever in anything that is done under the sun.
+Also their love, their hatred, and their envy has perished long ago; neither have they any more a portion forever in anything that is done under the sun.

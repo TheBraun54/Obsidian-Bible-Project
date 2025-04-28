@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the thing that ye shall do: ye shall utterly destroy every male, and every woman that hath lain by man.
+This is the thing that you shall do: you shall utterly destroy every male, and every woman who has lain with a man."

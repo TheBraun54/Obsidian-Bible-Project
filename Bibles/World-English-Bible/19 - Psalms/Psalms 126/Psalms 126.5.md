@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that sow in tears shall reap in joy.
+Those who sow in tears will reap in joy.

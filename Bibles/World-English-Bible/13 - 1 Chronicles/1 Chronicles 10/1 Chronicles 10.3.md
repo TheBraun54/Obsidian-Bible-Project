@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the battle went sore against Saul, and the archers overtook him; and he was distressed by reason of the archers.
+The battle went hard against Saul, and the archers overtook him; and he was distressed by reason of the archers.

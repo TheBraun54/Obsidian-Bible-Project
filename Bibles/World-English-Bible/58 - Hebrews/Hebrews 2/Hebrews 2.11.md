@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For both he that sanctifieth and they that are sanctified are all of one: for which cause he is not ashamed to call them brethren,
+For both he who sanctifies and those who are sanctified are all from one, for which cause he is not ashamed to call them brothers,

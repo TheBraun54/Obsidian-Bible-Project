@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The desire accomplished is sweet to the soul; But it is an abomination to fools to depart from evil.
+Longing fulfilled is sweet to the soul, but fools detest turning from evil.

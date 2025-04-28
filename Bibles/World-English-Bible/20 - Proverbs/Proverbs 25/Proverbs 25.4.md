@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take away the dross from the silver, And there cometh forth a vessel for the refiner:
+Take away the dross from the silver, and material comes out for the refiner;

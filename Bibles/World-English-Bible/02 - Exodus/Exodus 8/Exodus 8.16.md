@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Say unto Aaron, Stretch out thy rod, and smite the dust of the earth, that it may become lice throughout all the land of Egypt.
+Yahweh said to Moses, "Tell Aaron, 'Stretch out your rod, and strike the dust of the earth, that it may become lice throughout all the land of Egypt.'"

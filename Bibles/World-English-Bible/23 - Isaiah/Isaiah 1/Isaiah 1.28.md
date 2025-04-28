@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the destruction of transgressors and sinners shall be together, and they that forsake Jehovah shall be consumed.
+But the destruction of transgressors and sinners shall be together, and those who forsake Yahweh shall be consumed.

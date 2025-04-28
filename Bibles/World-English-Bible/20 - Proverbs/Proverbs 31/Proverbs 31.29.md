@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many daughters have done worthily, But thou excellest them all.
+"Many women do noble things, but you excel them all."

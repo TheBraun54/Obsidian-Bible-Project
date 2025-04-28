@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain ruler asked him, saying, Good Teacher, what shall I do to inherit eternal life?
+A certain ruler asked him, saying, "Good Teacher, what shall I do to inherit eternal life?"

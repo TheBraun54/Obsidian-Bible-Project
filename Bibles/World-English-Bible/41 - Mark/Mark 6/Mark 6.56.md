@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And wheresoever he entered, into villages, or into cities, or into the country, they laid the sick in the marketplaces, and besought him that they might touch if it were but the border of his garment: and as many as touched him were made whole.
+Wherever he entered, into villages, or into cities, or into the country, they laid the sick in the marketplaces, and begged him that they might touch just the fringe of his garment; and as many as touched him were made well.

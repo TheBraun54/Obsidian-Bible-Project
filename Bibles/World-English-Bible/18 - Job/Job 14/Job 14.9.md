@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet through the scent of water it will bud, And put forth boughs like a plant.
+yet through the scent of water it will bud, and put forth boughs like a plant.

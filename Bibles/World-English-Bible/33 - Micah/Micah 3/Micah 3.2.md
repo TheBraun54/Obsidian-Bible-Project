@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye who hate the good, and love the evil; who pluck off their skin from off them, and their flesh from off their bones;
+You who hate the good, and love the evil; who tear off their skin, and their flesh from off their bones;

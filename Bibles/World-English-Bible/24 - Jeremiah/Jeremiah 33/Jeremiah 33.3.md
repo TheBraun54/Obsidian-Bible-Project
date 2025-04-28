@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Call unto me, and I will answer thee, and will show thee great things, and difficult, which thou knowest not.
+Call to me, and I will answer you, and will show you great things, and difficult, which you don't know.

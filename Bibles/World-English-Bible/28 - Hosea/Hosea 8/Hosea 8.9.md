@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they are gone up to Assyria, [like] a wild ass alone by himself: Ephraim hath hired lovers.
+For they have gone up to Assyria, like a wild donkey wandering alone. Ephraim has hired lovers for himself.

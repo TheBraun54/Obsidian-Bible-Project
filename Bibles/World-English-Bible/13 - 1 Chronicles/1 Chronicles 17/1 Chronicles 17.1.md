@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when David dwelt in his house, that David said to Nathan the prophet, Lo, I dwell in a house of cedar, but the ark of the covenant of Jehovah [dwelleth] under curtains.
+It happened, when David lived in his house, that David said to Nathan the prophet, "Behold, I dwell in a house of cedar, but the ark of the covenant of Yahweh is under curtains."

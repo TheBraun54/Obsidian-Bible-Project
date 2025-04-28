@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then he appeared to above five hundred brethren at once, of whom the greater part remain until now, but some are fallen asleep;
+Then he appeared to over five hundred brothers at once, most of whom remain until now, but some have also fallen asleep.

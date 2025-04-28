@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did not Solomon king of Israel sin by these things? yet among many nations was there no king like him, and he was beloved of his God, and God made him king over all Israel: nevertheless even him did foreign women cause to sin.
+Didn't Solomon king of Israel sin by these things? Yet among many nations was there no king like him, and he was beloved of his God, and God made him king over all Israel. Nevertheless foreign women caused even him to sin.

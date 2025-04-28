@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Go and say to that fox, Behold, I cast out demons and perform cures to-day and to-morrow, and the third [day] I am perfected.
+He said to them, "Go and tell that fox, 'Behold, I cast out demons and perform cures today and tomorrow, and the third day I complete my mission.

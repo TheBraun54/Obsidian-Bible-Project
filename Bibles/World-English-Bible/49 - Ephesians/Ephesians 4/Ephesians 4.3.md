@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-giving diligence to keep the unity of the Spirit in the bond of peace.
+being eager to keep the unity of the Spirit in the bond of peace.

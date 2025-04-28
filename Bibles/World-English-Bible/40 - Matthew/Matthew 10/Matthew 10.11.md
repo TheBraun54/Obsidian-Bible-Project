@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And into whatsoever city or village ye shall enter, search out who in it is worthy; and there abide till ye go forth.
+Into whatever city or village you enter, find out who in it is worthy; and stay there until you go on.

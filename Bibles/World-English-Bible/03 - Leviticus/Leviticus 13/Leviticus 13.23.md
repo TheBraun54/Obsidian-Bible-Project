@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the bright spot stay in its place, and be not spread, it is the scar of the boil; and the priest shall pronounce him clean.
+But if the bright spot stays in its place, and hasn't spread, it is the scar from the boil; and the priest shall pronounce him clean.

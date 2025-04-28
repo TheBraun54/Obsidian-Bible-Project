@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto his father, They are my sons, whom God hath given me here. And he said, Bring them, I pray thee, unto me, and I will bless them.
+Joseph said to his father, "They are my sons, whom God has given me here." He said, "Please bring them to me, and I will bless them."

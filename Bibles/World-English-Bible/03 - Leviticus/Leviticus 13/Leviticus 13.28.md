@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the bright spot stay in its place, and be not spread in the skin, but be dim; it is the rising of the burning, and the priest shall pronounce him clean: for it is the scar of the burning.
+If the bright spot stays in its place, and hasn't spread in the skin, but is faded, it is the swelling from the burn, and the priest shall pronounce him clean; for it is the scar from the burn.

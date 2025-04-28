@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will heal their backsliding, I will love them freely; for mine anger is turned away from him.
+"I will heal their waywardness. I will love them freely; for my anger is turned away from him.

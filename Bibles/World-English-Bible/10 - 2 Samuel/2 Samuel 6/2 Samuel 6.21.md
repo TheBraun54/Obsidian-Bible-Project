@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Michal, [It was] before Jehovah, who chose me above thy father, and above all his house, to appoint me prince over the people of Jehovah, over Israel: therefore will I play before Jehovah.
+David said to Michal, "It was before Yahweh, who chose me above your father, and above all his house, to appoint me prince over the people of Yahweh, over Israel. Therefore will I celebrate before Yahweh.

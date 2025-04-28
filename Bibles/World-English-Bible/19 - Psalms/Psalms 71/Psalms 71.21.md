@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Increase thou my greatness, And turn again and comfort me.
+Increase my honor, and comfort me again.

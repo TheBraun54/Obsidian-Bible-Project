@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in the day of trouble he will keep me secretly in his pavilion: In the covert of his tabernacle will he hide me; He will lift me up upon a rock.
+For in the day of trouble he will keep me secretly in his pavilion. In the covert of his tabernacle he will hide me. He will lift me up on a rock.

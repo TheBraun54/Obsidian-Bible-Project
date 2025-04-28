@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it passed along to the side over against the Arabah northward, and went down unto the Arabah;
+It passed along to the side over against the Arabah northward, and went down to the Arabah.

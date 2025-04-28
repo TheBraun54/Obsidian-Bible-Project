@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jephthah came to Mizpah unto his house; and, behold, his daughter came out to meet him with timbrels and with dances: and she was his only child; besides her he had neither son nor daughter.
+Jephthah came to Mizpah to his house; and behold, his daughter came out to meet him with tambourines and with dances: and she was his only child; besides her he had neither son nor daughter.

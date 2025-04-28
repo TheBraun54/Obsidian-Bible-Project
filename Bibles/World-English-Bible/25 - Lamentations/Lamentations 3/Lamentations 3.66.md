@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt pursue them in anger, and destroy them from under the heavens of Jehovah.
+You will pursue them in anger, and destroy them from under the heavens of Yahweh.

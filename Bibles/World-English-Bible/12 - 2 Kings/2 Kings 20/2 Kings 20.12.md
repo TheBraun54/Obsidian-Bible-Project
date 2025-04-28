@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time Berodach-baladan the son of Baladan, king of Babylon, sent letters and a present unto Hezekiah; for he had heard that Hezekiah had been sick.
+At that time Berodach Baladan the son of Baladan, king of Babylon, sent letters and a present to Hezekiah; for he had heard that Hezekiah had been sick.

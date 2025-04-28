@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he that hath died is justified from sin.
+For he who has died has been freed from sin.

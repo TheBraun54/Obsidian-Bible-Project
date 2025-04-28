@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that killeth a beast shall make it good: and he that killeth a man shall be put to death.
+He who kills an animal shall make it good; and he who kills a man shall be put to death.

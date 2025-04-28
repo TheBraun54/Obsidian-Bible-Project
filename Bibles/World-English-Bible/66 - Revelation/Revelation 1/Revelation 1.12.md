@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I turned to see the voice that spake with me. And having turned I saw seven golden candlesticks;
+I turned to see the voice that spoke with me. Having turned, I saw seven golden lampstands.

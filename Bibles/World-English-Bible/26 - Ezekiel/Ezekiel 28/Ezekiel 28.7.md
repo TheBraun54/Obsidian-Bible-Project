@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I will bring strangers upon thee, the terrible of the nations; and they shall draw their swords against the beauty of thy wisdom, and they shall defile thy brightness.
+therefore, behold, I will bring strangers on you, the terrible of the nations; and they shall draw their swords against the beauty of your wisdom, and they shall defile your brightness.

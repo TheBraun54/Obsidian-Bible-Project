@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will worship toward thy holy temple, And give thanks unto thy name for thy lovingkindness and for thy truth: For thou hast magnified thy word above all thy name.
+I will bow down toward your holy temple, and give thanks to your Name for your loving kindness and for your truth; for you have exalted your Name and your Word above all.

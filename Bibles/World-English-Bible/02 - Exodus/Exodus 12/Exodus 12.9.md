@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Eat not of it raw, nor boiled at all with water, but roast with fire; its head with its legs and with the inwards thereof.
+Don't eat it raw, nor boiled at all with water, but roasted with fire; with its head, its legs and its inner parts.

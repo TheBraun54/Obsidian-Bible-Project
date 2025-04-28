@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit and the bride say, Come. And he that heareth, let him say, Come. And he that is athirst, let him come: he that will, let him take the water of life freely.
+The Spirit and the bride say, "Come!" He who hears, let him say, "Come!" He who is thirsty, let him come. He who desires, let him take the water of life freely.

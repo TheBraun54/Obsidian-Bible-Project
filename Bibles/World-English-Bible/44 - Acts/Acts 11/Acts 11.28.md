@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there stood up one of them named Agabus, and signified by the Spirit that there should be a great famine over all the world: which came to pass in the days of Claudius.
+One of them named Agabus stood up, and indicated by the Spirit that there should be a great famine all over the world, which also happened in the days of Claudius.

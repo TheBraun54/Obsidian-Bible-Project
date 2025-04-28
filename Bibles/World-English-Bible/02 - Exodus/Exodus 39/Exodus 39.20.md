@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made two rings of gold, and put them on the two shoulder-pieces of the ephod underneath, in the forepart thereof, close by the coupling thereof, above the skilfully woven band of the ephod.
+They made two rings of gold, and put them on the two shoulder straps of the ephod underneath, in its front, close by its coupling, above the skillfully woven band of the ephod.

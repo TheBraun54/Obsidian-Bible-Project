@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And therewith he made the sockets to the door of the tent of meeting, and the brazen altar, and the brazen grating for it, and all the vessels of the altar,
+With this he made the sockets to the door of the Tent of Meeting, the bronze altar, the bronze grating for it, all the vessels of the altar,

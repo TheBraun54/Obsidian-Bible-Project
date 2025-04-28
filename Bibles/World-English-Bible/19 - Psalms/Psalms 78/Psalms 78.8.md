@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And might not be as their fathers, A stubborn and rebellious generation, A generation that set not their heart aright, And whose spirit was not stedfast with God.
+and might not be as their fathers, a stubborn and rebellious generation, a generation that didn't make their hearts loyal, whose spirit was not steadfast with God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt rejoice before Jehovah thy God, thou, and thy son, and thy daughter, and thy man-servant, and thy maid-servant, and the Levite that is within thy gates, and the sojourner, and the fatherless, and the widow, that are in the midst of thee, in the place which Jehovah thy God shall choose, to cause his name to dwell there.
+and you shall rejoice before Yahweh your God, you, and your son, and your daughter, and your male servant, and your female servant, and the Levite who is within your gates, and the foreigner, and the fatherless, and the widow, who are in the midst of you, in the place which Yahweh your God shall choose, to cause his name to dwell there.

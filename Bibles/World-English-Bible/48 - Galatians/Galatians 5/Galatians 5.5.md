@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we through the Spirit by faith wait for the hope of righteousness.
+For we, through the Spirit, by faith wait for the hope of righteousness.

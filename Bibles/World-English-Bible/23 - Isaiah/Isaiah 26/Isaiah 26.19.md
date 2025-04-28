@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy dead shall live; my dead bodies shall arise. Awake and sing, ye that dwell in the dust; for thy dew is [as] the dew of herbs, and the earth shall cast forth the dead.
+Your dead shall live. My dead bodies shall arise. Awake and sing, you who dwell in the dust; for your dew is like the dew of herbs, and the earth will cast forth the dead.

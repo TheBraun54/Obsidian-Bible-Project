@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Beriah: Heber, and Malchiel, who was the father of Birzaith.
+The sons of Beriah: Heber, and Malchiel, who was the father of Birzaith.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is he that waiteth, and cometh to the thousand three hundred and five and thirty days.
+Blessed is he who waits, and comes to the one thousand three hundred thirty-five days.

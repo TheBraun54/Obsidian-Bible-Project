@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon spake unto all Israel, to the captains of thousands and of hundreds, and to the judges, and to every prince in all Israel, the heads of the fathers' [houses] .
+Solomon spoke to all Israel, to the captains of thousands and of hundreds, and to the judges, and to every prince in all Israel, the heads of the fathers' [houses].

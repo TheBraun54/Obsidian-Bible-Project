@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hand of the diligent shall bear rule; But the slothful shall be put under taskwork.
+The hands of the diligent ones shall rule, but laziness ends in slave labor.

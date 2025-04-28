@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now Jehovah your God hath given rest unto your brethren, as he spake unto them: therefore now turn ye, and get you unto your tents, unto the land of your possession, which Moses the servant of Jehovah gave you beyond the Jordan.
+Now Yahweh your God has given rest to your brothers, as he spoke to them. Therefore now return and go to your tents, to the land of your possession, which Moses the servant of Yahweh gave you beyond the Jordan.

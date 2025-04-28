@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I gave you a land whereon thou hadst not labored, and cities which ye built not, and ye dwell therein; of vineyards and oliveyards which ye planted not do ye eat.
+I gave you a land whereon you had not labored, and cities which you didn't build, and you live in them. You eat of vineyards and olive groves which you didn't plant.'

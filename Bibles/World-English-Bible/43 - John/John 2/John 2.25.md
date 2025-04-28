@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and because he needed not that any one should bear witness concerning man; for he himself knew what was in man.
+and because he didn't need for anyone to testify concerning man; for he himself knew what was in man.

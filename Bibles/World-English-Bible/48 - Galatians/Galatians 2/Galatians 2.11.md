@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Cephas came to Antioch, I resisted him to the face, because he stood condemned.
+But when Peter came to Antioch, I resisted him to his face, because he stood condemned.

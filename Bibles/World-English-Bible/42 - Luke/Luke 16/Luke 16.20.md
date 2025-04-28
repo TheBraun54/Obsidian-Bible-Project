@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a certain beggar named Lazarus was laid at his gate, full of sores,
+A certain beggar, named Lazarus, was laid at his gate, full of sores,

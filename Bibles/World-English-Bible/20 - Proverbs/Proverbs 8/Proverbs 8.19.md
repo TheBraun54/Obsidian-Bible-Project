@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My fruit is better than gold, yea, than fine gold; And my revenue than choice silver.
+My fruit is better than gold, yes, than fine gold; my yield than choice silver.

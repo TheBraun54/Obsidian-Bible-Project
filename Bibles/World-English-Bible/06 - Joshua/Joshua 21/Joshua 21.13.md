@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto the children of Aaron the priest they gave Hebron with its suburbs, the city of refuge for the manslayer, and Libnah with its suburbs,
+To the children of Aaron the priest they gave Hebron with its suburbs, the city of refuge for the manslayer, Libnah with its suburbs,

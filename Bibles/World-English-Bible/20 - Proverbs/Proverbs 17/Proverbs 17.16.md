@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore is there a price in the hand of a fool to buy wisdom, Seeing he hath no understanding?
+Why is there money in the hand of a fool to buy wisdom, since he has no understanding?

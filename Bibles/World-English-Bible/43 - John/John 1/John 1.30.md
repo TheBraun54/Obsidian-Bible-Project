@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is he of whom I said, After me cometh a man who is become before me: for he was before me.
+This is he of whom I said, 'After me comes a man who is preferred before me, for he was before me.'

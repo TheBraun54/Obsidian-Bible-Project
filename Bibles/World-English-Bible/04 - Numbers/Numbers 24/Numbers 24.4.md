@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith, who heareth the words of God, Who seeth the vision of the Almighty, Falling down, and having his eyes open:
+he says, who hears the words of God, who sees the vision of the Almighty, falling down, and having his eyes open:

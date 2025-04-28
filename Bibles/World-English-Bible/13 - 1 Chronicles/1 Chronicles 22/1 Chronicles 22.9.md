@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, a son shall be born to thee, who shall be a man of rest; and I will give him rest from all his enemies round about; for his name shall be Solomon, and I will give peace and quietness unto Israel in his days:
+Behold, a son shall be born to you, who shall be a man of rest. I will give him rest from all his enemies all around; for his name shall be Solomon, and I will give peace and quietness to Israel in his days.

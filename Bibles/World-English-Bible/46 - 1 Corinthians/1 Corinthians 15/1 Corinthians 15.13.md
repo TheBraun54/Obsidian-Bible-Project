@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if there is no resurrection of the dead, neither hath Christ been raised:
+But if there is no resurrection of the dead, neither has Christ been raised.

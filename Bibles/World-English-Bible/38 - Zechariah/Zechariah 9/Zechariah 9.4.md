@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the Lord will dispossess her, and he will smite her power in the sea; and she shall be devoured with fire.
+Behold, the Lord will dispossess her, and he will strike her power in the sea; and she will be devoured with fire.

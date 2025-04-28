@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the door of the tent of meeting shall ye abide day and night seven days, and keep the charge of Jehovah, that ye die not: for so I am commanded.
+You shall stay at the door of the Tent of Meeting day and night seven days, and keep Yahweh's command, that you don't die: for so I am commanded."

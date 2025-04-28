@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall drink, and reel to and fro, and be mad, because of the sword that I will send among them.
+They shall drink, and reel back and forth, and be mad, because of the sword that I will send among them.

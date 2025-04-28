@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the earth shook and trembled; The foundations also of the mountains quaked And were shaken, because he was wroth.
+Then the earth shook and trembled. The foundations also of the mountains quaked and were shaken, because he was angry.

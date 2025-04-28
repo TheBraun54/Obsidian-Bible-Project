@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When his lamp shined upon my head, And by his light I walked through darkness;
+when his lamp shone on my head, and by his light I walked through darkness,

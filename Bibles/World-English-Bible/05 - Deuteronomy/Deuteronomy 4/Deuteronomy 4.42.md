@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the manslayer might flee thither, that slayeth his neighbor unawares, and hated him not in time past; and that fleeing unto one of these cities he might live:
+that the manslayer might flee there, who kills his neighbor unawares, and didn't hate him in time past; and that fleeing to one of these cities he might live:

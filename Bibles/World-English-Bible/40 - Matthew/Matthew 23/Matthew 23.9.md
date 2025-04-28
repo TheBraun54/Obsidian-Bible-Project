@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And call no man your father on the earth: for one is your Father, [even] he who is in heaven.
+Call no man on the earth your father, for one is your Father, he who is in heaven.

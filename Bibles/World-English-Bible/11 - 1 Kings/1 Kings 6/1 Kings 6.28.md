@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he overlaid the cherubim with gold.
+He overlaid the cherubim with gold.

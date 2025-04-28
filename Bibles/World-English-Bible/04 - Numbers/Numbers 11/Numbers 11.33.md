@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While the flesh was yet between their teeth, ere it was chewed, the anger of Jehovah was kindled against the people, and Jehovah smote the people with a very great plague.
+While the flesh was yet between their teeth, before it was chewed, the anger of Yahweh was kindled against the people, and Yahweh struck the people with a very great plague.

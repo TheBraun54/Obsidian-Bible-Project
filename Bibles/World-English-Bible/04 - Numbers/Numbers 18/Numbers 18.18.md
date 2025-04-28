@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the flesh of them shall be thine, as the wave-breast and as the right thigh, it shall be thine.
+Their flesh shall be yours, as the wave offering breast and as the right thigh, it shall be yours.

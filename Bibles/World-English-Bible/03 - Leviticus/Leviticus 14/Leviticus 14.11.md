@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest that cleanseth him shall set the man that is to be cleansed, and those things, before Jehovah, at the door of the tent of meeting.
+The priest who cleanses him shall set the man who is to be cleansed, and those things, before Yahweh, at the door of the Tent of Meeting.

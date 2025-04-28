@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there I will meet with thee, and I will commune with thee from above the mercy-seat, from between the two cherubim which are upon the ark of the testimony, of all things which I will give thee in commandment unto the children of Israel.
+There I will meet with you, and I will tell you from above the mercy seat, from between the two cherubim which are on the ark of the testimony, all that I command you for the children of Israel.

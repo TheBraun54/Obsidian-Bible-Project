@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, go to Nineveh, that great city, and cry against it; for their wickedness is come up before me.
+"Arise, go to Nineveh, that great city, and preach against it, for their wickedness has come up before me."

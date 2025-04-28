@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the noble deviseth noble things; and in noble things shall he continue.
+But the noble devises noble things; and he will continue in noble things.

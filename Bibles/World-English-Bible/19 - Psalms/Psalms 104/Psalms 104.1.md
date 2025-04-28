@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bless Jehovah, O my soul. O Jehovah my God, thou art very great; Thou art clothed with honor and majesty:
+Bless Yahweh, my soul. Yahweh, my God, you are very great. You are clothed with honor and majesty.

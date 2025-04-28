@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why shouldest thou be as a man affrighted, as a mighty man that cannot save? yet thou, O Jehovah, art in the midst of us, and we are called by thy name; leave us not.
+Why should you be like a scared man, as a mighty man who can't save? Yet you, Yahweh, are in the midst of us, and we are called by your name; don't leave us.

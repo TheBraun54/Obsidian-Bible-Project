@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that keepeth the commandment keepeth his soul; [But] he that is careless of his ways shall die.
+He who keeps the commandment keeps his soul, but he who is contemptuous in his ways shall die.

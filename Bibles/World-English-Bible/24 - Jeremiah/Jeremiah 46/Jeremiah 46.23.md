@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall cut down her forest, saith Jehovah, though it cannot be searched; because they are more than the locusts, and are innumerable.
+They shall cut down her forest, says Yahweh, though it can't be searched; because they are more than the locusts, and are innumerable.

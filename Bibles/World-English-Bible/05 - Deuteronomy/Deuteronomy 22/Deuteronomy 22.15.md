@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall the father of the damsel, and her mother, take and bring forth the tokens of the damsel's virginity unto the elders of the city in the gate;
+then shall the father of the young lady, and her mother, take and bring forth the tokens of the young lady's virginity to the elders of the city in the gate;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The prophet that hath a dream, let him tell a dream; and he that hath my word, let him speak my word faithfully. What is the straw to the wheat? saith Jehovah.
+The prophet who has a dream, let him tell a dream; and he who has my word, let him speak my word faithfully. What is the straw to the wheat? says Yahweh.

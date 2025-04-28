@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore, knowing all the things that were coming upon him, went forth, and saith unto them, Whom seek ye?
+Jesus therefore, knowing all the things that were happening to him, went forth, and said to them, "Who are you looking for?"

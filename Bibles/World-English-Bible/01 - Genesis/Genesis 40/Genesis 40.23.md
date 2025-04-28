@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet did not the chief butler remember Joseph, but forgat him.
+Yet the chief cupbearer didn't remember Joseph, but forgot him.

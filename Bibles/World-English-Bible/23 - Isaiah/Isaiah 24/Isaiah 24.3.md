@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth shall be utterly emptied, and utterly laid waste; for Jehovah hath spoken this word.
+The earth will be utterly emptied and utterly laid waste; for Yahweh has spoken this word.

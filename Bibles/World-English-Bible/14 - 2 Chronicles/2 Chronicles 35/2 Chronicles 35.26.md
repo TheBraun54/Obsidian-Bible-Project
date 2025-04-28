@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the rest of the acts of Josiah, and his good deeds, according to that which is written in the law of Jehovah,
+Now the rest of the acts of Josiah, and his good deeds, according to that which is written in the law of Yahweh,

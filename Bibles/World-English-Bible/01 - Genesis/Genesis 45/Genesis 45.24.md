@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he sent his brethren away, and they departed: and he said unto them, See that ye fall not out by the way.
+So he sent his brothers away, and they departed. He said to them, "See that you don't quarrel on the way."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, say unto Pharaoh king of Egypt, and to his multitude: Whom art thou like in thy greatness?
+Son of man, tell Pharaoh king of Egypt, and to his multitude: Whom are you like in your greatness?

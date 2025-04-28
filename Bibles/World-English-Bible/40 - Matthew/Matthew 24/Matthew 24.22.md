@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And except those days had been shortened, no flesh would have been saved: but for the elect's sake those days shall be shortened.
+Unless those days had been shortened, no flesh would have been saved. But for the sake of the chosen ones, those days will be shortened.

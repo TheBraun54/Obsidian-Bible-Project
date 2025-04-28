@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that God hath fulfilled the same unto our children, in that he raised up Jesus; as also it is written in the second psalm, Thou art my Son, this day have I begotten thee.
+that God has fulfilled the same to us, their children, in that he raised up Jesus. As it is also written in the second psalm, 'You are my Son. Today I have become your father.'

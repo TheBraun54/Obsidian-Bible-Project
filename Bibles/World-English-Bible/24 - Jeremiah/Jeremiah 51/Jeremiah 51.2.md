@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will send unto Babylon strangers, that shall winnow her; and they shall empty her land: for in the day of trouble they shall be against her round about.
+I will send to Babylon strangers, who shall winnow her; and they shall empty her land: for in the day of trouble they shall be against her around.

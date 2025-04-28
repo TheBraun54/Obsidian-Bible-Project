@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Saul cast the spear; for he said, I will smite David even to the wall. And David avoided out of his presence twice.
+and Saul threw the spear; for he said, "I will pin David even to the wall!" David escaped from his presence twice.

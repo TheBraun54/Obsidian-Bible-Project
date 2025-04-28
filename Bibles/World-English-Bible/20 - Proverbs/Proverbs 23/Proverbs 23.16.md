@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, my heart will rejoice, When thy lips speak right things.
+yes, my heart will rejoice, when your lips speak what is right.

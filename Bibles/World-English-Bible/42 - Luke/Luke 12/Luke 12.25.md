@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And which of you by being anxious can add a cubit unto the measure of his life?
+Which of you by being anxious can add a cubit to his height?

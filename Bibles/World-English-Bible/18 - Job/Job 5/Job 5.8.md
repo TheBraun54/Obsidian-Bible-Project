@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, I would seek unto God, And unto God would I commit my cause;
+"But as for me, I would seek God. I would commit my cause to God,

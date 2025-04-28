@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ahishar was over the household; and Adoniram the son of Abda was over the men subject to taskwork.
+and Ahishar was over the household; and Adoniram the son of Abda was over the men subject to forced labor.

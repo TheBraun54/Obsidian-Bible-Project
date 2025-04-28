@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every one that hath this hope [set] on him purifieth himself, even as he is pure.
+Everyone who has this hope set on him purifies himself, even as he is pure.

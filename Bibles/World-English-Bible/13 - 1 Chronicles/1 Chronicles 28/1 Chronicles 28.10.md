@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed now; for Jehovah hath chosen thee to build a house for the sanctuary: be strong, and do it.
+Take heed now; for Yahweh has chosen you to build a house for the sanctuary. Be strong, and do it."

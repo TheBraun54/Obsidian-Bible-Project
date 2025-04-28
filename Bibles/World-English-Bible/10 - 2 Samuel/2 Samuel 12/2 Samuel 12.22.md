@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, While the child was yet alive, I fasted and wept: for I said, Who knoweth whether Jehovah will not be gracious to me, that the child may live?
+He said, "While the child was yet alive, I fasted and wept; for I said, 'Who knows whether Yahweh will not be gracious to me, that the child may live?'

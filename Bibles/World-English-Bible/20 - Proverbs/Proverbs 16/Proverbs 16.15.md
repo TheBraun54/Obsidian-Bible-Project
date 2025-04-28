@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the light of the king's countenance is life; And his favor is as a cloud of the latter rain.
+In the light of the king's face is life. His favor is like a cloud of the spring rain.

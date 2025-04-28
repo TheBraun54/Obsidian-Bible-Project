@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thou mayest crush [them], [dipping] thy foot in blood, That the tongue of thy dogs may have its portion from [thine] enemies.
+That you may crush them, dipping your foot in blood, that the tongues of your dogs may have their portion from your enemies."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Jehovah called Samuel; and he said, Here am I.
+that Yahweh called Samuel; and he said, "Here I am."

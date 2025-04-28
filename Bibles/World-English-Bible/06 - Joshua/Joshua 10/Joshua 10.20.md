@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Joshua and the children of Israel had made an end of slaying them with a very great slaughter, till they were consumed, and the remnant which remained of them had entered into the fortified cities,
+It happened, when Joshua and the children of Israel had finished killing them with a very great slaughter until they were consumed, and the remnant which remained of them had entered into the fortified cities,

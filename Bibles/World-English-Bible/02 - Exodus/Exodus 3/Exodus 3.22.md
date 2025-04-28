@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but every woman shall ask of her neighbor, and of her that sojourneth in her house, jewels of silver, and jewels of gold, and raiment: and ye shall put them upon your sons, and upon your daughters; and ye shall despoil the Egyptians.
+But every woman shall ask of her neighbor, and of her who visits her house, jewels of silver, jewels of gold, and clothing; and you shall put them on your sons, and on your daughters. You shall plunder the Egyptians."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He incloseth the face of his throne, And spreadeth his cloud upon it.
+He encloses the face of his throne, and spreads his cloud on it.

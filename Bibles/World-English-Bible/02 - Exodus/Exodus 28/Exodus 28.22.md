@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make upon the breastplate chains like cords, of wreathen work of pure gold.
+You shall make on the breastplate chains like cords, of braided work of pure gold.

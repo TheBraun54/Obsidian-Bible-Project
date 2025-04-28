@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the cause why Joshua did circumcise: all the people that came forth out of Egypt, that were males, even all the men of war, died in the wilderness by the way, after they came forth out of Egypt.
+This is the reason Joshua circumcised: all the people who came out of Egypt, who were males, even all the men of war, died in the wilderness by the way, after they came out of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was in the wilderness forty days tempted of Satan; And he was with the wild beasts; And the angels ministered unto him.
+He was there in the wilderness forty days tempted by Satan. He was with the wild animals; and the angels were serving him.

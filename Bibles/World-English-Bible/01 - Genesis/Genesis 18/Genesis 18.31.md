@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Behold now, I have taken upon me to speak unto the Lord: peradventure there shall be twenty found there. And he said, I will not destroy it for the twenty's sake.
+He said, "See now, I have taken it on myself to speak to the Lord. What if there are twenty found there?" He said, "I will not destroy it for the twenty's sake."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they beckoned unto their partners in the other boat, that they should come and help them. And they came, and filled both the boats, so that they began to sink.
+They beckoned to their partners in the other boat, that they should come and help them. They came, and filled both boats, so that they began to sink.

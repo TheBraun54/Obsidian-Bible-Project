@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She doted upon the Assyrians, governors and rulers, [her] neighbors, clothed most gorgeously, horsemen riding upon horses, all of them desirable young men.
+She doted on the Assyrians, governors and rulers, [her] neighbors, clothed most gorgeously, horsemen riding on horses, all of them desirable young men.

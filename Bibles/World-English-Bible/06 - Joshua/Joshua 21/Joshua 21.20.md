@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the families of the children of Kohath, the Levites, even the rest of the children of Kohath, they had the cities of their lot out of the tribe of Ephraim.
+The families of the children of Kohath, the Levites, even the rest of the children of Kohath, had the cities of their lot out of the tribe of Ephraim.

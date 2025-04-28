@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Asa had an army that bare bucklers and spears, out of Judah three hundred thousand; and out of Benjamin, that bare shields and drew bows, two hundred and fourscore thousand: all these were mighty men of valor.
+Asa had an army that bore bucklers and spears, out of Judah three hundred thousand; and out of Benjamin, that bore shields and drew bows, two hundred eighty thousand: all these were mighty men of valor.

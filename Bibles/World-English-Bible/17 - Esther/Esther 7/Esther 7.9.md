@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Harbonah, one of the chamberlains that were before the king, Behold also, the gallows fifty cubits high, which Haman hath made for Mordecai, who spake good for the king, standeth in the house of Haman. And the king said, Hang him thereon.
+Then Harbonah, one of the eunuchs who were with the king said, "Behold, the gallows fifty cubits high, which Haman has made for Mordecai, who spoke good for the king, is standing at Haman's house." The king said, "Hang him on it!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah concerning the king of Assyria, He shall not come unto this city, nor shoot an arrow there, neither shall he come before it with shield, nor cast up a mound against it.
+"Therefore thus says Yahweh concerning the king of Assyria, 'He shall not come to this city, nor shoot an arrow there, neither shall he come before it with shield, nor cast up a mound against it.

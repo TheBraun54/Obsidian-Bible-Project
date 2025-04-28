@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A needy man that oppresseth the poor Is [like] a sweeping rain which leaveth no food.
+A needy man who oppresses the poor is like a driving rain which leaves no crops.

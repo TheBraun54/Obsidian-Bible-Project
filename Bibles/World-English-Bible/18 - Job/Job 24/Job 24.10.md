@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ So that] they go about naked without clothing, And being hungry they carry the sheaves.
+So that they go around naked without clothing. Being hungry, they carry the sheaves.

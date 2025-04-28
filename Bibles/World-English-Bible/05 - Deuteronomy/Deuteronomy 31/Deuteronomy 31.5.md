@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will deliver them up before you, and ye shall do unto them according unto all the commandment which I have commanded you.
+Yahweh will deliver them up before you, and you shall do to them according to all the commandment which I have commanded you.

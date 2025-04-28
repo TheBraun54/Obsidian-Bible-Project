@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore remember, that once ye, the Gentiles in the flesh, who are called Uncircumcision by that which is called Circumcision, in the flesh, made by hands;
+Therefore remember that once you, the Gentiles in the flesh, who are called "uncircumcision" by that which is called "circumcision," (in the flesh, made by hands);

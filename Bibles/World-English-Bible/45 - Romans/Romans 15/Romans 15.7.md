@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore receive ye one another, even as Christ also received you, to the glory of God.
+Therefore accept one another, even as Christ also accepted you, to the glory of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king commanded, and they brought those men that had accused Daniel, and they cast them into the den of lions, them, their children, and their wives; and the lions had the mastery of them, and brake all their bones in pieces, before they came to the bottom of the den.
+The king commanded, and they brought those men who had accused Daniel, and they cast them into the den of lions, them, their children, and their wives; and the lions had the mastery of them, and broke all their bones in pieces, before they came to the bottom of the den.

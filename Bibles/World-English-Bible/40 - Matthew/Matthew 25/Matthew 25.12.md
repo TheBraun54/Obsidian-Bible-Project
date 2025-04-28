@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said, Verily I say unto you, I know you not.
+But he answered, 'Most certainly I tell you, I don't know you.'

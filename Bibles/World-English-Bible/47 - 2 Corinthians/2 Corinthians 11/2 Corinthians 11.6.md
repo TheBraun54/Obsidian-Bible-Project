@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But though [I be] rude in speech, yet [am I] not in knowledge; nay, in every way have we made [this] manifest unto you in all things.
+But though I am unskilled in speech, yet I am not unskilled in knowledge. No, in every way we have been revealed to you in all things.

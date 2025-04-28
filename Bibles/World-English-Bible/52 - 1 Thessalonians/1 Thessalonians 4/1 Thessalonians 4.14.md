@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if we believe that Jesus died and rose again, even so them also that are fallen asleep in Jesus will God bring with him.
+For if we believe that Jesus died and rose again, even so God will bring with him those who have fallen asleep in Jesus.

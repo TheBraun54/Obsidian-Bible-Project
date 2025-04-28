@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and repayeth them that hate him to their face, to destroy them: he will not be slack to him that hateth him, he will repay him to his face.
+and repays those who hate him to their face, to destroy them: he will not be slack to him who hates him, he will repay him to his face.

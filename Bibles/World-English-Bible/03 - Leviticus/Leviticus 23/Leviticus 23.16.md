@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even unto the morrow after the seventh sabbath shall ye number fifty days; and ye shall offer a new meal-offering unto Jehovah.
+even to the next day after the seventh Sabbath you shall number fifty days; and you shall offer a new meal offering to Yahweh.

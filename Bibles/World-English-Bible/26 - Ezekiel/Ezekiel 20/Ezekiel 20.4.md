@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou judge them, son of man, wilt thou judge them? Cause them to know the abominations of their fathers;
+Will you judge them, son of man, will you judge them? Cause them to know the abominations of their fathers;

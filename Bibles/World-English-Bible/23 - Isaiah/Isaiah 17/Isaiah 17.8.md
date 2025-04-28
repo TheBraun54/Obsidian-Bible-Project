@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall not look to the altars, the work of their hands; neither shall they have respect to that which their fingers have made, either the Asherim, or the sun-images.
+They will not look to the altars, the work of their hands; neither shall they respect that which their fingers have made, either the Asherim, or the incense altars.

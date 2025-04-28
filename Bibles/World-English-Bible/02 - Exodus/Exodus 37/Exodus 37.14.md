@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Close by the border were the rings, the places for the staves to bear the table.
+The rings were close by the border, the places for the poles to carry the table.

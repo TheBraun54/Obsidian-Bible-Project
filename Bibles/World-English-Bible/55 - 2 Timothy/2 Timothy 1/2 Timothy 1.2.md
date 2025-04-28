@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to Timothy, my beloved child: Grace, mercy, peace, from God the Father and Christ Jesus our Lord.
+to Timothy, my beloved child: Grace, mercy, and peace, from God the Father and Christ Jesus our Lord.

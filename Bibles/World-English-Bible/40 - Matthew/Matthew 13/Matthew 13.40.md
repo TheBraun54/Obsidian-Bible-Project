@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As therefore the tares are gathered up and burned with fire; so shall it be in the end of the world.
+As therefore the darnel weeds are gathered up and burned with fire; so will it be at the end of this age.

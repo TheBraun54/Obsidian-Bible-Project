@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hearkened unto the voice of Elijah; and the soul of the child came into him again, and he revived.
+Yahweh listened to the voice of Elijah; and the soul of the child came into him again, and he revived.

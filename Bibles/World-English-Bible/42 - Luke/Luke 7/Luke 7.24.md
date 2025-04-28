@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the messengers of John were departed, he began to say unto the multitudes concerning John, What went ye out into the wilderness to behold? a reed shaken with the wind?
+When John's messengers had departed, he began to tell the multitudes about John, "What did you go out into the wilderness to see? A reed shaken by the wind?

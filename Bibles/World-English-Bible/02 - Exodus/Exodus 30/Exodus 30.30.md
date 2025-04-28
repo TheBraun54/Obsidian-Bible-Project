@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt anoint Aaron and his sons, and sanctify them, that they may minister unto me in the priest's office.
+You shall anoint Aaron and his sons, and sanctify them, that they may minister to me in the priest's office.

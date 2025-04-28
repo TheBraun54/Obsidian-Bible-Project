@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and how shall they preach, except they be sent? even as it is written, How beautiful are the feet of them that bring glad tidings of good things!
+And how will they preach unless they are sent? As it is written: "How beautiful are the feet of those who preach the Good News of peace, who bring glad tidings of good things!"

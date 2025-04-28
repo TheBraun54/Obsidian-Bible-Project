@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that came to Jeremiah concerning all the Jews that dwelt in the land of Egypt, that dwelt at Migdol, and at Tahpanhes, and at Memphis, and in the country of Pathros, saying,
+The word that came to Jeremiah concerning all the Jews who lived in the land of Egypt, who lived at Migdol, and at Tahpanhes, and at Memphis, and in the country of Pathros, saying,

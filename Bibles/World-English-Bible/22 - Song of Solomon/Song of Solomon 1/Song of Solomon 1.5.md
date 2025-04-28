@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am black, but comely, Oh ye daughters of Jerusalem, As the tents of Kedar, As the curtains of Solomon.
+I am dark, but lovely, you daughters of Jerusalem, like Kedar's tents, like Solomon's curtains.

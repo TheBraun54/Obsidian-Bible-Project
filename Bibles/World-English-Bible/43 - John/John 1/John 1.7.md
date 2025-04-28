@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The same came for witness, that he might bear witness of the light, that all might believe through him.
+The same came as a witness, that he might testify about the light, that all might believe through him.

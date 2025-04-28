@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Tahath, and encamped in Terah.
+They traveled from Tahath, and encamped in Terah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, O my God, take me not away in the midst of my days: Thy years are throughout all generations.
+I said, "My God, don't take me away in the midst of my days. Your years are throughout all generations.

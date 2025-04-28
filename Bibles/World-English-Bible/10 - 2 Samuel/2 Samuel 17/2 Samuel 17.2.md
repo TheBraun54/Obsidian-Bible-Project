@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will come upon him while he is weary and weak-handed, and will make him afraid; and all the people that are with him shall flee; and I will smite the king only;
+I will come on him while he is weary and exhausted, and will make him afraid. All the people who are with him shall flee. I will strike the king only;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who shall lay anything to the charge of God's elect? It is God that justifieth;
+Who could bring a charge against God's chosen ones? It is God who justifies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, They shall thoroughly glean the remnant of Israel as a vine: turn again thy hand as a grape-gatherer into the baskets.
+Thus says Yahweh of Armies, "They shall thoroughly glean the remnant of Israel like a vine. Turn again your hand as a grape gatherer into the baskets."

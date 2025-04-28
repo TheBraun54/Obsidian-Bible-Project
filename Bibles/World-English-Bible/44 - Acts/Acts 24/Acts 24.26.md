@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hoped withal that money would be given him of Paul: wherefore also he sent for him the oftener, and communed with him.
+Meanwhile, he also hoped that money would be given to him by Paul, that he might release him. Therefore also he sent for him more often, and talked with him.

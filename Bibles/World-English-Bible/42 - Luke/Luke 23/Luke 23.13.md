@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate called together the chief priests and the rulers and the people,
+Pilate called together the chief priests and the rulers and the people,

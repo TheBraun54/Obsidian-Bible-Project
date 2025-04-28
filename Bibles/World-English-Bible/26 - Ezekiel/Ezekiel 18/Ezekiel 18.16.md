@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither hath wronged any, hath not taken aught to pledge, neither hath taken by robbery, but hath given his bread to the hungry, and hath covered the naked with a garment;
+neither has wronged any, has not taken anything to pledge, neither has taken by robbery, but has given his bread to the hungry, and has covered the naked with a garment;

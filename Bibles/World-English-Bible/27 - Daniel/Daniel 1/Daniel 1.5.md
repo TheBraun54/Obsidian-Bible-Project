@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king appointed for them a daily portion of the king's dainties, and of the wine which he drank, and that they should be nourished three years; that at the end thereof they should stand before the king.
+The king appointed for them a daily portion of the king's dainties, and of the wine which he drank, and that they should be nourished three years; that at its end they should stand before the king.

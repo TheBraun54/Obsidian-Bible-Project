@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou dost lend thy neighbor any manner of loan, thou shalt not go into his house to fetch his pledge.
+When you do lend your neighbor any kind of loan, you shall not go into his house to get his pledge.

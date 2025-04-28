@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said they, We will restore them, and will require nothing of them; so will we do, even as thou sayest. Then I called the priests, and took an oath of them, that they would do according to this promise.
+Then they said, "We will restore them, and will require nothing of them; so will we do, even as you say." Then I called the priests, and took an oath of them, that they would do according to this promise.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou crownest the year with thy goodness; And thy paths drop fatness.
+You crown the year with your bounty. Your carts overflow with abundance.

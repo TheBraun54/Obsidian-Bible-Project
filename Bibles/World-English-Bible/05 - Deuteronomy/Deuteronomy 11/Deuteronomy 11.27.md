@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the blessing, if ye shall hearken unto the commandments of Jehovah your God, which I command you this day;
+the blessing, if you shall listen to the commandments of Yahweh your God, which I command you this day;

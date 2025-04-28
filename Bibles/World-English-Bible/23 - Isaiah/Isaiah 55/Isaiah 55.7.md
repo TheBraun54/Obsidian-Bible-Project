@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let the wicked forsake his way, and the unrighteous man his thoughts; and let him return unto Jehovah, and he will have mercy upon him; and to our God, for he will abundantly pardon.
+let the wicked forsake his way, and the unrighteous man his thoughts; and let him return to Yahweh, and he will have mercy on him; and to our God, for he will abundantly pardon.

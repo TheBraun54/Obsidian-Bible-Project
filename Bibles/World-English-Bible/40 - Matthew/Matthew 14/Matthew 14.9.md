@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king was grieved; but for the sake of his oaths, and of them that sat at meat with him, he commanded it to be given;
+The king was grieved, but for the sake of his oaths, and of those who sat at the table with him, he commanded it to be given,

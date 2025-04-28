@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-verily as I sware unto thee by Jehovah, the God of Israel, saying, Assuredly Solomon thy son shall reign after me, and he shall sit upon my throne in my stead; verily so will I do this day.
+most certainly as I swore to you by Yahweh, the God of Israel, saying, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;' most certainly so will I do this day."

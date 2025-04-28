@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, our Lord, How excellent is thy name in all the earth!
+Yahweh, our Lord, how majestic is your name in all the earth! For the Chief Musician. Set to "The Death of the Son." A Psalm by David.

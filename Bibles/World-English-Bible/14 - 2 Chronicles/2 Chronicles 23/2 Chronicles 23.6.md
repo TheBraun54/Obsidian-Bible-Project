@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let none come into the house of Jehovah, save the priests, and they that minister of the Levites; they shall come in, for they are holy: but all the people shall keep the charge of Jehovah.
+But let no one come into the house of Yahweh, except the priests, and those who minister of the Levites. They shall come in, for they are holy, but all the people shall follow Yahweh's instructions.

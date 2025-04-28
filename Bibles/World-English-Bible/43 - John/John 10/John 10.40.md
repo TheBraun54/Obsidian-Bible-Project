@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went away again beyond the Jordan into the place where John was at the first baptizing; and there he abode.
+He went away again beyond the Jordan into the place where John was baptizing at first, and there he stayed.

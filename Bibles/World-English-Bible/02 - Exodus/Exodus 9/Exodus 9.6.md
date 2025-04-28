@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah did that thing on the morrow; and all the cattle of Egypt died; but of the cattle of the children of Israel died not one.
+Yahweh did that thing on the next day; and all the livestock of Egypt died, but of the livestock of the children of Israel, not one died.

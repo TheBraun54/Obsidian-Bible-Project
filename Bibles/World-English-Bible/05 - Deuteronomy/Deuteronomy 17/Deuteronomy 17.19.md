@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall be with him, and he shall read therein all the days of his life; that he may learn to fear Jehovah his God, to keep all the words of this law and these statutes, to do them;
+and it shall be with him, and he shall read therein all the days of his life; that he may learn to fear Yahweh his God, to keep all the words of this law and these statutes, to do them;
