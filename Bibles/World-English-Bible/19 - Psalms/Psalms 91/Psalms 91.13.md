@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt tread upon the lion and adder: The young lion and the serpent shalt thou trample under foot.
+You will tread on the lion and cobra. You will trample the young lion and the serpent underfoot.

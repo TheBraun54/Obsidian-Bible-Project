@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the fat ones of the earth shall eat and worship: All they that go down to the dust shall bow before him, Even he that cannot keep his soul alive.
+All the rich ones of the earth shall eat and worship. All those who go down to the dust shall bow before him, even he who can't keep his soul alive.

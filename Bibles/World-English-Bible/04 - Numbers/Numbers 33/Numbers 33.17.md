@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Kibroth-hattaavah, and encamped in Hazeroth.
+They traveled from Kibroth Hattaavah, and encamped in Hazeroth.

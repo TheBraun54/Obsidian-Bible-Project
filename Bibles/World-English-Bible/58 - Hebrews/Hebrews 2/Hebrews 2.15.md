@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and might deliver all them who through fear of death were all their lifetime subject to bondage.
+and might deliver all of them who through fear of death were all their lifetime subject to bondage.

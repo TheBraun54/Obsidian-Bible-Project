@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Suffer me a little, and I will show thee; For I have yet somewhat to say on God's behalf.
+"Bear with me a little, and I will show you; for I still have something to say on God's behalf.

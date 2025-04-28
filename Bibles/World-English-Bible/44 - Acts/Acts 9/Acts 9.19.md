@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he took food and was strengthened. And he was certain days with the disciples that were at Damascus.
+He took food and was strengthened. Saul stayed several days with the disciples who were at Damascus.

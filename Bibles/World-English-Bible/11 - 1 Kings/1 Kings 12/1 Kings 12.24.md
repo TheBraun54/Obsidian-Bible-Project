@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Ye shall not go up, nor fight against your brethren the children of Israel: return every man to his house; for this thing is of me. So they hearkened unto the word of Jehovah, and returned and went their way, according to the word of Jehovah.
+'Thus says Yahweh, "You shall not go up, nor fight against your brothers, the children of Israel. Everyone return to his house; for this thing is of me."'" So they listened to the word of Yahweh, and returned and went their way, according to the word of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are there any among the vanities of the nations that can cause rain? or can the heavens give showers? art not thou he, O Jehovah our God? therefore we will wait for thee; for thou hast made all these things.
+Are there any among the vanities of the nations that can cause rain? or can the sky give showers? Aren't you he, Yahweh our God? therefore we will wait for you; for you have made all these things.

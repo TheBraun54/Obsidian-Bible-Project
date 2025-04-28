@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord, Jehovah of hosts, Go, get thee unto this treasurer, even unto Shebna, who is over the house, [and say] ,
+Thus says the Lord, Yahweh of Armies, "Go, get yourself to this treasurer, even to Shebna, who is over the house, and say,

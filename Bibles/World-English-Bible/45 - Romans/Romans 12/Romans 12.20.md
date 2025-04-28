@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thine enemy hunger, feed him; if he thirst, give him to drink: for in so doing thou shalt heap coals of fire upon his head.
+Therefore "If your enemy is hungry, feed him. If he is thirsty, give him a drink; for in doing so, you will heap coals of fire on his head."

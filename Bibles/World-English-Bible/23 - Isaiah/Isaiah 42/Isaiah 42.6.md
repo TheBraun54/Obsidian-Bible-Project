@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I, Jehovah, have called thee in righteousness, and will hold thy hand, and will keep thee, and give thee for a covenant of the people, for a light of the Gentiles;
+"I, Yahweh, have called you in righteousness, and will hold your hand, and will keep you, and make you a covenant for the people, as a light for the nations;

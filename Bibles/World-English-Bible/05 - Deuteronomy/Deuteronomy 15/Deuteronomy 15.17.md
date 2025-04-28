@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then thou shalt take an awl, and thrust it through his ear unto the door, and he shall be thy servant for ever. And also unto thy maid-servant thou shalt do likewise. [
+then you shall take an awl, and thrust it through his ear to the door, and he shall be your servant forever. Also to your female servant you shall do likewise.

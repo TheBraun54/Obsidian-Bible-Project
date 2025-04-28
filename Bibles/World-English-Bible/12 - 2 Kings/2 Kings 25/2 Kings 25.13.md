@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the pillars of brass that were in the house of Jehovah, and the bases and the brazen sea that were in the house of Jehovah, did the Chaldeans break in pieces, and carried the brass of them to Babylon.
+The pillars of brass that were in the house of Yahweh, and the bases and the bronze sea that were in the house of Yahweh, did the Chaldeans break in pieces, and carried the brass of them to Babylon.

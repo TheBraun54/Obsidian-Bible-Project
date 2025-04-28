@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto her, Nay, but we will return with thee unto thy people.
+They said to her, "No, but we will return with you to your people."

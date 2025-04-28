@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let Israel rejoice in him that made him: Let the children of Zion be joyful in their King.
+Let Israel rejoice in him who made them. Let the children of Zion be joyful in their King.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, What would ye that I should do for you?
+He said to them, "What do you want me to do for you?"

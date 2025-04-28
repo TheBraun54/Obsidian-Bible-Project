@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-confirming the souls of the disciples, exhorting them to continue in the faith, and that through many tribulations we must enter into the kingdom of God.
+confirming the souls of the disciples, exhorting them to continue in the faith, and that through many afflictions we must enter into the Kingdom of God.

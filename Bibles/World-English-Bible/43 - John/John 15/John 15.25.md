@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But [this cometh to pass], that the word may be fulfilled that is written in their law, They hated me without a cause.
+But this happened so that the word may be fulfilled which was written in their law, 'They hated me without a cause.'

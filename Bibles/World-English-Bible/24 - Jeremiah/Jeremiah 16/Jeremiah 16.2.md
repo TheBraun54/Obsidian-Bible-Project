@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not take thee a wife, neither shalt thou have sons or daughters, in this place.
+You shall not take a wife, neither shall you have sons or daughters, in this place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the spirit of jealousy come upon him, and he be jealous of his wife, and she be defiled: or if the spirit of jealousy come upon him, and he be jealous of his wife, and she be not defiled:
+and the spirit of jealousy comes on him, and he is jealous of his wife, and she is defiled: or if the spirit of jealousy comes on him, and he is jealous of his wife, and she isn't defiled:

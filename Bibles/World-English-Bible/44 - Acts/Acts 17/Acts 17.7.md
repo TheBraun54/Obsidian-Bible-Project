@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom Jason hath received: and these all act contrary to the decrees of Caesar, saying that there is another king, [one] Jesus.
+whom Jason has received. These all act contrary to the decrees of Caesar, saying that there is another king, Jesus!"

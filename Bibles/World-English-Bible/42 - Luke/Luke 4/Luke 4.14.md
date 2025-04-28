@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus returned in the power of the Spirit into Galilee: and a fame went out concerning him through all the region round about.
+Jesus returned in the power of the Spirit into Galilee, and news about him spread through all the surrounding area.

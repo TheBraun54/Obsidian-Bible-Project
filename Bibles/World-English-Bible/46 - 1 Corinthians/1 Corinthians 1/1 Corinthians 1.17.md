@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Christ sent me not to baptize, but to preach the gospel: not in wisdom of words, lest the cross of Christ should be made void.
+For Christ sent me not to baptize, but to preach the Good News--not in wisdom of words, so that the cross of Christ wouldn't be made void.

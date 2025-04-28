@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She that is in Babylon, elect together with [you], saluteth you; and [so doth] Mark my son.
+She who is in Babylon, chosen together with you, greets you; and so does Mark, my son.

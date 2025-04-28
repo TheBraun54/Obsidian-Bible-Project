@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: They also that uphold Egypt shall fall; and the pride of her power shall come down: from the tower of Seveneh shall they fall in it by the sword, saith the Lord Jehovah.
+Thus says Yahweh: They also who uphold Egypt shall fall; and the pride of her power shall come down: from the tower of Seveneh shall they fall in it by the sword, says the Lord Yahweh.

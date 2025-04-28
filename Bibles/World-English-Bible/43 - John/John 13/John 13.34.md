@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A new commandment I give unto you, that ye love one another; even as I have loved you, that ye also love one another.
+A new commandment I give to you, that you love one another, just like I have loved you; that you also love one another.

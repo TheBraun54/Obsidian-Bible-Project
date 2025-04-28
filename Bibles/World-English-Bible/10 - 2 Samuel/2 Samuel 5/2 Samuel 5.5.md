@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In Hebron he reigned over Judah seven years and six months; and in Jerusalem he reigned thirty and three years over all Israel and Judah.
+In Hebron he reigned over Judah seven years and six months; and in Jerusalem he reigned thirty-three years over all Israel and Judah.

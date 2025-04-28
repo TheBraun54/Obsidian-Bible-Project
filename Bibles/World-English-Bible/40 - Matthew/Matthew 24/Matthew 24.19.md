@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But woe unto them that are with child and to them that give suck in those days!
+But woe to those who are with child and to nursing mothers in those days!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But a certain one of them, Caiaphas, being high priest that year, said unto them, Ye know nothing at all,
+But a certain one of them, Caiaphas, being high priest that year, said to them, "You know nothing at all,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The night is far spent, and the day is at hand: let us therefore cast off the works of darkness, and let us put on the armor of light.
+The night is far gone, and the day is near. Let's therefore throw off the works of darkness, and let's put on the armor of light.

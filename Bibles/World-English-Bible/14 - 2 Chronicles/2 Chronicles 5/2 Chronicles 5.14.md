@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that the priests could not stand to minister by reason of the cloud: for the glory of Jehovah filled the house of God.
+so that the priests could not stand to minister by reason of the cloud: for the glory of Yahweh filled the house of God.

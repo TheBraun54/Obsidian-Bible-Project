@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eyes of Jehovah preserve [him that hath] knowledge; But he overthroweth the words of the treacherous man.
+The eyes of Yahweh watch over knowledge; but he frustrates the words of the unfaithful.

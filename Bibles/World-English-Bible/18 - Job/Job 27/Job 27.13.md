@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the portion of a wicked man with God, And the heritage of oppressors, which they receive from the Almighty:
+"This is the portion of a wicked man with God, the heritage of oppressors, which they receive from the Almighty.

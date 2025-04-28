@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his mother said unto him, Upon me be thy curse, my son; only obey my voice, and go fetch me them.
+His mother said to him, "Let your curse be on me, my son. Only obey my voice, and go get them for me."

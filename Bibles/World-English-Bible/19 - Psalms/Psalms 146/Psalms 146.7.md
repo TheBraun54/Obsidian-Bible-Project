@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who executeth justice for the oppressed; Who giveth food to the hungry. Jehovah looseth the prisoners;
+who executes justice for the oppressed; who gives food to the hungry. Yahweh frees the prisoners.

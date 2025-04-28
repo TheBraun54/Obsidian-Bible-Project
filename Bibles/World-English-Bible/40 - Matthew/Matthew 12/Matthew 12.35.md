@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The good man out of his good treasure bringeth forth good things: and the evil man out of his evil treasure bringeth forth evil things.
+The good man out of his good treasure brings out good things, and the evil man out of his evil treasure brings out evil things.

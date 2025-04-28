@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Haste thee, escape thither; for I cannot do anything till thou be come thither. Therefore the name of the city was called Zoar.
+Hurry, escape there, for I can't do anything until you get there." Therefore the name of the city was called Zoar.

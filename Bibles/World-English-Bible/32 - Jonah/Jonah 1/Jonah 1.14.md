@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore they cried unto Jehovah, and said, We beseech thee, O Jehovah, we beseech thee, let us not perish for this man's life, and lay not upon us innocent blood; for thou, O Jehovah, hast done as it pleased thee.
+Therefore they cried to Yahweh, and said, "We beg you, Yahweh, we beg you, don't let us die for this man's life, and don't lay on us innocent blood; for you, Yahweh, have done as it pleased you."

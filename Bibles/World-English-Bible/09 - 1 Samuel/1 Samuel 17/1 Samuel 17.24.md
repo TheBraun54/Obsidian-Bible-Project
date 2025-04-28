@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the men of Israel, when they saw the man, fled from him, and were sore afraid.
+All the men of Israel, when they saw the man, fled from him, and were terrified.

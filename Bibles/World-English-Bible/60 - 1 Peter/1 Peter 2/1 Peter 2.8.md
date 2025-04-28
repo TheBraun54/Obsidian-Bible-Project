@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and, A stone of stumbling, and a rock of offence; for they stumble at the word, being disobedient: whereunto also they were appointed.
+and, "a stone of stumbling, and a rock of offense." For they stumble at the word, being disobedient, to which also they were appointed.

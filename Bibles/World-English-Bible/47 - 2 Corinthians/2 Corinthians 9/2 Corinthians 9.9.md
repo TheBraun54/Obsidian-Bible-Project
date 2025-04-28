@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as it is written, He hath scattered abroad, he hath given to the poor; His righteousness abideth for ever.
+As it is written, "He has scattered abroad, he has given to the poor. His righteousness remains forever."

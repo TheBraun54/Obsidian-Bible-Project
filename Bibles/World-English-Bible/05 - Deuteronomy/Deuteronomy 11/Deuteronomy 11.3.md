@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and his signs, and his works, which he did in the midst of Egypt unto Pharaoh the king of Egypt, and unto all his land;
+and his signs, and his works, which he did in the midst of Egypt to Pharaoh the king of Egypt, and to all his land;

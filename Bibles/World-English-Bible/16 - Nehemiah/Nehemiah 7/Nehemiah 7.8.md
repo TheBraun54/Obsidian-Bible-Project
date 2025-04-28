@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Parosh, two thousand a hundred and seventy and two.
+The children of Parosh, two thousand one hundred seventy-two.

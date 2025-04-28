@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also give thee into their hand, and they shall throw down thy vaulted place, and break down thy lofty places; and they shall strip thee of thy clothes, and take thy fair jewels; and they shall leave thee naked and bare.
+I will also give you into their hand, and they shall throw down your vaulted place, and break down your lofty places; and they shall strip you of your clothes, and take your beautiful jewels; and they shall leave you naked and bare.

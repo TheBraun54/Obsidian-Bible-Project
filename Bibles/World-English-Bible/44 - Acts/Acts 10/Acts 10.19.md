@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while Peter thought on the vision, the Spirit said unto him, Behold, three men seek thee.
+While Peter was pondering the vision, the Spirit said to him, "Behold, three men seek you.

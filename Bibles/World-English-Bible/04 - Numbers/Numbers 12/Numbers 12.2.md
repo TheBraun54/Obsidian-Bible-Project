@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Hath Jehovah indeed spoken only with Moses? hath he not spoken also with us? And Jehovah heard it.
+They said, "Has Yahweh indeed spoken only with Moses? Hasn't he spoken also with us?" And Yahweh heard it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will create over the whole habitation of mount Zion, and over her assemblies, a cloud and smoke by day, and the shining of a flaming fire by night; for over all the glory [shall be spread] a covering.
+Yahweh will create over the whole habitation of Mount Zion, and over her assemblies, a cloud and smoke by day, and the shining of a flaming fire by night; for over all the glory will be a canopy.

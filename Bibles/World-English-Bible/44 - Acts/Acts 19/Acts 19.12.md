@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-insomuch that unto the sick were carried away from his body handkerchiefs or aprons, and the evil spirits went out.
+so that even handkerchiefs or aprons were carried away from his body to the sick, and the evil spirits went out.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The appearance of them is as the appearance of horses; and as horsemen, so do they run.
+The appearance of them is as the appearance of horses, and as horsemen, so do they run.

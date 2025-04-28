@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all tables are full of vomit [and] filthiness, [so that there is] no place [clean] .
+For all tables are completely full of filthy vomit and filthiness.

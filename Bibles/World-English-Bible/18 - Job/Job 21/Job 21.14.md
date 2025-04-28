@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they say unto God, Depart from us; For we desire not the knowledge of thy ways.
+They tell God, 'Depart from us, for we don't want to know about your ways.

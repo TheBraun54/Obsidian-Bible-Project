@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he knew their thoughts; and he said to the man that had his hand withered, Rise up, and stand forth in the midst. And he arose and stood forth.
+But he knew their thoughts; and he said to the man who had the withered hand, "Rise up, and stand in the middle." He arose and stood.

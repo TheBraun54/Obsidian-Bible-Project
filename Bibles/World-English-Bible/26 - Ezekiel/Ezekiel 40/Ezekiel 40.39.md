@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the porch of the gate were two tables on this side, and two tables on that side, to slay thereon the burnt-offering and the sin-offering and the trespass-offering.
+In the porch of the gate were two tables on this side, and two tables on that side, to kill thereon the burnt offering and the sin offering and the trespass offering.

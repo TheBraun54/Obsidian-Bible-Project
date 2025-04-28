@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joash said unto all that stood against him, Will ye contend for Baal? Or will ye save him? he that will contend for him, let him be put to death whilst [it is yet] morning: if he be a god, let him contend for himself, because one hath broken down his altar.
+Joash said to all who stood against him, "Will you contend for Baal? Or will you save him? He who will contend for him, let him be put to death while [it is yet] morning. If he is a god, let him contend for himself, because someone has broken down his altar."

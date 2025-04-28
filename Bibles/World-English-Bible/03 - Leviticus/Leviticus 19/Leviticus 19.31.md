@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn ye not unto them that have familiar spirits, nor unto the wizards; seek them not out, to be defiled by them: I am Jehovah your God.
+"'Don't turn to those who are mediums, nor to the wizards. Don't seek them out, to be defiled by them. I am Yahweh your God.

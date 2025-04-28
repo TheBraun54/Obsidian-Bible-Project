@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beseech you therefore, be ye imitators of me.
+I beg you therefore, be imitators of me.

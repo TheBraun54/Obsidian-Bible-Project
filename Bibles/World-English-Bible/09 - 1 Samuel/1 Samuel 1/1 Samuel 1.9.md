@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Hannah rose up after they had eaten in Shiloh, and after they had drunk. Now Eli the priest was sitting upon his seat by the door-post of the temple of Jehovah.
+So Hannah rose up after they had eaten in Shiloh, and after they had drunk. Now Eli the priest was sitting on his seat by the doorpost of the temple of Yahweh.

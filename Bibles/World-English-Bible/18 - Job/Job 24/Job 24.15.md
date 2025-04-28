@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eye also of the adulterer waiteth for the twilight, Saying, No eye shall see me: And he disguiseth his face.
+The eye also of the adulterer waits for the twilight, saying, 'No eye shall see me.' He disguises his face.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he remembered the days of old, Moses [and] his people, [saying], Where is he that brought them up out of the sea with the shepherds of his flock? where is he that put his holy Spirit in the midst of them?
+Then he remembered the days of old, Moses [and] his people, [saying], Where is he who brought them up out of the sea with the shepherds of his flock? where is he who put his holy Spirit in the midst of them?

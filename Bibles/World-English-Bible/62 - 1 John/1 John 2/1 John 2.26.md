@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things have I written unto you concerning them that would lead you astray.
+These things I have written to you concerning those who would lead you astray.

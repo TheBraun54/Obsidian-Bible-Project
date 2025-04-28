@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy is the people that is in such a case; [Yea], happy is the people whose God is Jehovah.
+Happy are the people who are in such a situation. Happy are the people whose God is Yahweh. A praise psalm by David.

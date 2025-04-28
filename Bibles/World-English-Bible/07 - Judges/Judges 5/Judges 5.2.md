@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For that the leaders took the lead in Israel, For that the people offered themselves willingly, Bless ye Jehovah.
+"Because the leaders took the lead in Israel, because the people offered themselves willingly, be blessed, Yahweh!

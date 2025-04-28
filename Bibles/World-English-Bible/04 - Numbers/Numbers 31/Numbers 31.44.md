@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thirty and six thousand oxen,
+and thirty-six thousand head of cattle,

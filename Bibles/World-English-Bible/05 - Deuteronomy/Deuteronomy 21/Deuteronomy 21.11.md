@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and seest among the captives a beautiful woman, and thou hast a desire unto her, and wouldest take her to thee to wife;
+and see among the captives a beautiful woman, and you have a desire to her, and would take her to you as wife;

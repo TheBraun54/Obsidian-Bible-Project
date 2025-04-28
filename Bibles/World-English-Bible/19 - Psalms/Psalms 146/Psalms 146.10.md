@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will reign for ever, Thy God, O Zion, unto all generations. Praise ye Jehovah.
+Yahweh will reign forever; your God, O Zion, to all generations. Praise Yah!

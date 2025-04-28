@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the officers of the children of Israel, whom Pharaoh's taskmasters had set over them, were beaten, and demanded, Wherefore have ye not fulfilled your task both yesterday and to-day, in making brick as heretofore?
+The officers of the children of Israel, whom Pharaoh's taskmasters had set over them, were beaten, and demanded, "Why haven't you fulfilled your quota both yesterday and today, in making brick as before?"

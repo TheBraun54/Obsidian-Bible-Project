@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then let them that are in Judaea flee unto the mountains:
+then let those who are in Judea flee to the mountains.

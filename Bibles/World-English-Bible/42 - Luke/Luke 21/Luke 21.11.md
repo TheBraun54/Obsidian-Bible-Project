@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there shall be great earthquakes, and in divers places famines and pestilences; and there shall be terrors and great signs from heaven.
+There will be great earthquakes, famines, and plagues in various places. There will be terrors and great signs from heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will go out and stand beside my father in the field where thou art, and I will commune with my father of thee; and if I see aught, I will tell thee.
+I will go out and stand beside my father in the field where you are, and I will talk with my father about you; and if I see anything, I will tell you."

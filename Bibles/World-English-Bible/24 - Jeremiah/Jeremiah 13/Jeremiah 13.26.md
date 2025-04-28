@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will I also uncover thy skirts upon thy face, and thy shame shall appear.
+Therefore will I also uncover your skirts on your face, and your shame shall appear.

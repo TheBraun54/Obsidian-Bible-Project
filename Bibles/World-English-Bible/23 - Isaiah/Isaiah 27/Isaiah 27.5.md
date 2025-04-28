@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or else let him take hold of my strength, that he may make peace with me; [yea], let him make peace with me.
+Or else let him take hold of my strength, that he may make peace with me. Let him make peace with me."

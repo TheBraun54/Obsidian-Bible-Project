@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Think not that I came to destroy the law or the prophets: I came not to destroy, but to fulfil.
+"Don't think that I came to destroy the law or the prophets. I didn't come to destroy, but to fulfill.

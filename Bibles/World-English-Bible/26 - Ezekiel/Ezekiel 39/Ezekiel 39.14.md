@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall set apart men of continual employment, that shall pass through the land, and, with them that pass through, those that bury them that remain upon the face of the land, to cleanse it: after the end of seven months shall they search.
+They shall set apart men of continual employment, who shall pass through the land, and, with those who pass through, those who bury those who remain on the surface of the land, to cleanse it: after the end of seven months shall they search.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when the officers have made an end of speaking unto the people, that they shall appoint captains of hosts at the head of the people.
+It shall be, when the officers have made an end of speaking to the people, that they shall appoint captains of armies at the head of the people.

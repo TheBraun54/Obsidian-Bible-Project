@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glory of Jehovah went up from the midst of the city, and stood upon the mountain which is on the east side of the city.
+The glory of Yahweh went up from the midst of the city, and stood on the mountain which is on the east side of the city.

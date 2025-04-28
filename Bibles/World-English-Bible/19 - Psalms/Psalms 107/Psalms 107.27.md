@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They reel to and fro, and stagger like a drunken man, And are at their wits' end.
+They reel back and forth, and stagger like a drunken man, and are at their wits' end.

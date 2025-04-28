@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take away the wicked [from] before the king, And his throne shall be established in righteousness.
+Take away the wicked from the king's presence, and his throne will be established in righteousness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-what prayer and supplication soever be made by any man, or by all thy people Israel, who shall know every man his own plague and his own sorrow, and shall spread forth his hands toward this house:
+whatever prayer and supplication be made by any man, or by all your people Israel, who shall know every man his own plague and his own sorrow, and shall spread forth his hands toward this house:

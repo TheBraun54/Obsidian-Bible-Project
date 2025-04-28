@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it came to pass, when he heard that I lifted up my voice and cried, that he left his garment by me, and fled, and got him out.
+It happened, when he heard that I lifted up my voice and cried, that he left his garment by me, and ran outside."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who will bring me into the strong city? Who hath led me unto Edom?
+Who will bring me into the strong city? Who has led me to Edom?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore ye shall do my statutes, and keep mine ordinances and do them; and ye shall dwell in the land in safety.
+"'Therefore you shall do my statutes, and keep my ordinances and do them; and you shall dwell in the land in safety.

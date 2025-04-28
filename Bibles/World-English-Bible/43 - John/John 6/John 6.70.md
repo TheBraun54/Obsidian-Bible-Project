@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered them, Did not I choose you the twelve, and one of you is a devil?
+Jesus answered them, "Didn't I choose you, the twelve, and one of you is a devil?"

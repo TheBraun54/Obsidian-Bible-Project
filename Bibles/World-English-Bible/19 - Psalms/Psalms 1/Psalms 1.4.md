@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked are not so, But are like the chaff which the wind driveth away.
+The wicked are not so, but are like the chaff which the wind drives away.

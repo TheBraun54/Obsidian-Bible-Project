@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Examine me, O Jehovah, and prove me; Try my heart and my mind.
+Examine me, Yahweh, and prove me. Try my heart and my mind.

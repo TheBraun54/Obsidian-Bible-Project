@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the space of about one hour another confidently affirmed, saying, Of a truth this man also was with him; for he is a Galilaean.
+After about one hour passed, another confidently affirmed, saying, "Truly this man also was with him, for he is a Galilean!"

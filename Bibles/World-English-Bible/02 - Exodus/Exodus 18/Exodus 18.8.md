@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses told his father-in-law all that Jehovah had done unto Pharaoh and to the Egyptians for Israel's sake, all the travail that had come upon them by the way, and how Jehovah delivered them.
+Moses told his father-in-law all that Yahweh had done to Pharaoh and to the Egyptians for Israel's sake, all the hardships that had come on them on the way, and how Yahweh delivered them.

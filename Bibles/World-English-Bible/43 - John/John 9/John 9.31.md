@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We know that God heareth not sinners: but if any man be a worshipper of God, and do his will, him he heareth.
+We know that God doesn't listen to sinners, but if anyone is a worshipper of God, and does his will, he listens to him.

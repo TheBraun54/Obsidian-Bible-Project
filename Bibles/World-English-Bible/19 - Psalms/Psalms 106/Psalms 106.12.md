@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then believed they his words; They sang his praise.
+Then they believed his words. They sang his praise.

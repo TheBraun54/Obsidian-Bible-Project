@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say, Did Israel not know? First Moses saith, I will provoke you to jealousy with that which is no nation, With a nation void of understanding will I anger you.
+But I ask, didn't Israel know? First Moses says, "I will provoke you to jealousy with that which is no nation, with a nation void of understanding I will make you angry."

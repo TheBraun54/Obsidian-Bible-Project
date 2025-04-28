@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus I saw the horses in the vision, and them that sat on them, having breastplates [as] of fire and of hyacinth and of brimstone: and the heads of lions; and out of their mouths proceedeth fire and smoke and brimstone.
+Thus I saw the horses in the vision, and those who sat on them, having breastplates of fiery red, hyacinth blue, and sulfur yellow; and the heads of lions. Out of their mouths proceed fire, smoke, and sulfur.

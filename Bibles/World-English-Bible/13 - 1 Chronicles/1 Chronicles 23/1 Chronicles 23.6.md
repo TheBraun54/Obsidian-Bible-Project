@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David divided them into courses according to the sons of Levi: Gershon, Kohath, and Merari.
+David divided them into divisions according to the sons of Levi: Gershon, Kohath, and Merari.

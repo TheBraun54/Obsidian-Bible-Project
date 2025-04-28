@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast delivered my soul from death: [Hast thou] not [delivered] my feet from falling, That I may walk before God In the light of the living?
+For you have delivered my soul from death, and prevented my feet from falling, that I may walk before God in the light of the living. For the Chief Musician. To the tune of "Do Not Destroy." A poem by David, when he fled from Saul, in the cave.

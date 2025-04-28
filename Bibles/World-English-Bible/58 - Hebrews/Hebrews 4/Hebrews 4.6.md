@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing therefore it remaineth that some should enter thereinto, and they to whom the good tidings were before preached failed to enter in because of disobedience,
+Seeing therefore it remains that some should enter therein, and they to whom the good news was before preached failed to enter in because of disobedience,

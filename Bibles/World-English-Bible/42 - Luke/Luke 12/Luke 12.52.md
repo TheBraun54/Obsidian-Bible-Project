@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for there shall be from henceforth five in one house divided, three against two, and two against three.
+For from now on, there will be five in one house divided, three against two, and two against three.

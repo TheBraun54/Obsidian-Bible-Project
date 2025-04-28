@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereas ye know not what shall be on the morrow. What is your life? For ye are a vapor, that appeareth for a little time, and then vanisheth away.
+Whereas you don't know what your life will be like tomorrow. For what is your life? For you are a vapor, that appears for a little time, and then vanishes away.

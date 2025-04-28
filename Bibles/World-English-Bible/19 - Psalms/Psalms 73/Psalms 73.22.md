@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So brutish was I, and ignorant; I was [as] a beast before thee.
+I was so senseless and ignorant. I was a brute beast before you.

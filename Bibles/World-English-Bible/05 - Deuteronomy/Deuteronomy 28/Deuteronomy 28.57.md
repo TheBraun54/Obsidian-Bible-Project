@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and toward her young one that cometh out from between her feet, and toward her children whom she shall bear; for she shall eat them for want of all things secretly, in the siege and in the distress wherewith thine enemy shall distress thee in thy gates.
+and toward her young one who comes out from between her feet, and toward her children whom she shall bear; for she shall eat them for want of all things secretly, in the siege and in the distress with which your enemy shall distress you in your gates.

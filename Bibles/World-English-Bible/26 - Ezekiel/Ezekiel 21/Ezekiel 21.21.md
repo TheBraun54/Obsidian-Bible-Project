@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the king of Babylon stood at the parting of the way, at the head of the two ways, to use divination: he shook the arrows to and fro, he consulted the teraphim, he looked in the liver.
+For the king of Babylon stood at the parting of the way, at the head of the two ways, to use divination: he shook the arrows back and forth, he consulted the teraphim, he looked in the liver.

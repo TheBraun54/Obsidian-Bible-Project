@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was with us there a young man, a Hebrew, servant to the captain of the guard; and we told him, and he interpreted to us our dreams; to each man according to his dream he did interpret.
+There was with us there a young man, a Hebrew, servant to the captain of the guard, and we told him, and he interpreted to us our dreams. To each man according to his dream he interpreted.

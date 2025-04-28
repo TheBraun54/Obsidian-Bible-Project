@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, a prophet came near unto Ahab king of Israel, and said, Thus saith Jehovah, Hast thou seen all this great multitude? behold, I will deliver it into thy hand this day; and thou shalt know that I am Jehovah.
+Behold, a prophet came near to Ahab king of Israel, and said, "Thus says Yahweh, 'Have you seen all this great multitude? Behold, I will deliver it into your hand this day; and you shall know that I am Yahweh.'"

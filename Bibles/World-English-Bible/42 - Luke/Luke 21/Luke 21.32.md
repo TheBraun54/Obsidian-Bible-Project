@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, This generation shall not pass away, till all things be accomplished.
+Most certainly I tell you, this generation will not pass away until all things are accomplished.

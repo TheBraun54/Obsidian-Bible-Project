@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever shall receive one of such little children in my name, receiveth me: and whosoever receiveth me, receiveth not me, but him that sent me.
+"Whoever receives one such little child in my name, receives me, and whoever receives me, doesn't receive me, but him who sent me."

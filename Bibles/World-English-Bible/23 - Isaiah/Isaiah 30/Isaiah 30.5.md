@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall all be ashamed because of a people that cannot profit them, that are not a help nor profit, but a shame, and also a reproach.
+They shall all be ashamed because of a people that can't profit them, that are not a help nor profit, but a shame, and also a reproach."

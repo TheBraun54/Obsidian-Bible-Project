@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She will give to thy head a chaplet of grace; A crown of beauty will she deliver to thee.
+She will give to your head a garland of grace. She will deliver a crown of splendor to you."

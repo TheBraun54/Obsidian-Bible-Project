@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they ate, and were all filled: and there was taken up that which remained over to them of broken pieces, twelve baskets.
+They ate, and were all filled. They gathered up twelve baskets of broken pieces that were left over.

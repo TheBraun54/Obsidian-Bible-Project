@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he beget a son that is a robber, a shedder of blood, and that doeth any one of these things,
+If he fathers a son who is a robber, a shedder of blood, and who does any one of these things,

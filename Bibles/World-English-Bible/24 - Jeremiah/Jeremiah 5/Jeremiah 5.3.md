@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, do not thine eyes look upon truth? thou hast stricken them, but they were not grieved; thou hast consumed them, but they have refused to receive correction: they have made their faces harder than a rock; they have refused to return.
+O Yahweh, don't your eyes look on truth? You have stricken them, but they were not grieved. You have consumed them, but they have refused to receive correction. They have made their faces harder than a rock. They have refused to return.

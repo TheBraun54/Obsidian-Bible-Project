@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou searchest out my path and my lying down, And art acquainted with all my ways.
+You search out my path and my lying down, and are acquainted with all my ways.

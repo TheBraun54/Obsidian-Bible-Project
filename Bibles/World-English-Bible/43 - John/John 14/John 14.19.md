@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet a little while, and the world beholdeth me no more; but ye behold me: because I live, ye shall live also.
+Yet a little while, and the world will see me no more; but you will see me. Because I live, you will live also.

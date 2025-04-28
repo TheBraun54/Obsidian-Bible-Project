@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw in the right hand of him that sat on the throne a book written within and on the back, close sealed with seven seals.
+I saw, in the right hand of him who sat on the throne, a book written inside and outside, sealed shut with seven seals.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The prayers of David the son of Jesse are ended.
+This ends the prayers by David, the son of Jesse. BOOK III A Psalm by Asaph.

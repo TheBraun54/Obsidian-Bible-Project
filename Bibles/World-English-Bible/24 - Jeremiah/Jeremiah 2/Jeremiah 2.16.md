@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children also of Memphis and Tahpanhes have broken the crown of thy head.
+The children also of Memphis and Tahpanhes have broken the crown of your head.

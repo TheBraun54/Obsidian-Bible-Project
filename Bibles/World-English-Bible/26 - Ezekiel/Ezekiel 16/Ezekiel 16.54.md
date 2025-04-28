@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou mayest bear thine own shame, and mayest be ashamed because of all that thou hast done, in that thou art a comfort unto them.
+that you may bear your own shame, and may be ashamed because of all that you have done, in that you are a comfort to them.

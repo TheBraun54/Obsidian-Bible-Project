@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sentence is by the decree of the watchers, and the demand by the word of the holy ones; to the intent that the living may know that the Most High ruleth in the kingdom of men, and giveth it to whomsoever he will, and setteth up over it the lowest of men.
+The sentence is by the decree of the watchers, and the demand by the word of the holy ones; to the intent that the living may know that the Most High rules in the kingdom of men, and gives it to whomever he will, and sets up over it the lowest of men.

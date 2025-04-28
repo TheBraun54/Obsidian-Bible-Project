@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She saith unto him, Yea, Lord: I have believed that thou art the Christ, the Son of God, [even] he that cometh into the world.
+She said to him, "Yes, Lord. I have come to believe that you are the Christ, God's Son, he who comes into the world."

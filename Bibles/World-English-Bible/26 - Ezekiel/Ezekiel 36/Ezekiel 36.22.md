@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore say unto the house of Israel, Thus saith the Lord Jehovah: I do not [this] for your sake, O house of Israel, but for my holy name, which ye have profaned among the nations, whither ye went.
+Therefore tell the house of Israel, Thus says the Lord Yahweh: I don't do [this] for your sake, house of Israel, but for my holy name, which you have profaned among the nations, where you went.

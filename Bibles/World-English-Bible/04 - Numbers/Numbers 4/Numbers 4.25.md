@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they shall bear the curtains of the tabernacle, and the tent of meeting, its covering, and the covering of sealskin that is above upon it, and the screen for the door of the tent of meeting,
+they shall carry the curtains of the tabernacle, and the Tent of Meeting, its covering, and the covering of sealskin that is above on it, and the screen for the door of the Tent of Meeting,

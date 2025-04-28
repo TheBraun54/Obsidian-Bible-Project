@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn not to the right hand nor to the left: Remove thy foot from evil.
+Don't turn to the right hand nor to the left. Remove your foot from evil.

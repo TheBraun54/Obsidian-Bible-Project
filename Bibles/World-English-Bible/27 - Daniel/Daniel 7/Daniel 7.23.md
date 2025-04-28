@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus he said, The fourth beast shall be a fourth kingdom upon earth, which shall be diverse from all the kingdoms, and shall devour the whole earth, and shall tread it down, and break it in pieces.
+Thus he said, The fourth animal shall be a fourth kingdom on earth, which shall be diverse from all the kingdoms, and shall devour the whole earth, and shall tread it down, and break it in pieces.

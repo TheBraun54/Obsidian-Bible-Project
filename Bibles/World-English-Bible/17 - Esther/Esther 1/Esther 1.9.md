@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Vashti the queen made a feast for the women in the royal house which belonged to king Ahasuerus.
+Also Vashti the queen made a feast for the women in the royal house which belonged to King Ahasuerus.

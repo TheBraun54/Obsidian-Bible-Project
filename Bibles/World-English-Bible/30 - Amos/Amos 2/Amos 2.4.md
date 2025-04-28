@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: For three transgressions of Judah, yea, for four, I will not turn away the punishment thereof; because they have rejected the law of Jehovah, and have not kept his statutes, and their lies have caused them to err, after which their fathers did walk:
+Thus says Yahweh: "For three transgressions of Judah, yes, for four, I will not turn away its punishment; because they have rejected Yahweh's law, and have not kept his statutes, and their lies have led them astray, after which their fathers walked;

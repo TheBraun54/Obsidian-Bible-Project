@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Depart from me, ye evil-doers, That I may keep the commandments of my God.
+Depart from me, you evildoers, that I may keep the commandments of my God.

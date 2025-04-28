@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Edom shall become an astonishment: every one that passeth by it shall be astonished, and shall hiss at all the plagues thereof.
+Edom shall become an astonishment: everyone who passes by it shall be astonished, and shall hiss at all its plagues.

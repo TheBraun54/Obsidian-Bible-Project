@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither hath Samaria committed half of thy sins; but thou hast multiplied thine abominations more than they, and hast justified thy sisters by all thine abominations which thou hast done.
+Neither has Samaria committed half of your sins; but you have multiplied your abominations more than they, and have justified your sisters by all your abominations which you have done.

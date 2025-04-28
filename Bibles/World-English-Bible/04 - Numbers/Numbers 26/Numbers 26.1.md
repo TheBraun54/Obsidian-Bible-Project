@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after the plague, that Jehovah spake unto Moses and unto Eleazar the son of Aaron the priest, saying,
+It happened after the plague, that Yahweh spoke to Moses and to Eleazar the son of Aaron the priest, saying,

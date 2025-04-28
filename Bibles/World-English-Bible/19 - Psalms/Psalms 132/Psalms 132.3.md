@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely I will not come into the tabernacle of my house, Nor go up into my bed;
+"Surely I will not come into the structure of my house, nor go up into my bed;

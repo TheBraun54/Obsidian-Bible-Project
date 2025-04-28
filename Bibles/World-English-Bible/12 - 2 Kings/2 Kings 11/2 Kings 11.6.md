@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a third part shall be at the gate Sur; and a third part at the gate behind the guard: so shall ye keep the watch of the house, and be a barrier.
+A third part shall be at the gate Sur; and a third part at the gate behind the guard. So you shall keep the watch of the house, and be a barrier.

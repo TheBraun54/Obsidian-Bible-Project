@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man Micah had a house of gods, and he made an ephod, and teraphim, and consecrated one of his sons, who became his priest.
+The man Micah had a house of gods, and he made an ephod, and teraphim, and consecrated one of his sons, who became his priest.

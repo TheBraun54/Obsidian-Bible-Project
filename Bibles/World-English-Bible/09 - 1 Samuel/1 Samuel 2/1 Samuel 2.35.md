@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will raise me up a faithful priest, that shall do according to that which is in my heart and in my mind: and I will build him a sure house; and he shall walk before mine anointed for ever.
+I will raise me up a faithful priest, that shall do according to that which is in my heart and in my mind. I will build him a sure house; and he shall walk before my anointed forever.

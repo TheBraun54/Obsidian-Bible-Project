@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I had heard of thee by the hearing of the ear; But now mine eye seeth thee:
+I had heard of you by the hearing of the ear, but now my eye sees you.

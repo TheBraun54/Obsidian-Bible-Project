@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men did the work faithfully: and the overseers of them were Jahath and Obadiah, the Levites, of the sons of Merari; and Zechariah and Meshullam, of the sons of the Kohathites, to set it forward; and [others of] the Levites, all that were skilful with instruments of music.
+The men did the work faithfully: and the overseers of them were Jahath and Obadiah, the Levites, of the sons of Merari; and Zechariah and Meshullam, of the sons of the Kohathites, to set it forward; and [others of] the Levites, all who were skillful with instruments of music.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bow thy heavens, O Jehovah, and come down: Touch the mountains, and they shall smoke.
+Part your heavens, Yahweh, and come down. Touch the mountains, and they will smoke.

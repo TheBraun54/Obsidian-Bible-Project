@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As we have said before, so say I now again, if any man preacheth unto you any gospel other than that which ye received, let him be anathema.
+As we have said before, so I now say again: if any man preaches to you any "good news" other than that which you received, let him be cursed.

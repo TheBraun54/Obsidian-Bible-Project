@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto him, Art thou the teacher of Israel, and understandest not these things?
+Jesus answered him, "Are you the teacher of Israel, and don't understand these things?

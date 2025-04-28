@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it rested, he said, Return, O Jehovah, unto the ten thousands of the thousands of Israel.
+When it rested, he said, "Return, Yahweh, to the ten thousands of the thousands of Israel."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hypocrite, cast out first the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother's eye.
+You hypocrite! First remove the beam out of your own eye, and then you can see clearly to remove the speck out of your brother's eye.

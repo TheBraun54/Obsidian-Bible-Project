@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. Jehovah, I have called upon thee; Make haste unto me: Give ear unto my voice, when I call unto thee.
+Yahweh, I have called on you. Come to me quickly! Listen to my voice when I call to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore let them also that suffer according to the will of God commit their souls in well-doing unto a faithful Creator.
+Therefore let them also who suffer according to the will of God in doing good entrust their souls to him, as to a faithful Creator.

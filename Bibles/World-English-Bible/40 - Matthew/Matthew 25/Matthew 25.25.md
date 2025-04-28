@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I was afraid, and went away and hid thy talent in the earth: lo, thou hast thine own.
+I was afraid, and went away and hid your talent in the earth. Behold, you have what is yours.'

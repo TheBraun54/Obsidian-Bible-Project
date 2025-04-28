@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Heshbon, and all its cities that are in the plain; Dibon, and Bamoth-baal, and Beth-baal-meon,
+Heshbon, and all its cities that are in the plain; Dibon, Bamoth Baal, Beth Baal Meon,

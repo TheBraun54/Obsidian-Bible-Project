@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked walk on every side, When vileness is exalted among the sons of men.
+The wicked walk on every side, when what is vile is exalted among the sons of men. For the Chief Musician. A Psalm by David.

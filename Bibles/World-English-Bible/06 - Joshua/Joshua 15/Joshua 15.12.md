@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the west border was to the great sea, and the border [thereof] . This is the border of the children of Judah round about according to their families.
+The west border was to the shore of the great sea. This is the border of the children of Judah according to their families.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the bread of God is that which cometh down out of heaven, and giveth life unto the world.
+For the bread of God is that which comes down out of heaven, and gives life to the world."

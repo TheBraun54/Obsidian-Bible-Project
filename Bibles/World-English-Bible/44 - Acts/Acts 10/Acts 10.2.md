@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a devout man, and one that feared God with all his house, who gave much alms to the people, and prayed to God always.
+a devout man, and one who feared God with all his house, who gave gifts for the needy generously to the people, and always prayed to God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast rejected me, saith Jehovah, thou art gone backward: therefore have I stretched out my hand against thee, and destroyed thee; I am weary with repenting.
+You have rejected me, says Yahweh, you have gone backward: therefore have I stretched out my hand against you, and destroyed you; I am weary with repenting.

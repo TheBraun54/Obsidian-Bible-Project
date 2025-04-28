@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely his salvation is nigh them that fear him, That glory may dwell in our land.
+Surely his salvation is near those who fear him, that glory may dwell in our land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if they be ashamed of all that they have done, make known unto them the form of the house, and the fashion thereof, and the egresses thereof, and the entrances thereof, and all the forms thereof, and all the ordinances thereof, and all the forms thereof, and all the laws thereof; and write it in their sight; that they may keep the whole form thereof, and all the ordinances thereof, and do them.
+If they be ashamed of all that they have done, make known to them the form of the house, and its fashion, and its exits, and its entrances, and all its forms, and all its ordinances, and all its forms, and all its laws; and write it in their sight; that they may keep the whole form of it, and all its ordinances, and do them.

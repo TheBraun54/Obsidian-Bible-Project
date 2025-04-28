@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My righteousness is near, my salvation is gone forth, and mine arms shall judge the peoples; the isles shall wait for me, and on mine arm shall they trust.
+My righteousness is near, my salvation is gone forth, and my arms shall judge the peoples; the islands shall wait for me, and on my arm shall they trust.

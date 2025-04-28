@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider, I pray you, from this day and backward, from the four and twentieth day of the ninth [month], since the day that the foundation of Jehovah's temple was laid, consider it.
+'Consider, please, from this day and backward, from the twenty-fourth day of the ninth month, since the day that the foundation of Yahweh's temple was laid, consider it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Iniquities prevail against me: As for our transgressions, thou wilt forgive them.
+Sins overwhelmed me, but you atoned for our transgressions.

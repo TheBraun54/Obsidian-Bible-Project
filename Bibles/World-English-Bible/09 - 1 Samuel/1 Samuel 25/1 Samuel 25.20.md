@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, as she rode on her ass, and came down by the covert of the mountain, that, behold, David and his men came down toward her; and she met them.
+It was so, as she rode on her donkey, and came down by the covert of the mountain, that behold, David and his men came down toward her; and she met them.

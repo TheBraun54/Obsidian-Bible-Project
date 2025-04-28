@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Othniel the son of Kenaz, the brother of Caleb, took it: and he gave him Achsah his daughter to wife.
+Othniel the son of Kenaz, the brother of Caleb, took it: and he gave him Achsah his daughter as wife.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord said unto him, Loose the shoes from thy feet: for the place whereon thou standest is holy ground.
+The Lord said to him, 'Take your sandals off of your feet, for the place where you stand is holy ground.

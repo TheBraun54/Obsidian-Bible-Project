@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David did so, as Jehovah commanded him, and smote the Philistines from Geba until thou come to Gezer.
+David did so, as Yahweh commanded him, and struck the Philistines from Geba until you come to Gezer.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thy beloved may be delivered, Save with thy right hand, and answer us.
+So that your beloved may be delivered, save with your right hand, and answer us.

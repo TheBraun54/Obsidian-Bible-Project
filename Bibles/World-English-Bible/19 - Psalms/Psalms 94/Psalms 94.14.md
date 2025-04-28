@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will not cast off his people, Neither will he forsake his inheritance.
+For Yahweh won't reject his people, neither will he forsake his inheritance.

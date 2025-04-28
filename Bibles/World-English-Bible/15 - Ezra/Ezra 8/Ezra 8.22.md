@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I was ashamed to ask of the king a band of soldiers and horsemen to help us against the enemy in the way, because we had spoken unto the king, saying, The hand of our God is upon all them that seek him, for good; but his power and his wrath is against all them that forsake him.
+For I was ashamed to ask of the king a band of soldiers and horsemen to help us against the enemy in the way, because we had spoken to the king, saying, "The hand of our God is on all those who seek him, for good; but his power and his wrath is against all those who forsake him."

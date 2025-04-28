@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, Beth-lehem Ephrathah, which art little to be among the thousands of Judah, out of thee shall one come forth unto me that is to be ruler in Israel; whose goings forth are from of old, [ from everlasting.
+But you, Bethlehem Ephrathah, being small among the clans of Judah, out of you one will come forth to me that is to be ruler in Israel; whose goings forth are from of old, from everlasting.

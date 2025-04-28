@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Solomon had finished the building of the house of Jehovah, and the king's house, and all Solomon's desire which he was pleased to do,
+It happened, when Solomon had finished the building of the house of Yahweh, and the king's house, and all Solomon's desire which he was pleased to do,

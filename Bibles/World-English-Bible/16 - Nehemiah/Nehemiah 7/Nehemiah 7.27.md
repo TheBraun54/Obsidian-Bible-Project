@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Anathoth, a hundred twenty and eight.
+The men of Anathoth, one hundred twenty-eight.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am distressed for thee, my brother Jonathan: Very pleasant hast thou been unto me: Thy love to me was wonderful, Passing the love of women.
+I am distressed for you, my brother Jonathan. You have been very pleasant to me. Your love to me was wonderful, passing the love of women.

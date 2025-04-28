@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I made sackcloth my clothing, I became a byword unto them.
+When I made sackcloth my clothing, I became a byword to them.

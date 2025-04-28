@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Esther at the banquet of wine, What is thy petition? and it shall be granted thee: and what is thy request? even to the half of the kingdom it shall be performed.
+The king said to Esther at the banquet of wine, "What is your petition? It shall be granted you. What is your request? Even to the half of the kingdom it shall be performed."

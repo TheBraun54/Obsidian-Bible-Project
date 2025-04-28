@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the portion of a wicked man from God, And the heritage appointed unto him by God.
+This is the portion of a wicked man from God, the heritage appointed to him by God."

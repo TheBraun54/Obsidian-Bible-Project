@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and over the vineyards was Shimei the Ramathite: and over the increase of the vineyards for the wine-cellars was Zabdi the Shiphmite:
+and over the vineyards was Shimei the Ramathite: and over the increase of the vineyards for the winecellars was Zabdi the Shiphmite:

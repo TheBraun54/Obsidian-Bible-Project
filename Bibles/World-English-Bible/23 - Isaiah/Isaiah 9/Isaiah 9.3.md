@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast multiplied the nation, thou hast increased their joy: they joy before thee according to the joy in harvest, as men rejoice when they divide the spoil.
+You have multiplied the nation. You have increased their joy. They rejoice before you according to the joy in harvest, as men rejoice when they divide the spoil.

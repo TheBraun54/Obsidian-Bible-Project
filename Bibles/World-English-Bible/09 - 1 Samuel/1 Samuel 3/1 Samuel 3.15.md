@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel lay until the morning, and opened the doors of the house of Jehovah. And Samuel feared to show Eli the vision.
+Samuel lay until the morning, and opened the doors of the house of Yahweh. Samuel feared to show Eli the vision.

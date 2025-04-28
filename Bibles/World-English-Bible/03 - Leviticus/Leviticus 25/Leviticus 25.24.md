@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in all the land of your possession ye shall grant a redemption for the land.
+In all the land of your possession you shall grant a redemption for the land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know ye not that they that run in a race run all, but one receiveth the prize? Even so run; that ye may attain.
+Don't you know that those who run in a race all run, but one receives the prize? Run like that, that you may win.

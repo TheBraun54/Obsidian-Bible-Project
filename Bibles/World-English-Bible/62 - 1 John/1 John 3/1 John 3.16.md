@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hereby know we love, because he laid down his life for us: and we ought to lay down our lives for the brethren.
+By this we know love, because he laid down his life for us. And we ought to lay down our lives for the brothers.

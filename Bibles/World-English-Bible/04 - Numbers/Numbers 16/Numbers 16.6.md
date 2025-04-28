@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This do: take you censers, Korah, and all his company;
+Do this: take censers, Korah, and all his company;

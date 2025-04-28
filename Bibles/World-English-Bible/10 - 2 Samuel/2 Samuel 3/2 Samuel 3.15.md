@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ish-bosheth sent, and took her from her husband, even from Paltiel the son of Laish.
+Ishbosheth sent, and took her from her husband, even from Paltiel the son of Laish.

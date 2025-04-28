@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he preached, saying, There cometh after me he that is mightier than I, the latchet of whose shoes I am not worthy to stoop down and unloose.
+He preached, saying, "After me comes he who is mightier than I, the thong of whose sandals I am not worthy to stoop down and loosen.

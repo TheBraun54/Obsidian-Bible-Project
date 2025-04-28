@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab said to Amasa, Is it well with thee, my brother? And Joab took Amasa by the beard with his right hand to kiss him.
+Joab said to Amasa, "Is it well with you, my brother?" Joab took Amasa by the beard with his right hand to kiss him.

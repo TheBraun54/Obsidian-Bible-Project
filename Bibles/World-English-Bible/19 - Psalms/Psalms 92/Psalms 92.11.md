@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eye also hath seen [my desire] on mine enemies, Mine ears have heard [my desire] of the evil-doers that rise up against me.
+My eye has also seen my enemies. My ears have heard of the wicked enemies who rise up against me.

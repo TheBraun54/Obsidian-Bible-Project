@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Destruction and Death say, We have heard a rumor thereof with our ears.
+Destruction and Death say, 'We have heard a rumor of it with our ears.'

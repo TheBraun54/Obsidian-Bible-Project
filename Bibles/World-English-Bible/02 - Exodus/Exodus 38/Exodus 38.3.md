@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made all the vessels of the altar, the pots, and the shovels, and the basins, the flesh-hooks, and the firepans: all the vessels thereof made he of brass.
+He made all the vessels of the altar, the pots, the shovels, the basins, the forks, and the fire pans. He made all its vessels of brass.

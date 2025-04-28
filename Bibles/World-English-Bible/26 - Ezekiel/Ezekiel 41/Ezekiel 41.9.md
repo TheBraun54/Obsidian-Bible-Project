@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The thickness of the wall, which was for the side-chambers, on the outside, was five cubits: and that which was left was the place of the side-chambers that belonged to the house.
+The thickness of the wall, which was for the side rooms, on the outside, was five cubits: and that which was left was the place of the side rooms that belonged to the house.

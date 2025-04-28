@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people, [even] the [men of] war that were with him, went up, and drew nigh, and came before the city, and encamped on the north side of Ai: now there was a valley between him and Ai.
+All the people, even the men of war who were with him, went up, and drew near, and came before the city, and encamped on the north side of Ai. Now there was a valley between him and Ai.

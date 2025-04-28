@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took his brethren with him, and pursued after him seven days' journey; and he overtook him in the mountain of Gilead.
+He took his relatives with him, and pursued after him seven days' journey. He overtook him in the mountain of Gilead.

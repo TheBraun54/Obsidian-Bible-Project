@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he shall be like the heath in the desert, and shall not see when good cometh, but shall inhabit the parched places in the wilderness, a salt land and not inhabited.
+For he shall be like the heath in the desert, and shall not see when good comes, but shall inhabit the parched places in the wilderness, a salt land and not inhabited.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every man also to whom God hath given riches and wealth, and hath given him power to eat thereof, and to take his portion, and to rejoice in his labor--this is the gift of God.
+Every man also to whom God has given riches and wealth, and has given him power to eat of it, and to take his portion, and to rejoice in his labor--this is the gift of God.

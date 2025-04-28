@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the first lot came forth for Asaph to Joseph: the second to Gedaliah; he and his brethren and sons were twelve:
+Now the first lot came forth for Asaph to Joseph: the second to Gedaliah; he and his brothers and sons were twelve:

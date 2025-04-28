@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He goeth after her straightway, As an ox goeth to the slaughter, Or as [one in] fetters to the correction of the fool;
+He followed her immediately, as an ox goes to the slaughter, as a fool stepping into a noose.

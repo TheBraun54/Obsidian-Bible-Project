@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the captains of the chariots saw Jehoshaphat, that they said, It is the king of Israel. Therefore they turned about to fight against him: but Jehoshaphat cried out, and Jehovah helped him; and God moved them [to depart] from him.
+It happened, when the captains of the chariots saw Jehoshaphat, that they said, "It is the king of Israel!" Therefore they turned around to fight against him. But Jehoshaphat cried out, and Yahweh helped him; and God moved them to depart from him.

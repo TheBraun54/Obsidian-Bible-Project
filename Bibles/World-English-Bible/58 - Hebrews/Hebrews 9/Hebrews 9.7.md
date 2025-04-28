@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but into the second the high priest alone, once in the year, not without blood, which he offereth for himself, and for the errors of the people:
+but into the second the high priest alone, once in the year, not without blood, which he offers for himself, and for the errors of the people.

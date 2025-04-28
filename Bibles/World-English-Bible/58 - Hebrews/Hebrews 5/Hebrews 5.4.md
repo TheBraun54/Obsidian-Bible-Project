@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no man taketh the honor unto himself, but when he is called of God, even as was Aaron.
+Nobody takes this honor on himself, but he is called by God, just like Aaron was.

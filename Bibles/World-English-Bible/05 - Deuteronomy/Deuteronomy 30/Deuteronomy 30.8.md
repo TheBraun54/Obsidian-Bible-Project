@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt return and obey the voice of Jehovah, and do all his commandments which I command thee this day.
+You shall return and obey the voice of Yahweh, and do all his commandments which I command you this day.

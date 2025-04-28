@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When a man's ways please Jehovah, He maketh even his enemies to be at peace with him.
+When a man's ways please Yahweh, he makes even his enemies to be at peace with him.

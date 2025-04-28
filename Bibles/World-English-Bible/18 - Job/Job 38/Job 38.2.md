@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is this that darkeneth counsel By words without knowledge?
+"Who is this who darkens counsel by words without knowledge?

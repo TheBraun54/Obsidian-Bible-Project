@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from the Red Sea, and encamped in the wilderness of Sin.
+They traveled from the Red Sea, and encamped in the wilderness of Sin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his father and his mother knew not that it was of Jehovah; for he sought an occasion against the Philistines. Now at that time the Philistines had rule over Israel.
+But his father and his mother didn't know that it was of Yahweh; for he sought an occasion against the Philistines. Now at that time the Philistines had rule over Israel.

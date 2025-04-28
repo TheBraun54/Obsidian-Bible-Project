@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Herein is love, not that we loved God, but that he loved us, and sent his Son [to be] the propitiation for our sins.
+In this is love, not that we loved God, but that he loved us, and sent his Son as the atoning sacrifice for our sins.

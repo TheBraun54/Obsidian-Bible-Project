@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto you, Whosoever shall put away his wife, except for fornication, and shall marry another, committeth adultery: and he that marrieth her when she is put away committeth adultery.
+I tell you that whoever divorces his wife, except for sexual immorality, and marries another, commits adultery; and he who marries her when she is divorced commits adultery."

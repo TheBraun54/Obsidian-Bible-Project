@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall not profane his seed among his people: for I am Jehovah who sanctifieth him.
+He shall not profane his seed among his people: for I am Yahweh who sanctifies him.'"

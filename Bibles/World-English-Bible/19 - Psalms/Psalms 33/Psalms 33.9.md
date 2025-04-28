@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he spake, and it was done; He commanded, and it stood fast.
+For he spoke, and it was done. He commanded, and it stood firm.

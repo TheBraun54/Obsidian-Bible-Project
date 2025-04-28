@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having heard the things concerning Jesus, came in the crowd behind, and touched his garment.
+having heard the things concerning Jesus, came up behind him in the crowd, and touched his clothes.

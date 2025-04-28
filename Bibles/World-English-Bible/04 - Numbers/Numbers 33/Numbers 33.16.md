@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from the wilderness of Sinai, and encamped in Kibroth-hattaavah.
+They traveled from the wilderness of Sinai, and encamped in Kibroth Hattaavah.

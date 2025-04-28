@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore deliver up the men, the base fellows, that are in Gibeah, that we may put them to death, and put away evil from Israel. But Benjamin would not hearken to the voice of their brethren the children of Israel.
+Now therefore deliver up the men, the base fellows, who are in Gibeah, that we may put them to death, and put away evil from Israel." But Benjamin would not listen to the voice of their brothers the children of Israel.

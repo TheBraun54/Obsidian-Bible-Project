@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They hunt our steps, so that we cannot go in our streets: Our end is near, our days are fulfilled; for our end is come.
+They hunt our steps, so that we can't go in our streets: Our end is near, our days are fulfilled; for our end is come.

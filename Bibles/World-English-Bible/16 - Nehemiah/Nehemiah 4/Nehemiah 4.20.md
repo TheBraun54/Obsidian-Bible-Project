@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in what place soever ye hear the sound of the trumpet, resort ye thither unto us; our God will fight for us.
+Wherever you hear the sound of the trumpet, rally there to us. Our God will fight for us."

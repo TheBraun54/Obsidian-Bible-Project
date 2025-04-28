@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if any man speaketh, [speaking] as it were oracles of God; if any man ministereth, [ministering] as of the strength which God supplieth: that in all things God may be glorified through Jesus Christ, whose is the glory and the dominion for ever and ever. Amen.
+If anyone speaks, let it be as it were the very words of God. If anyone serves, let it be as of the strength which God supplies, that in all things God may be glorified through Jesus Christ, to whom belong the glory and the dominion forever and ever. Amen.

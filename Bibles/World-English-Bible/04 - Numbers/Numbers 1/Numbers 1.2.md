@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye the sum of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, by their polls;
+"Take a census of all the congregation of the children of Israel, by their families, by their fathers' houses, according to the number of the names, every male, one by one;

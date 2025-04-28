@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed unto yourselves, lest ye forget the covenant of Jehovah your God, which he made with you, and make you a graven image in the form of anything which Jehovah thy God hath forbidden thee.
+Take heed to yourselves, lest you forget the covenant of Yahweh your God, which he made with you, and make you an engraved image in the form of anything which Yahweh your God has forbidden you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the man said unto him, They will surely burn the fat first, and then take as much as thy soul desireth; then he would say, Nay, but thou shalt give it me now: and if not, I will take it by force.
+If the man said to him, "Let the fat be burned first, and then take as much as your soul desires;" then he would say, "No, but you shall give it to me now; and if not, I will take it by force."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye are without chastening, whereof all have been made partakers, then are ye bastards, and not sons.
+But if you are without discipline, of which all have been made partakers, then are you illegitimate, and not children.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Saul inquired of Jehovah, Jehovah answered him not, neither by dreams, nor by Urim, nor by prophets.
+When Saul inquired of Yahweh, Yahweh didn't answer him, neither by dreams, nor by Urim, nor by prophets.

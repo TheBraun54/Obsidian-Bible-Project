@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his mouth was opened immediately, and his tongue [loosed], and he spake, blessing God.
+His mouth was opened immediately, and his tongue freed, and he spoke, blessing God.

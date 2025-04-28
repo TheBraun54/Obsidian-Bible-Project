@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say to the forest of the South, Hear the word of Jehovah: Thus saith the Lord Jehovah, Behold, I will kindle a fire in thee, and it shall devour every green tree in thee, and every dry tree: the flaming flame shall not be quenched, and all faces from the south to the north shall be burnt thereby.
+and tell the forest of the South, Hear the word of Yahweh: Thus says the Lord Yahweh, Behold, I will kindle a fire in you, and it shall devour every green tree in you, and every dry tree: the flaming flame shall not be quenched, and all faces from the south to the north shall be burnt thereby.

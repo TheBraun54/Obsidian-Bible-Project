@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ox knoweth his owner, and the ass his master's crib; [but] Israel doth not know, my people doth not consider.
+The ox knows his owner, and the donkey his master's crib; but Israel doesn't know, my people don't consider."

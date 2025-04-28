@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say unto wisdom, Thou art my sister; And call understanding [thy] kinswoman:
+Tell wisdom, "You are my sister." Call understanding your relative,

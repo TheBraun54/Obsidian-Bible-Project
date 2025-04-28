@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that confirmeth not the words of this law to do them. And all the people shall say, Amen.
+'Cursed is he who doesn't confirm the words of this law to do them.' All the people shall say, 'Amen.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But tidings out of the east and out of the north shall trouble him; and he shall go forth with great fury to destroy and utterly to sweep away many.
+But news out of the east and out of the north shall trouble him; and he shall go forth with great fury to destroy and utterly to sweep away many.

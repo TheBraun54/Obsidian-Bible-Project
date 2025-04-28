@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he washed the inwards and the legs with water; and Moses burnt the whole ram upon the altar: it was a burnt-offering for a sweet savor: it was an offering made by fire unto Jehovah; as Jehovah commanded Moses.
+He washed the innards and the legs with water; and Moses burned the whole ram on the altar. It was a burnt offering for a pleasant aroma. It was an offering made by fire to Yahweh; as Yahweh commanded Moses.

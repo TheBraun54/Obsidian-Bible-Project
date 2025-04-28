@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now thy two sons, who were born unto thee in the land of Egypt before I came unto thee into Egypt, are mine; Ephraim and Manasseh, even as Reuben and Simeon, shall be mine.
+Now your two sons, who were born to you in the land of Egypt before I came to you into Egypt, are mine; Ephraim and Manasseh, even as Reuben and Simeon, will be mine.

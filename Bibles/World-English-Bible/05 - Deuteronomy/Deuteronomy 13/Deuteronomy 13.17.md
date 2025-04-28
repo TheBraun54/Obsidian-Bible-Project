@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall cleave nought of the devoted thing to thy hand; that Jehovah may turn from the fierceness of his anger, and show thee mercy, and have compassion upon thee, and multiply thee, as he hath sworn unto thy fathers;
+Nothing of the devoted thing shall cling to your hand; that Yahweh may turn from the fierceness of his anger, and show you mercy, and have compassion on you, and multiply you, as he has sworn to your fathers;

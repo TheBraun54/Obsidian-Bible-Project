@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is good that a man should hope and quietly wait for the salvation of Jehovah.
+It is good that a man should hope and quietly wait for the salvation of Yahweh.

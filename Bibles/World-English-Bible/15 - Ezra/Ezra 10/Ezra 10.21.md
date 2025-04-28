@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Harim: Maaseiah, and Elijah, and Shemaiah, and Jehiel, and Uzziah.
+Of the sons of Harim: Maaseiah, and Elijah, and Shemaiah, and Jehiel, and Uzziah.

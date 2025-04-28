@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the demon was cast out, the dumb man spake: and the multitudes marvelled, saying, It was never so seen in Israel.
+When the demon was cast out, the mute man spoke. The multitudes marveled, saying, "Nothing like this has ever been seen in Israel!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, If they only bind me with new ropes wherewith no work hath been done, then shall I become weak, and be as another man.
+He said to her, "If they only bind me with new ropes with which no work has been done, then shall I become weak, and be as another man."

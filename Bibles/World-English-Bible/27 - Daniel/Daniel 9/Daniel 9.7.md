@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord, righteousness belongeth unto thee, but unto us confusion of face, as at this day; to the men of Judah, and to the inhabitants of Jerusalem, and unto all Israel, that are near, and that are far off, through all the countries whither thou hast driven them, because of their trespass that they have trespassed against thee.
+Lord, righteousness belongs to you, but to us confusion of face, as at this day; to the men of Judah, and to the inhabitants of Jerusalem, and to all Israel, who are near, and who are far off, through all the countries where you have driven them, because of their trespass that they have trespassed against you.

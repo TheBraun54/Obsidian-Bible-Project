@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast thy burden upon Jehovah, and he will sustain thee: He will never suffer the righteous to be moved.
+Cast your burden on Yahweh, and he will sustain you. He will never allow the righteous to be moved.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they speak against thee wickedly, And thine enemies take [thy name] in vain.
+For they speak against you wickedly. Your enemies take your name in vain.

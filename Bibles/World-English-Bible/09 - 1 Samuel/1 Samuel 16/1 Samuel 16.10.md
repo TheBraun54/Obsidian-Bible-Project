@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesse made seven of his sons to pass before Samuel. And Samuel said unto Jesse, Jehovah hath not chosen these.
+Jesse made seven of his sons to pass before Samuel. Samuel said to Jesse, "Yahweh has not chosen these."

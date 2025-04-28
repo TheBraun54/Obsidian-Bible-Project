@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I will send thee a kid of the goats from the flock. And she said, Wilt thou give me a pledge, till thou send it?
+He said, "I will send you a young goat from the flock." She said, "Will you give me a pledge, until you send it?"

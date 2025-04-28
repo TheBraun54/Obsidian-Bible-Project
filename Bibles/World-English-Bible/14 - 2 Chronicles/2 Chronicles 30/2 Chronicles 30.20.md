@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hearkened to Hezekiah, and healed the people.
+Yahweh listened to Hezekiah, and healed the people.

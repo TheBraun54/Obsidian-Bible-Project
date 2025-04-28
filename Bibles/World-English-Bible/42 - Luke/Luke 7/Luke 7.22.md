@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said unto them, Go and tell John the things which ye have seen and heard; the blind receive their sight, the lame walk, the lepers are cleansed, and the deaf hear, the dead are raised up, the poor have good tidings preached to them.
+Jesus answered them, "Go and tell John the things which you have seen and heard: that the blind receive their sight, the lame walk, the lepers are cleansed, the deaf hear, the dead are raised up, and the poor have good news preached to them.

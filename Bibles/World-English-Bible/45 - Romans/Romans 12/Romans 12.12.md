@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-rejoicing in hope; patient in tribulation; continuing stedfastly in prayer;
+rejoicing in hope; enduring in troubles; continuing steadfastly in prayer;

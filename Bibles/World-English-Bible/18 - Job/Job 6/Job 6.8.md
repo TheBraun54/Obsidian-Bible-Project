@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that I might have my request; And that God would grant [me] the thing that I long for!
+"Oh that I might have my request, that God would grant the thing that I long for,

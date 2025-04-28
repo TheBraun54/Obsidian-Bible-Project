@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He said, I am the voice of one crying in the wilderness, Make straight the way of the Lord, as said Isaiah the prophet.
+He said, "I am the voice of one crying in the wilderness, 'Make straight the way of the Lord,' as Isaiah the prophet said."

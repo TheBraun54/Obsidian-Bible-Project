@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, How say they that the Christ is David's son?
+He said to them, "Why do they say that the Christ is David's son?

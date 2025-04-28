@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but speaking truth in love, we may grow up in all things into him, who is the head, [even] Christ;
+but speaking truth in love, we may grow up in all things into him, who is the head, Christ;

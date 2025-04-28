@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Egypt came not again any more out of his land; for the king of Babylon had taken, from the brook of Egypt unto the river Euphrates, all that pertained to the king of Egypt.
+The king of Egypt didn't come again out of his land any more; for the king of Babylon had taken, from the brook of Egypt to the river Euphrates, all that pertained to the king of Egypt.

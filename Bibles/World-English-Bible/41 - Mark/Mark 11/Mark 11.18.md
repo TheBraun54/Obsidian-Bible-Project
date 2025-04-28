@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief priests and the scribes heard it, and sought how they might destroy him: for they feared him, for all the multitude was astonished at his teaching.
+The chief priests and the scribes heard it, and sought how they might destroy him. For they feared him, because all the multitude was astonished at his teaching.

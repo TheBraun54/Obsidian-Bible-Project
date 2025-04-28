@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest answered David, and said, There is no common bread under my hand, but there is holy bread; if only the young men have kept themselves from women.
+The priest answered David, and said, "There is no common bread under my hand, but there is holy bread; if only the young men have kept themselves from women."

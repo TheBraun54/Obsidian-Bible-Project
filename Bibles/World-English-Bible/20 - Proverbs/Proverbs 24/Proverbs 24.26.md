@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He kisseth the lips Who giveth a right answer.
+An honest answer is like a kiss on the lips.

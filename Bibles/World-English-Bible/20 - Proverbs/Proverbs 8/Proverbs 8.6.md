@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, for I will speak excellent things; And the opening of my lips shall be right things.
+Hear, for I will speak excellent things. The opening of my lips is for right things.

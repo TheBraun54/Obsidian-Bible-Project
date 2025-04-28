@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I wrought for my name's sake, that it should not be profaned in the sight of the nations, in whose sight I brought them out.
+But I worked for my name's sake, that it should not be profaned in the sight of the nations, in whose sight I brought them out.

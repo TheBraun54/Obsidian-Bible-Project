@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of two months, that she returned unto her father, who did with her according to his vow which he had vowed: and she knew not man. And it was a custom in Israel, [
+It happened at the end of two months, that she returned to her father, who did with her according to his vow which he had vowed: and she was a virgin. It was a custom in Israel,

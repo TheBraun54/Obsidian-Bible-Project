@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that is joined unto the Lord is one spirit.
+But he who is joined to the Lord is one spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the reason of the levy which king Solomon raised, to build the house of Jehovah, and his own house, and Millo, and the wall of Jerusalem, and Hazor, and Megiddo, and Gezer.
+This is the reason of the levy which king Solomon raised, to build the house of Yahweh, and his own house, and Millo, and the wall of Jerusalem, and Hazor, and Megiddo, and Gezer.

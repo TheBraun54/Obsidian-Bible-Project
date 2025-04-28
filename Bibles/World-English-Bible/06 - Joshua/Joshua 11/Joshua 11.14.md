@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the spoil of these cities, and the cattle, the children of Israel took for a prey unto themselves; but every man they smote with the edge of the sword, until they had destroyed them, neither left they any that breathed.
+The children of Israel took all the spoil of these cities, with the livestock, as spoils for themselves; but every man they struck with the edge of the sword, until they had destroyed them. They didn't leave any who breathed.

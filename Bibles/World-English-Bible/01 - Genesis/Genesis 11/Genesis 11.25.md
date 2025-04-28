@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Nahor lived after he begat Terah a hundred and nineteen years, and begat sons and daughters.
+Nahor lived one hundred nineteen years after he became the father of Terah, and became the father of sons and daughters.

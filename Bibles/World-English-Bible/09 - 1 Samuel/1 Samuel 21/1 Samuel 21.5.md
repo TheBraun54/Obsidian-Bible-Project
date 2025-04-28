@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David answered the priest, and said unto him, Of a truth women have been kept from us about these three days; when I came out, the vessels of the young men were holy, though it was but a common journey; how much more then to-day shall their vessels be holy?
+David answered the priest, and said to him, "Truly, women have been kept from us about these three days. When I came out, the vessels of the young men were holy, though it was but a common journey. How much more then today shall their vessels be holy?"

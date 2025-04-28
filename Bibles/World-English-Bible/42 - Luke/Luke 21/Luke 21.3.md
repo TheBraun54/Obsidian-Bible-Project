@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Of a truth I say unto you, This poor widow cast in more than they all:
+He said, "Truly I tell you, this poor widow put in more than all of them,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for ye are not as yet come to the rest and to the inheritance, which Jehovah thy God giveth thee.
+for you haven't yet come to the rest and to the inheritance, which Yahweh your God gives you.

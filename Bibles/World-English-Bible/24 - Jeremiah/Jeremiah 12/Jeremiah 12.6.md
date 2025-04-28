@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For even thy brethren, and the house of thy father, even they have dealt treacherously with thee; even they have cried aloud after thee: believe them not, though they speak fair words unto thee. [
+For even your brothers, and the house of your father, even they have dealt treacherously with you; even they have cried aloud after you: don't believe them, though they speak beautiful words to you.

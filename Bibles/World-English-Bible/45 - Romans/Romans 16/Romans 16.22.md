@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I Tertius, who write the epistle, salute you in the Lord.
+I, Tertius, who write the letter, greet you in the Lord.

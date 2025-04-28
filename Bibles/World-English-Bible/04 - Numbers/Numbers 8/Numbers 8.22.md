@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after that went the Levites in to do their service in the tent of meeting before Aaron, and before his sons: as Jehovah had commanded Moses concerning the Levites, so did they unto them.
+After that, the Levites went in to do their service in the Tent of Meeting before Aaron, and before his sons: as Yahweh had commanded Moses concerning the Levites, so they did to them.

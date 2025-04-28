@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto the woman he said, I will greatly multiply thy pain and thy conception; in pain thou shalt bring forth children; and thy desire shall be to thy husband, and he shall rule over thee.
+To the woman he said, "I will greatly multiply your pain in childbirth. In pain you will bring forth children. Your desire will be for your husband, and he will rule over you."

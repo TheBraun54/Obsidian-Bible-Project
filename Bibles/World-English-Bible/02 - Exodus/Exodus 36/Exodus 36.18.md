@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made fifty clasps of brass to couple the tent together, that it might be one.
+He made fifty clasps of brass to couple the tent together, that it might be a unit.

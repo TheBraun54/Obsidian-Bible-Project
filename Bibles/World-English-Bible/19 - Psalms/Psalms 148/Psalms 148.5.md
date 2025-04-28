@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them praise the name of Jehovah; For he commanded, and they were created.
+Let them praise the name of Yahweh, For he commanded, and they were created.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he arose from thence and cometh into the borders of Judaea and beyond the Jordan: and multitudes come together unto him again; and, as he was wont, he taught them again.
+He arose from there and came into the borders of Judea and beyond the Jordan. Multitudes came together to him again. As he usually did, he was again teaching them.

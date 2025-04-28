@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim is joined to idols; let him alone.
+Ephraim is joined to idols. Leave him alone!

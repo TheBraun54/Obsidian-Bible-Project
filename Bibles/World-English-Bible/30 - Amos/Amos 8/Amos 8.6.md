@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that we may buy the poor for silver, and the needy for a pair of shoes, and sell the refuse of the wheat?
+that we may buy the poor for silver, and the needy for a pair of shoes, and sell the sweepings with the wheat?'"

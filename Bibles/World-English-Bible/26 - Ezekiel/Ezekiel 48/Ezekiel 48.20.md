@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the oblation shall be five and twenty thousand by five and twenty thousand: ye shall offer the holy oblation four-square, with the possession of the city.
+All the offering shall be twenty-five thousand by twenty-five thousand: you shall offer the holy offering foursquare, with the possession of the city.

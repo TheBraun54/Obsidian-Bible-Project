@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was one called Barabbas, [lying] bound with them that had made insurrection, men who in the insurrection had committed murder.
+There was one called Barabbas, bound with those who had made insurrection, men who in the insurrection had committed murder.

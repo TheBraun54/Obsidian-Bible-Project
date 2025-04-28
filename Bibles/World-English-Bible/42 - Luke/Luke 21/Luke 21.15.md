@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I will give you a mouth and wisdom, which all your adversaries shall not be able to withstand or to gainsay.
+for I will give you a mouth and wisdom which all your adversaries will not be able to withstand or to contradict.

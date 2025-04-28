@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when even was come, he was sitting at meat with the twelve disciples;
+Now when evening had come, he was reclining at the table with the twelve disciples.

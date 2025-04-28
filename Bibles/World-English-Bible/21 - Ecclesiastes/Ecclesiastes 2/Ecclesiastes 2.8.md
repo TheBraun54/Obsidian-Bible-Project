@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I gathered me also silver and gold, and the treasure of kings and of the provinces; I gat me men-singers and women-singers, and the delights of the sons of men, musical instruments, and that of all sorts.
+I also gathered silver and gold for myself, and the treasure of kings and of the provinces. I got myself male and female singers, and the delights of the sons of men--musical instruments, and that of all sorts.

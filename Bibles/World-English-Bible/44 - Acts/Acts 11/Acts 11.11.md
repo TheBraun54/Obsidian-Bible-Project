@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, forthwith three men stood before the house in which we were, having been sent from Caesarea unto me.
+Behold, immediately three men stood before the house where I was, having been sent from Caesarea to me.

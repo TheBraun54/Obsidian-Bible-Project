@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not this the carpenter, the son of Mary, and brother of James, and Joses, and Judas, and Simon? and are not his sisters here with us? And they were offended in him. [
+Isn't this the carpenter, the son of Mary, and brother of James, Joses, Judah, and Simon? Aren't his sisters here with us?" They were offended at him.

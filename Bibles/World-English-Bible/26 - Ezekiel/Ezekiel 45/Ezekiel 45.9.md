@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Let it suffice you, O princes of Israel: remove violence and spoil, and execute justice and righteousness; take away your exactions from my people, saith the Lord Jehovah.
+Thus says the Lord Yahweh: Let it suffice you, princes of Israel: remove violence and spoil, and execute justice and righteousness; dispossessing my people, says the Lord Yahweh.

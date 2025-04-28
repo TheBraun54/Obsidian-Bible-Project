@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let love of the brethren continue.
+Let brotherly love continue.

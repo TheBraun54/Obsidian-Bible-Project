@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who was declared [to be] the Son of God with power, according to the spirit of holiness, by the resurrection from the dead; [even] Jesus Christ our Lord,
+who was declared to be the Son of God with power, according to the Spirit of holiness, by the resurrection from the dead, Jesus Christ our Lord,

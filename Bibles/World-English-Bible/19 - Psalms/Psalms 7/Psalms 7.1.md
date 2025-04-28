@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Shiggaion of David, which he sang unto Jehovah, concerning the words of Cush a Benjamite]. O Jehovah my God, in thee do I take refuge: Save me from all them that pursue me, and deliver me,
+Yahweh, my God, I take refuge in you. Save me from all those who pursue me, and deliver me,

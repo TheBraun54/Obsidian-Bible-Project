@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Nephilim were in the earth in those days, and also after that, when the sons of God came in unto the daughters of men, and they bare children to them: the same were the mighty men that were of old, the men of renown.
+The Nephilim were in the earth in those days, and also after that, when God's sons came in to men's daughters. They bore children to them. Those were the mighty men who were of old, men of renown.

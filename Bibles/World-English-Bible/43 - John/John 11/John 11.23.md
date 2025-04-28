@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto her, Thy brother shall rise again.
+Jesus said to her, "Your brother will rise again."

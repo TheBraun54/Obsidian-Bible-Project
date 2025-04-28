@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the Spirit lifted me up, and took me away; and I went in bitterness, in the heat of my spirit; and the hand of Jehovah was strong upon me.
+So the Spirit lifted me up, and took me away; and I went in bitterness, in the heat of my spirit; and the hand of Yahweh was strong on me.

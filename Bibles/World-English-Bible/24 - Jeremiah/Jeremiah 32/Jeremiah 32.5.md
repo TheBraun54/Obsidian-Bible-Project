@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall bring Zedekiah to Babylon, and there shall he be until I visit him, saith Jehovah: though ye fight with the Chaldeans, ye shall not prosper?
+and he shall bring Zedekiah to Babylon, and he shall be there until I visit him, says Yahweh: though you fight with the Chaldeans, you shall not prosper?

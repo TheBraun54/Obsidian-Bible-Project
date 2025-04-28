@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will take your men-servants, and your maid-servants, and your goodliest young men, and your asses, and put them to his work.
+He will take your male servants, and your female servants, and your best young men, and your donkeys, and put them to his work.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and bring your youngest brother unto me; so shall your words be verified, and ye shall not die. And they did so.
+Bring your youngest brother to me; so will your words be verified, and you won't die." They did so.

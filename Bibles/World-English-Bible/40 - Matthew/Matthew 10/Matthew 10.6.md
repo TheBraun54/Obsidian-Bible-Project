@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but go rather to the lost sheep of the house of Israel.
+Rather, go to the lost sheep of the house of Israel.

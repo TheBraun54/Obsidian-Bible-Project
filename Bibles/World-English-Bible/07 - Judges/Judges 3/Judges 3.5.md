@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel dwelt among the Canaanites, the Hittites, and the Amorites, and the Perizzites, and the Hivites, and the Jebusites:
+The children of Israel lived among the Canaanites, the Hittites, and the Amorites, and the Perizzites, and the Hivites, and the Jebusites:

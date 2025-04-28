@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your riches are corrupted, and your garments are moth-eaten.
+Your riches are corrupted and your garments are moth-eaten.

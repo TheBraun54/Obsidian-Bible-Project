@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thou hast not remembered the days of thy youth, but hast raged against me in all these things; therefore, behold, I also will bring thy way upon thy head, saith the Lord Jehovah: and thou shalt not commit this lewdness with all thine abominations.
+Because you have not remembered the days of your youth, but have raged against me in all these things; therefore, behold, I also will bring your way on your head, says the Lord Yahweh: and you shall not commit this lewdness with all your abominations.

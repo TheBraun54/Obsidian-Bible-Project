@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Here is the patience of the saints, they that keep the commandments of God, and the faith of Jesus.
+Here is the patience of the saints, those who keep the commandments of God, and the faith of Jesus."

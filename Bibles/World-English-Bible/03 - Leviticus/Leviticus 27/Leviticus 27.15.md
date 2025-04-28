@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he that sanctified it will redeem his house, then he shall add the fifth part of the money of thy estimation unto it, and it shall be his.
+If he who dedicates it will redeem his house, then he shall add the fifth part of the money of your valuation to it, and it shall be his.

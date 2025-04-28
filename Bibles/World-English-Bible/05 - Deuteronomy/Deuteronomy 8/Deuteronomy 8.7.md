@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah thy God bringeth thee into a good land, a land of brooks of water, of fountains and springs, flowing forth in valleys and hills;
+For Yahweh your God brings you into a good land, a land of brooks of water, of springs, and underground water flowing into valleys and hills;

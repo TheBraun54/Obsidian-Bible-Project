@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time did king Ahaz send unto the kings of Assyria to help him.
+At that time king Ahaz sent to the kings of Assyria to help him.

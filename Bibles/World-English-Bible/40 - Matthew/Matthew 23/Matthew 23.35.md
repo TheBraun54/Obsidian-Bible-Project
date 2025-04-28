@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that upon you may come all the righteous blood shed on the earth, from the blood of Abel the righteous unto the blood of Zachariah son of Barachiah, whom ye slew between the sanctuary and the altar.
+that on you may come all the righteous blood shed on the earth, from the blood of righteous Abel to the blood of Zachariah son of Barachiah, whom you killed between the sanctuary and the altar.

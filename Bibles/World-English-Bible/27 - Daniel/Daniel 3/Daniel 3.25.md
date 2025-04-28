@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He answered and said, Lo, I see four men loose, walking in the midst of the fire, and they have no hurt; and the aspect of the fourth is like a son of the gods.
+He answered, Look, I see four men loose, walking in the midst of the fire, and they are unharmed; and the aspect of the fourth is like a son of the gods.

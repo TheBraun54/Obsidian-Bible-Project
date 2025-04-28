@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was an adversary to Israel all the days of Solomon, besides the mischief that Hadad [did] : and he abhorred Israel, and reigned over Syria.
+He was an adversary to Israel all the days of Solomon, besides the mischief that Hadad [did]: and he abhorred Israel, and reigned over Syria.

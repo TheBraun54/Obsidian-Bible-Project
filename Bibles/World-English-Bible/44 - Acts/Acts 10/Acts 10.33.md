@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forthwith therefore I sent to thee; and thou hast well done that thou art come. Now therefore we are all here present in the sight of God, to hear all things that have been commanded thee of the Lord.
+Therefore I sent to you at once, and it was good of you to come. Now therefore we are all here present in the sight of God to hear all things that have been commanded you by God."

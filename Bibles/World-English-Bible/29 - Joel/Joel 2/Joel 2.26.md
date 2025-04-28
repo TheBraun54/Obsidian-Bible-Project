@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall eat in plenty and be satisfied, and shall praise the name of Jehovah your God, that hath dealt wondrously with you; and my people shall never be put to shame.
+You will have plenty to eat, and be satisfied, and will praise the name of Yahweh, your God, who has dealt wondrously with you; and my people will never again be disappointed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as touching those who were once enlightened and tasted of the heavenly gift, and were made partakers of the Holy Spirit,
+For concerning those who were once enlightened and tasted of the heavenly gift, and were made partakers of the Holy Spirit,

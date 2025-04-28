@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, on one of the days, as he was teaching the people in the temple, and preaching the gospel, there came upon him the chief priests and the scribes with the elders;
+It happened on one of those days, as he was teaching the people in the temple and preaching the Good News, that the priests and scribes came to him with the elders.

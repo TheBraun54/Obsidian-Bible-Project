@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He brought streams also out of the rock, And caused waters to run down like rivers.
+He brought streams also out of the rock, and caused waters to run down like rivers.

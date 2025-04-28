@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Simon Peter, when he saw it, fell down at Jesus' knees, saying, Depart from me; for I am a sinful man, O Lord.
+But Simon Peter, when he saw it, fell down at Jesus' knees, saying, "Depart from me, for I am a sinful man, Lord."

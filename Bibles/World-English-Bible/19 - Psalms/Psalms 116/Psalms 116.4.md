@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then called I upon the name of Jehovah: O Jehovah, I beseech thee, deliver my soul.
+Then I called on the name of Yahweh: "Yahweh, I beg you, deliver my soul."

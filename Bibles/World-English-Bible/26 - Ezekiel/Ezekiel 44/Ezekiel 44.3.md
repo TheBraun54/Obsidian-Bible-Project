@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the prince, he shall sit therein as prince to eat bread before Jehovah; he shall enter by the way of the porch of the gate, and shall go out by the way of the same.
+As for the prince, he shall sit therein as prince to eat bread before Yahweh; he shall enter by the way of the porch of the gate, and shall go out by the way of the same.

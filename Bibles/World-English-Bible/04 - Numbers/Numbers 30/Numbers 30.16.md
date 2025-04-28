@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the statutes, which Jehovah commanded Moses, between a man and his wife, between a father and his daughter, being in her youth, in her father's house.
+These are the statutes, which Yahweh commanded Moses, between a man and his wife, between a father and his daughter, being in her youth, in her father's house.

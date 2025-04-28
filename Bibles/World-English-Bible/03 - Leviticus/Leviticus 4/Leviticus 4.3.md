@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if the anointed priest shall sin so as to bring guilt on the people, then let him offer for his sin, which he hath sinned, a young bullock without blemish unto Jehovah for a sin-offering.
+if the anointed priest sins so as to bring guilt on the people, then let him offer for his sin, which he has sinned, a young bull without blemish to Yahweh for a sin offering.

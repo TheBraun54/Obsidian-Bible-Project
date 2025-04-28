@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All this is come upon us; Yet have we not forgotten thee, Neither have we dealt falsely in thy covenant.
+All this has come on us, yet have we not forgotten you, Neither have we been false to your covenant.

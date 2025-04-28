@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I make a decree, that all they of the people of Israel, and their priests and the Levites, in my realm, that are minded of their own free will to go to Jerusalem, go with thee.
+I make a decree, that all those of the people of Israel, and their priests and the Levites, in my realm, who are minded of their own free will to go to Jerusalem, go with you.

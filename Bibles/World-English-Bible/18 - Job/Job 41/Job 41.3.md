@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will he make many supplications unto thee? Or will he speak soft words unto thee?
+Will he make many petitions to you, or will he speak soft words to you?

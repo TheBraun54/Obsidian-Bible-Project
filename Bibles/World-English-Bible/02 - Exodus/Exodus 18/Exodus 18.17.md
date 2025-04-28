@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses' father-in-law said unto him, The thing that thou doest is not good.
+Moses' father-in-law said to him, "The thing that you do is not good.

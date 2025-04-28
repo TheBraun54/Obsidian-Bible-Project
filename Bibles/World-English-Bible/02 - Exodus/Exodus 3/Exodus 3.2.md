@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah appeared unto him in a flame of fire out of the midst of a bush: and he looked, and, behold, the bush burned with fire, and the bush was not consumed.
+The angel of Yahweh appeared to him in a flame of fire out of the midst of a bush. He looked, and behold, the bush burned with fire, and the bush was not consumed.

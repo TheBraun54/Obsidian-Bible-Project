@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in like manner was not also Rahab the harlot justified by works, in that she received the messengers, and sent them out another way?
+In the same way, wasn't Rahab the prostitute also justified by works, in that she received the messengers, and sent them out another way?

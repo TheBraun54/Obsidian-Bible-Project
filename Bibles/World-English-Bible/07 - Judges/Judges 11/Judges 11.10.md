@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of Gilead said unto Jephthah, Jehovah shall be witness between us; surely according to thy word so will we do.
+The elders of Gilead said to Jephthah, "Yahweh shall be witness between us; surely according to your word so will we do."

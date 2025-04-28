@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now unto our God and Father [be] the glory for ever and ever. Amen.
+Now to our God and Father be the glory forever and ever! Amen.

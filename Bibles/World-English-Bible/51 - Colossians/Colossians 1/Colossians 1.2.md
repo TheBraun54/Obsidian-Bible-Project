@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the saints and faithful brethren in Christ [that are] at Colossae: Grace to you and peace from God our Father.
+to the saints and faithful brothers in Christ at Colossae: Grace to you and peace from God our Father, and the Lord Jesus Christ.

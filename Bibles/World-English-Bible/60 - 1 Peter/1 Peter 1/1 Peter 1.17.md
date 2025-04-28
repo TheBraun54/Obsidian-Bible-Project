@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye call on him as Father, who without respect of persons judgeth according to each man's work, pass the time of your sojourning in fear:
+If you call on him as Father, who without respect of persons judges according to each man's work, pass the time of your living as foreigners here in reverent fear:

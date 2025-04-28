@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The high mountains are for the wild goats; The rocks are a refuge for the conies.
+The high mountains are for the wild goats. The rocks are a refuge for the rock badgers.

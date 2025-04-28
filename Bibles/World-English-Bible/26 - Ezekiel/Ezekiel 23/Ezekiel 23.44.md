@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went in unto her, as they go in unto a harlot: so went they in unto Oholah and unto Oholibah, the lewd women.
+They went in to her, as they go in to a prostitute: so went they in to Oholah and to Oholibah, the lewd women.

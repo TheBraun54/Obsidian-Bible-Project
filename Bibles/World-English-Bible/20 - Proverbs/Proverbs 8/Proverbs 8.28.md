@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he made firm the skies above, When the fountains of the deep became strong,
+when he established the clouds above, when the springs of the deep became strong,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as touching the resurrection of the dead, have ye not read that which was spoken unto you by God, saying,
+But concerning the resurrection of the dead, haven't you read that which was spoken to you by God, saying,

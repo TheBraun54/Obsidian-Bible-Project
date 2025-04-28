@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, [my] sons, hearken unto me; For blessed are they that keep my ways.
+"Now therefore, my sons, listen to me, for blessed are those who keep my ways.

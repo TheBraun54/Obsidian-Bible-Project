@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took hold of him, and brought him unto the Areopagus, saying, May we know what this new teaching is, which is spoken by thee?
+They took hold of him, and brought him to the Areopagus, saying, "May we know what this new teaching is, which is spoken by you?

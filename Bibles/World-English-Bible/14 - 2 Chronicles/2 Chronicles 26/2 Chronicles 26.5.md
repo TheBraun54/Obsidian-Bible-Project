@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set himself to seek God in the days of Zechariah, who had understanding in the vision of God: and as long as he sought Jehovah, God made him to prosper.
+He set himself to seek God in the days of Zechariah, who had understanding in the vision of God: and as long as he sought Yahweh, God made him to prosper.

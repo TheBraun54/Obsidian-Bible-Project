@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if I make you sorry, who then is he that maketh me glad but he that is made sorry by me?
+For if I make you sorry, then who will make me glad but he who is made sorry by me?

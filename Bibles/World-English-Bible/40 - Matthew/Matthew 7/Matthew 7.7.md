@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you:
+"Ask, and it will be given you. Seek, and you will find. Knock, and it will be opened for you.

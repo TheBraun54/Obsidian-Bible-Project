@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah. Praise Jehovah, O my soul.
+Praise Yah! Praise Yahweh, my soul.

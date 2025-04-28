@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; A Psalm of David, a Song]. Let God arise, let his enemies be scattered; Let them also that hate him flee before him.
+Let God arise! Let his enemies be scattered! Let them who hate him also flee before him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moab said unto the elders of Midian, Now will this multitude lick up all that is round about us, as the ox licketh up the grass of the field. And Balak the son of Zippor was king of Moab at that time.
+Moab said to the elders of Midian, "Now this multitude will lick up all that is around us, as the ox licks up the grass of the field." Balak the son of Zippor was king of Moab at that time.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that findeth his life shall lose it; and he that loseth his life for my sake shall find it.
+He who seeks his life will lose it; and he who loses his life for my sake will find it.

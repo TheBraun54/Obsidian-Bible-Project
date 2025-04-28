@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Israel is swallowed up: now are they among the nations as a vessel wherein none delighteth.
+Israel is swallowed up. Now they are among the nations like a worthless thing.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No doubt but ye are the people, And wisdom shall die with you.
+"No doubt, but you are the people, and wisdom shall die with you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be the sign unto thee: Ye shall eat this year that which groweth of itself, and in the second year that which springeth of the same; and in the third year sow ye, and reap, and plant vineyards, and eat the fruit thereof.
+"'This shall be the sign to you: You shall eat this year that which grows of itself, and in the second year that which springs of the same; and in the third year sow, and reap, and plant vineyards, and eat its fruit.

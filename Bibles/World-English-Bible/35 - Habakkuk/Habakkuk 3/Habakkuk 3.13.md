@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wentest forth for the salvation of thy people, For the salvation of thine anointed; Thou woundest the head out of the house of the wicked man, Laying bare the foundation even unto the neck. {{Selah.
+You went forth for the salvation of your people, for the salvation of your anointed. You crushed the head of the land of wickedness. You stripped them head to foot. Selah.

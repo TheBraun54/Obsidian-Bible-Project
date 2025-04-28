@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art my lamp, O Jehovah; And Jehovah will lighten my darkness.
+For you are my lamp, Yahweh. Yahweh will light up my darkness.

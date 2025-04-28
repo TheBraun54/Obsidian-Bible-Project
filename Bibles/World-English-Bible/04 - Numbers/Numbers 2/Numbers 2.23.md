@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his host, and those that were numbered of them, were thirty and five thousand and four hundred.
+His army, and those who were numbered of them, were thirty-five thousand four hundred.

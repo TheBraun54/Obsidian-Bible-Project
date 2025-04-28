@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then, brethren, we are debtors, not to the flesh, to live after the flesh:
+So then, brothers, we are debtors, not to the flesh, to live after the flesh.

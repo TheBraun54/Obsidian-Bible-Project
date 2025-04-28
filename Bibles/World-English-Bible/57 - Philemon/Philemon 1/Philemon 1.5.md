@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-hearing of thy love, and of the faith which thou hast toward the Lord Jesus, and toward all the saints;
+hearing of your love, and of the faith which you have toward the Lord Jesus, and toward all the saints;

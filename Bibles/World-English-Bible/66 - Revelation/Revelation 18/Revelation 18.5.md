@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for her sins have reached even unto heaven, and God hath remembered her iniquities.
+for her sins have reached to the sky, and God has remembered her iniquities.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built the walls of the house within with boards of cedar: from the floor of the house unto the walls of the ceiling, he covered them on the inside with wood; and he covered the floor of the house with boards of fir.
+He built the walls of the house within with boards of cedar: from the floor of the house to the walls of the ceiling, he covered them on the inside with wood; and he covered the floor of the house with boards of fir.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham journeyed from thence toward the land of the South, and dwelt between Kadesh and Shur; and he sojourned in Gerar.
+Abraham traveled from there toward the land of the South, and lived between Kadesh and Shur. He lived as a foreigner in Gerar.

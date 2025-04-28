@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long wilt thou speak these things? And [how long] shall the words of thy mouth be [like] a mighty wind?
+"How long will you speak these things? Shall the words of your mouth be a mighty wind?

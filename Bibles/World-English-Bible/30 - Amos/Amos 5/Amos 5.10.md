@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They hate him that reproveth in the gate, and they abhor him that speaketh uprightly.
+They hate him who reproves in the gate, and they abhor him who speaks blamelessly.

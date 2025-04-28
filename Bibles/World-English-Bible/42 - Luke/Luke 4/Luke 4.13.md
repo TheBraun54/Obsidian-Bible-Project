@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the devil had completed every temptation, he departed from him for a season.
+When the devil had completed every temptation, he departed from him until another time.

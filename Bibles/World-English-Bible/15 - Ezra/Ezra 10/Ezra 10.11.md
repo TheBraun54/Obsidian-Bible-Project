@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore make confession unto Jehovah, the God of your fathers, and do his pleasure; and separate yourselves from the peoples of the land, and from the foreign women.
+Now therefore make confession to Yahweh, the God of your fathers, and do his pleasure; and separate yourselves from the peoples of the land, and from the foreign women."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people, the men of Israel, encouraged themselves, and set the battle again in array in the place where they set themselves in array the first day.
+The people, the men of Israel, encouraged themselves, and set the battle again in array in the place where they set themselves in array the first day.

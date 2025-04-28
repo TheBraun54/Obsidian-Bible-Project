@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, Oh, my lord, we came indeed down at the first time to buy food:
+and said, "Oh, my lord, we indeed came down the first time to buy food.

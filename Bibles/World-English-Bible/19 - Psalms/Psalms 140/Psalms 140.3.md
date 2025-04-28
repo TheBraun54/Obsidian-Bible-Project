@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have sharpened their tongue like a serpent; Adders' poison is under their lips. {{Selah
+They have sharpened their tongues like a serpent. Viper's poison is under their lips. Selah.

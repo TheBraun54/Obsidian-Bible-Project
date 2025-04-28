@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Festus, when he had conferred with the council, answered, Thou hast appealed unto Caesar: unto Caesar shalt thou go.
+Then Festus, when he had conferred with the council, answered, "You have appealed to Caesar. To Caesar you shall go."

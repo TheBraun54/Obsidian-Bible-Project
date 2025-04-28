@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There go the ships; There is leviathan, whom thou hast formed to play therein.
+There the ships go, and leviathan, whom you formed to play there.

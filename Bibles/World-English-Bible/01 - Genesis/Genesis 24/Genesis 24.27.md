@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Blessed be Jehovah, the God of my master Abraham, who hath not forsaken his lovingkindness and his truth toward my master: as for me, Jehovah hath led me in the way to the house of my master's brethren.
+He said, "Blessed be Yahweh, the God of my master Abraham, who has not forsaken his loving kindness and his truth toward my master. As for me, Yahweh has led me in the way to the house of my master's relatives."

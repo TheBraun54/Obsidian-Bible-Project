@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto thee, We speak that which we know, and bear witness of that which we have seen; and ye receive not our witness.
+Most certainly I tell you, we speak that which we know, and testify of that which we have seen, and you don't receive our witness.

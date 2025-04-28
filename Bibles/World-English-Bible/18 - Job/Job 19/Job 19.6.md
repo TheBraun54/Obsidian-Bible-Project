@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know now that God hath subverted me [in my cause], And hath compassed me with his net.
+know now that God has subverted me, and has surrounded me with his net.

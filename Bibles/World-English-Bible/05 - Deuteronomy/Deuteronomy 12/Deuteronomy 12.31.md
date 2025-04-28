@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not do so unto Jehovah thy God: for every abomination to Jehovah, which he hateth, have they done unto their gods; for even their sons and their daughters do they burn in the fire to their gods.
+You shall not do so to Yahweh your God: for every abomination to Yahweh, which he hates, have they done to their gods; for even their sons and their daughters do they burn in the fire to their gods.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou utterly rejected Judah? hath thy soul loathed Zion? why hast thou smitten us, and there is no healing for us? We looked for peace, but no good came; and for a time of healing, and, behold, dismay!
+Have you utterly rejected Judah? has your soul loathed Zion? why have you struck us, and there is no healing for us? We looked for peace, but no good came; and for a time of healing, and behold, dismay!

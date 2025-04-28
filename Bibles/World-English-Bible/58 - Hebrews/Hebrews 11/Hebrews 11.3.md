@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith we understand that the worlds have been framed by the word of God, so that what is seen hath not been made out of things which appear.
+By faith, we understand that the universe has been framed by the word of God, so that what is seen has not been made out of things which are visible.

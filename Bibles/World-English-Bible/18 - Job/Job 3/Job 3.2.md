@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Job answered and said:
+Job answered:

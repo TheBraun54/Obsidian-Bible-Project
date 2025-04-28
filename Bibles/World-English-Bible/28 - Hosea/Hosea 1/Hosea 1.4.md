@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Call his name Jezreel; for yet a little while, and I will avenge the blood of Jezreel upon the house of Jehu, and will cause the kingdom of the house of Israel to cease.
+Yahweh said to him, "Call his name Jezreel; for yet a little while, and I will avenge the blood of Jezreel on the house of Jehu, and will cause the kingdom of the house of Israel to cease.

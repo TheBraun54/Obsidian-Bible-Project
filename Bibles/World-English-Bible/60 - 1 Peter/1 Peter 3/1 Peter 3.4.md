@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but [let it be] the hidden man of the heart, in the incorruptible [apparel] of a meek and quiet spirit, which is in the sight of God of great price.
+but in the hidden person of the heart, in the incorruptible adornment of a gentle and quiet spirit, which is in the sight of God very precious.

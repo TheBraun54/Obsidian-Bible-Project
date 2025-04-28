@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said she, I pray thee, let the king remember Jehovah thy God, that the avenger of blood destroy not any more, lest they destroy my son. And he said, As Jehovah liveth, there shall not one hair of thy son fall to the earth.
+Then she said, "Please let the king remember Yahweh your God, that the avenger of blood destroy not any more, lest they destroy my son." He said, "As Yahweh lives, not one hair of your son shall fall to the earth."

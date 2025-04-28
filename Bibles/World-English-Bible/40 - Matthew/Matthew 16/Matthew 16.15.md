@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith unto them, But who say ye that I am?
+He said to them, "But who do you say that I am?"

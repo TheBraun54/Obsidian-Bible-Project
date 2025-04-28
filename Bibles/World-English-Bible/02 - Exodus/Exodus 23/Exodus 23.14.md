@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Three times thou shalt keep a feast unto me in the year.
+"You shall observe a feast to me three times a year.

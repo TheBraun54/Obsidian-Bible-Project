@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they did eat of the produce of the land on the morrow after the passover, unleavened cakes and parched grain, in the selfsame day.
+They ate unleavened cakes and parched grain of the produce of the land on the next day after the Passover, in the same day.

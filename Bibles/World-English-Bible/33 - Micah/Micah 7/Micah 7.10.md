@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then mine enemy shall see it, and shame shall cover her who said unto me, Where is Jehovah thy God? Mine eyes shall see [my desire] upon her; now shall she be trodden down as the mire of the streets.
+Then my enemy will see it, and shame will cover her who said to me, where is Yahweh your God? Then my enemy will see me and will cover her shame. Now she will be trodden down like the mire of the streets.

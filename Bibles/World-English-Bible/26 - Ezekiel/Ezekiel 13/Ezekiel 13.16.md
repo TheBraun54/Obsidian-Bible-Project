@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ to wit], the prophets of Israel that prophesy concerning Jerusalem, and that see visions of peace for her, and there is no peace, saith the Lord Jehovah.
+[to wit], the prophets of Israel who prophesy concerning Jerusalem, and who see visions of peace for her, and there is no peace, says the Lord Yahweh.

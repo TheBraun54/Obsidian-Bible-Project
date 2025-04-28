@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses wrote all the words of Jehovah, and rose up early in the morning, and builded an altar under the mount, and twelve pillars, according to the twelve tribes of Israel.
+Moses wrote all the words of Yahweh, and rose up early in the morning, and built an altar under the mountain, and twelve pillars for the twelve tribes of Israel.

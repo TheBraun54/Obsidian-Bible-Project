@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the cattle that go down into the valley, the Spirit of Jehovah caused them to rest; so didst thou lead thy people, to make thyself a glorious name.
+As the livestock that go down into the valley, the Spirit of Yahweh caused them to rest; so you led your people, to make yourself a glorious name.

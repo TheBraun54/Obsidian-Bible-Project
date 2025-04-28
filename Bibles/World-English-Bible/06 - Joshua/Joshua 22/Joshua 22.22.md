@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Mighty One, God, Jehovah, the Mighty One, God, Jehovah, he knoweth; and Israel he shall know: if it be in rebellion, or if in trespass against Jehovah (save thou us not this day,)
+"The Mighty One, God, Yahweh, the Mighty One, God, Yahweh, he knows; and Israel shall know: if it was in rebellion, or if in trespass against Yahweh (don't save us this day),

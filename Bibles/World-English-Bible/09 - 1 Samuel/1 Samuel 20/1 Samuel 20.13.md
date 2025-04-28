@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah do so to Jonathan, and more also, should it please my father to do thee evil, if I disclose it not unto thee, and send thee away, that thou mayest go in peace: and Jehovah be with thee, as he hath been with my father.
+Yahweh do so to Jonathan, and more also, should it please my father to do you evil, if I don't disclose it to you, and send you away, that you may go in peace: and Yahweh be with you, as he has been with my father.

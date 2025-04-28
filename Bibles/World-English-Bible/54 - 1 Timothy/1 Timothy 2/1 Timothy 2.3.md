@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is good and acceptable in the sight of God our Saviour;
+For this is good and acceptable in the sight of God our Savior;

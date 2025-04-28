@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On that day there came to him Sadducees, they that say that there is no resurrection: and they asked him,
+On that day Sadducees (those who say that there is no resurrection) came to him. They asked him,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your father Abraham rejoiced to see my day; and he saw it, and was glad.
+Your father Abraham rejoiced to see my day. He saw it, and was glad."

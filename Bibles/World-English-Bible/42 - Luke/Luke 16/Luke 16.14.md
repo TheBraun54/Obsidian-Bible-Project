@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Pharisees, who were lovers of money, heard all these things; and they scoffed at him.
+The Pharisees, who were lovers of money, also heard all these things, and they scoffed at him.

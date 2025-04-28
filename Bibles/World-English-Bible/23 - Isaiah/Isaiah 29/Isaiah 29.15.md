@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them that hide deep their counsel from Jehovah, and whose works are in the dark, and that say, Who seeth us? and who knoweth us?
+Woe to those who deeply hide their counsel from Yahweh, and whose works are in the dark, and who say, "Who sees us?" and "Who knows us?"

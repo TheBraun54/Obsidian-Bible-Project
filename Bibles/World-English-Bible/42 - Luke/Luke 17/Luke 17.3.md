@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed to yourselves: if thy brother sin, rebuke him; and if he repent, forgive him.
+Be careful. If your brother sins against you, rebuke him. If he repents, forgive him.

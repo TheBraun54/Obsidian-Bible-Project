@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel vowed a vow unto Jehovah, and said, If thou wilt indeed deliver this people into my hand, then I will utterly destroy their cities.
+Israel vowed a vow to Yahweh, and said, "If you will indeed deliver this people into my hand, then I will utterly destroy their cities."

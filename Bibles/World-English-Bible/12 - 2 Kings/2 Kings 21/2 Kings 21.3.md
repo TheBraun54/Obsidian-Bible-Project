@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he built again the high places which Hezekiah his father had destroyed; and he reared up altars for Baal, and made an Asherah, as did Ahab king of Israel, and worshipped all the host of heaven, and served them.
+For he built again the high places which Hezekiah his father had destroyed; and he reared up altars for Baal, and made an Asherah, as did Ahab king of Israel, and worshiped all the army of the sky, and served them.

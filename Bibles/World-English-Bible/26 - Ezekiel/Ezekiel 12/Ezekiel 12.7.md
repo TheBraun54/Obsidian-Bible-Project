@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I did so as I was commanded: I brought forth my stuff by day, as stuff for removing, and in the even I digged through the wall with my hand; I brought it forth in the dark, and bare it upon my shoulder in their sight.
+I did so as I was commanded: I brought forth my stuff by day, as stuff for removing, and in the even I dug through the wall with my hand; I brought it forth in the dark, and bore it on my shoulder in their sight.

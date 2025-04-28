@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou be angry with us for ever? Wilt thou draw out thine anger to all generations?
+Will you be angry with us forever? Will you draw out your anger to all generations?

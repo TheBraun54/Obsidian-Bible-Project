@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they remembered that God was their rock, And the Most High God their redeemer.
+They remembered that God was their rock, the Most High God, their redeemer.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can a man take fire in his bosom, And his clothes not be burned?
+Can a man scoop fire into his lap, and his clothes not be burned?

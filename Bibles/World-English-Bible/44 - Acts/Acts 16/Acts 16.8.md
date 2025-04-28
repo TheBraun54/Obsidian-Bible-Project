@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and passing by Mysia, they came down to Troas.
+Passing by Mysia, they came down to Troas.

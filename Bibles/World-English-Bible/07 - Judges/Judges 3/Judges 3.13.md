@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gathered unto him the children of Ammon and Amalek; and he went and smote Israel, and they possessed the city of palm-trees.
+He gathered to him the children of Ammon and Amalek; and he went and struck Israel, and they possessed the city of palm trees.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it fell on a day when his sons and his daughters were eating and drinking wine in their eldest brother's house,
+It fell on a day when his sons and his daughters were eating and drinking wine in their eldest brother's house,

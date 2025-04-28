@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will not leave you desolate: I come unto you.
+I will not leave you orphans. I will come to you.

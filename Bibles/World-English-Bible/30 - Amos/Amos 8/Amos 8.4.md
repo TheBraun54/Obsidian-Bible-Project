@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear this, O ye that would swallow up the needy, and cause the poor of the land to fail,
+Hear this, you who desire to swallow up the needy, and cause the poor of the land to fail,

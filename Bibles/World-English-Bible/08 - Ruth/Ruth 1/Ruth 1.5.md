@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mahlon and Chilion died both of them; and the woman was left of her two children and of her husband.
+Mahlon and Chilion both died, and the woman was bereaved of her two children and of her husband.

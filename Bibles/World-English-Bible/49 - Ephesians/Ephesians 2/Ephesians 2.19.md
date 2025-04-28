@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then ye are no more strangers and sojourners, but ye are fellow-citizens with the saints, and of the household of God,
+So then you are no longer strangers and foreigners, but you are fellow citizens with the saints, and of the household of God,

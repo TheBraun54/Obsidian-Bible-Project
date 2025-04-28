@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For behold your calling, brethren, that not many wise after the flesh, not many mighty, not many noble, [are called] :
+For you see your calling, brothers, that not many are wise according to the flesh, not many mighty, and not many noble;

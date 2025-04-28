@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This beginning of his signs did Jesus in Cana of Galilee, and manifested his glory; and his disciples believed on him.
+This beginning of his signs Jesus did in Cana of Galilee, and revealed his glory; and his disciples believed in him.

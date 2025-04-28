@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he said, Give place: for the damsel is not dead, but sleepeth. And they laughed him to scorn.
+he said to them, "Make room, because the girl isn't dead, but sleeping." They were ridiculing him.

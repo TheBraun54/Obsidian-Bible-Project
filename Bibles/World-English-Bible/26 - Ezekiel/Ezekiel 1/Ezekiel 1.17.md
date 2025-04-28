@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they went, they went in their four directions: they turned not when they went.
+When they went, they went in their four directions: they didn't turn when they went.

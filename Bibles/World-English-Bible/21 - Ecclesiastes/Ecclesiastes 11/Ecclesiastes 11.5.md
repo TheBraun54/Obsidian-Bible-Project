@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As thou knowest not what is the way of the wind, [nor] how the bones [do grow] in the womb of her that is with child; even so thou knowest not the work of God who doeth all.
+As you don't know what is the way of the wind, nor how the bones grow in the womb of her who is with child; even so you don't know the work of God who does all.

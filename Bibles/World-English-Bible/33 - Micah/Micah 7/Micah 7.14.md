@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Feed thy people with thy rod, the flock of thy heritage, which dwell solitarily, in the forest in the midst of Carmel: let them feed in Bashan and Gilead, as in the days of old.
+Shepherd your people with your staff, the flock of your heritage, who dwell by themselves in a forest, in the midst of fertile pasture land, let them feed; in Bashan and Gilead, as in the days of old.

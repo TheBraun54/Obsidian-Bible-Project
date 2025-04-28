@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anger of Jehovah was kindled against them; and he departed.
+The anger of Yahweh was kindled against them; and he departed.

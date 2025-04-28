@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his father refused, and said, I know [it], my son, I know [it] ; he also shall become a people, and he also shall be great: howbeit his younger brother shall be greater than he, and his seed shall become a multitude of nations.
+His father refused, and said, "I know, my son, I know. He also will become a people, and he also will be great. However, his younger brother will be greater than he, and his seed will become a multitude of nations."

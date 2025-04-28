@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon did that which was evil in the sight of Jehovah, and went not fully after Jehovah, as did David his father.
+Solomon did that which was evil in the sight of Yahweh, and didn't go fully after Yahweh, as did David his father.

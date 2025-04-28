@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall eat old store long kept, and ye shall bring forth the old because of the new.
+You shall eat old store long kept, and you shall move out the old because of the new.

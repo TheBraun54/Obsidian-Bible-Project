@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+for an angel went down at certain times into the pool, and stirred up the water. Whoever stepped in first after the stirring of the water was made whole of whatever disease he had.

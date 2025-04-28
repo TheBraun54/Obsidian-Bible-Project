@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the south side southward shall be from Tamar as far as the waters of Meriboth-kadesh, to the brook [of Egypt], unto the great sea. This is the south side southward.
+The south side southward shall be from Tamar as far as the waters of Meriboth Kadesh, to the brook [of Egypt], to the great sea. This is the south side southward.

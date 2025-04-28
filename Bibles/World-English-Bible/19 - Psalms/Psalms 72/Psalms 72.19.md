@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And blessed be his glorious name for ever; And let the whole earth be filled with his glory. Amen, and Amen.
+Blessed be his glorious name forever! Let the whole earth be filled with his glory! Amen and amen.

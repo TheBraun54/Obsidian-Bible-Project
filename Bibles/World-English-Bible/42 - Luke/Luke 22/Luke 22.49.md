@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they that were about him saw what would follow, they said, Lord, shall we smite with the sword?
+When those who were around him saw what was about to happen, they said to him, "Lord, shall we strike with the sword?"

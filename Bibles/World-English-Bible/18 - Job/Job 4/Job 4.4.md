@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy words have upholden him that was falling, And thou hast made firm the feeble knees.
+Your words have supported him who was falling, You have made firm the feeble knees.

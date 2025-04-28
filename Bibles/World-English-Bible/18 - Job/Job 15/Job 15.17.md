@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will show thee, hear thou me; And that which I have seen I will declare:
+"I will show you, listen to me; that which I have seen I will declare:

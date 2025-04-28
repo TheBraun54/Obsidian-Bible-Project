@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, Elijah indeed cometh, and shall restore all things:
+Jesus answered them, "Elijah indeed comes first, and will restore all things,

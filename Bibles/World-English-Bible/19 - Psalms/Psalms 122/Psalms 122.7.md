@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peace be within thy walls, And prosperity within thy palaces.
+Peace be within your walls, and prosperity within your palaces.

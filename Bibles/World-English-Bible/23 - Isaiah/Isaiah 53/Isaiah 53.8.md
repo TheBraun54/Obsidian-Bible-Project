@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By oppression and judgment he was taken away; and as for his generation, who [among them] considered that he was cut off out of the land of the living for the transgression of my people to whom the stroke [was due] ?
+He was taken away by oppression and judgment; and as for his generation, who considered that he was cut off out of the land of the living and stricken for the disobedience of my people?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-contend not with them; for I will not give you of their land, no, not so much as for the sole of the foot to tread on; because I have given mount Seir unto Esau for a possession.
+don't contend with them; for I will not give you of their land, no, not so much as for the sole of the foot to tread on; because I have given Mount Seir to Esau for a possession.

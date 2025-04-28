@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For therein the elders had witness borne to them.
+For by this, the elders obtained testimony.

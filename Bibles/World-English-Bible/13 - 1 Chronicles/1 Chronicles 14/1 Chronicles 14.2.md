@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David perceived that Jehovah had established him king over Israel; for his kingdom was exalted on high, for his people Israel's sake.
+David perceived that Yahweh had established him king over Israel; for his kingdom was exalted on high, for his people Israel's sake.

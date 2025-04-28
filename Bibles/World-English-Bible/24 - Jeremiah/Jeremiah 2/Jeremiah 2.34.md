@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also in thy skirts is found the blood of the souls of the innocent poor: thou didst not find them breaking in; but it is because of all these things.
+Also the blood of the souls of the innocent poor is found in your skirts. You did not find them breaking in; but it is because of all these things.

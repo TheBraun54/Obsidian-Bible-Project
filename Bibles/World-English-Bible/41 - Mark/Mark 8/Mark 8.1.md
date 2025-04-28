@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days, when there was again a great multitude, and they had nothing to eat, he called unto him his disciples, and saith unto them,
+In those days, when there was a very great multitude, and they had nothing to eat, Jesus called his disciples to himself, and said to them,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed [are] ye that hunger now: for ye shall be filled. Blessed [are] ye that weep now: for ye shall laugh.
+Blessed are you who hunger now, for you will be filled. Blessed are you who weep now, for you will laugh.

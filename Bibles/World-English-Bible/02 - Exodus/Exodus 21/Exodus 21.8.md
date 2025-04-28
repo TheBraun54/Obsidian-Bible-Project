@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If she please not her master, who hath espoused her to himself, then shall he let her be redeemed: to sell her unto a foreign people he shall have no power, seeing he hath dealt deceitfully with her.
+If she doesn't please her master, who has married her to himself, then he shall let her be redeemed. He shall have no right to sell her to a foreign people, since he has dealt deceitfully with her.

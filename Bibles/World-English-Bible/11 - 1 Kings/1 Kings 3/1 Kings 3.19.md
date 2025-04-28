@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this woman's child died in the night, because she lay upon it.
+This woman's child died in the night, because she lay on it.

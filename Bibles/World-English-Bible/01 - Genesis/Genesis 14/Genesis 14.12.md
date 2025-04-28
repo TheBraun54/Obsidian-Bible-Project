@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took Lot, Abram's brother's son, who dwelt in Sodom, and his goods, and departed.
+They took Lot, Abram's brother's son, who lived in Sodom, and his goods, and departed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What profit hath he that worketh in that wherein he laboreth?
+What profit has he who works in that in which he labors?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for a friend of mine is come to me from a journey, and I have nothing to set before him;
+for a friend of mine has come to me from a journey, and I have nothing to set before him,'

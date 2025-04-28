@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whatsoever is sold in the shambles, eat, asking no question for conscience' sake,
+Whatever is sold in the butcher shop, eat, asking no question for the sake of conscience,

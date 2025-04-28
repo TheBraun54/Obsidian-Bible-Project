@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah came unto Jonah the second time, saying,
+The word of Yahweh came to Jonah the second time, saying,

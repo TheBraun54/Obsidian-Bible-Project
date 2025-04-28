@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Is Jehovah's hand waxed short? now shalt thou see whether my word shall come to pass unto thee or not.
+Yahweh said to Moses, "Has Yahweh's hand grown short? Now you will see whether my word will happen to you or not."

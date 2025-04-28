@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The whole earth is at rest, [and] is quiet: they break forth into singing.
+The whole earth is at rest, and is quiet. They break out song.

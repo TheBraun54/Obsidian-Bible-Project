@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is on my side among them that help me: Therefore shall I see [my desire] upon them that hate me.
+Yahweh is on my side among those who help me. Therefore I will look in triumph at those who hate me.

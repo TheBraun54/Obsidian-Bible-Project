@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the length of the chambers that were in the outer court was fifty cubits: and, lo, before the temple were a hundred cubits.
+For the length of the rooms that were in the outer court was fifty cubits: and behold, before the temple were one hundred cubits.

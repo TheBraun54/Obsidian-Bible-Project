@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fig-tree ripeneth her green figs, And the vines are in blossom; They give forth their fragrance. Arise, my love, my fair one, and come away.
+The fig tree ripens her green figs. The vines are in blossom. They give forth their fragrance. Arise, my love, my beautiful one, and come away." Lover

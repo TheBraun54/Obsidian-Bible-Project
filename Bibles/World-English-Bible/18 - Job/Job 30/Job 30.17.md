@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the night season my bones are pierced in me, And the [pains] that gnaw me take no rest.
+In the night season my bones are pierced in me, and the pains that gnaw me take no rest.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus Solomon finished the house of Jehovah, and the king's house: and all that came into Solomon's heart to make in the house of Jehovah, and in his own house, he prosperously effected.
+Thus Solomon finished the house of Yahweh, and the king's house: and he successfully completed all that came into Solomon's heart to make in the house of Yahweh, and in his own house.

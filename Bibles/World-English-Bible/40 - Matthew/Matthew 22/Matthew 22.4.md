@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again he sent forth other servants, saying, Tell them that are bidden, Behold, I have made ready my dinner; my oxen and my fatlings are killed, and all things are ready: come to the marriage feast.
+Again he sent out other servants, saying, 'Tell those who are invited, "Behold, I have prepared my dinner. My cattle and my fatlings are killed, and all things are ready. Come to the marriage feast!"'

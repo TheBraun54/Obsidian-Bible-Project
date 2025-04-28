@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath sworn, and will not repent: Thou art a priest for ever After the order of Melchizedek.
+Yahweh has sworn, and will not change his mind: "You are a priest forever in the order of Melchizedek."

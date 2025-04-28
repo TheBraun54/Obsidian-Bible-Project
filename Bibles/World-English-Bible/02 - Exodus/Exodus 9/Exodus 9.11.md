@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the magicians could not stand before Moses because of the boils; for the boils were upon the magicians, and upon all the Egyptians.
+The magicians couldn't stand before Moses because of the boils; for the boils were on the magicians, and on all the Egyptians.

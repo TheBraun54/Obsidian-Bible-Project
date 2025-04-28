@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye will not yet for these things hearken unto me, then I will chastise you seven times more for your sins.
+"'If you in spite of these things will not listen to me, then I will chastise you seven times more for your sins.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have not spoken in secret, in a place of the land of darkness; I said not unto the seed of Jacob, Seek ye me in vain: I, Jehovah, speak righteousness, I declare things that are right.
+I have not spoken in secret, in a place of the land of darkness. I didn't say to the seed of Jacob, 'Seek me in vain.' I, Yahweh, speak righteousness. I declare things that are right.

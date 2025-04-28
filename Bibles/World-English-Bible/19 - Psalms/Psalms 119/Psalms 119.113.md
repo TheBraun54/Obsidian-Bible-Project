@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-SAMEKH. I hate them that are of a double mind; But thy law do I love.
+I hate double-minded men, but I love your law.

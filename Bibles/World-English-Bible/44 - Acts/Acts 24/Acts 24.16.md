@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Herein I also exercise myself to have a conscience void of offence toward God and men always.
+Herein I also practice always having a conscience void of offense toward God and men.

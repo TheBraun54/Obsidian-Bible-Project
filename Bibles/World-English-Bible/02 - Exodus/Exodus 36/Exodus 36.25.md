@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the second side of the tabernacle, on the north side, he made twenty boards,
+For the second side of the tabernacle, on the north side, he made twenty boards,

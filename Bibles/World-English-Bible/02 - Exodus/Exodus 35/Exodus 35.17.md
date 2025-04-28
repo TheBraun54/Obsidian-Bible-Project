@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the hangings of the court, the pillars thereof, and their sockets, and the screen for the gate of the court;
+the hangings of the court, its pillars, their sockets, and the screen for the gate of the court;

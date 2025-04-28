@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all their works they do to be seen of men: for they make broad their phylacteries, and enlarge the borders [of their garments] ,
+But all their works they do to be seen by men. They make their phylacteries broad, enlarge the fringes of their garments,

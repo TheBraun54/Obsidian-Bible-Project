@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked behind him and saw them, and cursed them in the name of Jehovah. And there came forth two she-bears out of the wood, and tare forty and two lads of them.
+He looked behind him and saw them, and cursed them in the name of Yahweh. Two female bears came out of the woods, and mauled forty-two of those youths.

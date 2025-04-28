@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Peter was beneath in the court, there cometh one of the maids of the high priest;
+As Peter was in the courtyard below, one of the maids of the high priest came,

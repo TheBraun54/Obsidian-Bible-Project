@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he came unto Lehi, the Philistines shouted as they met him: and the Spirit of Jehovah came mightily upon him, and the ropes that were upon his arms became as flax that was burnt with fire, and his bands dropped from off his hands.
+When he came to Lehi, the Philistines shouted as they met him: and the Spirit of Yahweh came mightily on him, and the ropes that were on his arms became as flax that was burnt with fire, and his bands dropped from off his hands.

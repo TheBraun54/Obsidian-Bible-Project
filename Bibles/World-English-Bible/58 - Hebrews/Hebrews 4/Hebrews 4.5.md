@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in this [place] again, They shall not enter into my rest.
+and in this place again, "They will not enter into my rest."

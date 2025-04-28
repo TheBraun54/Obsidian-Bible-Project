@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border turned to Ramah, and to the fortified city of Tyre; and the border turned to Hosah; and the goings out thereof were at the sea by the region of Achzib; [
+The border turned to Ramah, to the fortified city of Tyre; and the border turned to Hosah. It ended at the sea by the region of Achzib;

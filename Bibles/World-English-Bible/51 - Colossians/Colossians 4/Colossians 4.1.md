@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Masters, render unto your servants that which is just and equal; knowing that ye also have a Master in heaven.
+Masters, give to your servants that which is just and equal, knowing that you also have a Master in heaven.

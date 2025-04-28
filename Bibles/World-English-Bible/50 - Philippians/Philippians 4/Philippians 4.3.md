@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, I beseech thee also, true yokefellow, help these women, for they labored with me in the gospel, with Clement also, and the rest of my fellow-workers, whose names are in the book of life. [
+Yes, I beg you also, true yokefellow, help these women, for they labored with me in the Good News, with Clement also, and the rest of my fellow workers, whose names are in the book of life.

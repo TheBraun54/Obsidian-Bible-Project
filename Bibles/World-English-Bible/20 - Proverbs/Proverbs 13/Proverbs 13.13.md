@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso despiseth the word bringeth destruction on himself; But he that feareth the commandment shall be rewarded.
+Whoever despises instruction will pay for it, but he who respects a command will be rewarded.

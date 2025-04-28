@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and sent Timothy, our brother and God's minister in the gospel of Christ, to establish you, and to comfort [you] concerning your faith;
+and sent Timothy, our brother and God's servant in the Good News of Christ, to establish you, and to comfort you concerning your faith;

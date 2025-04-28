@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His remembrance shall perish from the earth, And he shall have no name in the street.
+His memory shall perish from the earth. He shall have no name in the street.

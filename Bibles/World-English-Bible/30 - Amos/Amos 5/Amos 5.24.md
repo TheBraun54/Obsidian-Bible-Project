@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let justice roll down as waters, and righteousness as a mighty stream.
+But let justice roll on like rivers, and righteousness like a mighty stream.

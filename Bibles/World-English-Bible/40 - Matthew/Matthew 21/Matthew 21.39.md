@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took him, and cast him forth out of the vineyard, and killed him.
+So they took him, and threw him out of the vineyard, and killed him.

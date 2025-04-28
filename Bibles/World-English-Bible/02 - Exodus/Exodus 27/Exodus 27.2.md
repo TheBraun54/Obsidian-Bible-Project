@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the horns of it upon the four corners thereof; the horns thereof shall be of one piece with it: and thou shalt overlay it with brass.
+You shall make its horns on its four corners; its horns shall be of one piece with it; and you shall overlay it with brass.

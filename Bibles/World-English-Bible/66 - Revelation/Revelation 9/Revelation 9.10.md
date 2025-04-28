@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they have tails like unto scorpions, and stings; and in their tails is their power to hurt men five months.
+They have tails like those of scorpions, and stings. In their tails they have power to harm men for five months.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a generation that curse their father, And bless not their mother.
+There is a generation that curses their father, and doesn't bless their mother.

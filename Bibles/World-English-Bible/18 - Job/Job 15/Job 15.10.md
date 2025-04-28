@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With us are both the gray-headed and the very aged men, Much elder than thy father.
+With us are both the gray-headed and the very aged men, much elder than your father.

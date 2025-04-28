@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah: Ask ye now among the nations, who hath heard such things; the virgin of Israel hath done a very horrible thing.
+Therefore thus says Yahweh: Ask now among the nations, who has heard such things; the virgin of Israel has done a very horrible thing.

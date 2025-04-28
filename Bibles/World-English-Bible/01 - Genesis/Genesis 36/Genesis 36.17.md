@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the sons of Reuel, Esau's son: chief Nahath, chief Zerah, chief Shammah, chief Mizzah: these are the chiefs that came of Reuel in the land of Edom; these are the sons of Basemath, Esau's wife.
+These are the sons of Reuel, Esau's son: chief Nahath, chief Zerah, chief Shammah, chief Mizzah: these are the chiefs who came of Reuel in the land of Edom; these are the sons of Basemath, Esau's wife.

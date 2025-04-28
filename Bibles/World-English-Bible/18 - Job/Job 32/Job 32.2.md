@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was kindled the wrath of Elihu the son of Barachel the Buzite, of the family of Ram: against Job was his wrath kindled, because he justified himself rather than God.
+Then the wrath of Elihu the son of Barachel, the Buzite, of the family of Ram, was kindled against Job. His wrath was kindled because he justified himself rather than God.

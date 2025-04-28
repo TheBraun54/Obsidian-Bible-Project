@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How then shall they call on him in whom they have not believed? and how shall they believe in him whom they have not heard? and how shall they hear without a preacher?
+How then will they call on him in whom they have not believed? How will they believe in him whom they have not heard? How will they hear without a preacher?

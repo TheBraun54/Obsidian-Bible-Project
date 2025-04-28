@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am he that beareth witness of myself, and the Father that sent me beareth witness of me.
+I am one who testifies about myself, and the Father who sent me testifies about me."

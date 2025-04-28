@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What knowest thou, that we know not? What understandest thou, which is not in us?
+What do you know, that we don't know? What do you understand, which is not in us?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had gone through those parts, and had given them much exhortation, he came into Greece.
+When he had gone through those parts, and had encouraged them with many words, he came into Greece.

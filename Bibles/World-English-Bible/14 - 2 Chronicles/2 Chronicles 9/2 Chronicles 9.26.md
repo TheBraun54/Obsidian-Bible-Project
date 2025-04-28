@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he ruled over all the kings from the River even unto the land of the Philistines, and to the border of Egypt.
+He ruled over all the kings from the River even to the land of the Philistines, and to the border of Egypt.

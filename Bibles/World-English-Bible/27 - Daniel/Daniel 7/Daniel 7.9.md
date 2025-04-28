@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beheld till thrones were placed, and one that was ancient of days did sit: his raiment was white as snow, and the hair of his head like pure wool; his throne was fiery flames, [and] the wheels thereof burning fire.
+I saw until thrones were placed, and one who was ancient of days sat: his clothing was white as snow, and the hair of his head like pure wool; his throne was fiery flames, [and] its wheels burning fire.

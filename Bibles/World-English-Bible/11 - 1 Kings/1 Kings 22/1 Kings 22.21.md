@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came forth a spirit, and stood before Jehovah, and said, I will entice him.
+A spirit came out and stood before Yahweh, and said, 'I will entice him.'

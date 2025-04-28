@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah God of hosts, How long wilt thou be angry against the prayer of thy people?
+Yahweh God of Armies, How long will you be angry against the prayer of your people?

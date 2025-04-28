@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the woman left her waterpot, and went away into the city, and saith to the people,
+So the woman left her water pot, and went away into the city, and said to the people,

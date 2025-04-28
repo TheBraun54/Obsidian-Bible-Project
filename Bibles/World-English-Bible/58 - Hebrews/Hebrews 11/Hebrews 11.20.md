@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Isaac blessed Jacob and Esau, even concerning things to come.
+By faith, Isaac blessed Jacob and Esau, even concerning things to come.

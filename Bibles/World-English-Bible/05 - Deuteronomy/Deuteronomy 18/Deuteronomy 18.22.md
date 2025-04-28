@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when a prophet speaketh in the name of Jehovah, if the thing follow not, nor come to pass, that is the thing which Jehovah hath not spoken: the prophet hath spoken it presumptuously, thou shalt not be afraid of him.
+when a prophet speaks in the name of Yahweh, if the thing doesn't follow, nor happen, that is the thing which Yahweh has not spoken: the prophet has spoken it presumptuously, you shall not be afraid of him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That the wise man may hear, and increase in learning; And that the man of understanding may attain unto sound counsels:
+that the wise man may hear, and increase in learning; that the man of understanding may attain to sound counsel:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then these presidents and satraps assembled together to the king, and said thus unto him, King Darius, live for ever.
+Then these presidents and satraps assembled together to the king, and said thus to him, King Darius, live forever.

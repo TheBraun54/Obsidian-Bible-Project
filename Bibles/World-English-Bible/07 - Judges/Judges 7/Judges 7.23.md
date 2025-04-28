@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel were gathered together out of Naphtali, and out of Asher, and out of all Manasseh, and pursued after Midian.
+The men of Israel were gathered together out of Naphtali, and out of Asher, and out of all Manasseh, and pursued after Midian.

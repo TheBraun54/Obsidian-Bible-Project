@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, O Jehovah, the God of Israel, let thy word be verified, which thou spakest unto thy servant David.
+Now therefore, Yahweh, the God of Israel, let your word be verified, which you spoke to your servant David.

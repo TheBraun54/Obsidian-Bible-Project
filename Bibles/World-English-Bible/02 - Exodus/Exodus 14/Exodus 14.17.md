@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, behold, I will harden the hearts of the Egyptians, and they shall go in after them: and I will get me honor upon Pharaoh, and upon all his host, upon his chariots, and upon his horsemen. [
+I, behold, I will harden the hearts of the Egyptians, and they shall go in after them: and I will get myself honor over Pharaoh, and over all his armies, over his chariots, and over his horsemen.

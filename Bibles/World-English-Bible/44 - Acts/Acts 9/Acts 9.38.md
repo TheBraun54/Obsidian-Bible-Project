@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Lydda was nigh unto Joppa, the disciples, hearing that Peter was there, sent two men unto him, entreating him, Delay not to come on unto us.
+As Lydda was near Joppa, the disciples, hearing that Peter was there, sent two men to him, imploring him not to delay in coming to them.

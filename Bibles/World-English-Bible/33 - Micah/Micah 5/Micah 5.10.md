@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, saith Jehovah, that I will cut off thy horses out of the midst of thee, and will destroy thy chariots:
+"It will happen in that day," says Yahweh, "That I will cut off your horses out of the midst of you, and will destroy your chariots.

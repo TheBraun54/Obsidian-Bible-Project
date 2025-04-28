@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the league made with him he shall work deceitfully; for he shall come up, and shall become strong, with a small people.
+After the treaty made with him he shall work deceitfully; for he shall come up, and shall become strong, with a small people.

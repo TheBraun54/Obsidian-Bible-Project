@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as some spake of the temple, how it was adorned with goodly stones and offerings, he said,
+As some were talking about the temple and how it was decorated with beautiful stones and gifts, he said,

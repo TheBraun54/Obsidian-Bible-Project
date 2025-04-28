@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall stand up in his place one that shall cause an exactor to pass through the glory of the kingdom; but within few days he shall be destroyed, neither in anger, nor in battle.
+Then shall stand up in his place one who shall cause a tax collector to pass through the kingdom to maintain its glory; but within few days he shall be destroyed, neither in anger, nor in battle.

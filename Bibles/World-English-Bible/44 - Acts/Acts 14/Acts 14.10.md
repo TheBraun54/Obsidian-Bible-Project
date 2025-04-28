@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-said with a loud voice, Stand upright on thy feet. And he leaped up and walked.
+said with a loud voice, "Stand upright on your feet!" He leaped up and walked.

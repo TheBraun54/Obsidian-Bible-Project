@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ben-hadad the king of Syria gathered all his host together; and there were thirty and two kings with him, and horses and chariots: and he went up and besieged Samaria, and fought against it.
+Ben Hadad the king of Syria gathered all his army together; and there were thirty-two kings with him, and horses and chariots: and he went up and besieged Samaria, and fought against it.

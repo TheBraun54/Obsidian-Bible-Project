@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed shall be thy basket and thy kneading-trough.
+Your basket and your kneading trough shall be blessed.

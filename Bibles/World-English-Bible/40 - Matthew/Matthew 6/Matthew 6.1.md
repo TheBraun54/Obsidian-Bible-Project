@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed that ye do not your righteousness before men, to be seen of them: else ye have no reward with your Father who is in heaven.
+"Be careful that you don't do your charitable giving before men, to be seen by them, or else you have no reward from your Father who is in heaven.

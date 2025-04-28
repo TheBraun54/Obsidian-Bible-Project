@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man walking in a spirit of falsehood do lie, [saying], I will prophesy unto thee of wine and of strong drink; he shall even be the prophet of this people.
+If a man walking in a spirit of falsehood lies: "I will prophesy to you of wine and of strong drink;" he would be the prophet of this people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With the east wind Thou breakest the ships of Tarshish.
+With the east wind, you break the ships of Tarshish.

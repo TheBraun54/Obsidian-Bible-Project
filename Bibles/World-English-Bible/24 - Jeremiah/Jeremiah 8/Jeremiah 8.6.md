@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I hearkened and heard, but they spake not aright: no man repenteth him of his wickedness, saying, What have I done? every one turneth to his course, as a horse that rusheth headlong in the battle.
+I listened and heard, but they didn't speak aright: no man repents him of his wickedness, saying, What have I done? everyone turns to his course, as a horse that rushes headlong in the battle.

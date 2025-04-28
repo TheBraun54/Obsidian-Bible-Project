@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul heard that David was discovered, and the men that were with him: now Saul was sitting in Gibeah, under the tamarisk-tree in Ramah, with his spear in his hand, and all his servants were standing about him.
+Saul heard that David was discovered, and the men who were with him. Now Saul was sitting in Gibeah, under the tamarisk tree in Ramah, with his spear in his hand, and all his servants were standing about him.

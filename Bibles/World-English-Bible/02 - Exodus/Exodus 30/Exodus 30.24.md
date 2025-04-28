@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and of cassia five hundred, after the shekel of the sanctuary, and of olive oil a hin;
+and of cassia five hundred, after the shekel of the sanctuary; and a hin of olive oil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Preserve my soul; For I am godly: O thou my God, save thy servant that trusteth in thee.
+Preserve my soul, for I am godly. You, my God, save your servant who trusts in you.

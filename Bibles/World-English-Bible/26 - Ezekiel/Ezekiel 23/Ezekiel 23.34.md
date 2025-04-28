@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt even drink it and drain it out, and thou shalt gnaw the sherds thereof, and shalt tear thy breasts; for I have spoken it, saith the Lord Jehovah.
+You shall even drink it and drain it out, and you shall gnaw the broken pieces of it, and shall tear your breasts; for I have spoken it, says the Lord Yahweh.

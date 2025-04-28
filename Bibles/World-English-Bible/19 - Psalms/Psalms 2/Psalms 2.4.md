@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that sitteth in the heavens will laugh: The Lord will have them in derision.
+He who sits in the heavens will laugh. The Lord will have them in derision.

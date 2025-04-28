@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all their wealth, and all their little ones and their wives, took they captive and made a prey, even all that was in the house.
+and all their wealth. They took captive all their little ones and their wives, and took as plunder everything that was in the house.

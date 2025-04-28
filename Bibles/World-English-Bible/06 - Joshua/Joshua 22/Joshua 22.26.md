@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore we said, Let us now prepare to build us an altar, not for burnt-offering, nor for sacrifice:
+"Therefore we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was set up from everlasting, from the beginning, Before the earth was.
+I was set up from everlasting, from the beginning, before the earth existed.

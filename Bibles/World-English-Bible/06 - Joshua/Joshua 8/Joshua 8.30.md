@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Joshua built an altar unto Jehovah, the God of Israel, in mount Ebal,
+Then Joshua built an altar to Yahweh, the God of Israel, in Mount Ebal,

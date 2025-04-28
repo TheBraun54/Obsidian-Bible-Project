@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fear came on all that dwelt round about them: and all these sayings were noised abroad throughout all the hill country of Judaea.
+Fear came on all who lived around them, and all these sayings were talked about throughout all the hill country of Judea.

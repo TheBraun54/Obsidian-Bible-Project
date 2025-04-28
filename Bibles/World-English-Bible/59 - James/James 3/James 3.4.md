@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the ships also, though they are so great and are driven by rough winds, are yet turned about by a very small rudder, whither the impulse of the steersman willeth.
+Behold, the ships also, though they are so big and are driven by fierce winds, are yet guided by a very small rudder, wherever the pilot desires.

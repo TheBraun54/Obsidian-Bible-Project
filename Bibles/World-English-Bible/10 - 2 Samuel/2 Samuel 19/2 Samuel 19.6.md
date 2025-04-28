@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in that thou lovest them that hate thee, and hatest them that love thee. For thou hast declared this day, that princes and servants are nought unto thee: for this day I perceive, that if Absalom had lived, and all we had died this day, then it had pleased thee well.
+in that you love those who hate you, and hate those who love you. For you have declared this day, that princes and servants are nothing to you. For today I perceive that if Absalom had lived, and all we had died this day, then it would have pleased you well.

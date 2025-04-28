@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, I have seen this people, and, behold, it is a stiffnecked people:
+Yahweh said to Moses, "I have seen these people, and behold, they are a stiff-necked people.

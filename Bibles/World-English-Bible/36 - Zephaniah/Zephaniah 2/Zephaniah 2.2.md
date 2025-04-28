@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-before the decree bring forth, [before] the day pass as the chaff, before the fierce anger of Jehovah come upon you, before the day of Jehovah's anger come upon you.
+before the appointed time when the day passes as the chaff, before the fierce anger of Yahweh comes on you, before the day of Yahweh's anger comes on you.

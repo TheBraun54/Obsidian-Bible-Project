@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every man, with whom was found blue, and purple, and scarlet, and fine linen, and goats' [hair], and rams' skins dyed red, and sealskins, brought them.
+Everyone, with whom was found blue, purple, scarlet, fine linen, goats' hair, rams' skins dyed red, and sea cow hides, brought them.

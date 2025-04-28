@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I write unto you, fathers, because ye know him who is from the beginning. I write unto you, young men, because ye have overcome the evil one. I have written unto you, little children, because ye know the Father.
+I write to you, fathers, because you know him who is from the beginning. I write to you, young men, because you have overcome the evil one. I write to you, little children, because you know the Father.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: As I live, surely mine oath that he hath despised, and my covenant that he hath broken, I will even bring it upon his own head.
+Therefore thus says the Lord Yahweh: As I live, surely my oath that he has despised, and my covenant that he has broken, I will even bring it on his own head.

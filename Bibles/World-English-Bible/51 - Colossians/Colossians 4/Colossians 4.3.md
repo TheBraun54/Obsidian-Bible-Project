@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-withal praying for us also, that God may open unto us a door for the word, to speak the mystery of Christ, for which I am also in bonds;
+praying together for us also, that God may open to us a door for the word, to speak the mystery of Christ, for which I am also in bonds;

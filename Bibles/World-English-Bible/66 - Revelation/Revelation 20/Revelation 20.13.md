@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sea gave up the dead that were in it; and death and Hades gave up the dead that were in them: and they were judged every man according to their works.
+The sea gave up the dead who were in it. Death and Hades gave up the dead who were in them. They were judged, each one according to his works.

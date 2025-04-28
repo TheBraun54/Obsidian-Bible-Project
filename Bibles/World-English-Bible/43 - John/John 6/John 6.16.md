@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when evening came, his disciples went down unto the sea;
+When evening came, his disciples went down to the sea,

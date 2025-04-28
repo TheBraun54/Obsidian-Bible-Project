@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Zerah: Zimri, and Ethan, and Heman, and Calcol, and Dara; five of them in all.
+The sons of Zerah: Zimri, and Ethan, and Heman, and Calcol, and Dara; five of them in all.

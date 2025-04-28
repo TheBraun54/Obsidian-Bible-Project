@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of a man's mouth are [as] deep waters; The wellspring of wisdom is [as] a flowing brook.
+The words of a man's mouth are like deep waters. The fountain of wisdom is like a flowing brook.

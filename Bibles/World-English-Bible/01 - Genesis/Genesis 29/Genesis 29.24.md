@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban gave Zilpah his handmaid unto his daughter Leah for a handmaid.
+Laban gave Zilpah his handmaid to his daughter Leah for a handmaid.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They sacrificed unto demons, [which were] no God, To gods that they knew not, To new [gods] that came up of late, Which your fathers dreaded not.
+They sacrificed to demons, [which were] no God, to gods that they didn't know, to new [gods] that came up of late, which your fathers didn't dread.

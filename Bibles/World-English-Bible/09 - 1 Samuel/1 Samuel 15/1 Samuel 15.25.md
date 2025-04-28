@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, I pray thee, pardon my sin, and turn again with me, that I may worship Jehovah.
+Now therefore, please pardon my sin, and turn again with me, that I may worship Yahweh."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They turn the needy out of the way: The poor of the earth all hide themselves.
+They turn the needy out of the way. The poor of the earth all hide themselves.

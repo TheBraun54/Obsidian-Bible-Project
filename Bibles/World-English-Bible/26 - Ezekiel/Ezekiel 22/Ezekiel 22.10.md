@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In thee have they uncovered their fathers' nakedness; in thee have they humbled her that was unclean in her impurity.
+In you have they uncovered their fathers' nakedness; in you have they humbled her who was unclean in her impurity.

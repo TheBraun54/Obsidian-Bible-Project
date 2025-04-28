@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They draw nigh that follow after wickedness; They are far from thy law.
+They draw near who follow after wickedness. They are far from your law.

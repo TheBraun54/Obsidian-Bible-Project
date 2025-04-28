@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will deliver their kings into thy hand, and thou shalt make their name to perish from under heaven: there shall no man be able to stand before thee, until thou have destroyed them.
+He will deliver their kings into your hand, and you shall make their name to perish from under the sky: no man shall be able to stand before you, until you have destroyed them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How oft is it that the lamp of the wicked is put out? That their calamity cometh upon them? That [God] distributeth sorrows in his anger?
+"How often is it that the lamp of the wicked is put out, that their calamity comes on them, that God distributes sorrows in his anger?

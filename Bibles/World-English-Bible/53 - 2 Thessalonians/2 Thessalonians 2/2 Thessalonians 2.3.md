@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let no man beguile you in any wise: for [it will not be], except the falling away come first, and the man of sin be revealed, the son of perdition,
+Let no one deceive you in any way. For it will not be, unless the departure comes first, and the man of sin is revealed, the son of destruction,

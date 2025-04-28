@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came, behold, the captains of the host were sitting; and he said, I have an errand to thee, O captain. And Jehu said, Unto which of us all? And he said, To thee, O captain.
+When he came, behold, the captains of the army were sitting. Then he said, "I have a message for you, captain." Jehu said, "To which of us all?" He said, "To you, O captain."

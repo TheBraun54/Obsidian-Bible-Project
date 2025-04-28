@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the God of thy fathers, the God of Abraham, and of Isaac, and of Jacob. And Moses trembled, and durst not behold.
+'I am the God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob.' Moses trembled, and dared not look.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and after Ahithophel was Jehoiada the son of Benaiah, and Abiathar: and the captain of the king's host was Joab.
+and after Ahithophel was Jehoiada the son of Benaiah, and Abiathar: and the captain of the king's army was Joab.

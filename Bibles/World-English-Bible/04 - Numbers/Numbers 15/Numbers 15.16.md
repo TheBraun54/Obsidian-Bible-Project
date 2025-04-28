@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One law and one ordinance shall be for you, and for the stranger that sojourneth with you.
+One law and one ordinance shall be for you, and for the stranger who lives as a foreigner with you.'"

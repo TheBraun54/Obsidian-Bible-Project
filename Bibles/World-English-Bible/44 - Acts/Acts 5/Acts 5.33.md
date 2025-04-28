@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they, when they heard this, were cut to the heart, and minded to slay them.
+But they, when they heard this, were cut to the heart, and determined to kill them.

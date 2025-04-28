@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereunto then shall I liken the men of this generation, and to what are they like?
+"To what then will I liken the people of this generation? What are they like?

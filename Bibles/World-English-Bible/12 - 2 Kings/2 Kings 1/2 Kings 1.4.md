@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore thus saith Jehovah, Thou shalt not come down from the bed whither thou art gone up, but shalt surely die. And Elijah departed.
+Now therefore thus says Yahweh, "You shall not come down from the bed where you have gone up, but shall surely die."'" Elijah departed.

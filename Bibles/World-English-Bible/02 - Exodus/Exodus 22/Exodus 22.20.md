@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that sacrificeth unto any god, save unto Jehovah only, shall be utterly destroyed.
+"He who sacrifices to any god, except to Yahweh only, shall be utterly destroyed.

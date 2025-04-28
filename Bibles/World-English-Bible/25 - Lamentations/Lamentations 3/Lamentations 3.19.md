@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember mine affliction and my misery, the wormwood and the gall.
+Remember my affliction and my misery, the wormwood and the gall.

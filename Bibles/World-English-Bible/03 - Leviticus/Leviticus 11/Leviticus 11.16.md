@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the ostrich, and the night-hawk, and the sea-mew, and the hawk after its kind,
+the horned owl, the screech owl, and the gull, any kind of hawk,

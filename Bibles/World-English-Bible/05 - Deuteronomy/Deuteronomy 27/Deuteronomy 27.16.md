@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that setteth light by his father or his mother. And all the people shall say, Amen.
+'Cursed is he who sets light by his father or his mother.' All the people shall say, 'Amen.'

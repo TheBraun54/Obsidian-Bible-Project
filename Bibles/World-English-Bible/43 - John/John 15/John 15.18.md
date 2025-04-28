@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the world hateth you, ye know that it hath hated me before [it hated] you.
+If the world hates you, you know that it has hated me before it hated you.

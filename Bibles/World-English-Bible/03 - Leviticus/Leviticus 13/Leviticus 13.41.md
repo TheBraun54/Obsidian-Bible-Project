@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if his hair be fallen off from the front part of his head, he is forehead bald; [yet] is he clean.
+If his hair has fallen off from the front part of his head, he is forehead bald. He is clean.

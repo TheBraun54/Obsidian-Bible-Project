@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He heard the sound of the trumpet, and took not warning; his blood shall be upon him; whereas if he had taken warning, he would have delivered his soul.
+He heard the sound of the trumpet, and didn't take warning; his blood shall be on him; whereas if he had taken warning, he would have delivered his soul.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-hereby ye shall be proved: by the life of Pharaoh ye shall not go forth hence, except your youngest brother come hither.
+By this you shall be tested. By the life of Pharaoh, you shall not go forth from here, unless your youngest brother comes here.

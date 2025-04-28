@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said, Yet a little while am I with you, and I go unto him that sent me.
+Then Jesus said, "I will be with you a little while longer, then I go to him who sent me.

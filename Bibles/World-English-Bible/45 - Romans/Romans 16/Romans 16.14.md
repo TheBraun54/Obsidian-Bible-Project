@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Asyncritus, Phlegon, Hermes, Patrobas, Hermas, and the brethren that are with them.
+Greet Asyncritus, Phlegon, Hermes, Patrobas, Hermas, and the brothers who are with them.

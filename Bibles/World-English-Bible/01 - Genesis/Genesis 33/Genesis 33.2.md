@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the handmaids and their children foremost, and Leah and her children after, and Rachel and Joseph hindermost.
+He put the handmaids and their children in front, Leah and her children after, and Rachel and Joseph at the rear.

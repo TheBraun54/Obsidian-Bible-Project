@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there talked with him two men, who were Moses and Elijah;
+Behold, two men were talking with him, who were Moses and Elijah,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nabal answered David's servants, and said, Who is David? and who is the son of Jesse? there are many servants now-a-days that break away every man from his master.
+Nabal answered David's servants, and said, "Who is David? Who is the son of Jesse? There are many servants who break away from their masters these days.

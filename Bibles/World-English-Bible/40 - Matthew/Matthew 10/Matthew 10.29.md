@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are not two sparrows sold for a penny? and not one of them shall fall on the ground without your Father:
+"Aren't two sparrows sold for an assarion coin? Not one of them falls on the ground apart from your Father's will,

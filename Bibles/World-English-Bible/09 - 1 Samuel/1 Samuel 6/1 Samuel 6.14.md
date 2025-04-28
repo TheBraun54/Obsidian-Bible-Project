@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cart came into the field of Joshua the Beth-shemite, and stood there, where there was a great stone: and they clave the wood of the cart, and offered up the kine for a burnt-offering unto Jehovah.
+The cart came into the field of Joshua of Beth Shemesh, and stood there, where there was a great stone: and they split the wood of the cart, and offered up the cows for a burnt offering to Yahweh.

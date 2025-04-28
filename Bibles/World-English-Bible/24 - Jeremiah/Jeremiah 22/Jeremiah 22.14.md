@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that saith, I will build me a wide house and spacious chambers, and cutteth him out windows; and it is ceiled with cedar, and painted with vermilion.
+who says, I will build me a wide house and spacious rooms, and cuts him out windows; and it is ceiling with cedar, and painted with vermilion.

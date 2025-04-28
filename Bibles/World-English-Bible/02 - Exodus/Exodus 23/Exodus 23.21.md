@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye heed before him, and hearken unto his voice; provoke him not; for he will not pardon your transgression: for my name is in him.
+Pay attention to him, and listen to his voice. Don't provoke him, for he will not pardon your disobedience, for my name is in him.

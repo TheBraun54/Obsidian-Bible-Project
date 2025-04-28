@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou camest down also upon mount Sinai, and spakest with them from heaven, and gavest them right ordinances and true laws, good statutes and commandments,
+"You came down also on Mount Sinai, and spoke with them from heaven, and gave them right ordinances and true laws, good statutes and commandments,

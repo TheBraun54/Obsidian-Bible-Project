@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise ye, and depart; for this is not your resting-place; because of uncleanness that destroyeth, even with a grievous destruction.
+Arise, and depart! For this is not your resting place, because of uncleanness that destroys, even with a grievous destruction.

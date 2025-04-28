@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these in like manner are they that are sown upon the rocky [places], who, when they have heard the word, straightway receive it with joy;
+These in the same way are those who are sown on the rocky places, who, when they have heard the word, immediately receive it with joy.

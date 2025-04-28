@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall Moab wail for Moab, every one shall wail: for the raisin-cakes of Kir-hareseth shall ye mourn, utterly stricken.
+Therefore Moab will wail for Moab. Everyone will wail. You will mourn for the raisin cakes of Kir Hareseth, utterly stricken.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent letters unto all the Jews, to the hundred twenty and seven provinces of the kingdom of Ahasuerus, [with] words of peace and truth,
+He sent letters to all the Jews, to the hundred twenty-seven provinces of the kingdom of Ahasuerus, with words of peace and truth,

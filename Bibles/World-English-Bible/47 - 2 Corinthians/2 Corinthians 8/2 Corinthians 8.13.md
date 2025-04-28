@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For [I say] not [this] that others may be eased [and] ye distressed;
+For this is not that others may be eased and you distressed,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all the silver, and gold, and vessels of brass and iron, are holy unto Jehovah: they shall come into the treasury of Jehovah.
+But all the silver, and gold, and vessels of brass and iron, are holy to Yahweh. They shall come into Yahweh's treasury."

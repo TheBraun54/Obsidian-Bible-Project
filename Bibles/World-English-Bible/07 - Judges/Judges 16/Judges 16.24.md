@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the people saw him, they praised their god; for they said, Our god hath delivered into our hand our enemy, and the destroyer of our country, who hath slain many of us.
+When the people saw him, they praised their god; for they said, "Our god has delivered our enemy and the destroyer of our country, who has slain many of us, into our hand."

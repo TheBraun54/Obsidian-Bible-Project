@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O Israel: thou art to pass over the Jordan this day, to go in to dispossess nations greater and mightier than thyself, cities great and fortified up to heaven,
+Hear, Israel: you are to pass over the Jordan this day, to go in to dispossess nations greater and mightier than yourself, cities great and fortified up to the sky,

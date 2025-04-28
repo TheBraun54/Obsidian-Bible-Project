@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is not a man, that he should lie, Neither the son of man, that he should repent: Hath he said, and will he not do it? Or hath he spoken, and will he not make it good?
+God is not a man, that he should lie, nor the son of man, that he should repent. Has he said, and will he not do it? Or has he spoken, and will he not make it good?

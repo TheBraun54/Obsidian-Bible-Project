@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore he was gone out, Jesus saith, Now is the Son of man glorified, and God is glorified in him;
+When he had gone out, Jesus said, "Now the Son of Man has been glorified, and God has been glorified in him.

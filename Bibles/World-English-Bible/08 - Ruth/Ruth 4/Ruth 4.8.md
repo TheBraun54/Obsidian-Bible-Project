@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the near kinsman said unto Boaz, Buy it for thyself. And he drew off his shoe.
+So the near kinsman said to Boaz, "Buy it for yourself." He took off his shoe.

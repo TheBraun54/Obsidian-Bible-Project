@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the high priest rent his clothes, and saith, What further need have we of witnesses?
+The high priest tore his clothes, and said, "What further need have we of witnesses?

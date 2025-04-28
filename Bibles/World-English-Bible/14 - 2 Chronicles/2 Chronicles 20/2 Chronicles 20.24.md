@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Judah came to the watch-tower of the wilderness, they looked upon the multitude; and, behold, they were dead bodies fallen to the earth, and there were none that escaped.
+When Judah came to the place overlooking the wilderness, they looked at the multitude; and behold, they were dead bodies fallen to the earth, and there were none who escaped.

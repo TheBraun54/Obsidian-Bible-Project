@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep therefore the words of this covenant, and do them, that ye may prosper in all that ye do.
+Keep therefore the words of this covenant, and do them, that you may prosper in all that you do.

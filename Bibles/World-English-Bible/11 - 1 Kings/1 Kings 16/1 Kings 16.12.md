@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did Zimri destroy all the house of Baasha, according to the word of Jehovah, which he spake against Baasha by Jehu the prophet,
+Thus Zimri destroyed all the house of Baasha, according to the word of Yahweh, which he spoke against Baasha by Jehu the prophet,

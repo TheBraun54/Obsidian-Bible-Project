@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because they were rebellious against his spirit, And he spake unadvisedly with his lips.
+because they were rebellious against his spirit, he spoke rashly with his lips.

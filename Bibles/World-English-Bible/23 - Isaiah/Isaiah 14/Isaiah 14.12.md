@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How art thou fallen from heaven, O day-star, son of the morning! how art thou cut down to the ground, that didst lay low the nations!
+How you have fallen from heaven, morning star, son of the dawn! How you are cut down to the ground, who laid the nations low!

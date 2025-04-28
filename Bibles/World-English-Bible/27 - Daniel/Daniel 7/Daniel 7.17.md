@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These great beasts, which are four, are four kings, that shall arise out of the earth.
+These great animals, which are four, are four kings, who shall arise out of the earth.

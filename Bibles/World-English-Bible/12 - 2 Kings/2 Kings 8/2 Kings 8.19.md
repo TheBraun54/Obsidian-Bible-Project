@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit Jehovah would not destroy Judah, for David his servant's sake, as he promised him to give unto him a lamp for his children alway.
+However Yahweh would not destroy Judah, for David his servant's sake, as he promised him to give to him a lamp for his children always.

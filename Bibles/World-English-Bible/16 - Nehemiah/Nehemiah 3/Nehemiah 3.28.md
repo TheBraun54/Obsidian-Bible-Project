@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Above the horse gate repaired the priests, every one over against his own house.
+Above the horse gate repaired the priests, everyone over against his own house.

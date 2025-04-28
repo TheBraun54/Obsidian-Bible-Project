@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I, even I, am he that comforteth you: who art thou, that thou art afraid of man that shall die, and of the son of man that shall be made as grass;
+"I, even I, am he who comforts you: who are you, that you are afraid of man who shall die, and of the son of man who shall be made as grass;

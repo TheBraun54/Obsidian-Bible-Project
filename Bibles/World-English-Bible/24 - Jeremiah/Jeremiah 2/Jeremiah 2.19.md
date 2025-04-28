@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine own wickedness shall correct thee, and thy backslidings shall reprove thee: know therefore and see that it is an evil thing and a bitter, that thou hast forsaken Jehovah thy God, and that my fear is not in thee, saith the Lord, Jehovah of hosts.
+"Your own wickedness shall correct you, and your backsliding shall reprove you. Know therefore and see that it is an evil thing and a bitter, that you have forsaken Yahweh your God, and that my fear is not in you," says the Lord, Yahweh of Armies.

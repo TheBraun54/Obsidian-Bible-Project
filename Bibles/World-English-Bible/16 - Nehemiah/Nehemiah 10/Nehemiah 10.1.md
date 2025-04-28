@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now those that sealed were: Nehemiah the governor, the son of Hacaliah, and Zedekiah,
+Now those who sealed were: Nehemiah the governor, the son of Hacaliah, and Zedekiah,

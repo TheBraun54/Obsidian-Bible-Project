@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deal with thy servant according unto thy lovingkindness, And teach me thy statutes.
+Deal with your servant according to your loving kindness. Teach me your statutes.

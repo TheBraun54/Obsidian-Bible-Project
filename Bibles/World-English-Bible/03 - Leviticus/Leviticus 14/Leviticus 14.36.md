@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall command that they empty the house, before the priest goeth in to see the plague, that all that is in the house be not made unclean: and afterward the priest shall go in to see the house:
+The priest shall command that they empty the house, before the priest goes in to examine the plague, that all that is in the house not be made unclean: and afterward the priest shall go in to inspect the house.

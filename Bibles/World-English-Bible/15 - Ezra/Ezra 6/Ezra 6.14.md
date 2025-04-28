@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of the Jews builded and prospered, through the prophesying of Haggai the prophet and Zechariah the son of Iddo. And they builded and finished it, according to the commandment of the God of Israel, and according to the decree of Cyrus, and Darius, and Artaxerxes king of Persia.
+The elders of the Jews built and prospered, through the prophesying of Haggai the prophet and Zechariah the son of Iddo. They built and finished it, according to the commandment of the God of Israel, and according to the decree of Cyrus, and Darius, and Artaxerxes king of Persia.

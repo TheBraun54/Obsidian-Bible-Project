@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took him a potsherd to scrape himself therewith; and he sat among the ashes.
+He took for himself a potsherd to scrape himself with, and he sat among the ashes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth mourneth and fadeth away, the world languisheth and fadeth away, the lofty people of the earth do languish.
+The earth mourns and fades away. The world languishes and fades away. The lofty people of the earth languish.

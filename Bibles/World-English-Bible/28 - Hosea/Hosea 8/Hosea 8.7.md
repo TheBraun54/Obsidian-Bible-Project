@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they sow the wind, and they shall reap the whirlwind: he hath no standing grain; the blade shall yield no meal; if so be it yield, strangers shall swallow it up.
+For they sow the wind, and they will reap the whirlwind. He has no standing grain. The stalk will yield no head. If it does yield, strangers will swallow it up.

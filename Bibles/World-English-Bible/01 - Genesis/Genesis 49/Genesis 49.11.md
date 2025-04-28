@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Binding his foal unto the vine, And his ass's colt unto the choice vine; He hath washed his garments in wine, And his vesture in the blood of grapes:
+Binding his foal to the vine, his donkey's colt to the choice vine; he has washed his garments in wine, his robes in the blood of grapes.

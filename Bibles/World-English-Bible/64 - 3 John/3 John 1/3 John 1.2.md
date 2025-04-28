@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, I pray that in all things thou mayest prosper and be in health, even as thy soul prospereth.
+Beloved, I pray that you may prosper in all things and be healthy, even as your soul prospers.

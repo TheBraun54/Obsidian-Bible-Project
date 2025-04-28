@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their hands are upon that which is evil to do it diligently; the prince asketh, and the judge [is ready] for a reward; and the great man, he uttereth the evil desire of his soul: thus they weave it together.
+Their hands are on that which is evil to do it diligently. The ruler and judge ask for a bribe; and the powerful man dictates the evil desire of his soul. Thus they conspire together.

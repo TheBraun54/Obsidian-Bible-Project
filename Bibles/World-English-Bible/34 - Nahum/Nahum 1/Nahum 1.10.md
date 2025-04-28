@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For entangled like thorns, and drunken as with their drink, they are consumed utterly as dry stubble.
+For entangled like thorns, and drunken as with their drink, they are consumed utterly like dry stubble.

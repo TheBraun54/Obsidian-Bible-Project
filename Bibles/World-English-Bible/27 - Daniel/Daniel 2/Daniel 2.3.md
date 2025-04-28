@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto them, I have dreamed a dream, and my spirit is troubled to know the dream.
+The king said to them, I have dreamed a dream, and my spirit is troubled to know the dream.

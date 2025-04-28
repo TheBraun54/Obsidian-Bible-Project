@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then both the men, between whom the controversy is, shall stand before Jehovah, before the priests and the judges that shall be in those days;
+then both the men, between whom the controversy is, shall stand before Yahweh, before the priests and the judges who shall be in those days;

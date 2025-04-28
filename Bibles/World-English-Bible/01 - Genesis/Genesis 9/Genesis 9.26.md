@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Blessed be Jehovah, the God of Shem; And let Canaan be his servant.
+He said, "Blessed be Yahweh, the God of Shem. Let Canaan be his servant.

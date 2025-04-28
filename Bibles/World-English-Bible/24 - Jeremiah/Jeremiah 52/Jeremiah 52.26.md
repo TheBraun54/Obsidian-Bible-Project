@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nebuzaradan the captain of the guard took them, and brought them to the king of Babylon to Riblah.
+Nebuzaradan the captain of the guard took them, and brought them to the king of Babylon to Riblah.

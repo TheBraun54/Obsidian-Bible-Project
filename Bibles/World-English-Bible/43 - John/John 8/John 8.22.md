@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore said, Will he kill himself, that he saith, Whither I go, ye cannot come?
+The Jews therefore said, "Will he kill himself, that he says, 'Where I am going, you can't come?'"

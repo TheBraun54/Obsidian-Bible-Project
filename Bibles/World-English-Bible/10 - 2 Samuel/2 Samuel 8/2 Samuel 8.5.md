@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Syrians of Damascus came to succor Hadadezer king of Zobah, David smote of the Syrians two and twenty thousand men.
+When the Syrians of Damascus came to help Hadadezer king of Zobah, David struck of the Syrians two and twenty thousand men.

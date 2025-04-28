@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That alone stretcheth out the heavens, And treadeth upon the waves of the sea;
+He alone stretches out the heavens, and treads on the waves of the sea.

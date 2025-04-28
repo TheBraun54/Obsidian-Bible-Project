@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For which cause I suffer also these things: yet I am not ashamed; for I know him whom I have believed, and I am persuaded that he is able to guard that which I have committed unto him against that day.
+For this cause I also suffer these things. Yet I am not ashamed, for I know him whom I have believed, and I am persuaded that he is able to guard that which I have committed to him against that day.

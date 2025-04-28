@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day men shall cast away their idols of silver, and their idols of gold, which have been made for them to worship, to the moles and to the bats;
+In that day, men shall cast away their idols of silver, and their idols of gold, which have been made for themselves to worship, to the moles and to the bats;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hashubah, and Ohel, and Berechiah, and Hasadiah, Jushab-hesed, five.
+and Hashubah, and Ohel, and Berechiah, and Hasadiah, Jushab Hesed, five.

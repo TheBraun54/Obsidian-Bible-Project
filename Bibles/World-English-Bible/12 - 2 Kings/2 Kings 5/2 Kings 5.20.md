@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Gehazi the servant of Elisha the man of God, said, Behold, my master hath spared this Naaman the Syrian, in not receiving at his hands that which he brought: as Jehovah liveth, I will run after him, and take somewhat of him.
+But Gehazi the servant of Elisha the man of God, said, "Behold, my master has spared this Naaman the Syrian, in not receiving at his hands that which he brought. As Yahweh lives, I will run after him, and take something from him."

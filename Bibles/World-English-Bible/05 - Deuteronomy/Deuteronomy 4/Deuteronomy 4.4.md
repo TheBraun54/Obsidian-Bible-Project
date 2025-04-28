@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye that did cleave unto Jehovah your God are alive every one of you this day.
+But you who did cling to Yahweh your God are all alive this day.

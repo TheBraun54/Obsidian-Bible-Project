@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he seeth his children, the work of my hands, in the midst of him, they shall sanctify my name; yea, they shall sanctify the Holy One of Jacob, and shall stand in awe of the God of Israel.
+But when he sees his children, the work of my hands, in the midst of him, they will sanctify my name. Yes, they will sanctify the Holy One of Jacob, and will stand in awe of the God of Israel.

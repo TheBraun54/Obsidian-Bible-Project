@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after this, that Nahash the king of the children of Ammon died, and his son reigned in his stead.
+It happened after this, that Nahash the king of the children of Ammon died, and his son reigned in his place.

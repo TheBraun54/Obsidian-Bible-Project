@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will make thee a terror, and thou shalt no more have any being; though thou be sought for, yet shalt thou never be found again, saith the Lord Jehovah.
+I will make you a terror, and you shall no more have any being; though you are sought for, yet you will never be found again, says the Lord Yahweh.

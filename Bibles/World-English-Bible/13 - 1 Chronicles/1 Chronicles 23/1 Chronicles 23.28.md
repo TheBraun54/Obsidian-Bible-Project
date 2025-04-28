@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their office was to wait on the sons of Aaron for the service of the house of Jehovah, in the courts, and in the chambers, and in the purifying of all holy things, even the work of the service of the house of God;
+For their office was to wait on the sons of Aaron for the service of the house of Yahweh, in the courts, and in the rooms, and in the purifying of all holy things, even the work of the service of the house of God;

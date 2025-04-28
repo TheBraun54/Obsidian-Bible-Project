@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is life eternal, that they should know thee the only true God, and him whom thou didst send, [even] Jesus Christ.
+This is eternal life, that they should know you, the only true God, and him whom you sent, Jesus Christ.

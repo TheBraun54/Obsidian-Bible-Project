@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all the families that remain, every family apart, and their wives apart.
+all the families who remain, every family apart, and their wives apart.

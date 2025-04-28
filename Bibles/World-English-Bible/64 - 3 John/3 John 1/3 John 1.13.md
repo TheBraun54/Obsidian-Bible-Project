@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I had many things to write unto thee, but I am unwilling to write [them] to thee with ink and pen:
+I had many things to write to you, but I am unwilling to write to you with ink and pen;

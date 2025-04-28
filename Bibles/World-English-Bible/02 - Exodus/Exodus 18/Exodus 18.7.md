@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went out to meet his father-in-law, and did obeisance, and kissed him; and they asked each other of their welfare; and they came into the tent.
+Moses went out to meet his father-in-law, and bowed and kissed him. They asked each other of their welfare, and they came into the tent.

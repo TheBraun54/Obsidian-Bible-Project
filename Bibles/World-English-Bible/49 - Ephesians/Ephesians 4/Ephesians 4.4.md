@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ There is] one body, and one Spirit, even as also ye were called in one hope of your calling;
+There is one body, and one Spirit, even as you also were called in one hope of your calling;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto his servants, Know ye not that there is a prince and a great man fallen this day in Israel?
+The king said to his servants, "Don't you know that there a prince and a great man has fallen this day in Israel?

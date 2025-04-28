@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every open vessel, which hath no covering bound upon it, is unclean.
+Every open vessel, which has no covering bound on it, is unclean.

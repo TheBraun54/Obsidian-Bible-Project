@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The womb shall forget him; The worm shall feed sweetly on him; He shall be no more remembered; And unrighteousness shall be broken as a tree.
+The womb shall forget him. The worm shall feed sweetly on him. He shall be no more remembered. Unrighteousness shall be broken as a tree.

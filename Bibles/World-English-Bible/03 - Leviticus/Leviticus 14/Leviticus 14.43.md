@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the plague come again, and break out in the house, after that he hath taken out the stones, and after he hath scraped the house, and after it is plastered;
+"If the plague comes again, and breaks out in the house, after he has taken out the stones, and after he has scraped the house, and after it was plastered;

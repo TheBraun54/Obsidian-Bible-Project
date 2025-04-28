@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give no occasions of stumbling, either to Jews, or to Greeks, or to the church of God:
+Give no occasions for stumbling, either to Jews, or to Greeks, or to the assembly of God;

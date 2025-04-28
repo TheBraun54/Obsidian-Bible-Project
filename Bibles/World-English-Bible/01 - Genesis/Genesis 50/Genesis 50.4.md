@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the days of weeping for him were past, Joseph spake unto the house of Pharaoh, saying, If now I have found favor in your eyes, speak, I pray you, in the ears of Pharaoh, saying,
+When the days of weeping for him were past, Joseph spoke to the house of Pharaoh, saying, "If now I have found favor in your eyes, please speak in the ears of Pharaoh, saying,

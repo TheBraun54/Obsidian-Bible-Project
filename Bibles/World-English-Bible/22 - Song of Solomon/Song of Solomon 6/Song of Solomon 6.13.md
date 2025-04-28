@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return, return, O Shulammite; Return, return, that we may look upon thee. Why will ye look upon the Shulammite, As upon the dance of Mahanaim?
+Return, return, Shulammite! Return, return, that we may gaze at you. Lover Why do you desire to gaze at the Shulammite, as at the dance of Mahanaim?

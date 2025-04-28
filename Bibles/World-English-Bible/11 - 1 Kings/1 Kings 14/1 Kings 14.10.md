@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I will bring evil upon the house of Jeroboam, and will cut off from Jeroboam every man-child, him that is shut up and him that is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweepeth away dung, till it be all gone.
+therefore, behold, I will bring evil on the house of Jeroboam, and will cut off from Jeroboam everyone who urinates on a wall, he who is shut up and he who is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweeps away dung, until it is all gone.

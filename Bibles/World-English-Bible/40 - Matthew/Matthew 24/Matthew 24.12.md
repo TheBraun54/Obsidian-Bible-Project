@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And because iniquity shall be multiplied, the love of the many shall wax cold.
+Because iniquity will be multiplied, the love of many will grow cold.

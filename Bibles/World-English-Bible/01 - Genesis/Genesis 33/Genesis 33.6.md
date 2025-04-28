@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the handmaids came near, they and their children, and they bowed themselves.
+Then the handmaids came near with their children, and they bowed themselves.

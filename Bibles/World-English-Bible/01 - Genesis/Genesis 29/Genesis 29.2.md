@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked, and, behold, a well in the field, and, lo, three flocks of sheep lying there by it; for out of that well they watered the flocks: and the stone upon the well's mouth was great.
+He looked, and behold, a well in the field, and, behold, three flocks of sheep lying there by it. For out of that well they watered the flocks. The stone on the well's mouth was large.

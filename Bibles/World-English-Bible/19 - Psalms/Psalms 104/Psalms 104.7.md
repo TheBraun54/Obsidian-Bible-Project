@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At thy rebuke they fled; At the voice of thy thunder they hasted away
+At your rebuke they fled. At the voice of your thunder they hurried away.

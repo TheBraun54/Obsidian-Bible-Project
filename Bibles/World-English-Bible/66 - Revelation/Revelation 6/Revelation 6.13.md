@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the stars of the heaven fell unto the earth, as a fig tree casteth her unripe figs when she is shaken of a great wind.
+The stars of the sky fell to the earth, like a fig tree dropping its unripe figs when it is shaken by a great wind.

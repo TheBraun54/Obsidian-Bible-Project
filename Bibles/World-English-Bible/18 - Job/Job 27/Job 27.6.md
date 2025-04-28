@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My righteousness I hold fast, and will not let it go: My heart shall not reproach [me] so long as I live.
+I hold fast to my righteousness, and will not let it go. My heart shall not reproach me so long as I live.

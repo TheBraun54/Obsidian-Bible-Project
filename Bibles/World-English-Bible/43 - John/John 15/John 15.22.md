@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I had not come and spoken unto them, they had not had sin: but now they have no excuse for their sin.
+If I had not come and spoken to them, they would not have had sin; but now they have no excuse for their sin.

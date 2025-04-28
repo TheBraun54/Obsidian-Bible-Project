@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou shalt forget thy misery; Thou shalt remember it as waters that are passed away,
+for you shall forget your misery. You shall remember it as waters that are passed away.

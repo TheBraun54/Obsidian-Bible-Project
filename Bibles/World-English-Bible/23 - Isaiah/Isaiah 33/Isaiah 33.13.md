@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, ye that are far off, what I have done; and, ye that are near, acknowledge my might.
+Hear, you who are far off, what I have done; and, you who are near, acknowledge my might."

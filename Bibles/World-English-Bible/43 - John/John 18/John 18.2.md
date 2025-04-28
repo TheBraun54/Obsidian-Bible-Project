@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Judas also, who betrayed him, knew the place: for Jesus oft-times resorted thither with his disciples.
+Now Judas, who betrayed him, also knew the place, for Jesus often met there with his disciples.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was the secret revealed unto Daniel in a vision of the night. Then Daniel blessed the God of heaven.
+Then was the secret revealed to Daniel in a vision of the night. Then Daniel blessed the God of heaven.

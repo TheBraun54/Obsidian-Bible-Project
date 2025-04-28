@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath made everything for its own end; Yea, even the wicked for the day of evil.
+Yahweh has made everything for its own end-- yes, even the wicked for the day of evil.

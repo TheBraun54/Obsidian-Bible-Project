@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Eliashib the high priest rose up with his brethren the priests, and they builded the sheep gate; they sanctified it, and set up the doors of it; even unto the tower of Hammeah they sanctified it, unto the tower of Hananel.
+Then Eliashib the high priest rose up with his brothers the priests, and they built the sheep gate; they sanctified it, and set up its doors; even to the tower of Hammeah they sanctified it, to the tower of Hananel.

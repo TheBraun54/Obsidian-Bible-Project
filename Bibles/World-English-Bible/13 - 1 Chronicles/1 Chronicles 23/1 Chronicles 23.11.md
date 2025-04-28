@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jahath was the chief, and Zizah the second: but Jeush and Beriah had not many sons; therefore they became a fathers' house in one reckoning.
+Jahath was the chief, and Zizah the second: but Jeush and Beriah didn't have many sons; therefore they became a fathers' house in one reckoning.

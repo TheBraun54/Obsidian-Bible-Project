@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt come unto the priest that shall be in those days, and say unto him, I profess this day unto Jehovah thy God, that I am come unto the land which Jehovah sware unto our fathers to give us.
+You shall come to the priest who shall be in those days, and tell him, "I profess this day to Yahweh your God, that I am come to the land which Yahweh swore to our fathers to give us."

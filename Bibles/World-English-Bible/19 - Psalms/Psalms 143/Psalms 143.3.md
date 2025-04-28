@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the enemy hath persecuted my soul; He hath smitten my life down to the ground: He hath made me to dwell in dark places, as those that have been long dead.
+For the enemy pursues my soul. He has struck my life down to the ground. He has made me live in dark places, as those who have been long dead.

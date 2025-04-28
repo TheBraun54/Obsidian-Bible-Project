@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be in the land famine, if there be pestilence, if there be blasting or mildew, locust or caterpillar; if their enemies besiege them in the land of their cities; whatsoever plague or whatsoever sickness there be;
+"If there is famine in the land, if there is pestilence, if there is blight or mildew, locust or caterpillar; if their enemies besiege them in the land of their cities; whatever plague or whatever sickness there is;

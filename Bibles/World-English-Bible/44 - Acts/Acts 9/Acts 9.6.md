@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but rise, and enter into the city, and it shall be told thee what thou must do.
+But rise up, and enter into the city, and you will be told what you must do."

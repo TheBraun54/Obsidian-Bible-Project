@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for oftentimes also thine own heart knoweth that thou thyself likewise hast cursed others.
+for often your own heart knows that you yourself have likewise cursed others.

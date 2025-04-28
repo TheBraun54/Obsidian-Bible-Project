@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim, he mixeth himself among the peoples; Ephraim is a cake not turned.
+Ephraim, he mixes himself among the nations. Ephraim is a pancake not turned over.

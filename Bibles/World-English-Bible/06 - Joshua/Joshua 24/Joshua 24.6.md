@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I brought your fathers out of Egypt: and ye came unto the sea; and the Egyptians pursued after your fathers with chariots and with horsemen unto the Red Sea.
+I brought your fathers out of Egypt: and you came to the sea. The Egyptians pursued after your fathers with chariots and with horsemen to the Red Sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the princes unto Baruch, Go, hide thee, thou and Jeremiah; and let no man know where ye are.
+Then the princes said to Baruch, Go, hide, you and Jeremiah; and let no man know where you are.

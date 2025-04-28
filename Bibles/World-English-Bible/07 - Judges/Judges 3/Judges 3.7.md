@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did that which was evil in the sight of Jehovah, and forgat Jehovah their God, and served the Baalim and the Asheroth.
+The children of Israel did that which was evil in the sight of Yahweh, and forgot Yahweh their God, and served the Baals and the Asheroth.

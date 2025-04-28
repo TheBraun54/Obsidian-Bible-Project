@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they arose and went over by number: twelve for Benjamin, and for Ish-bosheth the son of Saul, and twelve of the servants of David.
+Then they arose and went over by number: twelve for Benjamin, and for Ishbosheth the son of Saul, and twelve of the servants of David.

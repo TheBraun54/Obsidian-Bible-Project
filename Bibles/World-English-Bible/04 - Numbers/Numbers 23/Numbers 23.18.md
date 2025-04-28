@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took up his parable, and said, Rise up, Balak, and hear; Hearken unto me, thou son of Zippor:
+He took up his parable, and said, "Rise up, Balak, and hear! Listen to me, you son of Zippor.

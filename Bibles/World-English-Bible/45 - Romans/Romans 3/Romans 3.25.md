@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom God set forth [to be] a propitiation, through faith, in his blood, to show his righteousness because of the passing over of the sins done aforetime, in the forbearance of God;
+whom God set forth to be an atoning sacrifice, through faith in his blood, for a demonstration of his righteousness through the passing over of prior sins, in God's forbearance;

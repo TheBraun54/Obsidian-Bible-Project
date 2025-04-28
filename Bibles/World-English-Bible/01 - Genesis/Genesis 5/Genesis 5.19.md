@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jared lived after he begat Enoch eight hundred years, and begat sons and daughters:
+Jared lived after he became the father of Enoch eight hundred years, and became the father of sons and daughters.

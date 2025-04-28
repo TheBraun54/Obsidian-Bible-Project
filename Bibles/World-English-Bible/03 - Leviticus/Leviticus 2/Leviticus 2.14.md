@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou offer a meal-offering of first-fruits unto Jehovah, thou shalt offer for the meal-offering of thy first-fruits grain in the ear parched with fire, bruised grain of the fresh ear.
+"'If you offer a meal offering of first fruits to Yahweh, you shall offer for the meal offering of your first fruits grain in the ear parched with fire, bruised grain of the fresh ear.

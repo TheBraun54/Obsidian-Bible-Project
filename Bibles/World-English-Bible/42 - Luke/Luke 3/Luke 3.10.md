@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitudes asked him, saying, What then must we do?
+The multitudes asked him, "What then must we do?"

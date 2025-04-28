@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forsake me not, O Jehovah: O my God, be not far from me.
+Don't forsake me, Yahweh. My God, don't be far from me.

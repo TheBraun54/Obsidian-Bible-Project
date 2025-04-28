@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto them, Verily, verily, I say unto you, Before Abraham was born, I am.
+Jesus said to them, "Most certainly, I tell you, before Abraham came into existence, I AM."

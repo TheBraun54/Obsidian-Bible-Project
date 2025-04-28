@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our inheritance is turned unto strangers, Our houses unto aliens.
+Our inheritance is turned to strangers, Our houses to aliens.

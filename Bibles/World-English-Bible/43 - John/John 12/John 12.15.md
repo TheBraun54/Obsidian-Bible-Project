@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not, daughter of Zion: behold, thy King cometh, sitting on an ass's colt.
+"Don't be afraid, daughter of Zion. Behold, your King comes, sitting on a donkey's colt."

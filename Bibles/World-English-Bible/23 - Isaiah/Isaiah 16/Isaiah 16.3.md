@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give counsel, execute justice; make thy shade as the night in the midst of the noonday; hide the outcasts; betray not the fugitive.
+Give counsel! Execute justice! Make your shade like the night in the midst of the noonday! Hide the outcasts! Don't betray the fugitive!

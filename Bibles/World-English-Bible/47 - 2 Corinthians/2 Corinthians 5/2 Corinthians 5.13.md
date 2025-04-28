@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whether we are beside ourselves, it is unto God; or whether we are of sober mind, it is unto you.
+For if we are beside ourselves, it is for God. Or if we are of sober mind, it is for you.

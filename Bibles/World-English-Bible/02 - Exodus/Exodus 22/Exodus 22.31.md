@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be holy men unto me: therefore ye shall not eat any flesh that is torn of beasts in the field; ye shall cast it to the dogs.
+"You shall be holy men to me, therefore you shall not eat any flesh that is torn by animals in the field. You shall cast it to the dogs.

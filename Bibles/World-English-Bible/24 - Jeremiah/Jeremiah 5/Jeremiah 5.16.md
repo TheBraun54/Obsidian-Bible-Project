@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their quiver is an open sepulchre, they are all mighty men.
+Their quiver is an open tomb, they are all mighty men.

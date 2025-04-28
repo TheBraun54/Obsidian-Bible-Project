@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All these were of the sons of Obed-edom: they and their sons and their brethren, able men in strength for the service; threescore and two of Obed-edom.
+All these were of the sons of Obed-Edom: they and their sons and their brothers, able men in strength for the service; sixty-two of Obed-Edom.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith Pilate unto him, Hearest thou not how many things they witness against thee?
+Then Pilate said to him, "Don't you hear how many things they testify against you?"

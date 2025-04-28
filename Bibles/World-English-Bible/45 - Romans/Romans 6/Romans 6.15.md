@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then? shall we sin, because we are not under law, but under grace? God forbid.
+What then? Shall we sin, because we are not under law, but under grace? May it never be!

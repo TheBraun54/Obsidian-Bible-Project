@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Harim, three hundred and twenty.
+The children of Harim, three hundred twenty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esau said unto his father, Hast thou but one blessing, my father? Bless me, even me also, O my father. And Esau lifted up his voice, and wept.
+Esau said to his father, "Have you but one blessing, my father? Bless me, even me also, my father." Esau lifted up his voice, and wept.

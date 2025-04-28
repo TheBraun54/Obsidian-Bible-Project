@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when a man shall sanctify his house to be holy unto Jehovah, then the priest shall estimate it, whether it be good or bad: as the priest shall estimate it, so shall it stand.
+"'When a man dedicates his house to be holy to Yahweh, then the priest shall evaluate it, whether it is good or bad: as the priest shall evaluate it, so shall it stand.

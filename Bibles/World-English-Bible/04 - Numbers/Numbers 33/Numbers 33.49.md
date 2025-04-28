@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they encamped by the Jordan, from Beth-jeshimoth even unto Abel-shittim in the plains of Moab.
+They encamped by the Jordan, from Beth Jeshimoth even to Abel Shittim in the plains of Moab.

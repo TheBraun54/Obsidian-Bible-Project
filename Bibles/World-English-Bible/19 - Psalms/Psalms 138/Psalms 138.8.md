@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will perfect that which concerneth me: Thy lovingkindness, O Jehovah, [endureth] for ever; Forsake not the works of thine own hands.
+Yahweh will fulfill that which concerns me; your loving kindness, Yahweh, endures forever. Don't forsake the works of your own hands. For the Chief Musician. A Psalm by David.

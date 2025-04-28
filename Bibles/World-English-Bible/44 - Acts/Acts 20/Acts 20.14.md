@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he met us at Assos, we took him in, and came to Mitylene.
+When he met us at Assos, we took him aboard, and came to Mitylene.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my God shall supply every need of yours according to his riches in glory in Christ Jesus.
+My God will supply every need of yours according to his riches in glory in Christ Jesus.

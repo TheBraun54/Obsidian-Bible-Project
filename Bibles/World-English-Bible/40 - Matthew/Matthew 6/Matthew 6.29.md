@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet I say unto you, that even Solomon in all his glory was not arrayed like one of these.
+yet I tell you that even Solomon in all his glory was not dressed like one of these.

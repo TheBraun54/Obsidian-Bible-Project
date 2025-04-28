@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, hath not the house of Israel, the rebellious house, said unto thee, What doest thou?
+Son of man, has not the house of Israel, the rebellious house, said to you, What are you doing?

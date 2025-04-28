@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And death and Hades were cast into the lake of fire. This is the second death, [even] the lake of fire.
+Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire.

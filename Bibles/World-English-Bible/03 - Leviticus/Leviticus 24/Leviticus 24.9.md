@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be for Aaron and his sons; and they shall eat it in a holy place: for it is most holy unto him of the offerings of Jehovah made by fire by a perpetual statute.
+It shall be for Aaron and his sons; and they shall eat it in a holy place: for it is most holy to him of the offerings of Yahweh made by fire by a perpetual statute."

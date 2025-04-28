@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou meet thine enemy's ox or his ass going astray, thou shalt surely bring it back to him again.
+"If you meet your enemy's ox or his donkey going astray, you shall surely bring it back to him again.

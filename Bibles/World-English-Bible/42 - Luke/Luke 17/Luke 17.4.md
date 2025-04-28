@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he sin against thee seven times in the day, and seven times turn again to thee, saying, I repent; thou shalt forgive him.
+If he sins against you seven times in the day, and seven times returns, saying, 'I repent,' you shall forgive him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham gave all that he had unto Isaac.
+Abraham gave all that he had to Isaac,

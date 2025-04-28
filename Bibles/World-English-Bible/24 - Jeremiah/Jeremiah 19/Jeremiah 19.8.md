@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make this city an astonishment, and a hissing; every one that passeth thereby shall be astonished and hiss because of all the plagues thereof.
+I will make this city an astonishment, and a hissing; everyone who passes thereby shall be astonished and hiss because of all its plagues.

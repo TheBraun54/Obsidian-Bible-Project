@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou art fair, my beloved, yea, pleasant: Also our couch is green.
+Behold, you are beautiful, my beloved, yes, pleasant; and our couch is verdant. Lover

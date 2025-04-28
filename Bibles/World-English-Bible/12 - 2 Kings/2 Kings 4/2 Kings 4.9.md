@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto her husband, Behold now, I perceive that this is a holy man of God, that passeth by us continually.
+She said to her husband, "See now, I perceive that this is a holy man of God, that passes by us continually.

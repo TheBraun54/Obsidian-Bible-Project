@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say ye of the righteous, that [it shall be] well [with him] ; for they shall eat the fruit of their doings.
+Tell the righteous "Good!" For they shall eat the fruit of their deeds.

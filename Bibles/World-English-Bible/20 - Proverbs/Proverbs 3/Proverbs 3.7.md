@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not wise in thine own eyes; Fear Jehovah, and depart from evil:
+Don't be wise in your own eyes. Fear Yahweh, and depart from evil.

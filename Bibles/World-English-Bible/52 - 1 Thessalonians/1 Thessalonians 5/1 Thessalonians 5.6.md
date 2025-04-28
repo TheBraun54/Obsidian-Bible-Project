@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so then let us not sleep, as do the rest, but let us watch and be sober.
+so then let's not sleep, as the rest do, but let's watch and be sober.

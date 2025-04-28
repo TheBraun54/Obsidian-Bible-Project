@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast laid me in the lowest pit, In dark places, in the deeps.
+You have laid me in the lowest pit, in the darkest depths.

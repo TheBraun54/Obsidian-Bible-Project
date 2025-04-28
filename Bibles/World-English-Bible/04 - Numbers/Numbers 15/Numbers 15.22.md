@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye shall err, and not observe all these commandments, which Jehovah hath spoken unto Moses,
+"'When you shall err, and not observe all these commandments, which Yahweh has spoken to Moses,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac came from the way of Beer-lahai-roi; for he dwelt in the land of the South.
+Isaac came from the way of Beer Lahai Roi, for he lived in the land of the South.

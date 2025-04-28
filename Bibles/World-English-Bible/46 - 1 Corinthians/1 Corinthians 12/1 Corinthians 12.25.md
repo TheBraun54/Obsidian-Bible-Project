@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that there should be no schism in the body; but [that] the members should have the same care one for another.
+that there should be no division in the body, but that the members should have the same care for one another.

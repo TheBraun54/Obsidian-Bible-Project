@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore even the first [covenant] hath not been dedicated without blood.
+Therefore even the first covenant has not been dedicated without blood.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lamp of thy body is thine eye: when thine eye is single, thy whole body also is full of light; but when it is evil, thy body also is full of darkness.
+The lamp of the body is the eye. Therefore when your eye is good, your whole body is also full of light; but when it is evil, your body also is full of darkness.

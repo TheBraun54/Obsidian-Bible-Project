@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Israel did so: and Joseph gave them wagons, according to the commandment of Pharaoh, and gave them provision for the way.
+The sons of Israel did so. Joseph gave them wagons, according to the commandment of Pharaoh, and gave them provision for the way.

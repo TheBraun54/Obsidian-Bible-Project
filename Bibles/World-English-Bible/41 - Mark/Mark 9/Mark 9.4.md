@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there appeared unto them Elijah with Moses: and they were talking with Jesus.
+Elijah and Moses appeared to them, and they were talking with Jesus.

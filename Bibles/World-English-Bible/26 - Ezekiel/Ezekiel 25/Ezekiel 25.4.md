@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I will deliver thee to the children of the east for a possession, and they shall set their encampments in thee, and make their dwellings in thee; they shall eat thy fruit, and they shall drink thy milk.
+therefore, behold, I will deliver you to the children of the east for a possession, and they shall set their encampments in you, and make their dwellings in you; they shall eat your fruit, and they shall drink your milk.

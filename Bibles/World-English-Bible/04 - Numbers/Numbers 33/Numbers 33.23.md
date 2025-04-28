@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Kehelathah, and encamped in mount Shepher.
+They traveled from Kehelathah, and encamped in Mount Shepher.

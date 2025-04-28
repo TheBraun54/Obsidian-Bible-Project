@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Serve Jehovah with gladness: Come before his presence with singing.
+Serve Yahweh with gladness. Come before his presence with singing.

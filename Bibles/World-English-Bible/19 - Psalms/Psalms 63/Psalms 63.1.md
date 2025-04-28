@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David, when he was in the wilderness of Judah]. O God, thou art my God; earnestly will I seek thee: My soul thirsteth for thee, my flesh longeth for thee, In a dry and weary land, where no water is.
+God, you are my God. I will earnestly seek you. My soul thirsts for you. My flesh longs for you, in a dry and weary land, where there is no water.

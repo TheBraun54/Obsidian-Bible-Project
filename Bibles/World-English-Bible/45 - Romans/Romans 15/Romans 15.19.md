@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in the power of signs and wonders, in the power of the Holy Spirit; so that from Jerusalem, and round about even unto Illyricum, I have fully preached the gospel of Christ;
+in the power of signs and wonders, in the power of God's Spirit; so that from Jerusalem, and around as far as to Illyricum, I have fully preached the Good News of Christ;

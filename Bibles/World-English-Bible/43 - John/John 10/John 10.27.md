@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My sheep hear my voice, and I know them, and they follow me:
+My sheep hear my voice, and I know them, and they follow me.

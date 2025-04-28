@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in his place shall he honor the god of fortresses; and a god whom his fathers knew not shall he honor with gold, and silver, and with precious stones, and pleasant things.
+But in his place shall he honor the god of fortresses; and a god whom his fathers didn't know shall he honor with gold, and silver, and with precious stones, and pleasant things.

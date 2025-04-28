@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My steps have held fast to thy paths, My feet have not slipped.
+My steps have held fast to your paths. My feet have not slipped.

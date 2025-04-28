@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have called unto thee; Save me, And I shall observe thy testimonies.
+I have called to you. Save me! I will obey your statutes.

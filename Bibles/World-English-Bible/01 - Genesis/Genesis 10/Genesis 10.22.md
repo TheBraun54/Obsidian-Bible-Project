@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Shem: Elam, and Asshur, and Arpachshad, and Lud, and Aram.
+The sons of Shem: Elam, Asshur, Arpachshad, Lud, and Aram.

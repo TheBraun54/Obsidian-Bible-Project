@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Furthermore Jehovah was angry with me for your sakes, and sware that I should not go over the Jordan, and that I should not go in unto that good land, which Jehovah thy God giveth thee for an inheritance:
+Furthermore Yahweh was angry with me for your sakes, and swore that I should not go over the Jordan, and that I should not go in to that good land, which Yahweh your God gives you for an inheritance:

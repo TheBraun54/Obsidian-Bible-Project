@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who forgiveth all thine iniquities; Who healeth all thy diseases;
+who forgives all your sins; who heals all your diseases;

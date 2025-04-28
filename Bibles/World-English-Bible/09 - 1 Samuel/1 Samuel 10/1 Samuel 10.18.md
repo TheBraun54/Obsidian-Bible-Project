@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto the children of Israel, Thus saith Jehovah, the God of Israel, I brought up Israel out of Egypt, and I delivered you out of the hand of the Egyptians, and out of the hand of all the kingdoms that oppressed you:
+and he said to the children of Israel, "Thus says Yahweh, the God of Israel, 'I brought up Israel out of Egypt, and I delivered you out of the hand of the Egyptians, and out of the hand of all the kingdoms that oppressed you:'

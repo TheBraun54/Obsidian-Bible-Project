@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever shall be ashamed of me and of my words in this adulterous and sinful generation, the Son of man also shall be ashamed of him, when he cometh in the glory of his Father with the holy angels.
+For whoever will be ashamed of me and of my words in this adulterous and sinful generation, the Son of Man also will be ashamed of him, when he comes in the glory of his Father with the holy angels."

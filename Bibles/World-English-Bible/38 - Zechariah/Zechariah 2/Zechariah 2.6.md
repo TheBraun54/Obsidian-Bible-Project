@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ho, ho, flee from the land of the north, saith Jehovah; for I have spread you abroad as the four winds of the heavens, saith Jehovah.
+Come! Come! Flee from the land of the north,' says Yahweh; 'for I have spread you abroad as the four winds of the sky,' says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as then he that was born after the flesh persecuted him [that was born] after the Spirit, so also it is now.
+But as then, he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now.

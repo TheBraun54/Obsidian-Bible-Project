@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, therefore, I have smitten my hand at thy dishonest gain which thou hast made, and at thy blood which hath been in the midst of thee.
+Behold, therefore, I have struck my hand at your dishonest gain which you have made, and at your blood which has been in the midst of you.

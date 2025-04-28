@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now unto him that is able to guard you from stumbling, and to set you before the presence of his glory without blemish in exceeding joy,
+Now to him who is able to keep them from stumbling, and to present you faultless before the presence of his glory in great joy,

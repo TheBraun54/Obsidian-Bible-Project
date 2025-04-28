@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the way at the lodging-place, that Jehovah met him, and sought to kill him.
+It happened on the way at a lodging place, that Yahweh met Moses and wanted to kill him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath cast off thy calf, O Samaria; mine anger is kindled against them: how long will it be ere they attain to innocency?
+Let Samaria throw out his calf idol! My anger burns against them! How long will it be until they are capable of purity?

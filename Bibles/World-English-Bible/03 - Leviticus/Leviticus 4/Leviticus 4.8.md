@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the fat of the bullock of the sin-offering he shall take off from it; the fat that covereth the inwards, and all the fat that is upon the inwards,
+He shall take all the fat of the bull of the sin offering off of it; the fat that covers the innards, and all the fat that is on the innards,

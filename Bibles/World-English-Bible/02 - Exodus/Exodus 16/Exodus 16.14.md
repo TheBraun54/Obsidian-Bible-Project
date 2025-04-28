@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the dew that lay was gone up, behold, upon the face of the wilderness a small round thing, small as the hoar-frost on the ground.
+When the dew that lay had gone, behold, on the surface of the wilderness was a small round thing, small as the frost on the ground.

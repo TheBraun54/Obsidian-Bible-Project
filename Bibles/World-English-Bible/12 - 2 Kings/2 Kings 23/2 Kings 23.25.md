@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And like unto him was there no king before him, that turned to Jehovah with all his heart, and with all his soul, and with all his might, according to all the law of Moses; neither after him arose there any like him.
+Like him was there no king before him, who turned to Yahweh with all his heart, and with all his soul, and with all his might, according to all the law of Moses; neither after him arose there any like him.

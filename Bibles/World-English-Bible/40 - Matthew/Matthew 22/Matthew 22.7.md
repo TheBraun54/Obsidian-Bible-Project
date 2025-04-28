@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the king was wroth; and he sent his armies, and destroyed those murderers, and burned their city.
+When the king heard that, he was angry, and sent his armies, destroyed those murderers, and burned their city.

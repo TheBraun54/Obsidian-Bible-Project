@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover by them is thy servant warned: In keeping them there is great reward.
+Moreover by them is your servant warned. In keeping them there is great reward.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy first father sinned, and thy teachers have transgressed against me.
+Your first father sinned, and your teachers have transgressed against me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And then immediately the brethren sent forth Paul to go as far as to the sea: and Silas and Timothy abode there still.
+Then the brothers immediately sent out Paul to go as far as to the sea, and Silas and Timothy still stayed there.

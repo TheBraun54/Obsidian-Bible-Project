@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sea saw it, and fled; The Jordan was driven back.
+The sea saw it, and fled. The Jordan was driven back.

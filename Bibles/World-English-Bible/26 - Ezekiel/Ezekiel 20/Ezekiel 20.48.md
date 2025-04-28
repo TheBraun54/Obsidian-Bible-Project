@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all flesh shall see that I, Jehovah, have kindled it; it shall not be quenched.
+All flesh shall see that I, Yahweh, have kindled it; it shall not be quenched.

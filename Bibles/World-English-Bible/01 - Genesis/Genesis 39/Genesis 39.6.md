@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he left all that he had in Joseph's hand; and he knew not aught [that was] with him, save the bread which he did eat. And Joseph was comely, and well-favored.
+He left all that he had in Joseph's hand. He didn't concern himself with anything, except for the food which he ate. Joseph was well-built and handsome.

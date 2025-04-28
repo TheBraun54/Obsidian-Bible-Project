@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto the young man that told him, Whence art thou? And he answered, I am the son of a sojourner, an Amalekite.
+David said to the young man who told him, "Where are you from?" He answered, "I am the son of a foreigner, an Amalekite."

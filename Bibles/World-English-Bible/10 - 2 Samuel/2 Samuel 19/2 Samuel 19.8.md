@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king arose, and sat in the gate. And they told unto all the people, saying, Behold, the king is sitting in the gate: and all the people came before the king. Now Israel had fled every man to his tent.
+Then the king arose, and sat in the gate. They told to all the people, saying, "Behold, the king is sitting in the gate." All the people came before the king. Now Israel had fled every man to his tent.

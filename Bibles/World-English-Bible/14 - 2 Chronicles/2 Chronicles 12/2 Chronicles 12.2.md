@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the fifth year of king Rehoboam, that Shishak king of Egypt came up against Jerusalem, because they had trespassed against Jehovah,
+It happened in the fifth year of king Rehoboam, that Shishak king of Egypt came up against Jerusalem, because they had trespassed against Yahweh,

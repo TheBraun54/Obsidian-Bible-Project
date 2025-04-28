@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Perez were: of Hezron, the family of the Hezronites; of Hamul, the family of the Hamulites.
+The sons of Perez were: of Hezron, the family of the Hezronites; of Hamul, the family of the Hamulites.

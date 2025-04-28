@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they made way for her; and she went by the way of the horses' entry to the king's house: and there was she slain.
+So they made way for her; and she went by the way of the horses' entry to the king's house. She was slain there.

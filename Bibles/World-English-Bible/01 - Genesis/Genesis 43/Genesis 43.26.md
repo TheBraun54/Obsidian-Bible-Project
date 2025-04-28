@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Joseph came home, they brought him the present which was in their hand into the house, and bowed down themselves to him to the earth.
+When Joseph came home, they brought him the present which was in their hand into the house, and bowed themselves down to him to the earth.

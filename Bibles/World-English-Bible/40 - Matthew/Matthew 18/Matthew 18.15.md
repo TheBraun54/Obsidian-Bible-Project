@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy brother sin against thee, go, show him his fault between thee and him alone: if he hear thee, thou hast gained thy brother.
+"If your brother sins against you, go, show him his fault between you and him alone. If he listens to you, you have gained back your brother.

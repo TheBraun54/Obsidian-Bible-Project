@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the word of Jehovah came unto me, saying, Jeremiah, what seest thou? And I said, I see a rod of an almond-tree.
+Moreover the word of Yahweh came to me, saying, "Jeremiah, what do you see?" I said, "I see a branch of an almond tree."

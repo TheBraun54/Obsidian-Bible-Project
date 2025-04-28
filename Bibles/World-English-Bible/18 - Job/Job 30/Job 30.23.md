@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know that thou wilt bring me to death, And to the house appointed for all living.
+For I know that you will bring me to death, To the house appointed for all living.

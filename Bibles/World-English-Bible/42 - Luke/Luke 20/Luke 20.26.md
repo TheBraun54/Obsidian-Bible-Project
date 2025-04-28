@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were not able to take hold of the saying before the people: and they marvelled at his answer, and held their peace.
+They weren't able to trap him in his words before the people. They marveled at his answer, and were silent.

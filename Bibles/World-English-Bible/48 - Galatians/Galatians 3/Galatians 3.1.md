@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O foolish Galatians, who did bewitch you, before whose eyes Jesus Christ was openly set forth crucified?
+Foolish Galatians, who has bewitched you not to obey the truth, before whose eyes Jesus Christ was openly set forth among you as crucified?

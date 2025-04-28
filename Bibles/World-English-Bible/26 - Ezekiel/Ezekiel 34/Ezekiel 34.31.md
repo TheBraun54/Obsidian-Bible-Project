@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye my sheep, the sheep of my pasture, are men, and I am your God, saith the Lord Jehovah.
+You my sheep, the sheep of my pasture, are men, and I am your God, says the Lord Yahweh.

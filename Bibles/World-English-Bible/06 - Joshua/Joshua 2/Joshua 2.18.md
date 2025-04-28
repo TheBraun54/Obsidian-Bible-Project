@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, when we come into the land, thou shalt bind this line of scarlet thread in the window which thou didst let us down by: and thou shalt gather unto thee into the house thy father, and thy mother, and thy brethren, and all thy father's household.
+Behold, when we come into the land, you shall bind this line of scarlet thread in the window which you did let us down by. You shall gather to yourself into the house your father, your mother, your brothers, and all your father's household.

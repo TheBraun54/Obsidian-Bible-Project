@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though I have taught and strengthened their arms, yet do they devise mischief against me.
+Though I have taught and strengthened their arms, yet they plot evil against me.

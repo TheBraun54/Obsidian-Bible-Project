@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ah Lord Jehovah! behold, thou hast made the heavens and the earth by thy great power and by thine outstretched arm; there is nothing too hard for thee,
+Ah Lord Yahweh! Behold, you have made the heavens and the earth by your great power and by your outstretched arm; there is nothing too hard for you,

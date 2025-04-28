@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who sent signs and wonders into the midst of thee, O Egypt, Upon Pharaoh, and upon all his servants;
+Who sent signs and wonders into the midst of you, Egypt, on Pharaoh, and on all his servants;

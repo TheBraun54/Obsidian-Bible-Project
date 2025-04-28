@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where is the den of the lions, and the feeding-place of the young lions, where the lion [and] the lioness walked, the lion's whelp, and none made them afraid?
+Where is the den of the lions, and the feeding place of the young lions, where the lion and the lioness walked, the lion's cubs, and no one made them afraid?

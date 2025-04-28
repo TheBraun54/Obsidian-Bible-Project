@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have not written unto you because ye know not the truth, but because ye know it, and because no lie is of the truth.
+I have not written to you because you don't know the truth, but because you know it, and because no lie is of the truth.

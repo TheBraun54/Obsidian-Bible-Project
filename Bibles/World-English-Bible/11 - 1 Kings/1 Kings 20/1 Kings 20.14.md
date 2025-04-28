@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab said, By whom? And he said, Thus saith Jehovah, By the young men of the princes of the provinces. Then he said, Who shall begin the battle? And he answered, Thou.
+Ahab said, "By whom?" He said, "Thus says Yahweh, 'By the young men of the princes of the provinces.'" Then he said, "Who shall begin the battle?" He answered, "You."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the anointing oil, and the incense of sweet spices for the holy place: according to all that I have commanded thee shall they do.
+the anointing oil, and the incense of sweet spices for the holy place: according to all that I have commanded you they shall do."

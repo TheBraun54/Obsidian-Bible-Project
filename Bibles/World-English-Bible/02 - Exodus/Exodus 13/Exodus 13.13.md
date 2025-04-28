@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every firstling of an ass thou shalt redeem with a lamb; and if thou wilt not redeem it, then thou shalt break its neck: and all the first-born of man among thy sons shalt thou redeem.
+Every firstborn of a donkey you shall redeem with a lamb; and if you will not redeem it, then you shall break its neck; and you shall redeem all the firstborn of man among your sons.

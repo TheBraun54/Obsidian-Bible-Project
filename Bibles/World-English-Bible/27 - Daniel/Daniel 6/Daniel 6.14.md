@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king, when he heard these words, was sore displeased, and set his heart on Daniel to deliver him; and he labored till the going down of the sun to rescue him.
+Then the king, when he heard these words, was very displeased, and set his heart on Daniel to deliver him; and he labored until the going down of the sun to rescue him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A cheerful heart is a good medicine; But a broken spirit drieth up the bones.
+A cheerful heart makes good medicine, but a crushed spirit dries up the bones.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when I was present with you and was in want, I was not a burden on any man; for the brethren, when they came from Macedonia, supplied the measure of my want; and in everything I kept myself from being burdensome unto you, and [so] will I keep [myself] .
+When I was present with you and was in need, I wasn't a burden on anyone, for the brothers, when they came from Macedonia, supplied the measure of my need. In everything I kept myself from being burdensome to you, and I will continue to do so.

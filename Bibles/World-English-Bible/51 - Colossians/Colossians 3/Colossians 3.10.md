@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and have put on the new man, that is being renewed unto knowledge after the image of him that created him:
+and have put on the new man, who is being renewed in knowledge after the image of his Creator,

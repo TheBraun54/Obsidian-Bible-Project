@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For before the child shall have knowledge to cry, My father, and, My mother, the riches of Damascus and the spoil of Samaria shall be carried away before the king of Assyria.
+For before the child knows how to say, 'My father,' and, 'My mother,' the riches of Damascus and the spoil of Samaria will be carried away by the king of Assyria."

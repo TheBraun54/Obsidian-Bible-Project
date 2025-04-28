@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that gathereth in summer is a wise son; [But] he that sleepeth in harvest is a son that causeth shame.
+He who gathers in summer is a wise son, but he who sleeps during the harvest is a son who causes shame.

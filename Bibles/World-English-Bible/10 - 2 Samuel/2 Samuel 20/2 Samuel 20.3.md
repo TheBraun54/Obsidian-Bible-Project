@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David came to his house at Jerusalem; and the king took the ten women his concubines, whom he had left to keep the house, and put them in ward, and provided them with sustenance, but went not in unto them. So they were shut up unto the day of their death, living in widowhood.
+David came to his house at Jerusalem; and the king took the ten women his concubines, whom he had left to keep the house, and put them in custody, and provided them with sustenance, but didn't go in to them. So they were shut up to the day of their death, living in widowhood.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at even, when the sun did set, they brought unto him all that were sick, and them that were possessed with demons.
+At evening, when the sun had set, they brought to him all who were sick, and those who were possessed by demons.

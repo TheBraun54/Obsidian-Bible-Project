@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by so much also hath Jesus become the surety of a better covenant.
+By so much, Jesus has become the collateral of a better covenant.

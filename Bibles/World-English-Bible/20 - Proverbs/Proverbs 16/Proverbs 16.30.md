@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that shutteth his eyes, [it is] to devise perverse things: He that compresseth his lips bringeth evil to pass.
+One who winks his eyes to plot perversities, one who compresses his lips, is bent on evil.

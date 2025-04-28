@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he knew not what to answer; for they became sore afraid.
+For he didn't know what to say, for they were very afraid.

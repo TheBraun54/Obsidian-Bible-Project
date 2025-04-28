@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn thee unto me, and have mercy upon me, As thou usest to do unto those that love thy name.
+Turn to me, and have mercy on me, as you always do to those who love your name.

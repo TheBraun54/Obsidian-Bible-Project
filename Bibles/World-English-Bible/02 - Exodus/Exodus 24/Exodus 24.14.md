@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto the elders, Tarry ye here for us, until we come again unto you: and, behold, Aaron and Hur are with you; whosoever hath a cause, let him come near unto them.
+He said to the elders, "Wait here for us, until we come again to you. Behold, Aaron and Hur are with you. Whoever is involved in a dispute can go to them."

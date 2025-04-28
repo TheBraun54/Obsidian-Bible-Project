@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Believest thou not that I am in the Father, and the Father in me? the words that I say unto you I speak not from myself: but the Father abiding in me doeth his works.
+Don't you believe that I am in the Father, and the Father in me? The words that I tell you, I speak not from myself; but the Father who lives in me does his works.

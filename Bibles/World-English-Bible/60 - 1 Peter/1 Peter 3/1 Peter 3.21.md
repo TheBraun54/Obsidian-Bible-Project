@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which also after a true likeness doth now save you, [even] baptism, not the putting away of the filth of the flesh, but the interrogation of a good conscience toward God, through the resurrection of Jesus Christ;
+This is a symbol of baptism, which now saves you--not the putting away of the filth of the flesh, but the answer of a good conscience toward God, through the resurrection of Jesus Christ,

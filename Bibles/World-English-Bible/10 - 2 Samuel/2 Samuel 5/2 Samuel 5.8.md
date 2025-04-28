@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said on that day, Whosoever smiteth the Jebusites, let him get up to the watercourse, and [smite] the lame and the blind, that are hated of David's soul. Wherefore they say, There are the blind and the lame; he cannot come into the house.
+David said on that day, "Whoever strikes the Jebusites, let him get up to the watercourse, and strike the lame and the blind, who are hated by David's soul." Therefore they say, "The blind and the lame can't come into the house."

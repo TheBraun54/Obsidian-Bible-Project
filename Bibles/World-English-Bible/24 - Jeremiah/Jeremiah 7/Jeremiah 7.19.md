@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do they provoke me to anger? saith Jehovah; [do they] not [provoke] themselves, to the confusion of their own faces?
+Do they provoke me to anger? says Yahweh; [do they] not [provoke] themselves, to the confusion of their own faces?

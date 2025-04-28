@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for, lo, thou shalt conceive, and bear a son; and no razor shall come upon his head; for the child shall be a Nazirite unto God from the womb: and he shall begin to save Israel out of the hand of the Philistines.
+for, behold, you shall conceive, and bear a son; and no razor shall come on his head; for the child shall be a Nazirite to God from the womb: and he shall begin to save Israel out of the hand of the Philistines."

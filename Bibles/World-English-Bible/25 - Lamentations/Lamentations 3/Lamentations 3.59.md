@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, thou hast seen my wrong; judge thou my cause.
+Yahweh, you have seen my wrong. Judge my cause.

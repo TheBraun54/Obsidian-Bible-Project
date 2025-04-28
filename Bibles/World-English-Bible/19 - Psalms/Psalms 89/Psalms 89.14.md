@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Righteousness and justice are the foundation of thy throne: Lovingkindness and truth go before thy face.
+Righteousness and justice are the foundation of your throne. Loving kindness and truth go before your face.

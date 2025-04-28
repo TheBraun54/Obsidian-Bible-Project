@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall come with weeping; and with supplications will I lead them: I will cause them to walk by rivers of waters, in a straight way wherein they shall not stumble; for I am a father to Israel, and Ephraim is my first-born.
+They shall come with weeping; and with petitions will I lead them: I will cause them to walk by rivers of waters, in a straight way in which they shall not stumble; for I am a father to Israel, and Ephraim is my firstborn.

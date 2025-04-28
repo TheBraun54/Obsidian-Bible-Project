@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The enemy said, I will pursue, I will overtake, I will divide the spoil; My desire shall be satisfied upon them; I will draw my sword, my hand shall destroy them.
+The enemy said, 'I will pursue. I will overtake. I will divide the spoil. My desire shall be satisfied on them. I will draw my sword, my hand shall destroy them.'

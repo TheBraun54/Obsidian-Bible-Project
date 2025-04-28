@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter answered unto her, Tell me whether ye sold the land for so much. And she said, Yea, for so much.
+Peter answered her, "Tell me whether you sold the land for so much." She said, "Yes, for so much."

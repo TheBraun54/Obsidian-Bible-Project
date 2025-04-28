@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she called the name of Jehovah that spake unto her, Thou art a God that seeth: for she said, Have I even here looked after him that seeth me?
+She called the name of Yahweh who spoke to her, "You are a God who sees," for she said, "Have I even stayed alive after seeing him?"

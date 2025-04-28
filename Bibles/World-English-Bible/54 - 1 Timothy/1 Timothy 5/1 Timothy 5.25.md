@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In like manner also there are good works that are evident; and such as are otherwise cannot be hid.
+In the same way also there are good works that are obvious, and those that are otherwise can't be hidden.

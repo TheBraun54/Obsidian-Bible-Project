@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No one taketh it away from me, but I lay it down of myself. I have power to lay it down, and I have power to take it again. This commandment received I from my Father.
+No one takes it away from me, but I lay it down by myself. I have power to lay it down, and I have power to take it again. I received this commandment from my Father."

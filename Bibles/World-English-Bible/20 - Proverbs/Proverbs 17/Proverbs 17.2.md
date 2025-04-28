@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A servant that dealeth wisely shall have rule over a son that causeth shame, And shall have part in the inheritance among the brethren.
+A servant who deals wisely will rule over a son who causes shame, and shall have a part in the inheritance among the brothers.

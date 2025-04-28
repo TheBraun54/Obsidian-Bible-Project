@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How then was it reckoned? when he was in circumcision, or in uncircumcision? Not in circumcision, but in uncircumcision:
+How then was it counted? When he was in circumcision, or in uncircumcision? Not in circumcision, but in uncircumcision.

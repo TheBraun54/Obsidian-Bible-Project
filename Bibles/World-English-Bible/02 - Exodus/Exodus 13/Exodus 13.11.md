@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when Jehovah shall bring thee into the land of the Canaanite, as he sware unto thee and to thy fathers, and shall give it thee,
+"It shall be, when Yahweh shall bring you into the land of the Canaanite, as he swore to you and to your fathers, and shall give it you,

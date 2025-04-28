@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not suffer a sorceress to live.
+"You shall not allow a sorceress to live.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there was given to him a mouth speaking great things and blasphemies; and there was given to him authority to continue forty and two months.
+A mouth speaking great things and blasphemy was given to him. Authority to make war for forty-two months was given to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was gone out into the porch, another [maid] saw him, and saith unto them that were there, This man also was with Jesus of Nazareth.
+When he had gone out onto the porch, someone else saw him, and said to those who were there, "This man also was with Jesus of Nazareth."

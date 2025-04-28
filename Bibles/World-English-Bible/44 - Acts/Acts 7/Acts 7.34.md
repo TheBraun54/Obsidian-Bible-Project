@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have surely seen the affliction of my people that is in Egypt, and have heard their groaning, and I am come down to deliver them: and now come, I will send thee into Egypt.
+I have surely seen the affliction of my people that is in Egypt, and have heard their groaning. I have come down to deliver them. Now come, I will send you into Egypt.'

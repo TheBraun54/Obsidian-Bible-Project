@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they removed the burnt-offerings, that they might give them according to the divisions of the fathers' houses of the children of the people, to offer unto Jehovah, as it is written in the book of Moses. And so did they with the oxen.
+They removed the burnt offerings, that they might give them according to the divisions of the fathers' houses of the children of the people, to offer to Yahweh, as it is written in the book of Moses. So did they with the cattle.

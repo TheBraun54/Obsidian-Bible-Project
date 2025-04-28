@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we utterly destroyed them, as we did unto Sihon king of Heshbon, utterly destroying every inhabited city, with the women and the little ones.
+We utterly destroyed them, as we did to Sihon king of Heshbon, utterly destroying every inhabited city, with the women and the little ones.

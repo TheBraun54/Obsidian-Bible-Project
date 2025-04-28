@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not be rich, neither shall his substance continue, Neither shall their possessions be extended on the earth.
+He shall not be rich, neither shall his substance continue, neither shall their possessions be extended on the earth.

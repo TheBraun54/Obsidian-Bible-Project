@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is like unto thee, O Jehovah, among the gods? Who is like thee, glorious in holiness, Fearful in praises, doing wonders?
+Who is like you, Yahweh, among the gods? Who is like you, glorious in holiness, fearful in praises, doing wonders?

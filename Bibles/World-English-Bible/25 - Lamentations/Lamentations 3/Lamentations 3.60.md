@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast seen all their vengeance and all their devices against me.
+You have seen all their vengeance and all their devices against me.

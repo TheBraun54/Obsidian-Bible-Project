@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For John the Baptist is come eating no bread nor drinking wine; and ye say, He hath a demon.
+For John the Baptizer came neither eating bread nor drinking wine, and you say, 'He has a demon.'

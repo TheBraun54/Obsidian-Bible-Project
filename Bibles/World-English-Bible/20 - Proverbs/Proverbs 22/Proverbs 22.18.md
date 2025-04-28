@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is a pleasant thing if thou keep them within thee, If they be established together upon thy lips.
+For it is a pleasant thing if you keep them within you, if all of them are ready on your lips.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even now, behold, my witness is in heaven, And he that voucheth for me is on high.
+Even now, behold, my witness is in heaven. He who vouches for me is on high.

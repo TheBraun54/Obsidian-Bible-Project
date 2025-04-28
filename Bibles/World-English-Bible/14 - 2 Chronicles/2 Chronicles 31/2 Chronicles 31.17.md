@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and them that were reckoned by genealogy of the priests by their fathers' houses, and the Levites from twenty years old and upward, in their offices by their courses;
+and those who were reckoned by genealogy of the priests by their fathers' houses, and the Levites from twenty years old and upward, in their offices by their divisions;

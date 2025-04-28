@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That they might keep his statutes, And observe his laws. Praise ye Jehovah.
+that they might keep his statutes, and observe his laws. Praise Yah!

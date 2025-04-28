@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, What one is there of the tribes of Israel that came not up unto Jehovah to Mizpah? And, behold, there came none to the camp from Jabesh-gilead to the assembly.
+They said, "What one is there of the tribes of Israel who didn't come up to Yahweh to Mizpah?" Behold, there came none to the camp from Jabesh Gilead to the assembly.

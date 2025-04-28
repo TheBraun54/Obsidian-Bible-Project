@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeroboam slept with his fathers, even with the kings of Israel; and Zechariah his son reigned in his stead.
+Jeroboam slept with his fathers, even with the kings of Israel; and Zechariah his son reigned in his place.

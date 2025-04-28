@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put the two stones upon the shoulder-pieces of the ephod, to be stones of memorial for the children of Israel: and Aaron shall bear their names before Jehovah upon his two shoulders for a memorial.
+You shall put the two stones on the shoulder straps of the ephod, to be stones of memorial for the children of Israel: and Aaron shall bear their names before Yahweh on his two shoulders for a memorial.

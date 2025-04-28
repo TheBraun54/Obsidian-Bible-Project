@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will not suffer thy foot to be moved: He that keepeth thee will not slumber.
+He will not allow your foot to be moved. He who keeps you will not slumber.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mercy and truth are met together; Righteousness and peace have kissed each other.
+Mercy and truth meet together. Righteousness and peace have kissed each other.

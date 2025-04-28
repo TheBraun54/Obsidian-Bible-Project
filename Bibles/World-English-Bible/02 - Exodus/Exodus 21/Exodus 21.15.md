@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that smiteth his father, or his mother, shall be surely put to death.
+"Anyone who attacks his father or his mother shall be surely put to death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Thus saith Hezekiah, This day is a day of trouble, and of rebuke, and of contumely; for the children are come to the birth, and there is not strength to bring forth.
+They said to him, "Thus says Hezekiah, 'This day is a day of trouble, and of rebuke, and of rejection; for the children have come to the birth, and there is no strength to bring forth.

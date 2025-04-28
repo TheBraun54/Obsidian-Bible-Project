@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came certain of the elders of Israel unto me, and sat before me.
+Then came certain of the elders of Israel to me, and sat before me.

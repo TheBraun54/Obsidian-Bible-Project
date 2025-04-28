@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he confessed, and denied not; and he confessed, I am not the Christ.
+He declared, and didn't deny, but he declared, "I am not the Christ."

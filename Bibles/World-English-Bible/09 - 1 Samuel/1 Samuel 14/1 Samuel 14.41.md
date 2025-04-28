@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Saul said unto Jehovah, the God of Israel, Show the right. And Jonathan and Saul were taken [by lot] ; but the people escaped.
+Therefore Saul said to Yahweh, the God of Israel, "Show the right." Jonathan and Saul were chosen; but the people escaped.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I speak not of you all: I know whom I have chosen: but that the scripture may be fulfilled: He that eateth my bread lifted up his heel against me.
+I don't speak concerning all of you. I know whom I have chosen. But that the Scripture may be fulfilled, 'He who eats bread with me has lifted up his heel against me.'

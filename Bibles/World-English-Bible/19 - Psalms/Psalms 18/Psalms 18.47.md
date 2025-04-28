@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even the God that executeth vengeance for me, And subdueth peoples under me.
+even the God who executes vengeance for me, and subdues peoples under me.

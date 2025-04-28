@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people of the country of the Gerasenes round about asked him to depart from them, for they were holden with great fear: and he entered into a boat, and returned.
+All the people of the surrounding country of the Gadarenes asked him to depart from them, for they were very much afraid. He entered into the boat, and returned.

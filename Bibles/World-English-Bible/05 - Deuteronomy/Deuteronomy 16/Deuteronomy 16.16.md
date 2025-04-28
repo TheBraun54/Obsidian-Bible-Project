@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Three times in a year shall all thy males appear before Jehovah thy God in the place which he shall choose: in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles; and they shall not appear before Jehovah empty:
+Three times in a year shall all your males appear before Yahweh your God in the place which he shall choose: in the feast of unleavened bread, and in the feast of weeks, and in the feast of tents; and they shall not appear before Yahweh empty:

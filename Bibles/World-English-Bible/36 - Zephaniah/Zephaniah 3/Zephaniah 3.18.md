@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will gather them that sorrow for the solemn assembly, who were of thee; [to whom] the burden upon her was a reproach.
+I will remove those who grieve about the appointed feasts from you. They are a burden and a reproach to you.

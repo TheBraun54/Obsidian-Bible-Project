@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all her graven images shall be beaten to pieces, and all her hires shall be burned with fire, and all her idols will I lay desolate; for of the hire of a harlot hath she gathered them, and unto the hire of a harlot shall they return.
+All her idols will be beaten to pieces, and all her temple gifts will be burned with fire, and all her images I will destroy; for of the hire of a prostitute has she gathered them, and to the hire of a prostitute shall they return."

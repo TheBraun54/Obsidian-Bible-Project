@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after these things, that the butler of the king of Egypt and his baker offended their lord the king of Egypt.
+It happened after these things, that the butler of the king of Egypt and his baker offended their lord, the king of Egypt.

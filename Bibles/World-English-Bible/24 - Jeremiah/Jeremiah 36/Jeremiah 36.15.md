@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Sit down now, and read it in our ears. So Baruch read it in their ears.
+They said to him, Sit down now, and read it in our ears. So Baruch read it in their ears.

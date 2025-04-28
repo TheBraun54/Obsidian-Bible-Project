@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I delight to do thy will, O my God; Yea, thy law is within my heart.
+I delight to do your will, my God. Yes, your law is within my heart."

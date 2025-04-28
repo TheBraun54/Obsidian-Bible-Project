@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bring forth him that hath cursed without the camp; and let all that heard him lay their hands upon his head, and let all the congregation stone him.
+"Bring out of the camp him who cursed; and let all who heard him lay their hands on his head, and let all the congregation stone him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For because ye [bare it] not at the first, Jehovah our God made a breach upon us, for that we sought him not according to the ordinance.
+For because you didn't carry it at first, Yahweh our God made broke out against us, because we didn't seek him according to the ordinance."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he changed his behavior before them, and feigned himself mad in their hands, and scrabbled on the doors of the gate, and let his spittle fall down upon his beard.
+He changed his behavior before them, and pretended to be mad in their hands, and scrabbled on the doors of the gate, and let his spittle fall down on his beard.

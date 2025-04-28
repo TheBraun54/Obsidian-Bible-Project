@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many other things spake they against him, reviling him.
+They spoke many other things against him, insulting him.

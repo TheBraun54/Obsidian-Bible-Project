@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but seek not Beth-el, nor enter into Gilgal, and pass not to Beer-sheba: for Gilgal shall surely go into captivity, and Beth-el shall come to nought.
+but don't seek Bethel, nor enter into Gilgal, and don't pass to Beersheba: for Gilgal shall surely go into captivity, and Bethel shall come to nothing.

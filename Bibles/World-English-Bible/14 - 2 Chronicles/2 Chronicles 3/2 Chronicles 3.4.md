@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the porch that was before [the house], the length of it, according to the breadth of the house, was twenty cubits, and the height a hundred and twenty; and he overlaid it within with pure gold.
+The porch that was before [the house], its length, according to the breadth of the house, was twenty cubits, and the height one hundred twenty; and he overlaid it within with pure gold.

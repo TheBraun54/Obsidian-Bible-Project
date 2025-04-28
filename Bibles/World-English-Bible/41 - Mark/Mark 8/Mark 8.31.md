@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he began to teach them, that the Son of man must suffer many things, and be rejected by the elders, and the chief priests, and the scribes, and be killed, and after three days rise again.
+He began to teach them that the Son of Man must suffer many things, and be rejected by the elders, the chief priests, and the scribes, and be killed, and after three days rise again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he saith, Nay; lest haply while ye gather up the tares, ye root up the wheat with them.
+"But he said, 'No, lest perhaps while you gather up the darnel weeds, you root up the wheat with them.

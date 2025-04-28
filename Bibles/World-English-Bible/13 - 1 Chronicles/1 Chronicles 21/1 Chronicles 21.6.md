@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Levi and Benjamin counted he not among them; for the king's word was abominable to Joab.
+But he didn't count Levi and Benjamin among them; for the king's word was abominable to Joab.

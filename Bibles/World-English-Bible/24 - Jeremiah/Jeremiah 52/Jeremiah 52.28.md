@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the people whom Nebuchadrezzar carried away captive: in the seventh year three thousand Jews and three and twenty;
+This is the people whom Nebuchadnezzar carried away captive: in the seventh year three thousand twenty-three Jews;

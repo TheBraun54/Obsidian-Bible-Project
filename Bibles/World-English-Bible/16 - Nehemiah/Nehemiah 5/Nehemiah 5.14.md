@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover from the time that I was appointed to be their governor in the land of Judah, from the twentieth year even unto the two and thirtieth year of Artaxerxes the king, [that is], twelve years, I and my brethren have not eaten the bread of the governor.
+Moreover from the time that I was appointed to be their governor in the land of Judah, from the twentieth year even to the two and thirtieth year of Artaxerxes the king, [that is], twelve years, I and my brothers have not eaten the bread of the governor.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which we have heard and known, And our fathers have told us.
+Which we have heard and known, and our fathers have told us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For neither did I receive it from man, nor was I taught it, but [it came to me] through revelation of Jesus Christ.
+For neither did I receive it from man, nor was I taught it, but it came to me through revelation of Jesus Christ.

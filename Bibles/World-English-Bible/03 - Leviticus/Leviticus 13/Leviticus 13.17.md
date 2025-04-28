@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look on him; and, behold, if the plague be turned into white, then the priest shall pronounce [him] clean [that hath] the plague: he is clean.
+and the priest shall examine him; and, behold, if the plague has turned white, then the priest shall pronounce him clean of the plague. He is clean.

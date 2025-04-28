@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, The sabbath was made for man, and not man for the sabbath:
+He said to them, "The Sabbath was made for man, not man for the Sabbath.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shalt thou do unto all the cities which are very far off from thee, which are not of the cities of these nations.
+Thus you shall do to all the cities which are very far off from you, which are not of the cities of these nations.

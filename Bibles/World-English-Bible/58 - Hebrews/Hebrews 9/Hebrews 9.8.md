@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the Holy Spirit this signifying, that the way into the holy place hath not yet been made manifest, while the first tabernacle is yet standing;
+The Holy Spirit is indicating this, that the way into the Holy Place wasn't yet revealed while the first tabernacle was still standing;

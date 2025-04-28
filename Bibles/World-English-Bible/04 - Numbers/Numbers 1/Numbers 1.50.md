@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but appoint thou the Levites over the tabernacle of the testimony, and over all the furniture thereof, and over all that belongeth to it: they shall bear the tabernacle, and all the furniture thereof; and they shall minister unto it, and shall encamp round about the tabernacle.
+but appoint the Levites over the Tabernacle of the Testimony, and over all its furnishings, and over all that belongs to it. They shall carry the tabernacle, and all its furnishings; and they shall take care of it, and shall encamp around it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the skin of the bullock, and all its flesh, with its head, and with its legs, and its inwards, and its dung,
+The bull's skin, all its flesh, with its head, and with its legs, its innards, and its dung,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in the neighborhood of that place were lands belonging to the chief man of the island, named Publius, who received us, and entertained us three days courteously.
+Now in the neighborhood of that place were lands belonging to the chief man of the island, named Publius, who received us, and courteously entertained us for three days.

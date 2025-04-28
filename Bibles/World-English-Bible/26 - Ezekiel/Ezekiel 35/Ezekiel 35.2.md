@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face against mount Seir, and prophesy against it,
+Son of man, set your face against Mount Seir, and prophesy against it,

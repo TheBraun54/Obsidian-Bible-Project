@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are planted in the house of Jehovah; They shall flourish in the courts of our God.
+They are planted in Yahweh's house. They will flourish in our God's courts.

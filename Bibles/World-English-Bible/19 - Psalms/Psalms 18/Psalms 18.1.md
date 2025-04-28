@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. [A Psalm] of David the servant of Jehovah, who spake unto Jehovah the words of this song in the day that Jehovah delivered him from the hand of all his enemies, and from the hand of Saul: and he said], I love thee, O Jehovah, my strength.
+I love you, Yahweh, my strength.

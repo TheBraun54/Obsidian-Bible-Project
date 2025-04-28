@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take the boiled shoulder of the ram, and one unleavened cake out of the basket, and one unleavened wafer, and shall put them upon the hands of the Nazirite, after he hath shaven [the head of] his separation;
+The priest shall take the boiled shoulder of the ram, and one unleavened cake out of the basket, and one unleavened wafer, and shall put them on the hands of the Nazirite, after he has shaved the head of his separation;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he let him alone. Then she said, A bridegroom of blood [art thou], because of the circumcision.
+So he let him alone. Then she said, "You are a bridegroom of blood," because of the circumcision.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said unto Peter, Put up the sword into the sheath: the cup which the Father hath given me, shall I not drink it?
+Jesus therefore said to Peter, "Put the sword into its sheath. The cup which the Father has given me, shall I not surely drink it?"

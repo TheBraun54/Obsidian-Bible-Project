@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the battle increased that day: howbeit the king of Israel stayed himself up in his chariot against the Syrians until the even; and about the time of the going down of the sun he died.
+The battle increased that day. However the king of Israel propped himself up in his chariot against the Syrians until the evening; and about the time of the going down of the sun, he died.

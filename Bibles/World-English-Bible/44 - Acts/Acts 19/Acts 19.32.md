@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Some therefore cried one thing, and some another: for the assembly was in confusion; and the more part knew not wherefore they were come together.
+Some therefore cried one thing, and some another, for the assembly was in confusion. Most of them didn't know why they had come together.

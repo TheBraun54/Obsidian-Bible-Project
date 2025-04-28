@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shalt return unto Jehovah thy God, and shalt obey his voice according to all that I command thee this day, thou and thy children, with all thy heart, and with all thy soul;
+and shall return to Yahweh your God, and shall obey his voice according to all that I command you this day, you and your children, with all your heart, and with all your soul;

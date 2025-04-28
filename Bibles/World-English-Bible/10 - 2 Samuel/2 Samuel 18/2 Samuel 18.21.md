@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Joab to the Cushite, Go, tell the king what thou hast seen. And the Cushite bowed himself unto Joab, and ran.
+Then Joab said to the Cushite, "Go, tell the king what you have seen!" The Cushite bowed himself to Joab, and ran.

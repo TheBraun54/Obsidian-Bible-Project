@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That the generation to come might know [them], even the children that should be born; Who should arise and tell [them] to their children,
+that the generation to come might know, even the children who should be born; who should arise and tell their children,

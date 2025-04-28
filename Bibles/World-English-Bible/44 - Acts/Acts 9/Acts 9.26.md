@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come to Jerusalem, he assayed to join himself to the disciples: and they were all afraid of him, not believing that he was a disciple.
+When Saul had come to Jerusalem, he tried to join himself to the disciples; but they were all afraid of him, not believing that he was a disciple.

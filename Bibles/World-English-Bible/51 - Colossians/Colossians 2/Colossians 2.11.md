@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in whom ye were also circumcised with a circumcision not made with hands, in the putting off of the body of the flesh, in the circumcision of Christ;
+in whom you were also circumcised with a circumcision not made with hands, in the putting off of the body of the sins of the flesh, in the circumcision of Christ;

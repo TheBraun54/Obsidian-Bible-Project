@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what shall a man be profited, if he shall gain the whole world, and forfeit his life? or what shall a man give in exchange for his life?
+For what will it profit a man, if he gains the whole world, and forfeits his life? Or what will a man give in exchange for his life?

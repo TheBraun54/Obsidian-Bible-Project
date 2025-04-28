@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This was the first enrolment made when Quirinius was governor of Syria.
+This was the first enrollment made when Quirinius was governor of Syria.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can any man forbid the water, that these should not be baptized, who have received the Holy Spirit as well as we?
+"Can any man forbid the water, that these who have received the Holy Spirit as well as we should not be baptized?"

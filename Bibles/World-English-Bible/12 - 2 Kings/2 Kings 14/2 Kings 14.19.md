@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made a conspiracy against him in Jerusalem; and he fled to Lachish: but they sent after him to Lachish, and slew him there.
+They made a conspiracy against him in Jerusalem; and he fled to Lachish: but they sent after him to Lachish, and killed him there.

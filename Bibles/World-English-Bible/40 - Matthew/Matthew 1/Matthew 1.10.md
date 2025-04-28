@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hezekiah begat Manasseh; and Manasseh begat Amon; and Amon begat Josiah;
+Hezekiah became the father of Manasseh. Manasseh became the father of Amon. Amon became the father of Josiah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit he would not hearken unto her voice; but being stronger than she, he forced her, and lay with her.
+However he would not listen to her voice; but being stronger than she, he forced her, and lay with her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Ephraim, what shall I do unto thee? O Judah, what shall I do unto thee? for your goodness is as a morning cloud, and as the dew that goeth early away.
+"Ephraim, what shall I do to you? Judah, what shall I do to you? For your love is like a morning cloud, and like the dew that disappears early.

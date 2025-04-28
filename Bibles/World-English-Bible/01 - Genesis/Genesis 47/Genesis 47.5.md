@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh spake unto Joseph, saying, Thy father and thy brethren are come unto thee:
+Pharaoh spoke to Joseph, saying, "Your father and your brothers have come to you.

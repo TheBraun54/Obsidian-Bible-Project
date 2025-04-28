@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we have heard how Jehovah dried up the water of the Red Sea before you, when ye came out of Egypt; and what ye did unto the two kings of the Amorites, that were beyond the Jordan, unto Sihon and to Og, whom ye utterly destroyed.
+For we have heard how Yahweh dried up the water of the Red Sea before you, when you came out of Egypt; and what you did to the two kings of the Amorites, who were beyond the Jordan, to Sihon and to Og, whom you utterly destroyed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is not a word in my tongue, But, lo, O Jehovah, thou knowest it altogether.
+For there is not a word on my tongue, but, behold, Yahweh, you know it altogether.

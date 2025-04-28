@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore hear, ye nations, and know, O congregation, what is among them.
+Therefore hear, you nations, and know, congregation, what is among them.

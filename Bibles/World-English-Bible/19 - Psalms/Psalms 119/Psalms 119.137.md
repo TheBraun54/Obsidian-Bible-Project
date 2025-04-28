@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-TSADHE. Righteous art thou, O Jehovah, And upright are thy judgments.
+You are righteous, Yahweh. Your judgments are upright.

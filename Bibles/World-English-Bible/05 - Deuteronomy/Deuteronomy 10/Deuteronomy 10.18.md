@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He doth execute justice for the fatherless and widow, and loveth the sojourner, in giving him food and raiment.
+He does execute justice for the fatherless and widow, and loves the foreigner, in giving him food and clothing.

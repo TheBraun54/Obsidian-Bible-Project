@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I said unto them, What meaneth the high place whereunto ye go? So the name thereof is called Bamah unto this day.
+Then I said to them, What does the high place where you go mean? So its name is called Bamah to this day.

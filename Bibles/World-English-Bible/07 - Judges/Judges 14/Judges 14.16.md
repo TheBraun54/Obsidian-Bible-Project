@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson's wife wept before him, and said, Thou dost but hate me, and lovest me not: thou hast put forth a riddle unto the children of my people, and hast not told it me. And he said unto her, Behold, I have not told it my father nor my mother, and shall I tell thee?
+Samson's wife wept before him, and said, "You just hate me, and don't love me. You have put forth a riddle to the children of my people, and haven't told it me." He said to her, "Behold, I haven't told it my father nor my mother, and shall I tell you?"

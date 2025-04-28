@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he foreseeing [this] spake of the resurrection of the Christ, that neither was he left unto Hades, nor did his flesh see corruption.
+he foreseeing this spoke about the resurrection of the Christ, that neither was his soul left in Hades, nor did his flesh see decay.

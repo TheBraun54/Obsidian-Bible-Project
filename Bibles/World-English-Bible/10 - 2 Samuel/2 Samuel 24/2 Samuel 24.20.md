@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Araunah looked forth, and saw the king and his servants coming on toward him: and Araunah went out, and bowed himself before the king with his face to the ground.
+Araunah looked out, and saw the king and his servants coming on toward him. Then Araunah went out, and bowed himself before the king with his face to the ground.

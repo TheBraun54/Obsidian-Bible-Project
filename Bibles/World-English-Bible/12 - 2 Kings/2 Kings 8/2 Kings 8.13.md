@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hazael said, But what is thy servant, who is but a dog, that he should do this great thing? And Elisha answered, Jehovah hath showed me that thou shalt be king over Syria.
+Hazael said, "But what is your servant, who is but a dog, that he should do this great thing?" Elisha answered, "Yahweh has shown me that you will be king over Syria."

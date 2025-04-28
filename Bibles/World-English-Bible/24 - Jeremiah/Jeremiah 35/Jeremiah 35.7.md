@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither shall ye build house, nor sow seed, nor plant vineyard, nor have any; but all your days ye shall dwell in tents; that ye may live many days in the land wherein ye sojourn.
+neither shall you build house, nor sow seed, nor plant vineyard, nor have any; but all your days you shall dwell in tents; that you may live many days in the land in which you live.

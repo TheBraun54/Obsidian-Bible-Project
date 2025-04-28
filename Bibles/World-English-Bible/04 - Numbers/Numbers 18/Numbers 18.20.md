@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Aaron, Thou shalt have no inheritance in their land, neither shalt thou have any portion among them: I am thy portion and thine inheritance among the children of Israel.
+Yahweh said to Aaron, "You shall have no inheritance in their land, neither shall you have any portion among them. I am your portion and your inheritance among the children of Israel.

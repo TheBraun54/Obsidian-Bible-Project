@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were at Salamis, they proclaimed the word of God in the synagogues of the Jews: and they had also John as their attendant.
+When they were at Salamis, they proclaimed the word of God in the Jewish synagogues. They had also John as their attendant.

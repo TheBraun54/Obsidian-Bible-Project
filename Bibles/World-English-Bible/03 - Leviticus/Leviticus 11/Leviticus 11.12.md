@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whatsoever hath no fins nor scales in the waters, that is an abomination unto you.
+Whatever has no fins nor scales in the waters, that is an abomination to you.

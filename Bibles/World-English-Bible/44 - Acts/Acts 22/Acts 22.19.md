@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, Lord, they themselves know that I imprisoned and beat in every synagogue them that believed on thee:
+I said, 'Lord, they themselves know that I imprisoned and beat in every synagogue those who believed in you.

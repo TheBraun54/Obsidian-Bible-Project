@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when this sound was heard, the multitude came together, and were confounded, because that every man heard them speaking in his own language.
+When this sound was heard, the multitude came together, and were bewildered, because everyone heard them speaking in his own language.

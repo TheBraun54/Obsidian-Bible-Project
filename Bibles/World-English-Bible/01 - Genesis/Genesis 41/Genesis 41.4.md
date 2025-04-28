@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ill-favored and lean-fleshed kine did eat up the seven well-favored and fat kine. So Pharaoh awoke.
+The ugly and thin cattle ate up the seven sleek and fat cattle. So Pharaoh awoke.

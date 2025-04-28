@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt know also that thy seed shall be great, And thine offspring as the grass of the earth.
+You shall know also that your seed shall be great, Your offspring as the grass of the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we have not a high priest that cannot be touched with the feeling of our infirmities; but one that hath been in all points tempted like as [we are, yet] without sin.
+For we don't have a high priest who can't be touched with the feeling of our infirmities, but one who has been in all points tempted like we are, yet without sin.

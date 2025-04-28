@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there arose a great clamor: and some of the scribes of the Pharisees part stood up, and strove, saying, We find no evil in this man: and what if a spirit hath spoken to him, or an angel?
+A great clamor arose, and some of the scribes of the Pharisees part stood up, and contended, saying, "We find no evil in this man. But if a spirit or angel has spoken to him, let's not fight against God!"

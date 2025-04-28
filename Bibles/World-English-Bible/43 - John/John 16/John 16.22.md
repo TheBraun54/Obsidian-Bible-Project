@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye therefore now have sorrow: but I will see you again, and your heart shall rejoice, and your joy no one taketh away from you.
+Therefore you now have sorrow, but I will see you again, and your heart will rejoice, and no one will take your joy away from you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will cut off the spirit of princes: He is terrible to the kings of the earth.
+He will cut off the spirit of princes. He is feared by the kings of the earth. For the Chief Musician. To Jeduthun. A Psalm by Asaph.

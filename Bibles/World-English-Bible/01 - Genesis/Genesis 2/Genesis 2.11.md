@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The name of the first is Pishon: that is it which compasseth the whole land of Havilah, where there is gold;
+The name of the first is Pishon: this is the one which flows through the whole land of Havilah, where there is gold;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His archers compass me round about; He cleaveth my reins asunder, and doth not spare; He poureth out my gall upon the ground.
+His archers surround me. He splits my kidneys apart, and does not spare. He pours out my gall on the ground.

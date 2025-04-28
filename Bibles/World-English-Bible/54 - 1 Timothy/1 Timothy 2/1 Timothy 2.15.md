@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but she shall be saved through her child-bearing, if they continue in faith and love and sanctification with sobriety.
+but she will be saved through her childbearing, if they continue in faith, love, and sanctification with sobriety.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought forth the people that were therein, and put them under saws, and under harrows of iron, and under axes of iron, and made them pass through the brickkiln: and thus did he unto all the cities of the children of Ammon. And David and all the people returned unto Jerusalem.
+He brought forth the people who were therein, and put them under saws, and under iron picks, and under axes of iron, and made them pass through the brick kiln: and he did so to all the cities of the children of Ammon. David and all the people returned to Jerusalem.

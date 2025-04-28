@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul thirsteth for God, for the living God: When shall I come and appear before God?
+My soul thirsts for God, for the living God. When shall I come and appear before God?

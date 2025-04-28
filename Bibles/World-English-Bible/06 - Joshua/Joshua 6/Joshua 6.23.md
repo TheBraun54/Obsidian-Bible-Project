@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the young men the spies went in, and brought out Rahab, and her father, and her mother, and her brethren, and all that she had; all her kindred also they brought out; and they set them without the camp of Israel.
+The young men who were spies went in, and brought out Rahab with her father, her mother, her brothers, and all that she had. They also brought out all her relatives, and they set them outside of the camp of Israel.

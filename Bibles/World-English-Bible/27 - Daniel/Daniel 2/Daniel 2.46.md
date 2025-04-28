@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king Nebuchadnezzar fell upon his face, and worshipped Daniel, and commanded that they should offer an oblation and sweet odors unto him.
+Then the king Nebuchadnezzar fell on his face, and worshiped Daniel, and commanded that they should offer an offering and sweet odors to him.

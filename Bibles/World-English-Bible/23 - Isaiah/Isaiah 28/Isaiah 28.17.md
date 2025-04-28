@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make justice the line, and righteousness the plummet; and the hail shall sweep away the refuge of lies, and the waters shall overflow the hiding-place.
+I will make justice the measuring line, and righteousness the plumb line. The hail will sweep away the refuge of lies, and the waters will overflow the hiding place.

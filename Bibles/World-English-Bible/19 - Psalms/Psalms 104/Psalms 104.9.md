@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast set a bound that they may not pass over; That they turn not again to cover the earth.
+You have set a boundary that they may not pass over; that they don't turn again to cover the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the people rejoiced, for that they offered willingly, because with a perfect heart they offered willingly to Jehovah: and David the king also rejoiced with great joy.
+Then the people rejoiced, because they offered willingly, because with a perfect heart they offered willingly to Yahweh: and David the king also rejoiced with great joy.

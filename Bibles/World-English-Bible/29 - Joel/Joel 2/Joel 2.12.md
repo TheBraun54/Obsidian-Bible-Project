@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet even now, saith Jehovah, turn ye unto me with all your heart, and with fasting, and with weeping, and with mourning:
+"Yet even now," says Yahweh, "turn to me with all your heart, and with fasting, and with weeping, and with mourning."

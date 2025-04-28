@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah appeared to Solomon by night, and said unto him, I have heard thy prayer, and have chosen this place to myself for a house of sacrifice.
+Yahweh appeared to Solomon by night, and said to him, "I have heard your prayer, and have chosen this place to myself for a house of sacrifice.

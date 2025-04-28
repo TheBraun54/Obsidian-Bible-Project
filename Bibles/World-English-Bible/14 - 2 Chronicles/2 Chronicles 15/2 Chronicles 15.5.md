@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in those times there was no peace to him that went out, nor to him that came in; but great vexations were upon all the inhabitants of the lands.
+In those times there was no peace to him who went out, nor to him who came in; but great troubles were on all the inhabitants of the lands.

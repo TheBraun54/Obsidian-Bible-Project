@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is [ready] to save me: Therefore we will sing my songs with stringed instruments All the days of our life in the house of Jehovah.
+Yahweh will save me. Therefore we will sing my songs with stringed instruments all the days of our life in the house of Yahweh.

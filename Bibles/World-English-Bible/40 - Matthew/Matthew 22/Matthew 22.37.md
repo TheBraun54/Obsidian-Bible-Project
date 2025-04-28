@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
+Jesus said to him, "'You shall love the Lord your God with all your heart, with all your soul, and with all your mind.'

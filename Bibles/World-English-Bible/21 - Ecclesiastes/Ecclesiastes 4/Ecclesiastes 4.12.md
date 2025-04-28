@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man prevail against him that is alone, two shall withstand him; and a threefold cord is not quickly broken.
+If a man prevails against one who is alone, two shall withstand him; and a threefold cord is not quickly broken.

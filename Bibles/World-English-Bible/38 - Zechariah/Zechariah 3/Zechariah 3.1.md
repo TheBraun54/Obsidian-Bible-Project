@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he showed me Joshua the high priest standing before the angel of Jehovah, and Satan standing at his right hand to be his adversary.
+He showed me Joshua the high priest standing before the angel of Yahweh, and Satan standing at his right hand to be his adversary.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Shimon: Amnon, and Rinnah, Ben-hanan, and Tilon. And the sons of Ishi: Zoheth, and Ben-zoheth.
+The sons of Shimon: Amnon, and Rinnah, Ben Hanan, and Tilon. The sons of Ishi: Zoheth, and Ben Zoheth.

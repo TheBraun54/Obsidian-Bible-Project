@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the centurion heard it, he went to the chief captain and told him, saying, What art thou about to do? for this man is a Roman.
+When the centurion heard it, he went to the commanding officer and told him, "Watch what you are about to do, for this man is a Roman!"

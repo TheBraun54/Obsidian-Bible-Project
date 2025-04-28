@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every meal-offering of the priest shall be wholly burnt: it shall not be eaten.
+Every meal offering of a priest shall be wholly burned. It shall not be eaten."

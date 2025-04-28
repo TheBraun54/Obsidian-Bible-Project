@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I shall send Artemas unto thee, or Tychicus, give diligence to come unto me to Nicopolis: for there I have determined to winter.
+When I send Artemas to you, or Tychicus, be diligent to come to me to Nicopolis, for I have determined to winter there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which did eat the fat of their sacrifices, [And] drank the wine of their drink-offering? Let them rise up and help you, Let them be your protection.
+Which ate the fat of their sacrifices, And drank the wine of their drink offering? Let them rise up and help you! Let them be your protection.

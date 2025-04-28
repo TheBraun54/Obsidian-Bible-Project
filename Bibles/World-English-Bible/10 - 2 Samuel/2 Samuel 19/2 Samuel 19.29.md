@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto him, Why speakest thou any more of thy matters? I say, Thou and Ziba divide the land.
+The king said to him, "Why do you speak any more of your matters? I say, you and Ziba divide the land."

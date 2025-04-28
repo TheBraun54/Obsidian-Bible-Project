@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though a sinner do evil a hundred times, and prolong his [days], yet surely I know that it shall be well with them that fear God, that fear before him:
+Though a sinner commits crimes a hundred times, and lives long, yet surely I know that it will be better with those who fear God, who are reverent before him.

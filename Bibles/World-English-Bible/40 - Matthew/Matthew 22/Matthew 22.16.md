@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they send to him their disciples, with the Herodians, saying, Teacher, we know that thou art true, and teachest the way of God in truth, and carest not for any one: for thou regardest not the person of men.
+They sent their disciples to him, along with the Herodians, saying, "Teacher, we know that you are honest, and teach the way of God in truth, no matter who you teach, for you aren't partial to anyone.

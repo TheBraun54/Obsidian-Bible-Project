@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hereby know ye the Spirit of God: every spirit that confesseth that Jesus Christ is come in the flesh is of God:
+By this you know the Spirit of God: every spirit who confesses that Jesus Christ has come in the flesh is of God,

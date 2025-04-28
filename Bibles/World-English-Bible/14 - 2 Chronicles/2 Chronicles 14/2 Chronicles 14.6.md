@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built fortified cities in Judah; for the land was quiet, and he had no war in those years, because Jehovah had given him rest.
+He built fortified cities in Judah; for the land was quiet, and he had no war in those years, because Yahweh had given him rest.

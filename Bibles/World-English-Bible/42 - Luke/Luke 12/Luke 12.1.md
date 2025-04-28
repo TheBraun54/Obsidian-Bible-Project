@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the mean time, when the many thousands of the multitude were gathered together, insomuch that they trod one upon another, he began to say unto his disciples first of all, Beware ye of the leaven of the Pharisees, which is hypocrisy.
+Meanwhile, when a multitude of many thousands had gathered together, so much so that they trampled on each other, he began to tell his disciples first of all, "Beware of the yeast of the Pharisees, which is hypocrisy.

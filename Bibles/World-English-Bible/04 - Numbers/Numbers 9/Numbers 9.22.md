@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whether it were two days, or a month, or a year, that the cloud tarried upon the tabernacle, abiding thereon, the children of Israel remained encamped, and journeyed not; but when it was taken up, they journeyed.
+Whether it was two days, or a month, or a year that the cloud stayed on the tabernacle, remaining on it, the children of Israel remained encamped, and didn't travel; but when it was taken up, they traveled.

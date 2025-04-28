@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the inhabitants of Jabesh-gilead heard concerning him that which the Philistines had done to Saul,
+When the inhabitants of Jabesh Gilead heard concerning him that which the Philistines had done to Saul,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sister of Tahpenes bare him Genubath his son, whom Tahpenes weaned in Pharaoh's house; and Genubath was in Pharaoh's house among the sons of Pharaoh.
+The sister of Tahpenes bore him Genubath his son, whom Tahpenes weaned in Pharaoh's house; and Genubath was in Pharaoh's house among the sons of Pharaoh.

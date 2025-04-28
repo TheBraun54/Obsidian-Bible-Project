@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only thy holy things which thou hast, and thy vows, thou shalt take, and go unto the place which Jehovah shall choose:
+Only your holy things which you have, and your vows, you shall take, and go to the place which Yahweh shall choose:

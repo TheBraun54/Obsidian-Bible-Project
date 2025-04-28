@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah conceived, and bare a son, and she called his name Reuben: for she said, Because Jehovah hath looked upon my affliction; for now my husband will love me.
+Leah conceived, and bore a son, and she named him Reuben. For she said, "Because Yahweh has looked at my affliction. For now my husband will love me."

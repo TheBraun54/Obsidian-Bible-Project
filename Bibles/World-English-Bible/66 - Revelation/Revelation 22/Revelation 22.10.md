@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto me, Seal not up the words of the prophecy of this book; for the time is at hand.
+He said to me, "Don't seal up the words of the prophecy of this book, for the time is at hand.

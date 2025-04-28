@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he will love thee, and bless thee, and multiply thee; he will also bless the fruit of thy body and the fruit of thy ground, thy grain and thy new wine and thine oil, the increase of thy cattle and the young of thy flock, in the land which he sware unto thy fathers to give thee.
+and he will love you, and bless you, and multiply you; he will also bless the fruit of your body and the fruit of your ground, your grain and your new wine and your oil, the increase of your livestock and the young of your flock, in the land which he swore to your fathers to give you.

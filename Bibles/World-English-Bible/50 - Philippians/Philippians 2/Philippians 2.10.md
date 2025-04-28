@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that in the name of Jesus every knee should bow, of [things] in heaven and [things] on earth and [things] under the earth,
+that at the name of Jesus every knee should bow, of those in heaven, those on earth, and those under the earth,

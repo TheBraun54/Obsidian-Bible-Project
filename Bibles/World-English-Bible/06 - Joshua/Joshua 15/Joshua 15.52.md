@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arab, and Dumah, and Eshan,
+Arab, Dumah, Eshan,

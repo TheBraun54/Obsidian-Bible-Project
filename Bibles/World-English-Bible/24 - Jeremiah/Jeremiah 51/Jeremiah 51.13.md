@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou that dwellest upon many waters, abundant in treasures, thine end is come, the measure of thy covetousness.
+You who dwell on many waters, abundant in treasures, your end has come, the measure of your covetousness.

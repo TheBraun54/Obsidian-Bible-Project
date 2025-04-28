@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they said one to another, We do not well; this day is a day of good tidings, and we hold our peace: if we tarry till the morning light, punishment will overtake us; now therefore come, let us go and tell the king's household.
+Then they said one to another, "We aren't doing right. This day is a day of good news, and we keep silent. If we wait until the morning light, punishment will overtake us. Now therefore come, let us go and tell the king's household."

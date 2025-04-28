@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-through whom we received grace and apostleship, unto obedience of faith among all the nations, for his name's sake;
+through whom we received grace and apostleship, for obedience of faith among all the nations, for his name's sake;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, this only have I found: that God made man upright; but they have sought out many inventions.
+Behold, this only have I found: that God made man upright; but they search for many schemes."

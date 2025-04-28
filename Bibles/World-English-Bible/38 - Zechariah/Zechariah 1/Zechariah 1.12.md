@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the angel of Jehovah answered and said, O Jehovah of hosts, how long wilt thou not have mercy on Jerusalem and on the cities of Judah, against which thou hast had indignation these threescore and ten years?
+Then the angel of Yahweh replied, "O Yahweh of Armies, how long will you not have mercy on Jerusalem and on the cities of Judah, against which you have had indignation these seventy years?"

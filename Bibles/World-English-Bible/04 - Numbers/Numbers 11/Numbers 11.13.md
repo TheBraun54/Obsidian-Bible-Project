@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whence should I have flesh to give unto all this people? for they weep unto me, saying, Give us flesh, that we may eat.
+Where could I get meat to give to all this people? For they weep to me, saying, 'Give us meat, that we may eat.'

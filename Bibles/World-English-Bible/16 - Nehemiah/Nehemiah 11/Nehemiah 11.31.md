@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Benjamin also [dwelt] from Geba [onward], at Michmash and Aija, and at Beth-el and the towns thereof,
+The children of Benjamin also [lived] from Geba [onward], at Michmash and Aija, and at Bethel and its towns,

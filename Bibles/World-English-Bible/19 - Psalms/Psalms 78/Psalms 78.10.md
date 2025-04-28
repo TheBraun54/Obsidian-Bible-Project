@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They kept not the covenant of God, And refused to walk in his law;
+They didn't keep God's covenant, and refused to walk in his law.

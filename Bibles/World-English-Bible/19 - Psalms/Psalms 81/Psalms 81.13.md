@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that my people would hearken unto me, That Israel would walk in my ways!
+Oh that my people would listen to me, that Israel would walk in my ways!

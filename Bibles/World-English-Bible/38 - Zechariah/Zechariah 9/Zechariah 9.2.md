@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hamath, also, which bordereth thereon; Tyre and Sidon, because they are very wise.
+and Hamath, also, which borders on it; Tyre and Sidon, because they are very wise.

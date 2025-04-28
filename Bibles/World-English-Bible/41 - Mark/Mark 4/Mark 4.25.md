@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that hath, to him shall be given: and he that hath not, from him shall be taken away even that which he hath.
+For whoever has, to him will more be given, and he who doesn't have, even that which he has will be taken away from him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye are they that have continued with me in my temptations;
+But you are those who have continued with me in my trials.

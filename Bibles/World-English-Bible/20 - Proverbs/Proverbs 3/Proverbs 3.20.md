@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By his knowledge the depths were broken up, And the skies drop down the dew.
+By his knowledge, the depths were broken up, and the skies drop down the dew.

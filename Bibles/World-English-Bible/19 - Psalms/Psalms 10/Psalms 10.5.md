@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His ways are firm at all times; Thy judgments are far above out of his sight: As for all his adversaries, he puffeth at them.
+His ways are prosperous at all times. He is haughty, and your laws are far from his sight. As for all his adversaries, he sneers at them.

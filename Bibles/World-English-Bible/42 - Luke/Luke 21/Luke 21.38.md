@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people came early in the morning to him in the temple, to hear him.
+All the people came early in the morning to him in the temple to hear him.

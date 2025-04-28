@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when a great multitude came together, and they of every city resorted unto him, he spake by a parable:
+When a great multitude came together, and people from every city were coming to him, he spoke by a parable.

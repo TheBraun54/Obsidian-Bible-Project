@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Show me thy ways, O Jehovah; Teach me thy paths.
+Show me your ways, Yahweh. Teach me your paths.

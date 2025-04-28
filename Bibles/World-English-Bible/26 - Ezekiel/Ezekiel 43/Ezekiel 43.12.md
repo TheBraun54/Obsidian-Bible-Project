@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of the house: upon the top of the mountain the whole limit thereof round about shall be most holy. Behold, this is the law of the house.
+This is the law of the house: on the top of the mountain the whole limit around it shall be most holy. Behold, this is the law of the house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye, inquire of Jehovah for me, and for the people, and for all Judah, concerning the words of this book that is found; for great is the wrath of Jehovah that is kindled against us, because our fathers have not hearkened unto the words of this book, to do according unto all that which is written concerning us.
+"Go inquire of Yahweh for me, and for the people, and for all Judah, concerning the words of this book that is found; for great is the wrath of Yahweh that is kindled against us, because our fathers have not listened to the words of this book, to do according to all that which is written concerning us."

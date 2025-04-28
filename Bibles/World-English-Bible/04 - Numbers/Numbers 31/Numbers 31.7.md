@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they warred against Midian, as Jehovah commanded Moses; and they slew every male.
+They warred against Midian, as Yahweh commanded Moses; and they killed every male.

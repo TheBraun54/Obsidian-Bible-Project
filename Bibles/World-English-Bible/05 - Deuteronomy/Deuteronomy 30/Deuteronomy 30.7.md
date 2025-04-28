@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah thy God will put all these curses upon thine enemies, and on them that hate thee, that persecuted thee.
+Yahweh your God will put all these curses on your enemies, and on those who hate you, who persecuted you.

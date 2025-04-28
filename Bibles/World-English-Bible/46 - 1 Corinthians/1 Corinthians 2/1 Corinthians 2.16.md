@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who hath known the mind of the Lord, that he should instruct him? But we have the mind of Christ.
+"For who has known the mind of the Lord, that he should instruct him?" But we have Christ's mind.

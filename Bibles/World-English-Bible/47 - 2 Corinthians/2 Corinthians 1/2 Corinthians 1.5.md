@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the sufferings of Christ abound unto us, even so our comfort also aboundeth through Christ.
+For as the sufferings of Christ abound to us, even so our comfort also abounds through Christ.

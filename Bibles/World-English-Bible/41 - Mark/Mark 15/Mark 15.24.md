@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they crucify him, and part his garments among them, casting lots upon them, what each should take.
+Crucifying him, they parted his garments among them, casting lots on them, what each should take.

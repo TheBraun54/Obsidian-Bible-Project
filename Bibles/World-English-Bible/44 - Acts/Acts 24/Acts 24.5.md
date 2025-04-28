@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we have found this man a pestilent fellow, and a mover of insurrections among all the Jews throughout the world, and a ringleader of the sect of the Nazarenes:
+For we have found this man to be a plague, an instigator of insurrections among all the Jews throughout the world, and a ringleader of the sect of the Nazarenes.

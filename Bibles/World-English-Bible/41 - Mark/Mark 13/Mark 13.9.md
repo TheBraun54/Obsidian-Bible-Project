@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But take ye heed to yourselves: for they shall deliver you up to councils; and in synagogues shall ye be beaten; and before governors and kings shall ye stand for my sake, for a testimony unto them.
+But watch yourselves, for they will deliver you up to councils. You will be beaten in synagogues. You will stand before rulers and kings for my sake, for a testimony to them.

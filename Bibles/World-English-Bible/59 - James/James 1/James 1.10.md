@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the rich, in that he is made low: because as the flower of the grass he shall pass away.
+and the rich, in that he is made humble, because like the flower in the grass, he will pass away.

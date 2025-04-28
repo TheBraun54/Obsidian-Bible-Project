@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I brought you into a plentiful land, to eat the fruit thereof and the goodness thereof; but when ye entered, ye defiled my land, and made my heritage an abomination.
+I brought you into a plentiful land, to eat its fruit and its goodness; but when you entered, you defiled my land, and made my heritage an abomination.

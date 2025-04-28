@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the new heavens and the new earth, which I will make, shall remain before me, saith Jehovah, so shall your seed and your name remain.
+"For as the new heavens and the new earth, which I will make, shall remain before me," says Yahweh, "so your seed and your name shall remain.

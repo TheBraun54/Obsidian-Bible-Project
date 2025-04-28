@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even such as he is able to get, the one for a sin-offering, and the other for a burnt-offering, with the meal-offering: and the priest shall make atonement for him that is to be cleansed before Jehovah.
+even such as he is able to afford, the one for a sin offering, and the other for a burnt offering, with the meal offering. The priest shall make atonement for him who is to be cleansed before Yahweh."

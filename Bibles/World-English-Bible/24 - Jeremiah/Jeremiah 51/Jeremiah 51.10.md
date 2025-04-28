@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath brought forth our righteousness: come, and let us declare in Zion the work of Jehovah our God.
+Yahweh has brought forth our righteousness: come, and let us declare in Zion the work of Yahweh our God.

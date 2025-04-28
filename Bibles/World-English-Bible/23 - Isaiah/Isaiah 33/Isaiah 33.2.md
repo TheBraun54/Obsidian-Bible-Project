@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, be gracious unto us; we have waited for thee: be thou our arm every morning, our salvation also in the time of trouble.
+Yahweh, be gracious to us. We have waited for you. Be our strength every morning, our salvation also in the time of trouble.

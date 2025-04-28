@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Prayer of David]. Bow down thine ear, O Jehovah, and answer me; For I am poor and needy.
+Hear, Yahweh, and answer me, for I am poor and needy.

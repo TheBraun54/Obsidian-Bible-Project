@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that lieth in the house shall wash his clothes; and he that eateth in the house shall wash his clothes.
+He who lies down in the house shall wash his clothes; and he who eats in the house shall wash his clothes.

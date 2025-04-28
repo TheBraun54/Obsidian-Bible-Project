@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall also gird themselves with sackcloth, and horror shall cover them; and shame shall be upon all faces, and baldness upon all their heads.
+They shall also clothe themselves with sackcloth, and horror shall cover them; and shame shall be on all faces, and baldness on all their heads.

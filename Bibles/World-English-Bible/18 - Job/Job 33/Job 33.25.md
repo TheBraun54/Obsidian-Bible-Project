@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His flesh shall be fresher than a child's; He returneth to the days of his youth.
+His flesh shall be fresher than a child's. He returns to the days of his youth.

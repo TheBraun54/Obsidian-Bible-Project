@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He clave rocks in the wilderness, And gave them drink abundantly as out of the depths.
+He split rocks in the wilderness, and gave them drink abundantly as out of the depths.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shall they prepare the lamb, and the meal-offering, and the oil, morning by morning, for a continual burnt-offering.
+Thus shall they prepare the lamb, and the meal offering, and the oil, morning by morning, for a continual burnt offering.

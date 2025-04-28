@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass soon afterwards, that he went about through cities and villages, preaching and bringing the good tidings of the kingdom of God, and with him the twelve,
+It happened soon afterwards, that he went about through cities and villages, preaching and bringing the good news of the Kingdom of God. With him were the twelve,

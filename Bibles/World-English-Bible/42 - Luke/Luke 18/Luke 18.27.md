@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said, The things which are impossible with men are possible with God.
+But he said, "The things which are impossible with men are possible with God."

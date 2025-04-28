@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall ye return and discern between the righteous and the wicked, between him that serveth God and him that serveth him not.
+Then you shall return and discern between the righteous and the wicked, between him who serves God and him who doesn't serve him.

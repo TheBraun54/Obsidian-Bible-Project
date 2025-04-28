@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when the apostles that were at Jerusalem heard that Samaria had received the word of God, they sent unto them Peter and John:
+Now when the apostles who were at Jerusalem heard that Samaria had received the word of God, they sent Peter and John to them,

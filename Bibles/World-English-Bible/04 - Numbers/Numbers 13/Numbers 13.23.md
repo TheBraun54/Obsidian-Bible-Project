@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came unto the valley of Eshcol, and cut down from thence a branch with one cluster of grapes, and they bare it upon a staff between two; [they brought] also of the pomegranates, and of the figs.
+They came to the valley of Eshcol, and cut down from there a branch with one cluster of grapes, and they bore it on a staff between two; [they brought] also of the pomegranates, and of the figs.

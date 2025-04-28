@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My wounds are loathsome and corrupt, Because of my foolishness.
+My wounds are loathsome and corrupt, because of my foolishness.

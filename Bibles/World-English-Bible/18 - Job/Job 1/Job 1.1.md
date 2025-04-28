@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was a man in the land of Uz, whose name was Job; and that man was perfect and upright, and one that feared God, and turned away from evil.
+There was a man in the land of Uz, whose name was Job. That man was blameless and upright, and one who feared God, and turned away from evil.

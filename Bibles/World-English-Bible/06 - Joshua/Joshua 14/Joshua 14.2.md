@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by the lot of their inheritance, as Jehovah commanded by Moses, for the nine tribes, and for the half-tribe.
+by the lot of their inheritance, as Yahweh commanded by Moses, for the nine tribes, and for the half-tribe.

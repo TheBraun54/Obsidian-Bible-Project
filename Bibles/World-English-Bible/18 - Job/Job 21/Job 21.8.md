@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their seed is established with them in their sight, And their offspring before their eyes.
+Their child is established with them in their sight, their offspring before their eyes.

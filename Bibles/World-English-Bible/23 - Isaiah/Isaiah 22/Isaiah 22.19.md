@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will thrust thee from thine office; and from thy station shalt thou be pulled down.
+I will thrust you from your office. You will be pulled down from your station.

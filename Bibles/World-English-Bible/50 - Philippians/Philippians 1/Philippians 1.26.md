@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that your glorying may abound in Christ Jesus in me through my presence with you again.
+that your rejoicing may abound in Christ Jesus in me through my presence with you again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel said unto his servants, Know ye that Ramoth-gilead is ours, and we are still, and take it not out of the hand of the king of Syria?
+The king of Israel said to his servants, "You know that Ramoth Gilead is ours, and we are still, and don't take it out of the hand of the king of Syria?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, O Jehovah our God, save thou us, I beseech thee, out of his hand, that all the kingdoms of the earth may know that thou Jehovah art God alone.
+Now therefore, Yahweh our God, save us, I beg you, out of his hand, that all the kingdoms of the earth may know that you, Yahweh, are God alone."

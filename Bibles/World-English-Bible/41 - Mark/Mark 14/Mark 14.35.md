@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went forward a little, and fell on the ground, and prayed that, if it were possible, the hour might pass away from him.
+He went forward a little, and fell on the ground, and prayed that, if it were possible, the hour might pass away from him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, that which I have seen to be good and to be comely is for one to eat and to drink, and to enjoy good in all his labor, wherein he laboreth under the sun, all the days of his life which God hath given him: for this is his portion.
+Behold, that which I have seen to be good and proper is for one to eat and to drink, and to enjoy good in all his labor, in which he labors under the sun, all the days of his life which God has given him; for this is his portion.

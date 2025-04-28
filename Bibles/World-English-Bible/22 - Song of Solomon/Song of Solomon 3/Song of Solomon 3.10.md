@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made the pillars thereof of silver, The bottom thereof of gold, the seat of it of purple, The midst thereof being paved with love, From the daughters of Jerusalem.
+He made its pillars of silver, its bottom of gold, its seat of purple, its midst being paved with love, from the daughters of Jerusalem.

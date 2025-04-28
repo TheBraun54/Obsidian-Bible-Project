@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah protested unto Joshua, saying,
+The angel of Yahweh protested to Joshua, saying,

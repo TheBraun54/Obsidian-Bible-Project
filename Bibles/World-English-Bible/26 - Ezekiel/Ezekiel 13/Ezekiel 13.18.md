@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, Thus saith the Lord Jehovah: Woe to the women that sew pillows upon all elbows, and make kerchiefs for the head of [persons of] every stature to hunt souls! Will ye hunt the souls of my people, and save souls alive for yourselves?
+and say, Thus says the Lord Yahweh: Woe to the women who sew pillows on all elbows, and make kerchiefs for the head of [persons of] every stature to hunt souls! Will you hunt the souls of my people, and save souls alive for yourselves?

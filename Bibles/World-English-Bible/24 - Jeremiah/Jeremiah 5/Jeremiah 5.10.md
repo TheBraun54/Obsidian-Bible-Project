@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye up upon her walls, and destroy; but make not a full end: take away her branches; for they are not Jehovah's.
+"Go up on her walls, and destroy; but don't make a full end. Take away her branches; for they are not Yahweh's.

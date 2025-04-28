@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Think not that I will accuse you to the Father: there is one that accuseth you, [even] Moses, on whom ye have set your hope.
+"Don't think that I will accuse you to the Father. There is one who accuses you, even Moses, on whom you have set your hope.

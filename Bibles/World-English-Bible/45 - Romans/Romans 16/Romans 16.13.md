@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Rufus the chosen in the Lord, and his mother and mine.
+Greet Rufus, the chosen in the Lord, and his mother and mine.

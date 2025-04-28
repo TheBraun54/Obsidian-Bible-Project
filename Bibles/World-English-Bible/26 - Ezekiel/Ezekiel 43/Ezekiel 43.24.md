@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bring them near before Jehovah, and the priests shall cast salt upon them, and they shall offer them up for a burnt-offering unto Jehovah.
+You shall bring them near to Yahweh, and the priests shall cast salt on them, and they shall offer them up for a burnt offering to Yahweh.

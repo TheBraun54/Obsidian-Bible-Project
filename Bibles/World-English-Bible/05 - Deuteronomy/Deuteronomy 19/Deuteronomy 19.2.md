@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt set apart three cities for thee in the midst of thy land, which Jehovah thy God giveth thee to possess it.
+you shall set apart three cities for you in the midst of your land, which Yahweh your God gives you to possess it.

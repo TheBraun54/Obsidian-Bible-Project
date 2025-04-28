@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith Jesus unto them, All ye shall be offended in me this night: for it is written, I will smite the shepherd, and the sheep of the flock shall be scattered abroad.
+Then Jesus said to them, "All of you will be made to stumble because of me tonight, for it is written, 'I will strike the shepherd, and the sheep of the flock will be scattered.'

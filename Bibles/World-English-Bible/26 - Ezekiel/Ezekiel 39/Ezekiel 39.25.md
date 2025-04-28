@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Now will I bring back the captivity of Jacob, and have mercy upon the whole house of Israel; and I will be jealous for my holy name.
+Therefore thus says the Lord Yahweh: Now will I bring back the captivity of Jacob, and have mercy on the whole house of Israel; and I will be jealous for my holy name.

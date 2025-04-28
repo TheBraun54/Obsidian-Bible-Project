@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proud have forged a lie against me: With my whole heart will I keep thy precepts.
+The proud have smeared a lie upon me. With my whole heart, I will keep your precepts.

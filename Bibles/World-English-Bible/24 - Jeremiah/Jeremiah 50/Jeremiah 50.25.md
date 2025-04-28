@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath opened his armory, and hath brought forth the weapons of his indignation; for the Lord, Jehovah of hosts, hath a work [to do] in the land of the Chaldeans.
+Yahweh has opened his armory, and has brought forth the weapons of his indignation; for the Lord, Yahweh of Armies, has a work [to do] in the land of the Chaldeans.

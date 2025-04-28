@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall be put to shame, yea, confounded, all of them; they shall go into confusion together that are makers of idols.
+They will be disappointed, yes, confounded, all of them. Those who are makers of idols will go into confusion together.

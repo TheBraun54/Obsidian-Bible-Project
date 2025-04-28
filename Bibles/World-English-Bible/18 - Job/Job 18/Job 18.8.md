@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he is cast into a net by his own feet, And he walketh upon the toils.
+For he is cast into a net by his own feet, and he wanders into its mesh.

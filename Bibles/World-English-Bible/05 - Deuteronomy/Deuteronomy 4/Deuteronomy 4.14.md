@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah commanded me at that time to teach you statutes and ordinances, that ye might do them in the land whither ye go over to possess it.
+Yahweh commanded me at that time to teach you statutes and ordinances, that you might do them in the land where you go over to possess it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did ye suffer so many things in vain? if it be indeed in vain.
+Did you suffer so many things in vain, if it is indeed in vain?

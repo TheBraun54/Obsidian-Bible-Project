@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou believest that God is one; thou doest well: the demons also believe, and shudder.
+You believe that God is one. You do well. The demons also believe, and shudder.

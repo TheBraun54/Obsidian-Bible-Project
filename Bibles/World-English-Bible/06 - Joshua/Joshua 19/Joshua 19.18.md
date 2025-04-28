@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their border was unto Jezreel, and Chesulloth, and Shunem,
+Their border was to Jezreel, Chesulloth, Shunem,

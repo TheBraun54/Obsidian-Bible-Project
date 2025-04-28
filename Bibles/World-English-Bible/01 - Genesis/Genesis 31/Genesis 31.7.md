@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your father hath deceived me, and changed my wages ten times; but God suffered him not to hurt me.
+Your father has deceived me, and changed my wages ten times, but God didn't allow him to hurt me.

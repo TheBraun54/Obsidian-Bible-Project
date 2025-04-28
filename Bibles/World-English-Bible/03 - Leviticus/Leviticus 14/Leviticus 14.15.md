@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take of the log of oil, and pour it into the palm of his own left hand;
+The priest shall take some of the log of oil, and pour it into the palm of his own left hand.

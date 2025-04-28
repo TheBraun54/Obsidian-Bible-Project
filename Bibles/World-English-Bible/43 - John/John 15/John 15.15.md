@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No longer do I call you servants; for the servant knoweth not what his lord doeth: but I have called you friends; for all things that I heard from my Father, I have made known unto you.
+No longer do I call you servants, for the servant doesn't know what his lord does. But I have called you friends, for everything that I heard from my Father, I have made known to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever toucheth anything that was under him shall be unclean until the even: and he that beareth those things shall wash his clothes, and bathe himself in water, and be unclean until the even.
+Whoever touches anything that was under him shall be unclean until the evening. He who carries those things shall wash his clothes, and bathe himself in water, and be unclean until the evening.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when this epistle hath been read among you, cause that it be read also in the church of the Laodiceans; and that ye also read the epistle from Laodicea.
+When this letter has been read among you, cause it to be read also in the assembly of the Laodiceans; and that you also read the letter from Laodicea.

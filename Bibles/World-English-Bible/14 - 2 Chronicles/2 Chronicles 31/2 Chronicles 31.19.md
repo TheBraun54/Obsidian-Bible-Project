@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also for the sons of Aaron the priests, that were in the fields of the suburbs of their cities, in every city, there were men that were mentioned by name, to give portions to all the males among the priests, and to all that were reckoned by genealogy among the Levites.
+Also for the sons of Aaron the priests, who were in the fields of the suburbs of their cities, in every city, there were men who were mentioned by name, to give portions to all the males among the priests, and to all who were reckoned by genealogy among the Levites.

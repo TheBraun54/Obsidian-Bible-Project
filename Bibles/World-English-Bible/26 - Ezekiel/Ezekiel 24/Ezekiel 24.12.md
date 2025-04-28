@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She hath wearied [herself] with toil; yet her great rust goeth not forth out of her; her rust [goeth not forth] by fire.
+She has wearied [herself] with toil; yet her great rust doesn't go forth out of her; her rust doesn't [go forth] by fire.

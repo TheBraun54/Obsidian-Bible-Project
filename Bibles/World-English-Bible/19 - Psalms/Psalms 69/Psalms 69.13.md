@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, my prayer is unto thee, O Jehovah, in an acceptable time: O God, in the abundance of thy lovingkindness, Answer me in the truth of thy salvation.
+But as for me, my prayer is to you, Yahweh, in an acceptable time. God, in the abundance of your loving kindness, answer me in the truth of your salvation.

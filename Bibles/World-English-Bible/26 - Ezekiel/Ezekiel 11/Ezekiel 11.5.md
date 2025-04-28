@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit of Jehovah fell upon me, and he said unto me, Speak, Thus saith Jehovah: Thus have ye said, O house of Israel; for I know the things that come into your mind.
+The Spirit of Yahweh fell on me, and he said to me, Speak, Thus says Yahweh: Thus you have said, house of Israel; for I know the things that come into your mind.

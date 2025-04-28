@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Syrians saw that they were put to the worse before Israel, they sent messengers, and drew forth the Syrians that were beyond the River, with Shophach the captain of the host of Hadarezer at their head.
+When the Syrians saw that they were defeated by Israel, they sent messengers, and drew forth the Syrians who were beyond the River, with Shophach the captain of the army of Hadadezer at their head.

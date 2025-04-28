@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thine eye causeth thee to stumble, pluck it out, and cast it from thee: it is good for thee to enter into life with one eye, rather than having two eyes to be cast into the hell of fire. [
+If your eye causes you to stumble, pluck it out, and cast it from you. It is better for you to enter into life with one eye, rather than having two eyes to be cast into the Gehenna of fire.

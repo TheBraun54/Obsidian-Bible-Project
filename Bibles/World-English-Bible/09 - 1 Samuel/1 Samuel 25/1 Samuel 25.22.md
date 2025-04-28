@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God do so unto the enemies of David, and more also, if I leave of all that pertain to him by the morning light so much as one man-child.
+God do so to the enemies of David, and more also, if I leave of all that belongs to him by the morning light so much as one who urinates on a wall."

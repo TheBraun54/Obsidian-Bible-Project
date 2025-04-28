@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Obadiah was in the way, behold, Elijah met him: and he knew him, and fell on his face, and said, Is it thou, my lord Elijah?
+As Obadiah was in the way, behold, Elijah met him: and he recognized him, and fell on his face, and said, "Is it you, my lord Elijah?"

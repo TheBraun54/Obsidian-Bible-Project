@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but they shall not go in to see the sanctuary even for a moment, lest they die.
+but they shall not go in to see the sanctuary even for a moment, lest they die."

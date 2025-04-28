@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some shouted one thing, some another, among the crowd: and when he could not know the certainty for the uproar, he commanded him to be brought into the castle.
+Some shouted one thing, and some another, among the crowd. When he couldn't find out the truth because of the noise, he commanded him to be brought into the barracks.

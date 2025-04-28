@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall it be said, O house of Jacob, Is the Spirit of Jehovah straitened? are these his doings? Do not my words do good to him that walketh uprightly?
+Shall it be said, O house of Jacob: "Is the Spirit of Yahweh angry? Are these his doings? Don't my words do good to him who walks blamelessly?"

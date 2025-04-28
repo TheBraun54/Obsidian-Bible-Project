@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For [from] many of those that had unclean spirits, they came out, crying with a loud voice: and many that were palsied, and that were lame, were healed.
+For unclean spirits came out of many of those who had them. They came out, crying with a loud voice. Many who had been paralyzed and lame were healed.

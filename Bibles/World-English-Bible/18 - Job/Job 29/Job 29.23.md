@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they waited for me as for the rain; And they opened their mouth wide [as] for the latter rain.
+They waited for me as for the rain. Their mouths drank as with the spring rain.

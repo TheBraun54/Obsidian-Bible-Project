@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So there was hail, and fire mingled with the hail, very grievous, such as had not been in all the land of Egypt since it became a nation.
+So there was very severe hail, and lightning mixed with the hail, such as had not been in all the land of Egypt since it became a nation.

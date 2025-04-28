@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they dwelt at Beer-sheba, and Moladah, and Hazarshual,
+They lived at Beersheba, and Moladah, and Hazarshual,

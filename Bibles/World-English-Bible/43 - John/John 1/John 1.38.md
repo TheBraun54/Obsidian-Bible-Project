@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus turned, and beheld them following, and saith unto them, What seek ye? And they said unto him, Rabbi (which is to say, being interpreted, Teacher), where abideth thou?
+Jesus turned, and saw them following, and said to them, "What are you looking for?" They said to him, "Rabbi" (which is to say, being interpreted, Teacher), "where are you staying?"

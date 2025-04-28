@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this I say, brethren, the time is shortened, that henceforth both those that have wives may be as though they had none;
+But I say this, brothers: the time is short, that from now on, both those who have wives may be as though they had none;

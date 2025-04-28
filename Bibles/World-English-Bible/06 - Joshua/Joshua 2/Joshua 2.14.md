@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men said unto her, Our life for yours, if ye utter not this our business; and it shall be, when Jehovah giveth us the land, that we will deal kindly and truly with thee.
+The men said to her, "Our life for yours, if you don't talk about this business of ours; and it shall be, when Yahweh gives us the land, that we will deal kindly and truly with you."

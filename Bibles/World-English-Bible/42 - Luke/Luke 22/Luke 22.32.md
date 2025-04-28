@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I made supplication for thee, that thy faith fail not; and do thou, when once thou hast turned again, establish thy brethren.
+but I prayed for you, that your faith wouldn't fail. You, when once you have turned again, establish your brothers."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she fell at his feet, and said, Upon me, my lord, upon me be the iniquity; and let thy handmaid, I pray thee, speak in thine ears, and hear thou the words of thy handmaid.
+She fell at his feet, and said, "On me, my lord, on me be the iniquity; and please let your handmaid speak in your ears. Hear the words of your handmaid.

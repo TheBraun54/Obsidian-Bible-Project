@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that every one that is left in thy house shall come and bow down to him for a piece of silver and a loaf of bread, and shall say, Put me, I pray thee, into one of the priests' offices, that I may eat a morsel of bread.
+It shall happen, that everyone who is left in your house shall come and bow down to him for a piece of silver and a loaf of bread, and shall say, "Please put me into one of the priests' offices, that I may eat a morsel of bread."'"

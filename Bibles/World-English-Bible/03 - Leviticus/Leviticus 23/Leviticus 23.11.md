@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall wave the sheaf before Jehovah, to be accepted for you: on the morrow after the sabbath the priest shall wave it.
+and he shall wave the sheaf before Yahweh, to be accepted for you. On the next day after the Sabbath the priest shall wave it.

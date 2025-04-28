@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know ye not that ye are a temple of God, and [that] the Spirit of God dwelleth in you?
+Don't you know that you are a temple of God, and that God's Spirit lives in you?

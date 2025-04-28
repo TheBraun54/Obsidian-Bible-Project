@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that died by the plague were twenty and four thousand.
+Those who died by the plague were twenty-four thousand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you, ye that are full now! for ye shall hunger. Woe [unto you], ye that laugh now! for ye shall mourn and weep.
+Woe to you, you who are full now, for you will be hungry. Woe to you who laugh now, for you will mourn and weep.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she shall bring forth a son; and thou shalt call his name JESUS; for it is he that shall save his people from their sins.
+She shall bring forth a son. You shall call his name Jesus, for it is he who shall save his people from their sins."

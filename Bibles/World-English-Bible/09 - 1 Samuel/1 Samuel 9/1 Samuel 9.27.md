@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As they were going down at the end of the city, Samuel said to Saul, Bid the servant pass on before us (and he passed on), but stand thou still first, that I may cause thee to hear the word of God.
+As they were going down at the end of the city, Samuel said to Saul, "Tell the servant pass on before us" (and he passed on), "but stand still first, that I may cause you to hear the word of God."

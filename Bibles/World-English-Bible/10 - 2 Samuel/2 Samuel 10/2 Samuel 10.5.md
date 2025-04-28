@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they told it unto David, he sent to meet them; for the men were greatly ashamed. And the king said, Tarry at Jericho until your beards be grown, and then return.
+When they told it to David, he sent to meet them; for the men were greatly ashamed. The king said, "Wait at Jericho until your beards have grown, and then return."

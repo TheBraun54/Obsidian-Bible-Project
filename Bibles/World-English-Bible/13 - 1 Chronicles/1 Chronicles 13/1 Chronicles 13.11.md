@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David was displeased, because Jehovah had broken forth upon Uzza; and he called that place Perez-uzza, unto this day.
+David was displeased, because Yahweh had broken forth on Uzza; and he called that place Perez Uzza, to this day.

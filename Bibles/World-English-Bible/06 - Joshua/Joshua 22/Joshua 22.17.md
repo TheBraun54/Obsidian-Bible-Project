@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is the iniquity of Peor too little for us, from which we have not cleansed ourselves unto this day, although there came a plague upon the congregation of Jehovah,
+Is the iniquity of Peor too little for us, from which we have not cleansed ourselves to this day, although there came a plague on the congregation of Yahweh,

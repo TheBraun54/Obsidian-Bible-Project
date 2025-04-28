@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The priests the Levites, [even] all the tribe of Levi, shall have no portion nor inheritance with Israel: they shall eat the offerings of Jehovah made by fire, and his inheritance.
+The priests the Levites, [even] all the tribe of Levi, shall have no portion nor inheritance with Israel: they shall eat the offerings of Yahweh made by fire, and his inheritance.

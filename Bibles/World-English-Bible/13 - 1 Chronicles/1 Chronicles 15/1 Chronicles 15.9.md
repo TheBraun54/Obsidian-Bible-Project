@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the sons of Hebron, Eliel the chief, and his brethren fourscore;
+of the sons of Hebron, Eliel the chief, and his brothers eighty;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore God gave them up in the lusts of their hearts unto uncleanness, that their bodies should be dishonored among themselves:
+Therefore God also gave them up in the lusts of their hearts to uncleanness, that their bodies should be dishonored among themselves,

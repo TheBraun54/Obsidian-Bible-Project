@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the king to Ziba, Behold, thine is all that pertaineth unto Mephibosheth. And Ziba said, I do obeisance; let me find favor in thy sight, my lord, O king.
+Then the king said to Ziba, "Behold, all that pertains to Mephibosheth is yours." Ziba said, "I do obeisance. Let me find favor in your sight, my lord, O king."

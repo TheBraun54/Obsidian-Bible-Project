@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall ye divide this land unto you according to the tribes of Israel.
+So you shall divide this land to you according to the tribes of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to whom sware he that they should not enter into his rest, but to them that were disobedient?
+To whom did he swear that they wouldn't enter into his rest, but to those who were disobedient?

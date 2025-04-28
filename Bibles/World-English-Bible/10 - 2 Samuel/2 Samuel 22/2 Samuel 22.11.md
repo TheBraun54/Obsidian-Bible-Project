@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he rode upon a cherub, and did fly; Yea, he was seen upon the wings of the wind.
+He rode on a cherub, and flew. Yes, he was seen on the wings of the wind.

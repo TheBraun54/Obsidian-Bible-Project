@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Agrippa said unto Festus, This man might have been set at liberty, if he had not appealed unto Caesar.
+Agrippa said to Festus, "This man might have been set free if he had not appealed to Caesar."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no remembrance of the former [generations] ; neither shall there be any remembrance of the latter [generations] that are to come, among those that shall come after.
+There is no memory of the former; neither shall there be any memory of the latter that are to come, among those that shall come after.

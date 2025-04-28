@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said to Absalom, Nay, my son, let us not all go, lest we be burdensome unto thee. And he pressed him: howbeit he would not go, but blessed him.
+The king said to Absalom, "No, my son, let us not all go, lest we be burdensome to you." He pressed him; however he would not go, but blessed him.

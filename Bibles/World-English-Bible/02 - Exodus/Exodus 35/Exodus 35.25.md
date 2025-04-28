@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the women that were wise-hearted did spin with their hands, and brought that which they had spun, the blue, and the purple, the scarlet, and the fine linen.
+All the women who were wise-hearted spun with their hands, and brought that which they had spun, the blue, the purple, the scarlet, and the fine linen.

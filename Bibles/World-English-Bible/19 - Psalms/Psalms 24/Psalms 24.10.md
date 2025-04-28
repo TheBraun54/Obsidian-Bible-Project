@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is this King of glory? Jehovah of hosts, He is the King of glory. {{Selah
+Who is this King of glory? Yahweh of Armies is the King of glory! Selah. By David.

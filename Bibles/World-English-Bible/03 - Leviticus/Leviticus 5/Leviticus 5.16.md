@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall make restitution for that which he hath done amiss in the holy thing, and shall add the fifth part thereto, and give it unto the priest; and the priest shall make atonement for him with the ram of the trespass-offering, and he shall be forgiven.
+He shall make restitution for that which he has done wrong in the holy thing, and shall add a fifth part to it, and give it to the priest; and the priest shall make atonement for him with the ram of the trespass offering, and he will be forgiven.

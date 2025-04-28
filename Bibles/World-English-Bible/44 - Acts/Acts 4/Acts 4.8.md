@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Peter, filled with the Holy Spirit, said unto them, Ye rulers of the people, and elders,
+Then Peter, filled with the Holy Spirit, said to them, "You rulers of the people, and elders of Israel,

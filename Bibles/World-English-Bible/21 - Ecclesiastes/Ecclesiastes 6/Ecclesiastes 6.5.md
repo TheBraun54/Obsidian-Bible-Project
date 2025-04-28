@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-moreover it hath not seen the sun nor known it; this hath rest rather than the other:
+Moreover it has not seen the sun nor known it. This has rest rather than the other.

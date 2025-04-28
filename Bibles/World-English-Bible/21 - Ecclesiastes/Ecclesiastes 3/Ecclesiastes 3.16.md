@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And moreover I saw under the sun, in the place of justice, that wickedness was there; and in the place of righteousness, that wickedness was there.
+Moreover I saw under the sun, in the place of justice, that wickedness was there; and in the place of righteousness, that wickedness was there.

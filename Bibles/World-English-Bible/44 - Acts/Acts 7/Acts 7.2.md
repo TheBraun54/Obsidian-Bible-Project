@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Brethren and fathers, hearken: The God of glory appeared unto our father Abraham, when he was in Mesopotamia, before he dwelt in Haran,
+He said, "Brothers and fathers, listen. The God of glory appeared to our father Abraham, when he was in Mesopotamia, before he lived in Haran,

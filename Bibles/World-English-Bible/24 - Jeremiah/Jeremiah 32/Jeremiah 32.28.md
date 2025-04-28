@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah: Behold, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadrezzar king of Babylon, and he shall take it:
+Therefore thus says Yahweh: Behold, I will give this city into the hand of the Chaldeans, and into the hand of Nebuchadnezzar king of Babylon, and he shall take it:

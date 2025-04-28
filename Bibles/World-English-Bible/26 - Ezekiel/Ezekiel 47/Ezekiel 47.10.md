@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that fishers shall stand by it: from En-gedi even unto En-eglaim shall be a place for the spreading of nets; their fish shall be after their kinds, as the fish of the great sea, exceeding many.
+It shall happen, that fishermen shall stand by it: from En Gedi even to En Eglaim shall be a place for the spreading of nets; their fish shall be after their kinds, as the fish of the great sea, exceeding many.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you lawyers! for ye took away the key of knowledge: ye entered not in yourselves, and them that were entering in ye hindered.
+Woe to you lawyers! For you took away the key of knowledge. You didn't enter in yourselves, and those who were entering in, you hindered."

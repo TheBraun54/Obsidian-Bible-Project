@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ which is] a manifest token of the righteous judgment of God; to the end that ye may be counted worthy of the kingdom of God, for which ye also suffer:
+This is an obvious sign of the righteous judgment of God, to the end that you may be counted worthy of the Kingdom of God, for which you also suffer.

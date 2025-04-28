@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And into whatsoever house ye enter, there abide, and thence depart.
+Into whatever house you enter, stay there, and depart from there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I would have you know how greatly I strive for you, and for them at Laodicea, and for as many as have not seen my face in the flesh;
+For I desire to have you know how greatly I struggle for you, and for those at Laodicea, and for as many as have not seen my face in the flesh;

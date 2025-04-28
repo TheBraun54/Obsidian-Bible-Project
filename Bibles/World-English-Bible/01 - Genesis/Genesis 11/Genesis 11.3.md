@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said one to another, Come, let us make brick, and burn them thoroughly. And they had brick for stone, and slime had they for mortar.
+They said one to another, "Come, let's make bricks, and burn them thoroughly." They had brick for stone, and they used tar for mortar.

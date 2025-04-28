@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His sneezings flash forth light, And his eyes are like the eyelids of the morning.
+His sneezing flashes out light. His eyes are like the eyelids of the morning.

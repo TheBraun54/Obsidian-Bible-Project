@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto the wicked! [it shall be] ill [with him] ; for what his hands have done shall be done unto him.
+Woe to the wicked! Disaster is upon them; for the deeds of his hands will be paid back to him.

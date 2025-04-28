@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the generation to come, your children that shall rise up after you, and the foreigner that shall come from a far land, shall say, when they see the plagues of that land, and the sicknesses wherewith Jehovah hath made it sick;
+The generation to come, your children who shall rise up after you, and the foreigner who shall come from a far land, shall say, when they see the plagues of that land, and the sicknesses with which Yahweh has made it sick;

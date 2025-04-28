@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell us, when shall these things be? and what [shall be] the sign when these things are all about to be accomplished?
+"Tell us, when will these things be? What is the sign that these things are all about to be fulfilled?"

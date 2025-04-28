@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and threescore and twelve thousand oxen,
+and seventy-two thousand head of cattle,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Hagar, Sarai's handmaid, whence camest thou? and whither goest thou? And she said, I am fleeing from the face of my mistress Sarai.
+He said, "Hagar, Sarai's handmaid, where did you come from? Where are you going?" She said, "I am fleeing from the face of my mistress Sarai."

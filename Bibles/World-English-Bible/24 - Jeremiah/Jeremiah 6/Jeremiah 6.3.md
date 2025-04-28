@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shepherds with their flocks shall come unto her; they shall pitch their tents against her round about; they shall feed every one in his place.
+Shepherds with their flocks shall come to her; they shall pitch their tents against her all around; they shall feed everyone in his place."

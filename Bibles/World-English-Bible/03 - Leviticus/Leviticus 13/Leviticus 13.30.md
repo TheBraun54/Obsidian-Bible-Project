@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall look on the plague; and, behold, if the appearance thereof be deeper than the skin, and there be in it yellow thin hair, then the priest shall pronounce him unclean: it is a scall, it is leprosy of the head or of the beard.
+then the priest shall examine the plague; and behold, if its appearance is deeper than the skin, and the hair in it is yellow and thin, then the priest shall pronounce him unclean: it is an itch, it is leprosy of the head or of the beard.

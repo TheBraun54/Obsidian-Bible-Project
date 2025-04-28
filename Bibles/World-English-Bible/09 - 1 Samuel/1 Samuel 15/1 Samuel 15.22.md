@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, Hath Jehovah as great delight in burnt-offerings and sacrifices, as in obeying the voice of Jehovah? Behold, to obey is better than sacrifice, and to hearken than the fat of rams.
+Samuel said, "Has Yahweh as great delight in burnt offerings and sacrifices, as in obeying the voice of Yahweh? Behold, to obey is better than sacrifice, and to listen than the fat of rams.

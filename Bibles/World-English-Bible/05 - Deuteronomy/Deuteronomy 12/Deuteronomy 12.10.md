@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when ye go over the Jordan, and dwell in the land which Jehovah your God causeth you to inherit, and he giveth you rest from all your enemies round about, so that ye dwell in safety;
+But when you go over the Jordan, and dwell in the land which Yahweh your God causes you to inherit, and he gives you rest from all your enemies around you, so that you dwell in safety;

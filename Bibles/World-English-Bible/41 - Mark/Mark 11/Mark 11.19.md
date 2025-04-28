@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every evening he went forth out of the city.
+When evening came, he went out of the city.

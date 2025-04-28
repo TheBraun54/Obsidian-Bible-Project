@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway there fell from his eyes as it were scales, and he received his sight; and he arose and was baptized;
+Immediately something like scales fell from his eyes, and he received his sight. He arose and was baptized.

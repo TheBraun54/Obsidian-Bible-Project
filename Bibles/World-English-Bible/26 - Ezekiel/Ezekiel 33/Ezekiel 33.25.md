@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore say unto them, Thus saith the Lord Jehovah: Ye eat with the blood, and lift up your eyes unto your idols, and shed blood: and shall ye possess the land?
+Therefore tell them, Thus says the Lord Yahweh: You eat with the blood, and lift up your eyes to your idols, and shed blood: and shall you possess the land?

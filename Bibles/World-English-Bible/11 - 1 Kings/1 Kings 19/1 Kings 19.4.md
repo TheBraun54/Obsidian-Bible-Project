@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he himself went a day's journey into the wilderness, and came and sat down under a juniper-tree: and he requested for himself that he might die, and said, It is enough; now, O Jehovah, take away my life; for I am not better than my fathers.
+But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree: and he requested for himself that he might die, and said, "It is enough. Now, O Yahweh, take away my life; for I am not better than my fathers."

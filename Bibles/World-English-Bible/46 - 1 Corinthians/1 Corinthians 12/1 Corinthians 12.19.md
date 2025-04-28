@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if they were all one member, where were the body?
+If they were all one member, where would the body be?

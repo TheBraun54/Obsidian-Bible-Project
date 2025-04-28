@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Servants, [be] in subjection to your masters with all fear; not only to the good and gentle, but also to the froward.
+Servants, be in subjection to your masters with all fear; not only to the good and gentle, but also to the wicked.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there was before him a certain man that had the dropsy.
+Behold, a certain man who had dropsy was in front of him.

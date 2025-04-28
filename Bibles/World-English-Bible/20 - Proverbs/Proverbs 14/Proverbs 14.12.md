@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a way which seemeth right unto a man; But the end thereof are the ways of death.
+There is a way which seems right to a man, but in the end it leads to death.

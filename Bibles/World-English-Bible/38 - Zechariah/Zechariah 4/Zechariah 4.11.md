@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered I, and said unto him, What are these two olive-trees upon the right side of the candlestick and upon the left side thereof?
+Then I asked him, "What are these two olive trees on the right side of the lampstand and on the left side of it?"

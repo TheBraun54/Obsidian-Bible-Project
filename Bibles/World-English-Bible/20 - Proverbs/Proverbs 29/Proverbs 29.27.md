@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An unjust man is an abomination to the righteous; And he that is upright in the way is an abomination to the wicked.
+A dishonest man detests the righteous, and the upright in their ways detest the wicked.

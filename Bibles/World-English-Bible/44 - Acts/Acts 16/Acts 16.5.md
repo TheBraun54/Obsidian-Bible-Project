@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the churches were strengthened in the faith, and increased in number daily.
+So the assemblies were strengthened in the faith, and increased in number daily.

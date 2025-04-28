@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also they spake of his good deeds before me, and reported my words to him. [And] Tobiah sent letters to put me in fear.
+Also they spoke of his good deeds before me, and reported my words to him. Tobiah sent letters to put me in fear.

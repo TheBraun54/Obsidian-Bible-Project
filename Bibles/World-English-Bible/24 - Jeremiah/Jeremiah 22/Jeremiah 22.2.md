@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And say, Hear the word of Jehovah, O king of Judah, that sittest upon the throne of David, thou, and thy servants, and thy people that enter in by these gates.
+Say, Hear the word of Yahweh, king of Judah, who sits on the throne of David, you, and your servants, and your people who enter in by these gates.

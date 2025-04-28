@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Judah kept not the commandments of Jehovah their God, but walked in the statutes of Israel which they made.
+Also Judah didn't keep the commandments of Yahweh their God, but walked in the statutes of Israel which they made.

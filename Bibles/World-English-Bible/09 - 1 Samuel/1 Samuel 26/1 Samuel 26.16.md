@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This thing is not good that thou hast done. As Jehovah liveth, ye are worthy to die, because ye have not kept watch over your lord, Jehovah's anointed. And now see where the king's spear is, and the cruse of water that was at his head.
+This thing isn't good that you have done. As Yahweh lives, you are worthy to die, because you have not kept watch over your lord, Yahweh's anointed. Now see where the king's spear is, and the jar of water that was at his head."

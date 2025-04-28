@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The multitude therefore that was with him when he called Lazarus out of the tomb, and raised him from the dead, bare witness.
+The multitude therefore that was with him when he called Lazarus out of the tomb, and raised him from the dead, was testifying about it.

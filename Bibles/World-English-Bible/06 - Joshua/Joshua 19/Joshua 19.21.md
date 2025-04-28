@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Remeth, and Engannim, and En-haddah, and Beth-pazzez,
+Remeth, Engannim, En Haddah, and Beth Pazzez.

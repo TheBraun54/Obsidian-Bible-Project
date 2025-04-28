@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hide them in the dust together; Bind their faces in the hidden [place] .
+Hide them in the dust together. Bind their faces in the hidden place.

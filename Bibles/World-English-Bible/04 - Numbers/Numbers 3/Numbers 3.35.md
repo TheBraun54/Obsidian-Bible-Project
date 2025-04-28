@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince of the fathers' house of the families of Merari was Zuriel the son of Abihail: they shall encamp on the side of the tabernacle northward.
+The prince of the fathers' house of the families of Merari was Zuriel the son of Abihail. They shall encamp on the north side of the tabernacle.

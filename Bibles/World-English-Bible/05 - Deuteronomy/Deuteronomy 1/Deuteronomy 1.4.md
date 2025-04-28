@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-after he had smitten Sihon the king of the Amorites, who dwelt in Heshbon, and Og the king of Bashan, who dwelt in Ashtaroth, at Edrei.
+after he had struck Sihon the king of the Amorites, who lived in Heshbon, and Og the king of Bashan, who lived in Ashtaroth, at Edrei.

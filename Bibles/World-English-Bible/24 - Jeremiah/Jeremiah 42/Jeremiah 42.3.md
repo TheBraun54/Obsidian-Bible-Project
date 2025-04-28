@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Jehovah thy God may show us the way wherein we should walk, and the thing that we should do.
+that Yahweh your God may show us the way in which we should walk, and the thing that we should do.

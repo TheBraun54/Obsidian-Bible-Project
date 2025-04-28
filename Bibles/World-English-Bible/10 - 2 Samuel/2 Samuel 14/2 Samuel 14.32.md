@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom answered Joab, Behold, I sent unto thee, saying, Come hither, that I may send thee to the king, to say, Wherefore am I come from Geshur? it were better for me to be there still. Now therefore let me see the king's face; and if there be iniquity in me, let him kill me.
+Absalom answered Joab, "Behold, I sent to you, saying, 'Come here, that I may send you to the king, to say, "Why have I come from Geshur? It would be better for me to be there still. Now therefore let me see the king's face; and if there is iniquity in me, let him kill me."'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In peace will I both lay me down and sleep; For thou, Jehovah, alone makest me dwell in safety.
+In peace I will both lay myself down and sleep, for you, Yahweh alone, make me live in safety. For the Chief Musician, with the flutes. A Psalm by David.

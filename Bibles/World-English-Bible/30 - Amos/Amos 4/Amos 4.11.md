@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have overthrown [cities] among you, as when God overthrew Sodom and Gomorrah, and ye were as a brand plucked out of the burning: yet have ye not returned unto me, saith Jehovah.
+"I have overthrown some of you, as when God overthrew Sodom and Gomorrah, and you were like a burning stick plucked out of the fire; yet you haven't returned to me," says Yahweh.

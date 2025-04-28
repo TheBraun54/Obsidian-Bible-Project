@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they cast [thee] down, thou shalt say, [There is] lifting up; And the humble person he will save.
+When they cast down, you shall say, 'be lifted up.' He will save the humble person.

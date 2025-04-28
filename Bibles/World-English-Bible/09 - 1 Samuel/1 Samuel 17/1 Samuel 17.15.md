@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now David went to and fro from Saul to feed his father's sheep at Beth-lehem.
+Now David went back and forth from Saul to feed his father's sheep at Bethlehem.

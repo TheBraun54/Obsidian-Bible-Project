@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go up, ye horses; and rage, ye chariots; and let the mighty men go forth: Cush and Put, that handle the shield; and the Ludim, that handle and bend the bow.
+Go up, you horses; and rage, you chariots; and let the mighty men go forth: Cush and Put, who handle the shield; and the Ludim, who handle and bend the bow.

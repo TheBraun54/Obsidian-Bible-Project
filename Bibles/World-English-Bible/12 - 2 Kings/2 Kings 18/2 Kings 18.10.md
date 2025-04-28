@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the end of three years they took it: in the sixth year of Hezekiah, which was the ninth year of Hoshea king of Israel, Samaria was taken.
+At the end of three years they took it: in the sixth year of Hezekiah, which was the ninth year of Hoshea king of Israel, Samaria was taken.

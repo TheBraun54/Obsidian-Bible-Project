@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Leave us not, I pray thee; forasmuch as thou knowest how we are to encamp in the wilderness, and thou shalt be to us instead of eyes.
+He said, "Don't leave us, please; because you know how we are to encamp in the wilderness, and you can be our eyes.

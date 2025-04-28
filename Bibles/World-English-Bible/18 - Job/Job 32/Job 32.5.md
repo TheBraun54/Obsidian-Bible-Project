@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Elihu saw that there was no answer in the mouth of these three men, his wrath was kindled.
+When Elihu saw that there was no answer in the mouth of these three men, his wrath was kindled.

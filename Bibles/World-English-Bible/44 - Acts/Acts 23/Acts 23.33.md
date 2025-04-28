@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they, when they came to Caesarea and delivered the letter to the governor, presented Paul also before him.
+When they came to Caesarea and delivered the letter to the governor, they also presented Paul to him.

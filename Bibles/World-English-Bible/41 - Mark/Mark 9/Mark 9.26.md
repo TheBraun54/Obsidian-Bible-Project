@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And having cried out, and torn him much, he came out: and [the boy] became as one dead; insomuch that the more part said, He is dead.
+Having cried out, and convulsed greatly, it came out of him. The boy became like one dead; so much that most of them said, "He is dead."

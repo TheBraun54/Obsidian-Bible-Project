@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shalt thou know wisdom to be unto thy soul; If thou hast found it, then shall there be a reward, And thy hope shall not be cut off.
+so you shall know wisdom to be to your soul; if you have found it, then there will be a reward, your hope will not be cut off.

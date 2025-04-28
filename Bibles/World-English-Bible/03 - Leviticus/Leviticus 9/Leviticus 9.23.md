@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron went into the tent of meeting, and came out, and blessed the people: and the glory of Jehovah appeared unto all the people.
+Moses and Aaron went into the Tent of Meeting, and came out, and blessed the people: and the glory of Yahweh appeared to all the people.

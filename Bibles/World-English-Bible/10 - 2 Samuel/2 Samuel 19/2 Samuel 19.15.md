@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the king returned, and came to the Jordan. And Judah came to Gilgal, to go to meet the king, to bring the king over the Jordan.
+So the king returned, and came to the Jordan. Judah came to Gilgal, to go to meet the king, to bring the king over the Jordan.

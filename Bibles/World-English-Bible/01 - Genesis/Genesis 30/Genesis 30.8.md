@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rachel said, With mighty wrestlings have I wrestled with my sister, and have prevailed: and she called his name Naphtali.
+Rachel said, "With mighty wrestlings have I wrestled with my sister, and have prevailed." She named him Naphtali.

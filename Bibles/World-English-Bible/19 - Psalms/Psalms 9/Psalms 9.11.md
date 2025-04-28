@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing praises to Jehovah, who dwelleth in Zion: Declare among the people his doings.
+Sing praises to Yahweh, who dwells in Zion, and declare among the people what he has done.

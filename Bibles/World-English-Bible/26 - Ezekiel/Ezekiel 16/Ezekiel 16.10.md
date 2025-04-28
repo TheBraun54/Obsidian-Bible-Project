@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I clothed thee also with broidered work, and shod thee with sealskin, and I girded thee about with fine linen, and covered thee with silk.
+I clothed you also with embroidered work, and shod you with sealskin, and I dressed you about with fine linen, and covered you with silk.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake the Chaldeans to the king in the Syrian language, O king, live for ever: tell thy servants the dream, and we will show the interpretation.
+Then spoke the Chaldeans to the king in the Syrian language, O king, live forever: tell your servants the dream, and we will show the interpretation.

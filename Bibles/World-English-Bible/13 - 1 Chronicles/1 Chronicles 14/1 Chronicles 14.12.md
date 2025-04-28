@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they left their gods there; and David gave commandment, and they were burned with fire.
+They left their gods there; and David gave commandment, and they were burned with fire.

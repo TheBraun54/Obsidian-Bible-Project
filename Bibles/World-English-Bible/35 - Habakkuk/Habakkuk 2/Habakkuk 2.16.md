@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art filled with shame, and not glory: drink thou also, and be as one uncircumcised; the cup of Jehovah's right hand shall come round unto thee, and foul shame shall be upon thy glory.
+You are filled with shame, and not glory. You will also drink, and be exposed! The cup of Yahweh's right hand will come around to you, and disgrace will cover your glory.

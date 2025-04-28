@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that overcometh, I will give to him to sit down with me in my throne, as I also overcame, and sat down with my Father in his throne.
+He who overcomes, I will give to him to sit down with me on my throne, as I also overcame, and sat down with my Father on his throne.

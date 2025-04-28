@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that your days may be multiplied, and the days of your children, in the land which Jehovah sware unto your fathers to give them, as the days of the heavens above the earth.
+that your days may be multiplied, and the days of your children, in the land which Yahweh swore to your fathers to give them, as the days of the heavens above the earth.

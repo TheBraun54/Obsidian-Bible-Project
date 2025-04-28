@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing that such a one is perverted, and sinneth, being self-condemned.
+knowing that such a one is perverted, and sins, being self-condemned.

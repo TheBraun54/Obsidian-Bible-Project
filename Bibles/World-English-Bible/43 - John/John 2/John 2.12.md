@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this he went down to Capernaum, he, and his mother, and [his] brethren, and his disciples; and there they abode not many days.
+After this, he went down to Capernaum, he, and his mother, his brothers, and his disciples; and they stayed there a few days.

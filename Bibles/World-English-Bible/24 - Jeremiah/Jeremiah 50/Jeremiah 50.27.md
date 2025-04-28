@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Slay all her bullocks; let them go down to the slaughter: woe unto them! for their day is come, the time of their visitation.
+Kill all her bulls; let them go down to the slaughter: woe to them! for their day is come, the time of their visitation.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, The first is, Hear, O Israel; The Lord our God, the Lord is one:
+Jesus answered, "The greatest is, 'Hear, Israel, the Lord our God, the Lord is one:

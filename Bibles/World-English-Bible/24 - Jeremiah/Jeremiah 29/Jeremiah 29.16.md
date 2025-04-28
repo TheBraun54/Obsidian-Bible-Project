@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thus saith Jehovah concerning the king that sitteth upon the throne of David, and concerning all the people that dwell in this city, your brethren that are not gone forth with you into captivity;
+thus says Yahweh concerning the king who sits on the throne of David, and concerning all the people who dwell in this city, your brothers who haven't gone forth with you into captivity;

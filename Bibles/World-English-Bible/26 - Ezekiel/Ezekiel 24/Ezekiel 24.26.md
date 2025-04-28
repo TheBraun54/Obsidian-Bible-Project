@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that in that day he that escapeth shall come unto thee, to cause thee to hear it with thine ears?
+that in that day he who escapes shall come to you, to cause you to hear it with your ears?

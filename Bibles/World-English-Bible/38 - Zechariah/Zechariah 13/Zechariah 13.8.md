@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that in all the land, saith Jehovah, two parts therein shall be cut off and die; but the third shall be left therein.
+It shall happen that in all the land," says Yahweh, "two parts in it will be cut off and die; but the third will be left in it.

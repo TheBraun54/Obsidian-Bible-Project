@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Saul and Jonathan were lovely and pleasant in their lives, And in their death they were not divided: They were swifter than eagles, They were stronger than lions.
+Saul and Jonathan were lovely and pleasant in their lives. In their death, they were not divided. They were swifter than eagles. They were stronger than lions.

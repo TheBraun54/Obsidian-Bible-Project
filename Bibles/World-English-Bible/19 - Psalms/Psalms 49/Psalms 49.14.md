@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are appointed as a flock for Sheol; Death shall be their shepherd; And the upright shall have dominion over them in the morning; And their beauty shall be for Sheol to consume, That there be no habitation for it.
+They are appointed as a flock for Sheol. Death shall be their shepherd. The upright shall have dominion over them in the morning. Their beauty shall decay in Sheol, far from their mansion.

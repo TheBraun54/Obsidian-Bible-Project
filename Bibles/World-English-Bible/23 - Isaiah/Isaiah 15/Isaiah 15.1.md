@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of Moab. For in a night Ar of Moab is laid waste, [and] brought to nought; for in a night Kir of Moab is laid waste, [and] brought to nought.
+The burden of Moab: for in a night, Ar of Moab is laid waste, and brought to nothing; for in a night Kir of Moab is laid waste, and brought to nothing.

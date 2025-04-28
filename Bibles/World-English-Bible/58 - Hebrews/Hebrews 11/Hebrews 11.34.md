@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-quenched the power of fire, escaped the edge of the sword, from weakness were made strong, waxed mighty in war, turned to flight armies of aliens.
+quenched the power of fire, escaped the edge of the sword, from weakness were made strong, grew mighty in war, and caused foreign armies to flee.

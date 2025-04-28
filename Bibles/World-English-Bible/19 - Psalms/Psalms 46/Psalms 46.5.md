@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is in the midst of her; She shall not be moved: God will help her, and that right early.
+God is in her midst. She shall not be moved. God will help her at dawn.

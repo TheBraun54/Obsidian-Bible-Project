@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the west side shall be the great sea, from the [south] border as far as over against the entrance of Hamath. This is the west side.
+The west side shall be the great sea, from the [south] border as far as over against the entrance of Hamath. This is the west side.

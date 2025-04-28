@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a certain lawyer stood up and made trial of him, saying, Teacher, what shall I do to inherit eternal life?
+Behold, a certain lawyer stood up and tested him, saying, "Teacher, what shall I do to inherit eternal life?"

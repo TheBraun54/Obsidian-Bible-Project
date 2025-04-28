@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hath he said, Lo, I am come to do thy will. He taketh away the first, that he may establish the second.
+then he has said, "Behold, I have come to do your will." He takes away the first, that he may establish the second,

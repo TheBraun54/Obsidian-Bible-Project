@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did not my hand make all these things?
+Didn't my hand make all these things?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not bring the hire of a harlot, or the wages of a dog, into the house of Jehovah thy God for any vow: for even both these are an abomination unto Jehovah thy God.
+You shall not bring the hire of a prostitute, or the wages of a dog, into the house of Yahweh your God for any vow: for even both these are an abomination to Yahweh your God.

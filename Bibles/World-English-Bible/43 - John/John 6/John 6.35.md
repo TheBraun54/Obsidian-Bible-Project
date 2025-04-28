@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto them. I am the bread of life: he that cometh to me shall not hunger, and he that believeth on me shall never thirst.
+Jesus said to them, "I am the bread of life. He who comes to me will not be hungry, and he who believes in me will never be thirsty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when he uttereth his voice, there is a tumult of waters in the heavens, and he causeth the vapors to ascend from the ends of the earth; he maketh lightnings for the rain, and bringeth forth the wind out of his treasuries.
+when he utters his voice, there is a tumult of waters in the heavens, and he causes the vapors to ascend from the ends of the earth; he makes lightning for the rain, and brings forth the wind out of his treasuries.

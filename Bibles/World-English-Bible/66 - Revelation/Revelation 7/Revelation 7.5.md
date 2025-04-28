@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the tribe of Judah [were] sealed twelve thousand: Of the tribe of Reuben twelve thousand; Of the tribe of Gad twelve thousand;
+of the tribe of Judah were sealed twelve thousand, of the tribe of Reuben twelve thousand, of the tribe of Gad twelve thousand,

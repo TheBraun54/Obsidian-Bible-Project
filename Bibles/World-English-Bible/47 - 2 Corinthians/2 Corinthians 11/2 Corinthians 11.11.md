@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore? because I love you not? God knoweth.
+Why? Because I don't love you? God knows.

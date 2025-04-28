@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy vows are upon me, O God: I will render thank-offerings unto thee.
+Your vows are on me, God. I will give thank offerings to you.

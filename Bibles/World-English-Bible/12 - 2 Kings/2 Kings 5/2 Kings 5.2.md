@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Syrians had gone out in bands, and had brought away captive out of the land of Israel a little maiden; and she waited on Naaman's wife.
+The Syrians had gone out in bands, and had brought away captive out of the land of Israel a little maiden; and she waited on Naaman's wife.

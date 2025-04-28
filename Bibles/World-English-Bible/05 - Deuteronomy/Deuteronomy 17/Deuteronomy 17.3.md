@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and hath gone and served other gods, and worshipped them, or the sun, or the moon, or any of the host of heaven, which I have not commanded;
+and has gone and served other gods, and worshiped them, or the sun, or the moon, or any of the army of the sky, which I have not commanded;

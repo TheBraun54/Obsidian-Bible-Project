@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he hath wronged thee at all, or oweth [thee] aught, put that to mine account;
+But if he has wronged you at all, or owes you anything, put that to my account.

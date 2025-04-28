@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who giveth rain upon the earth, And sendeth waters upon the fields;
+who gives rain on the earth, and sends waters on the fields;

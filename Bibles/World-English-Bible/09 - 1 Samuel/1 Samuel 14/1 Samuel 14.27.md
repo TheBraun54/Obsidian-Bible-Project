@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jonathan heard not when his father charged the people with the oath: wherefore he put forth the end of the rod that was in his hand, and dipped it in the honeycomb, and put his hand to his mouth; and his eyes were enlightened.
+But Jonathan didn't hear when his father commanded the people with the oath: therefore he put forth the end of the rod who was in his hand, and dipped it in the honeycomb, and put his hand to his mouth; and his eyes were enlightened.

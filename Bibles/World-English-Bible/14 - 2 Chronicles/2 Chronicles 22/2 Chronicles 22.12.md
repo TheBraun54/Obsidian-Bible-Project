@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was with them hid in the house of God six years: and Athaliah reigned over the land.
+He was with them hidden in the house of God six years: and Athaliah reigned over the land.

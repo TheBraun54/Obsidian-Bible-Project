@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Nibshan, and the City of Salt, and En-gedi; six cities with their villages.
+Nibshan, the City of Salt, and En Gedi; six cities with their villages.

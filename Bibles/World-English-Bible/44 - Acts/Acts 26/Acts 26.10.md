@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this I also did in Jerusalem: and I both shut up many of the saints in prisons, having received authority from the chief priests, and when they were put to death I gave my vote against them.
+This I also did in Jerusalem. I both shut up many of the saints in prisons, having received authority from the chief priests, and when they were put to death I gave my vote against them.

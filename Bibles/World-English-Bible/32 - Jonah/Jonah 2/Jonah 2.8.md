@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that regard lying vanities Forsake their own mercy.
+Those who regard lying vanities forsake their own mercy.

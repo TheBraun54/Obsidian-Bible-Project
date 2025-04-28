@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the upper altar shall be four cubits; and from the altar hearth and upward there shall be four horns.
+The upper altar shall be four cubits; and from the altar hearth and upward there shall be four horns.

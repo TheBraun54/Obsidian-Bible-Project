@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after John was delivered up, Jesus came into Galilee, preaching the gospel of God,
+Now after John was taken into custody, Jesus came into Galilee, preaching the Good News of the Kingdom of God,

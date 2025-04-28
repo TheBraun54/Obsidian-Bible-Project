@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the rain descended, and the floods came, and the winds blew, and beat upon that house; and if fell not: for it was founded upon the rock.
+The rain came down, the floods came, and the winds blew, and beat on that house; and it didn't fall, for it was founded on the rock.

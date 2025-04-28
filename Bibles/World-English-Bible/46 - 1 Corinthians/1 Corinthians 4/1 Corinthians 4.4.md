@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know nothing against myself; yet am I not hereby justified: but he that judgeth me is the Lord.
+For I know nothing against myself. Yet I am not justified by this, but he who judges me is the Lord.

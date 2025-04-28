@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto him, Arise, take up thy bed, and walk.
+Jesus said to him, "Arise, take up your mat, and walk."

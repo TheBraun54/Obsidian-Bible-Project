@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Cast it unto the potter, the goodly price that I was prized at by them. And I took the thirty [pieces] of silver, and cast them unto the potter, in the house of Jehovah.
+Yahweh said to me, "Throw it to the potter, the handsome price that I was valued at by them!" I took the thirty pieces of silver, and threw them to the potter, in the house of Yahweh.

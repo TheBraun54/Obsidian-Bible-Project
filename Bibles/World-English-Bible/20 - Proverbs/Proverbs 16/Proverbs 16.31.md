@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hoary head is a crown of glory; It shall be found in the way of righteousness.
+Gray hair is a crown of glory. It is attained by a life of righteousness.

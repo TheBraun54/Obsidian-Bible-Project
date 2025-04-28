@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord hath swallowed up all the habitations of Jacob, and hath not pitied: He hath thrown down in his wrath the strongholds of the daughter of Judah; He hath brought them down to the ground; he hath profaned the kingdom and the princes thereof.
+The Lord has swallowed up all the habitations of Jacob, and has not pitied: He has thrown down in his wrath the strongholds of the daughter of Judah; He has brought them down to the ground; he has profaned the kingdom and its princes.

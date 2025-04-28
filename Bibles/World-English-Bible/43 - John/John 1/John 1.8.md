@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He was not the light, but [came] that he might bear witness of the light.
+He was not the light, but was sent that he might testify about the light.

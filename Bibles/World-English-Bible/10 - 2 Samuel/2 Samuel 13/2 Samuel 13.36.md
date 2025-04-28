@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as soon as he had made an end of speaking, that, behold, the king's sons came, and lifted up their voice, and wept: and the king also and all his servants wept very sore. [
+It happened, as soon as he had finished speaking, that behold, the king's sons came, and lifted up their voice, and wept. The king also and all his servants wept bitterly.

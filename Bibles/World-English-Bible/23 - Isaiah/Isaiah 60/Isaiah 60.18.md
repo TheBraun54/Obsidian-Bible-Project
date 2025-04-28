@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Violence shall no more be heard in thy land, desolation nor destruction within thy borders; but thou shalt call thy walls Salvation, and thy gates Praise.
+Violence shall no more be heard in your land, desolation nor destruction within your borders; but you shall call your walls Salvation, and your gates Praise.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Having confidence in thine obedience I write unto thee, knowing that thou wilt do even beyond what I say.
+Having confidence in your obedience, I write to you, knowing that you will do even beyond what I say.

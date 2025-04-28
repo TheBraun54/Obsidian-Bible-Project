@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king commanded Hilkiah, and Ahikam the son of Shaphan, and Abdon the son of Micah, and Shaphan the scribe, and Asaiah the king's servant, saying,
+The king commanded Hilkiah, and Ahikam the son of Shaphan, and Abdon the son of Micah, and Shaphan the scribe, and Asaiah the king's servant, saying,

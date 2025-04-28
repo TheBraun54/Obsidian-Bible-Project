@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; on stringed instruments. Maschil of David]. Give ear to my prayer, O God; And hide not thyself from my supplication.
+Listen to my prayer, God. Don't hide yourself from my supplication.

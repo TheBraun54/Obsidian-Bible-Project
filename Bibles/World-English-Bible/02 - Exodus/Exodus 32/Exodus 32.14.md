@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah repented of the evil which he said he would do unto his people.
+Yahweh repented of the evil which he said he would do to his people.

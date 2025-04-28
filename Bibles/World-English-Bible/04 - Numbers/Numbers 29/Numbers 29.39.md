@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These ye shall offer unto Jehovah in your set feasts, besides your vows, and your freewill-offerings, for your burnt-offerings, and for your meal-offerings, and for your drink-offerings, and for your peace-offerings.
+"'You shall offer these to Yahweh in your set feasts, besides your vows, and your freewill offerings, for your burnt offerings, and for your meal offerings, and for your drink offerings, and for your peace offerings.'"

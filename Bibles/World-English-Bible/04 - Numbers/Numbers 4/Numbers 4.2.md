@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the sum of the sons of Kohath from among the sons of Levi, by their families, by their fathers' houses,
+"Take a census of the sons of Kohath from among the sons of Levi, by their families, by their fathers' houses,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua did unto them as Jehovah bade him: he hocked their horses, and burnt their chariots with fire.
+Joshua did to them as Yahweh told him. He hamstrung their horses and burnt their chariots with fire.

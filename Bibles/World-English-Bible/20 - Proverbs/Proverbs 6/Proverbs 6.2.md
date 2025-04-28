@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art snared with the words of thy mouth, Thou art taken with the words of thy mouth.
+You are trapped by the words of your mouth. You are ensnared with the words of your mouth.

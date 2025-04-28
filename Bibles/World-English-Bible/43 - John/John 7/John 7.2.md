@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the feast of the Jews, the feast of tabernacles, was at hand.
+Now the feast of the Jews, the Feast of Booths, was at hand.

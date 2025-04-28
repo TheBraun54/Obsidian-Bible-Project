@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall perish; but thou continuest: And they all shall wax old as doth a garment;
+They will perish, but you continue. They all will grow old like a garment does.

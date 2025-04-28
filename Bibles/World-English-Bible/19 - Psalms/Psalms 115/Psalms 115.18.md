@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we will bless Jehovah From this time forth and for evermore. Praise ye Jehovah.
+But we will bless Yah, from this time forth and forevermore. Praise Yah!

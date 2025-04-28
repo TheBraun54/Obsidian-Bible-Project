@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked desireth the net of evil men; But the root of the righteous yieldeth [fruit] .
+The wicked desires the plunder of evil men, but the root of the righteous flourishes.

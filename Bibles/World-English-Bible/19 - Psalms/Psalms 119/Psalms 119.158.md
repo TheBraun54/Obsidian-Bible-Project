@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beheld the treacherous, and was grieved, Because they observe not thy word.
+I look at the faithless with loathing, because they don't observe your word.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath looked upon the low estate of his handmaid: For behold, from henceforth all generations shall call me blessed.
+for he has looked at the humble state of his handmaid. For behold, from now on, all generations will call me blessed.

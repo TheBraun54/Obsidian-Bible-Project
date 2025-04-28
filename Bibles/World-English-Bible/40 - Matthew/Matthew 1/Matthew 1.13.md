@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zerubbabel begat Abiud; and Abiud begat Eliakim; and Eliakim begat Azor;
+Zerubbabel became the father of Abiud. Abiud became the father of Eliakim. Eliakim became the father of Azor.

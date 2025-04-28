@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-rendering vengeance to them that know not God, and to them that obey not the gospel of our Lord Jesus:
+giving vengeance to those who don't know God, and to those who don't obey the Good News of our Lord Jesus,

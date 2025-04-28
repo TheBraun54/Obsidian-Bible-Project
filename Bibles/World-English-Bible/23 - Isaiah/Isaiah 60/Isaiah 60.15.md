@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereas thou hast been forsaken and hated, so that no man passed through thee, I will make thee an eternal excellency, a joy of many generations.
+"Whereas you have been forsaken and hated, so that no man passed through you, I will make you an eternal excellency, a joy of many generations.

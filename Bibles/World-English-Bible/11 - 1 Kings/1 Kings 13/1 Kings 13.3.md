@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave a sign the same day, saying, This is the sign which Jehovah hath spoken: Behold, the altar shall be rent, and the ashes that are upon it shall be poured out.
+He gave a sign the same day, saying, "This is the sign which Yahweh has spoken: Behold, the altar will be split apart, and the ashes that are on it will be poured out."

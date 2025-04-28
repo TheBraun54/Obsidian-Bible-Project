@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then cometh Jesus with them unto a place called Gethsemane, and saith unto his disciples, Sit ye here, while I go yonder and pray.
+Then Jesus came with them to a place called Gethsemane, and said to his disciples, "Sit here, while I go there and pray."

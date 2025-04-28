@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But she answered and saith unto him, Yea, Lord; even the dogs under the table eat of the children's crumbs.
+But she answered him, "Yes, Lord. Yet even the dogs under the table eat the children's crumbs."

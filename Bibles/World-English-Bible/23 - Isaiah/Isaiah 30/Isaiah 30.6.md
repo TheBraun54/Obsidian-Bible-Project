@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of the beasts of the South. Through the land of trouble and anguish, from whence come the lioness and the lion, the viper and fiery flying serpent, they carry their riches upon the shoulders of young asses, and their treasures upon the humps of camels, to a people that shall not profit [them] .
+The burden of the animals of the South. Through the land of trouble and anguish, of the lioness and the lion, the viper and fiery flying serpent, they carry their riches on the shoulders of young donkeys, and their treasures on the humps of camels, to an unprofitable people.

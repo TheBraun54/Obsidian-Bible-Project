@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech gat him up to mount Zalmon, he and all the people that were with him; and Abimelech took an axe in his hand, and cut down a bough from the trees, and took it up, and laid it on his shoulder: and he said unto the people that were with him, What ye have seen me do, make haste, and do as I have done.
+Abimelech went up to Mount Zalmon, he and all the people who were with him; and Abimelech took an axe in his hand, and cut down a bough from the trees, and took it up, and laid it on his shoulder: and he said to the people who were with him, "What you have seen me do, make haste, and do as I have done!"

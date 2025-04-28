@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things have I spoken unto you, while [yet] abiding with you.
+I have said these things to you, while still living with you.

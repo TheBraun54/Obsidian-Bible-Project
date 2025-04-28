@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they may believe that Jehovah, the God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath appeared unto thee.
+"That they may believe that Yahweh, the God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has appeared to you."

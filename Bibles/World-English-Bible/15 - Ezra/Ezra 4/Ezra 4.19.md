@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I decreed, and search hath been made, and it is found that this city of old time hath made insurrection against kings, and that rebellion and sedition have been made therein.
+I decreed, and search has been made, and it is found that this city of old time has made insurrection against kings, and that rebellion and sedition have been made therein.

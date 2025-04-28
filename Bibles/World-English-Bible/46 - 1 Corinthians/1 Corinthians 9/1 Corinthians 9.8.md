@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do I speak these things after the manner of men? or saith not the law also the same?
+Do I speak these things according to the ways of men? Or doesn't the law also say the same thing?

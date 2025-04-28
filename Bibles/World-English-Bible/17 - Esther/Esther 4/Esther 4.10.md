@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Esther spake unto Hathach, and gave him a message unto Mordecai [saying] :
+Then Esther spoke to Hathach, and gave him a message to Mordecai:

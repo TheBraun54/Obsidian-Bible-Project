@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he cometh to Simon Peter. He saith unto him, Lord, dost thou wash my feet?
+Then he came to Simon Peter. He said to him, "Lord, do you wash my feet?"

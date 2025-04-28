@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said, Go up, and bury thy father, according as he made thee swear.
+Pharaoh said, "Go up, and bury your father, just like he made you swear."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I pray thee therefore, father, that thou wouldest send him to my father's house;
+"He said, 'I ask you therefore, father, that you would send him to my father's house;

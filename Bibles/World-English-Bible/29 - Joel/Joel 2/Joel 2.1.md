@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blow ye the trumpet in Zion, and sound an alarm in my holy mountain; let all the inhabitants of the land tremble: for the day of Jehovah cometh, for it is nigh at hand;
+Blow the trumpet in Zion, and sound an alarm in my holy mountain! Let all the inhabitants of the land tremble, for the day of Yahweh comes, for it is close at hand:

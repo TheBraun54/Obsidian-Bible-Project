@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they drew nigh unto Jerusalem, and came unto Bethphage, unto the mount of Olives, then Jesus sent two disciples,
+When they drew near to Jerusalem, and came to Bethsphage, to the Mount of Olives, then Jesus sent two disciples,

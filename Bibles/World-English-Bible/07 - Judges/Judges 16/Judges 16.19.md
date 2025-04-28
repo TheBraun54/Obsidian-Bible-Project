@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she made him sleep upon her knees; and she called for a man, and shaved off the seven locks of his head; and she began to afflict him, and his strength went from him.
+She made him sleep on her knees; and she called for a man, and shaved off the seven locks of his head; and she began to afflict him, and his strength went from him.

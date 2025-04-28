@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my God, incline thine ear, and hear; open thine eyes, and behold our desolations, and the city which is called by thy name: for we do not present our supplications before thee for our righteousness, but for thy great mercies' sake.
+My God, turn your ear, and hear; open your eyes, and see our desolations, and the city which is called by your name: for we do not present our petitions before you for our righteousness, but for your great mercies' sake.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so ye also outwardly appear righteous unto men, but inwardly ye are full of hypocrisy and iniquity.
+Even so you also outwardly appear righteous to men, but inwardly you are full of hypocrisy and iniquity.

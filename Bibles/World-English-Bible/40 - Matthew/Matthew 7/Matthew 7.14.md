@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For narrow is the gate, and straitened the way, that leadeth unto life, and few are they that find it.
+How narrow is the gate, and restricted is the way that leads to life! Few are those who find it.

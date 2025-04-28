@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these things shall be for a statute [and] ordinance unto you throughout your generations in all your dwellings.
+"'These things shall be for a statute [and] ordinance to you throughout your generations in all your dwellings.

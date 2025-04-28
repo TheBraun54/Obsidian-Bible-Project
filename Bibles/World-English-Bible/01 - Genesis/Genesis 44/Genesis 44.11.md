@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they hasted, and took down every man his sack to the ground, and opened every man his sack.
+Then they hurried, and each man took his sack down to the ground, and each man opened his sack.

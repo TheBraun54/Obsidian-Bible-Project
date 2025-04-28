@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he carried me away in the Spirit to a mountain great and high, and showed me the holy city Jerusalem, coming down out of heaven from God,
+He carried me away in the Spirit to a great and high mountain, and showed me the holy city, Jerusalem, coming down out of heaven from God,

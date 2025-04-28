@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou commanded the morning since thy days [began], [And] caused the dayspring to know its place;
+"Have you commanded the morning in your days, and caused the dawn to know its place;

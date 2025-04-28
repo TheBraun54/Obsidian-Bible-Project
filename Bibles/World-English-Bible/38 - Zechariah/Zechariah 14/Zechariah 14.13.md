@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that a great tumult from Jehovah shall be among them; and they shall lay hold every one on the hand of his neighbor, and his hand shall rise up against the hand of his neighbor.
+It will happen in that day, that a great panic from Yahweh will be among them; and they will lay hold everyone on the hand of his neighbor, and his hand will rise up against the hand of his neighbor.

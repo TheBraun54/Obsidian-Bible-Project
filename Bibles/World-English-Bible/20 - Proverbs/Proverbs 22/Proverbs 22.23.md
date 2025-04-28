@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will plead their cause, And despoil of life those that despoil them.
+for Yahweh will plead their case, and plunder the life of those who plunder them.

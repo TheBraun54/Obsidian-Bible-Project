@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked are estranged from the womb: They go astray as soon as they are born, speaking lies.
+The wicked go astray from the womb. They are wayward as soon as they are born, speaking lies.

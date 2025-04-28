@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after some days Paul said unto Barnabas, Let us return now and visit the brethren in every city wherein we proclaimed the word of the Lord, [and see] how they fare.
+After some days Paul said to Barnabas, "Let's return now and visit our brothers in every city in which we proclaimed the word of the Lord, to see how they are doing."

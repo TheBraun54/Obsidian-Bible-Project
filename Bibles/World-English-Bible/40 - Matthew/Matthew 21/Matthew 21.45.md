@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the chief priests and the Pharisees heard his parables, they perceived that he spake of them.
+When the chief priests and the Pharisees heard his parables, they perceived that he spoke about them.

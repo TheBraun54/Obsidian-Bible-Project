@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But because I have spoken these things unto you, sorrow hath filled your heart.
+But because I have told you these things, sorrow has filled your heart.

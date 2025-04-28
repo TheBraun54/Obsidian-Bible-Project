@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the soul that doeth aught with a high hand, whether he be home-born or a sojourner, the same blasphemeth Jehovah; and that soul shall be cut off from among his people.
+"'But the soul who does anything with a high hand, whether he is native-born or a foreigner, the same blasphemes Yahweh; and that soul shall be cut off from among his people.

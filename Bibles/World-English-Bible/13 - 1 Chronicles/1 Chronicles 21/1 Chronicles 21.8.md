@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto God, I have sinned greatly, in that I have done this thing: but now, put away, I beseech thee, the iniquity of thy servant; for I have done very foolishly.
+David said to God, "I have sinned greatly, in that I have done this thing. But now, put away, I beg you, the iniquity of your servant; for I have done very foolishly."

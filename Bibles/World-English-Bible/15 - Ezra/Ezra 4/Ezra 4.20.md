@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There have been mighty kings also over Jerusalem, who have ruled over all [the country] beyond the River; and tribute, custom, and toll, was paid unto them.
+There have been mighty kings also over Jerusalem, who have ruled over all [the country] beyond the River; and tribute, custom, and toll, was paid to them.

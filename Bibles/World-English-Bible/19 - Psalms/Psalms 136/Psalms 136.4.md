@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him who alone doeth great wonders; For his lovingkindness [endureth] for ever:
+To him who alone does great wonders; for his loving kindness endures forever:

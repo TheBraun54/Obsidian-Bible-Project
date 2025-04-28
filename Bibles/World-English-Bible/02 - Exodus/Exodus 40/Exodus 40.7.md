@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set the laver between the tent of meeting and the altar, and shalt put water therein.
+You shall set the basin between the Tent of Meeting and the altar, and shall put water therein.

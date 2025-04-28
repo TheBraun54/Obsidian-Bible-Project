@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go, and tell Hananiah, saying, Thus saith Jehovah: Thou hast broken the bars of wood; but thou hast made in their stead bars of iron.
+Go, and tell Hananiah, saying, Thus says Yahweh: You have broken the bars of wood; but you have made in their place bars of iron.

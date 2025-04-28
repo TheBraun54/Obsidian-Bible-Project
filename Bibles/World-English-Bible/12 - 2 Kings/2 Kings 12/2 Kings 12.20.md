@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his servants arose, and made a conspiracy, and smote Joash at the house of Millo, [on the way] that goeth down to Silla.
+His servants arose, and made a conspiracy, and struck Joash at the house of Millo, [on the way] that goes down to Silla.

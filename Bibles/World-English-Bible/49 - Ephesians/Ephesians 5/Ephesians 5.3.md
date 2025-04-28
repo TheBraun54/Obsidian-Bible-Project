@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But fornication, and all uncleanness, or covetousness, let it not even be named among you, as becometh saints;
+But sexual immorality, and all uncleanness, or covetousness, let it not even be mentioned among you, as becomes saints;

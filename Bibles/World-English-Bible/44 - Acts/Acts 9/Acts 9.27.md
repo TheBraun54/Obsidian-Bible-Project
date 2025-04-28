@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Barnabas took him, and brought him to the apostles, and declared unto them how he had seen the Lord in the way, and that he had spoken to him, and how at Damascus he had preached boldly in the name of Jesus.
+But Barnabas took him, and brought him to the apostles, and declared to them how he had seen the Lord in the way, and that he had spoken to him, and how at Damascus he had preached boldly in the name of Jesus.

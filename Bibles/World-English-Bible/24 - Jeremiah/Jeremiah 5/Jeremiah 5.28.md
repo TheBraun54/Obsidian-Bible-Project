@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are waxed fat, they shine: yea, they overpass in deeds of wickedness; they plead not the cause, the cause of the fatherless, that they may prosper; and the right of the needy do they not judge.
+They have grown fat. They shine; yes, they excell in deeds of wickedness. They don't plead the cause, the cause of the fatherless, that they may prosper; and they don't judge the right of the needy.

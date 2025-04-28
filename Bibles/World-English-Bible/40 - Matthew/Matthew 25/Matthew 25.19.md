@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after a long time the lord of those servants cometh, and maketh a reckoning with them.
+"Now after a long time the lord of those servants came, and reconciled accounts with them.

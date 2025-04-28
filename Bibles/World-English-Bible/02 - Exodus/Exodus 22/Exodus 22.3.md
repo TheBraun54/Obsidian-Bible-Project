@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the sun be risen upon him, there shall be bloodguiltiness for him; he shall make restitution: if he have nothing, then he shall be sold for his theft.
+If the sun has risen on him, guilt of bloodshed shall be for him; he shall make restitution. If he has nothing, then he shall be sold for his theft.

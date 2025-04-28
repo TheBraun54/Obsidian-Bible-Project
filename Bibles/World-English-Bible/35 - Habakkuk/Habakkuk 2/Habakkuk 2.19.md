@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto him that saith to the wood, Awake; to the dumb stone, Arise! Shall this teach? Behold, it is overlaid with gold and silver, and there is no breath at all in the midst of it.
+Woe to him who says to the wood, 'Awake!' or to the mute stone, 'Arise!' Shall this teach? Behold, it is overlaid with gold and silver, and there is no breath at all in its midst.

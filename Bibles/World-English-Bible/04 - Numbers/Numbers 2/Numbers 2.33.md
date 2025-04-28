@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Levites were not numbered among the children of Israel; as Jehovah commanded Moses.
+But the Levites were not numbered among the children of Israel; as Yahweh commanded Moses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ashdod, its towns and its villages; Gaza, its towns and its villages; unto the brook of Egypt, and the great sea, and the border [thereof] .
+Ashdod, its towns and its villages; Gaza, its towns and its villages; to the brook of Egypt, and the great sea with its coastline.

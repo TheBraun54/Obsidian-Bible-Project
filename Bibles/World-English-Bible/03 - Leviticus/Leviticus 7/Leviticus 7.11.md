@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the law of the sacrifice of peace-offerings, which one shall offer unto Jehovah.
+"'This is the law of the sacrifice of peace offerings, which one shall offer to Yahweh.

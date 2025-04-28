@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon loved Jehovah, walking in the statutes of David his father: only he sacrificed and burnt incense in the high places.
+Solomon loved Yahweh, walking in the statutes of David his father: only he sacrificed and burnt incense in the high places.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art our Father, though Abraham knoweth us not, and Israel doth not acknowledge us: thou, O Jehovah, art our Father; our Redeemer from everlasting is thy name.
+For you are our Father, though Abraham doesn't know us, and Israel does not acknowledge us: you, Yahweh, are our Father; our Redeemer from everlasting is your name.

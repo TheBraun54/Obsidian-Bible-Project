@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah answered the angel that talked with me with good words, [even] comfortable words.
+Yahweh answered the angel who talked with me with kind and comforting words.

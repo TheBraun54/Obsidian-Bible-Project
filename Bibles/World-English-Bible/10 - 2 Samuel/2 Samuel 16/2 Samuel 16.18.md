@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hushai said unto Absalom, Nay; but whom Jehovah, and this people, and all the men of Israel have chosen, his will I be, and with him will I abide.
+Hushai said to Absalom, "No; but whoever Yahweh, and this people, and all the men of Israel have chosen, his will I be, and with him I will stay.

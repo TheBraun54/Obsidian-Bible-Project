@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His roots shall be dried up beneath, And above shall his branch be cut off.
+His roots shall be dried up beneath. Above shall his branch be cut off.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thy days are fulfilled, and thou shalt sleep with thy fathers, I will set up thy seed after thee, that shall proceed out of thy bowels, and I will establish his kingdom.
+When your days are fulfilled, and you shall sleep with your fathers, I will set up your seed after you, who shall proceed out of your bowels, and I will establish his kingdom.

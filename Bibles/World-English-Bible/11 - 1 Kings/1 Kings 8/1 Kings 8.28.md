@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet have thou respect unto the prayer of thy servant, and to his supplication, O Jehovah my God, to hearken unto the cry and to the prayer which thy servant prayeth before thee this day;
+Yet have respect for the prayer of your servant, and for his supplication, Yahweh my God, to listen to the cry and to the prayer which your servant prays before you this day;

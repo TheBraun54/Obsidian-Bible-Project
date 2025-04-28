@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have surely heard Ephraim bemoaning himself [thus], Thou hast chastised me, and I was chastised, as a calf unaccustomed [to the yoke] : turn thou me, and I shall be turned; for thou art Jehovah my God.
+I have surely heard Ephraim bemoaning himself [thus], You have chastised me, and I was chastised, as a calf unaccustomed [to the yoke]: turn me, and I shall be turned; for you are Yahweh my God.

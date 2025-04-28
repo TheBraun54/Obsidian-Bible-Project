@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will rise up as in mount Perazim, he will be wroth as in the valley of Gibeon; that he may do his work, his strange work, and bring to pass his act, his strange act.
+For Yahweh will rise up as on Mount Perazim. He will be angry as in the valley of Gibeon; that he may do his work, his unusual work, and bring to pass his act, his extraordinary act.

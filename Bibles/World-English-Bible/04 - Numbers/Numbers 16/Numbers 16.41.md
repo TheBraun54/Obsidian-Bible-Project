@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But on the morrow all the congregation of the children of Israel murmured against Moses and against Aaron, saying, Ye have killed the people of Jehovah.
+But on the next day all the congregation of the children of Israel murmured against Moses and against Aaron, saying, "You have killed Yahweh's people!"

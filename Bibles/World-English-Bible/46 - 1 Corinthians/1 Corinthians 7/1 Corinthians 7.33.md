@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he that is married is careful for the things of the world, how he may please his wife,
+but he who is married is concerned about the things of the world, how he may please his wife.

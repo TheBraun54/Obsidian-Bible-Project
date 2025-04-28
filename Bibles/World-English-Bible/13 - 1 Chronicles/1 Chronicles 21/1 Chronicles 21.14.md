@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah sent a pestilence upon Israel; and there fell of Israel seventy thousand men.
+So Yahweh sent a pestilence on Israel; and seventy thousand men of Israel fell.

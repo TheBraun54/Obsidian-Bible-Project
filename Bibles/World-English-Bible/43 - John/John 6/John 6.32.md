@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said unto them, Verily, verily, I say unto you, It was not Moses that gave you the bread out of heaven; but my Father giveth you the true bread out of heaven.
+Jesus therefore said to them, "Most certainly, I tell you, it wasn't Moses who gave you the bread out of heaven, but my Father gives you the true bread out of heaven.

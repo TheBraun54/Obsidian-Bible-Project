@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake to his sons, saying, Saddle me the ass. And they saddled it.
+He spoke to his sons, saying, "Saddle the donkey for me." They saddled it.

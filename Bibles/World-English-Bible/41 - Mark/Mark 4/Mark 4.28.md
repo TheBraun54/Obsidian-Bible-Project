@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth beareth fruit of herself; first the blade, then the ear, then the full grain in the ear.
+For the earth bears fruit: first the blade, then the ear, then the full grain in the ear.

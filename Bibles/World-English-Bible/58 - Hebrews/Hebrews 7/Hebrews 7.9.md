@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, so to say, through Abraham even Levi, who receiveth tithes, hath paid tithes;
+We can say that through Abraham even Levi, who receives tithes, has paid tithes,

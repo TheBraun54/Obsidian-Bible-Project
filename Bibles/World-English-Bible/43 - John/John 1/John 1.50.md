@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto him, Because I said unto thee, I saw thee underneath the fig tree, believest thou? thou shalt see greater things than these.
+Jesus answered him, "Because I told you, 'I saw you underneath the fig tree,' do you believe? You will see greater things than these!"

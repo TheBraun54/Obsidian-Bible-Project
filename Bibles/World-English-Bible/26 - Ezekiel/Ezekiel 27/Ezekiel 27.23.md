@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Haran and Canneh and Eden, the traffickers of Sheba, Asshur [and] Chilmad, were thy traffickers.
+Haran and Canneh and Eden, the traffickers of Sheba, Asshur [and] Chilmad, were your traffickers.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And make one cherub at the one end, and one cherub at the other end: of one piece with the mercy-seat shall ye make the cherubim on the two ends thereof.
+Make one cherub at the one end, and one cherub at the other end. You shall make the cherubim on its two ends of one piece with the mercy seat.

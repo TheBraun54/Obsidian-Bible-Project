@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-oil for the light, spices for the anointing oil, and for the sweet incense,
+oil for the light, spices for the anointing oil and for the sweet incense,

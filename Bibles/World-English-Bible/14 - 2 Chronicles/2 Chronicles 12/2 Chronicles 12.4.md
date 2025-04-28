@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took the fortified cities which pertained to Judah, and came unto Jerusalem.
+He took the fortified cities which pertained to Judah, and came to Jerusalem.

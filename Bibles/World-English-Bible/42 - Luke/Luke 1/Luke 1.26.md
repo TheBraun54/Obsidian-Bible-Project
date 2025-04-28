@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in the sixth month the angel Gabriel was sent from God unto a city of Galilee, named Nazareth,
+Now in the sixth month, the angel Gabriel was sent from God to a city of Galilee, named Nazareth,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We will go into his tabernacles; We will worship at his footstool.
+"We will go into his dwelling place. We will worship at his footstool.

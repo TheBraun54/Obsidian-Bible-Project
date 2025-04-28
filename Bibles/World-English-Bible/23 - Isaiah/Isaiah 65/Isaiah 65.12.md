@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will destine you to the sword, and ye shall all bow down to the slaughter; because when I called, ye did not answer; when I spake, ye did not hear; but ye did that which was evil in mine eyes, and chose that wherein I delighted not.
+I will destine you to the sword, and you shall all bow down to the slaughter; because when I called, you did not answer; when I spoke, you did not hear; but you did that which was evil in my eyes, and chose that in which I didn't delight."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who in the generations gone by suffered all the nations to walk in their own ways.
+who in the generations gone by allowed all the nations to walk in their own ways.

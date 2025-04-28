@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall have no inheritance among their brethren: Jehovah is their inheritance, as he hath spoken unto them.
+They shall have no inheritance among their brothers: Yahweh is their inheritance, as he has spoken to them.

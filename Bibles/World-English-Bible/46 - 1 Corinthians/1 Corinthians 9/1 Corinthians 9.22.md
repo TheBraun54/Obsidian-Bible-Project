@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the weak I became weak, that I might gain the weak: I am become all things to all men, that I may by all means save some.
+To the weak I became as weak, that I might gain the weak. I have become all things to all men, that I may by all means save some.

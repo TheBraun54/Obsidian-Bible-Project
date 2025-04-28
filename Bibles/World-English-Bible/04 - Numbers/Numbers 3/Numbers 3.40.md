@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Number all the first-born males of the children of Israel from a month old and upward, and take the number of their names.
+Yahweh said to Moses, "Number all the firstborn males of the children of Israel from a month old and upward, and take the number of their names.

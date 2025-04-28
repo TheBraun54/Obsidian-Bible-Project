@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one therefore that heareth these words of mine, and doeth them, shall be likened unto a wise man, who built his house upon the rock:
+"Everyone therefore who hears these words of mine, and does them, I will liken him to a wise man, who built his house on a rock.

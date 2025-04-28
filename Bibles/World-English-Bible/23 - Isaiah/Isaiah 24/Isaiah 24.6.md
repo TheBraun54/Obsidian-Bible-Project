@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore hath the curse devoured the earth, and they that dwell therein are found guilty: therefore the inhabitants of the earth are burned, and few men left.
+Therefore the curse has devoured the earth, and those who dwell therein are found guilty. Therefore the inhabitants of the earth are burned, and few men left.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She is a tree of life to them that lay hold upon her: And happy is every one that retaineth her.
+She is a tree of life to those who lay hold of her. Happy is everyone who retains her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul was yet the more afraid of David; and Saul was David's enemy continually.
+Saul was yet the more afraid of David; and Saul was David's enemy continually.

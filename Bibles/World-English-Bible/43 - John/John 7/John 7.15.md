@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore marvelled, saying, How knoweth this man letters, having never learned?
+The Jews therefore marveled, saying, "How does this man know letters, having never been educated?"

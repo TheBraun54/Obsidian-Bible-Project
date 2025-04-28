@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus had crossed over again in the boat unto the other side, a great multitude was gathered unto him; and he was by the sea.
+When Jesus had crossed back over in the boat to the other side, a great multitude was gathered to him; and he was by the sea.

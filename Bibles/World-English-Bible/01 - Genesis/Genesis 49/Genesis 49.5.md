@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simeon and Levi are brethren; Weapons of violence are their swords.
+"Simeon and Levi are brothers. Their swords are weapons of violence.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Send thou men, that they may spy out the land of Canaan, which I give unto the children of Israel: of every tribe of their fathers shall ye send a man, every one a prince among them.
+"Send men, that they may spy out the land of Canaan, which I give to the children of Israel. Of every tribe of their fathers, you shall send a man, every one a prince among them."

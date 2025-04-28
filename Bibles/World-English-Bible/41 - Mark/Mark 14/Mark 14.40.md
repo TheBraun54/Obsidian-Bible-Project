@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he came, and found them sleeping, for their eyes were very heavy; and they knew not what to answer him.
+Again he returned, and found them sleeping, for their eyes were very heavy, and they didn't know what to answer him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Job arose, and rent his robe, and shaved his head, and fell down upon the ground, and worshipped;
+Then Job arose, and tore his robe, and shaved his head, and fell down on the ground, and worshiped.

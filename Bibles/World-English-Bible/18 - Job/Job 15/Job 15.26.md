@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He runneth upon him with a [stiff] neck, With the thick bosses of his bucklers;
+he runs at him with a stiff neck, with the thick shields of his bucklers;

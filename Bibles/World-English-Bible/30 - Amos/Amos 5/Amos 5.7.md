@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye who turn justice to wormwood, and cast down righteousness to the earth,
+You who turn justice to wormwood, and cast down righteousness to the earth:

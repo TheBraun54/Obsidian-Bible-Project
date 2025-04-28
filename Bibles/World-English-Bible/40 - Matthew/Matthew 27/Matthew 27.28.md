@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stripped him, and put on him a scarlet robe.
+They stripped him, and put a scarlet robe on him.

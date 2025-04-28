@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoash king of Judah took all the hallowed things that Jehoshaphat and Jehoram and Ahaziah, his fathers, kings of Judah, had dedicated, and his own hallowed things, and all the gold that was found in the treasures of the house of Jehovah, and of the king's house, and sent it to Hazael king of Syria: and he went away from Jerusalem.
+Jehoash king of Judah took all the holy things that Jehoshaphat and Jehoram and Ahaziah, his fathers, kings of Judah, had dedicated, and his own holy things, and all the gold that was found in the treasures of the house of Yahweh, and of the king's house, and sent it to Hazael king of Syria: and he went away from Jerusalem.

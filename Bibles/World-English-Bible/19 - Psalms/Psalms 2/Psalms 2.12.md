@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Kiss the son, lest he be angry, and ye perish in the way, For his wrath will soon be kindled. Blessed are all they that take refuge in him.
+Give sincere homage to the Son, lest he be angry, and you perish in the way, for his wrath will soon be kindled. Blessed are all those who take refuge in him. A Psalm by David, when he fled from Absalom his son.

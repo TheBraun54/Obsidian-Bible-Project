@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is the chief of the ways of God: He [only] that made him giveth him his sword.
+He is the chief of the ways of God. He who made him gives him his sword.

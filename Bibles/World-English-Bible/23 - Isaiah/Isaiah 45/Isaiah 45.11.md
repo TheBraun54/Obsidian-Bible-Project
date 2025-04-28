@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, the Holy One of Israel, and his Maker: Ask me of the things that are to come; concerning my sons, and concerning the work of my hands, command ye me.
+Thus says Yahweh, the Holy One of Israel, and his Maker: "You ask me about the things that are to come, concerning my sons, and you command me concerning the work of my hands!

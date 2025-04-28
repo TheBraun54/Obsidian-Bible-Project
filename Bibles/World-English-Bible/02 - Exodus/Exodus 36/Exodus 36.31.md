@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made bars of acacia wood; five for the boards of the one side of the tabernacle,
+He made bars of acacia wood; five for the boards of the one side of the tabernacle,

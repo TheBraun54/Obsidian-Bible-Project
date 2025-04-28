@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that smiteth any man mortally shall surely be put to death.
+"'He who strikes any man mortally shall surely be put to death.

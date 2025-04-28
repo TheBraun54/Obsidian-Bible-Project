@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, Pashhur, and all that dwell in thy house shall go into captivity; and thou shalt come to Babylon, and there thou shalt die, and there shalt thou be buried, thou, and all thy friends, to whom thou hast prophesied falsely.
+You, Pashhur, and all who dwell in your house shall go into captivity; and you shall come to Babylon, and there you shall die, and there you shall be buried, you, and all your friends, to whom you have prophesied falsely.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, Wheresoever this gospel shall be preached in the whole world, that also which this woman hath done shall be spoken of for a memorial of her.
+Most certainly I tell you, wherever this Good News is preached in the whole world, what this woman has done will also be spoken of as a memorial of her."

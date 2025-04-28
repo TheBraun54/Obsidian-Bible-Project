@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from among the peoples and tribes and tongues and nations do [men] look upon their dead bodies three days and a half, and suffer not their dead bodies to be laid in a tomb.
+From among the peoples, tribes, languages, and nations people will look at their dead bodies for three and a half days, and will not allow their dead bodies to be laid in a tomb.

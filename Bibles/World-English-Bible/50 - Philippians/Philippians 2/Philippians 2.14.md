@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do all things without murmurings and questionings:
+Do all things without murmurings and disputes,

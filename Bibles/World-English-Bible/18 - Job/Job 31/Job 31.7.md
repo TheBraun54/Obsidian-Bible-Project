@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If my step hath turned out of the way, And my heart walked after mine eyes, And if any spot hath cleaved to my hands:
+if my step has turned out of the way, if my heart walked after my eyes, if any defilement has stuck to my hands,

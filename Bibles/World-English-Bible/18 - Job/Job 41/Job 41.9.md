@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the hope of him is in vain: Will not one be cast down even at the sight of him?
+Behold, the hope of him is in vain. Won't one be cast down even at the sight of him?

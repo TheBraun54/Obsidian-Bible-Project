@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover ye shall take no ransom for the life of a murderer, that is guilty of death; but he shall surely be put to death.
+"'Moreover you shall take no ransom for the life of a murderer who is guilty of death; but he shall surely be put to death.

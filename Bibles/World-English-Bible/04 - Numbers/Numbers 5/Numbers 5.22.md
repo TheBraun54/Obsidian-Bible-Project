@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and this water that causeth the curse shall go into thy bowels, and make thy body to swell, and thy thigh to fall away. And the woman shall say, Amen, Amen.
+and this water that brings a curse will go into your bowels, and make your body swell, and your thigh fall away." The woman shall say, "Amen, Amen."

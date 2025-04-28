@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will not leave him in his hand, Nor condemn him when he is judged.
+Yahweh will not leave him in his hand, nor condemn him when he is judged.

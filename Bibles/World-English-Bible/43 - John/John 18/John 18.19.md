@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The high priest therefore asked Jesus of his disciples, and of his teaching.
+The high priest therefore asked Jesus about his disciples, and about his teaching.

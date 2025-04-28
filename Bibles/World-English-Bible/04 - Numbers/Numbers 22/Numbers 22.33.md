@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the ass saw me, and turned aside before me these three times: unless she had turned aside from me, surely now I had even slain thee, and saved her alive.
+and the donkey saw me, and turned aside before me these three times. Unless she had turned aside from me, surely now I would have killed you, and saved her alive."

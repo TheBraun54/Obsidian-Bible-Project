@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when his servants told David these words, it pleased David well to be the king's son-in-law. And the days were not expired;
+When his servants told David these words, it pleased David well to be the king's son-in-law. The days were not expired;

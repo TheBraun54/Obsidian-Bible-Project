@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-speak, and say, Thus saith the Lord Jehovah: Behold, I am against thee, Pharaoh king of Egypt, the great monster that lieth in the midst of his rivers, that hath said, My river is mine own, and I have made it for myself.
+Speak and say, 'Thus says the Lord Yahweh: "Behold, I am against you, Pharaoh king of Egypt, the great monster that lies in the midst of his rivers, that has said, 'My river is my own, and I have made it for myself.'

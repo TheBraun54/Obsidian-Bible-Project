@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A good tree cannot bring forth evil fruit, neither can a corrupt tree bring forth good fruit.
+A good tree can't produce evil fruit, neither can a corrupt tree produce good fruit.

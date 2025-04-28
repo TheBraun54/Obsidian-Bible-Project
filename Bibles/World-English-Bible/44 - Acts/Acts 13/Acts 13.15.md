@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the reading of the law and the prophets the rulers of the synagogue sent unto them, saying, Brethren, if ye have any word of exhortation for the people, say on.
+After the reading of the law and the prophets, the rulers of the synagogue sent to them, saying, "Brothers, if you have any word of exhortation for the people, speak."

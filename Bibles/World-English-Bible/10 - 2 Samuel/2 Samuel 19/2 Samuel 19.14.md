@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he bowed the heart of all the men of Judah, even as [the heart of] one man; so that they sent unto the king, [saying], Return thou, and all thy servants.
+He bowed the heart of all the men of Judah, even as [the heart of] one man; so that they sent to the king, saying, "Return, you and all your servants."

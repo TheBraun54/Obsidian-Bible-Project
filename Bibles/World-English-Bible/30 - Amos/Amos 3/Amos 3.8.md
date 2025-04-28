@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lion hath roared; who will not fear? The Lord Jehovah hath spoken; who can but prophesy?
+The lion has roared. Who will not fear? The Lord Yahweh has spoken. Who can but prophesy?

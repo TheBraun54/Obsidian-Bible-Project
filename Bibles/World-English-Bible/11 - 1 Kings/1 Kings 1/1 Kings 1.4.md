@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the damsel was very fair; and she cherished the king, and ministered to him; but the king knew her not.
+The young lady was very beautiful; and she cherished the king, and ministered to him; but the king didn't know her intimately.

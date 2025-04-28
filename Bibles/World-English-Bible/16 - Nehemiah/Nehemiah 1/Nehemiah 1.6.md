@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thine ear now be attentive, and thine eyes open, that thou mayest hearken unto the prayer of thy servant, which I pray before thee at this time, day and night, for the children of Israel thy servants while I confess the sins of the children of Israel, which we have sinned against thee. Yea, I and my father's house have sinned:
+Let your ear now be attentive, and your eyes open, that you may listen to the prayer of your servant, which I pray before you at this time, day and night, for the children of Israel your servants while I confess the sins of the children of Israel, which we have sinned against you. Yes, I and my father's house have sinned.

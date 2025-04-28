@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Judah shall abide for ever, and Jerusalem from generation to generation.
+But Judah will be inhabited forever, and Jerusalem from generation to generation.

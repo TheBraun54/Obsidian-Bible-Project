@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the men of Judah answered the men of Israel, Because the king is near of kin to us: wherefore then are ye angry for this matter? have we eaten at all at the king's cost? or hath he given us any gift?
+All the men of Judah answered the men of Israel, "Because the king is a close relative to us. Why then are you angry about this matter? Have we eaten at all at the king's cost? Or has he given us any gift?"

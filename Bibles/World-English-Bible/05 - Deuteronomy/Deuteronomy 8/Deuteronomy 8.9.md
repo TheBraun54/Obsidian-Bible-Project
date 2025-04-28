@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a land wherein thou shalt eat bread without scarceness, thou shalt not lack anything in it; a land whose stones are iron, and out of whose hills thou mayest dig copper.
+a land in which you shall eat bread without scarceness, you shall not lack anything in it; a land whose stones are iron, and out of whose hills you may dig copper.

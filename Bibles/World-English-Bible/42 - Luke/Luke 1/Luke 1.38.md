@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mary said, Behold, the handmaid of the Lord; be it unto me according to thy word. And the angel departed from her.
+Mary said, "Behold, the handmaid of the Lord; be it to me according to your word." The angel departed from her.

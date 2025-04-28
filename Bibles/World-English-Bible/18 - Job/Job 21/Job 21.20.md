@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let his own eyes see his destruction, And let him drink of the wrath of the Almighty.
+Let his own eyes see his destruction. Let him drink of the wrath of the Almighty.

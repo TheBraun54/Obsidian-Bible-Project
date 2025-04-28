@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou draw out leviathan with a fishhook? Or press down his tongue with a cord?
+"Can you draw out Leviathan with a fishhook, or press down his tongue with a cord?

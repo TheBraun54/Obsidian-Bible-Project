@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-hath given forth upon interest, and hath taken increase; shall he then live? he shall not live: he hath done all these abominations; he shall surely die; his blood shall be upon him.
+has given forth on interest, and has taken increase; shall he then live? he shall not live: he has done all these abominations; he shall surely die; his blood shall be on him.

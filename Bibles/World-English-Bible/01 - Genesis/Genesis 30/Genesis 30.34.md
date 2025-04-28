@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban said, Behold, I would it might be according to thy word.
+Laban said, "Behold, let it be according to your word."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He prayeth unto God, and he is favorable unto him, So that he seeth his face with joy: And he restoreth unto man his righteousness.
+He prays to God, and he is favorable to him, so that he sees his face with joy. He restores to man his righteousness.

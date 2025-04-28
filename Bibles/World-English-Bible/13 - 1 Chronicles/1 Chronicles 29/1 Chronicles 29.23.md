@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Solomon sat on the throne of Jehovah as king instead of David his father, and prospered; and all Israel obeyed him.
+Then Solomon sat on the throne of Yahweh as king instead of David his father, and prospered; and all Israel obeyed him.

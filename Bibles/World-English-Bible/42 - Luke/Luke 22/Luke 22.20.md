@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cup in like manner after supper, saying, This cup is the new covenant in my blood, [even] that which is poured out for you.
+Likewise, he took the cup after supper, saying, "This cup is the new covenant in my blood, which is poured out for you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom he gathered together, with the workmen of like occupation, and said, Sirs, ye know that by this business we have our wealth.
+whom he gathered together, with the workmen of like occupation, and said, "Sirs, you know that by this business we have our wealth.

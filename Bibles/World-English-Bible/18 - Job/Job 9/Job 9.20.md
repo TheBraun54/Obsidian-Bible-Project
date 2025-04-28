@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though I be righteous, mine own mouth shall condemn me: Though I be perfect, it shall prove me perverse.
+Though I am righteous, my own mouth shall condemn me. Though I am blameless, it shall prove me perverse.

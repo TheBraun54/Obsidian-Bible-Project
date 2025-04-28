@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, I have made thee this day a fortified city, and an iron pillar, and brazen walls, against the whole land, against the kings of Judah, against the princes thereof, against the priests thereof, and against the people of the land.
+For, behold, I have made you this day a fortified city, and an iron pillar, and bronze walls, against the whole land, against the kings of Judah, against its princes, against its priests, and against the people of the land.

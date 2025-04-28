@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the kings of the land whom Joshua and the children of Israel smote beyond the Jordan westward, from Baal-gad in the valley of Lebanon even unto mount Halak, that goeth up to Seir; and Joshua gave it unto the tribes of Israel for a possession according to their divisions;
+These are the kings of the land whom Joshua and the children of Israel struck beyond the Jordan westward, from Baal Gad in the valley of Lebanon even to Mount Halak, that goes up to Seir. Joshua gave it to the tribes of Israel for a possession according to their divisions;

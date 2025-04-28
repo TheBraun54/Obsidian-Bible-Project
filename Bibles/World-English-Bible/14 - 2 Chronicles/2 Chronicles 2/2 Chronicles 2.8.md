@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Send me also cedar-trees, fir-trees, and algum-trees, out of Lebanon; for I know that thy servants know how to cut timber in Lebanon: and, behold, my servants shall be with thy servants,
+"Send me also cedar trees, fir trees, and algum trees, out of Lebanon; for I know that your servants know how to cut timber in Lebanon: and behold, my servants shall be with your servants,

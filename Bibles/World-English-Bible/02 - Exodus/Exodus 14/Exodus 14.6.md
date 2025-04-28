@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made ready his chariot, and took his people with him:
+He prepared his chariot, and took his army with him;

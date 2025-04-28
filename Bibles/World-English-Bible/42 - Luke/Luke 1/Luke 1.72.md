@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To show mercy towards, our fathers, And to remember his holy covenant;
+to show mercy towards our fathers, to remember his holy covenant,

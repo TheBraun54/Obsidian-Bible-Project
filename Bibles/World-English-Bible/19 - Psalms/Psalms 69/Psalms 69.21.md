@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They gave me also gall for my food; And in my thirst they gave me vinegar to drink.
+They also gave me gall for my food. In my thirst, they gave me vinegar to drink.

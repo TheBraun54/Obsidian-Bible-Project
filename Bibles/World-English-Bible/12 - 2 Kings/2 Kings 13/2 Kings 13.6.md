@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless they departed not from the sins of the house of Jeroboam, wherewith he made Israel to sin, but walked therein: and there remained the Asherah also in Samaria.)
+Nevertheless they didn't depart from the sins of the house of Jeroboam, with which he made Israel to sin, but walked therein: and there remained the Asherah also in Samaria.)

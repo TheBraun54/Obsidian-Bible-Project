@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall come again the seventh day, and shall look; and, behold, if the plague be spread in the walls of the house;
+The priest shall come again on the seventh day, and look. If the plague has spread in the walls of the house,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What doth it profit, my brethren, if a man say he hath faith, but have not works? can that faith save him?
+What good is it, my brothers, if a man says he has faith, but has no works? Can faith save him?

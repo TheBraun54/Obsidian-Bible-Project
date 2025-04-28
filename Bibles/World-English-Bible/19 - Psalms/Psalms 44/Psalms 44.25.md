@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For our soul is bowed down to the dust: Our body cleaveth unto the earth.
+For our soul is bowed down to the dust. Our body clings to the earth.

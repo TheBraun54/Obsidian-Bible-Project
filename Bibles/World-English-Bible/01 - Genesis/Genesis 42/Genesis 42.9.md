@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph remembered the dreams which he dreamed of them, and said unto them, Ye are spies; to see the nakedness of the land ye are come.
+Joseph remembered the dreams which he dreamed about them, and said to them, "You are spies! You have come to see the nakedness of the land."

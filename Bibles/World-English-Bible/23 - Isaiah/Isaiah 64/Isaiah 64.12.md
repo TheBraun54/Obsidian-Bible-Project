@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou refrain thyself for these things, O Jehovah? wilt thou hold thy peace, and afflict us very sore?
+Will you refrain yourself for these things, Yahweh? Will you hold your peace, and afflict us very severely?

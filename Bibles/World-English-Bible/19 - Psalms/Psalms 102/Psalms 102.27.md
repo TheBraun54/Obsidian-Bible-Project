@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou art the same, And thy years shall have no end.
+But you are the same. Your years will have no end.

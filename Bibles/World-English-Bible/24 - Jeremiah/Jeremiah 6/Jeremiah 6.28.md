@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are all grievous revolters, going about with slanders; they are brass and iron: they all of them deal corruptly.
+They are all grievous rebels, going about with slanders; they are brass and iron: they all of them deal corruptly.

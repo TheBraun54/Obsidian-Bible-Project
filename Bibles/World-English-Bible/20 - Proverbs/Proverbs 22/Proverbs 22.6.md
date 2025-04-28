@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Train up a child in the way he should go, And even when he is old he will not depart from it.
+Train up a child in the way he should go, and when he is old he will not depart from it.

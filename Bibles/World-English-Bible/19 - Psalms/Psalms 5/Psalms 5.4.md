@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art not a God that hath pleasure in wickedness: Evil shall not sojourn with thee.
+For you are not a God who has pleasure in wickedness. Evil can't live with you.

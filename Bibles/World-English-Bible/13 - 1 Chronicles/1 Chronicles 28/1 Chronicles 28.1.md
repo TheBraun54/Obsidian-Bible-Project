@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David assembled all the princes of Israel, the princes of the tribes, and the captains of the companies that served the king by course, and the captains of thousands, and the captains of hundreds, and the rulers over all the substance and possessions of the king and of his sons, with the officers, and the mighty men, even all the mighty men of valor, unto Jerusalem.
+David assembled all the princes of Israel, the princes of the tribes, and the captains of the companies who served the king by division, and the captains of thousands, and the captains of hundreds, and the rulers over all the substance and possessions of the king and of his sons, with the officers, and the mighty men, even all the mighty men of valor, to Jerusalem.

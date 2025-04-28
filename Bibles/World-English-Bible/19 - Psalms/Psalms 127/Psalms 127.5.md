@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy is the man that hath his quiver full of them: They shall not be put to shame, When they speak with their enemies in the gate.
+Happy is the man who has his quiver full of them. They won't be disappointed when they speak with their enemies in the gate. A Song of Ascents.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor thy father and mother; and, Thou shalt love thy neighbor as thyself.
+'Honor your father and mother.' And, 'You shall love your neighbor as yourself.'"

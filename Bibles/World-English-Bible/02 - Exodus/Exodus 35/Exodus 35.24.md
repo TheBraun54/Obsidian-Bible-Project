@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one that did offer an offering of silver and brass brought Jehovah's offering; and every man, with whom was found acacia wood for any work of the service, brought it.
+Everyone who did offer an offering of silver and brass brought Yahweh's offering; and everyone, with whom was found acacia wood for any work of the service, brought it.

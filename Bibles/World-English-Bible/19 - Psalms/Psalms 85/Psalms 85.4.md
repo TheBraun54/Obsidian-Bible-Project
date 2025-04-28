@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn us, O God of our salvation, And cause thine indignation toward us to cease.
+Turn us, God of our salvation, and cause your indignation toward us to cease.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, Rebekah is before thee, take her, and go, and let her be thy master's son's wife, as Jehovah hath spoken.
+Behold, Rebekah is before you. Take her, and go, and let her be your master's son's wife, as Yahweh has spoken."

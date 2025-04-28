@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Toi king of Hamath heard that David had smitten all the host of Hadadezer,
+When Toi king of Hamath heard that David had struck all the army of Hadadezer,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they first took their journey according to the commandment of Jehovah by Moses.
+They first went forward according to the commandment of Yahweh by Moses.

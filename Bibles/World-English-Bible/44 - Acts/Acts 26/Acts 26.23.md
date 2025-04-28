@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how that the Christ must suffer, [and] how that he first by the resurrection of the dead should proclaim light both to the people and to the Gentiles.
+how the Christ must suffer, and how, by the resurrection of the dead, he would be first to proclaim light both to these people and to the Gentiles."

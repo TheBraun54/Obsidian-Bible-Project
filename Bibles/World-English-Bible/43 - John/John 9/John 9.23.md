@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore said his parents, He is of age; ask him.
+Therefore his parents said, "He is of age. Ask him."

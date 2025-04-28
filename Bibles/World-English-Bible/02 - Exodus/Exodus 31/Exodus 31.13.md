@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak thou also unto the children of Israel, saying, Verily ye shall keep my sabbaths: for it is a sign between me and you throughout your generations; that ye may know that I am Jehovah who sanctifieth you.
+"Speak also to the children of Israel, saying, 'Most certainly you shall keep my Sabbaths: for it is a sign between me and you throughout your generations; that you may know that I am Yahweh who sanctifies you.

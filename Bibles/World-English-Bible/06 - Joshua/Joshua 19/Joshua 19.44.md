@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Eltekeh, and Gibbethon, and Baalath,
+Eltekeh, Gibbethon, Baalath,

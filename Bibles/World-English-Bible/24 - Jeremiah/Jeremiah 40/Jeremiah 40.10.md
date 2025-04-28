@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for me, behold, I will dwell at Mizpah, to stand before the Chaldeans that shall come unto us: but ye, gather ye wine and summer fruits and oil, and put them in your vessels, and dwell in your cities that ye have taken.
+As for me, behold, I will dwell at Mizpah, to stand before the Chaldeans who shall come to us: but you, gather wine and summer fruits and oil, and put them in your vessels, and dwell in your cities that you have taken.

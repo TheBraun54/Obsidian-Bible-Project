@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will no more speak much with you, for the prince of the world cometh: and he hath nothing in me;
+I will no more speak much with you, for the prince of the world comes, and he has nothing in me.

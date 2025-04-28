@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet these may ye eat of all winged creeping things that go upon all fours, which have legs above their feet, wherewith to leap upon the earth.
+Yet you may eat these: of all winged creeping things that go on all fours, which have legs above their feet, with which to hop on the earth.

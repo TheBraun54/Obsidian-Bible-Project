@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And an angel of the Lord stood by them, and the glory of the Lord shone round about them: and they were sore afraid.
+Behold, an angel of the Lord stood by them, and the glory of the Lord shone around them, and they were terrified.

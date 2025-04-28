@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst thrust sore at me that I might fall; But Jehovah helped me.
+You pushed me back hard, to make me fall, but Yahweh helped me.

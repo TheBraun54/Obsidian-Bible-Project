@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, my lord, as Jehovah liveth, and as thy soul liveth, seeing Jehovah hath withholden thee from bloodguiltiness, and from avenging thyself with thine own hand, now therefore let thine enemies, and them that seek evil to my lord, be as Nabal.
+Now therefore, my lord, as Yahweh lives, and as your soul lives, since Yahweh has withheld you from blood guiltiness, and from avenging yourself with your own hand, now therefore let your enemies, and those who seek evil to my lord, be as Nabal.

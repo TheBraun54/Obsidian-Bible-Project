@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Azariah the chief priest, and all the priests, looked upon him, and, behold, he was leprous in his forehead, and they thrust him out quickly from thence; yea, himself hasted also to go out, because Jehovah had smitten him.
+Azariah the chief priest, and all the priests, looked on him, and behold, he was leprous in his forehead, and they thrust him out quickly from there; yes, himself hurried also to go out, because Yahweh had struck him.

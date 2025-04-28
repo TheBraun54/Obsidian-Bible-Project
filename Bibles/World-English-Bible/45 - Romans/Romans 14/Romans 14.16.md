@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not then your good be evil spoken of:
+Then don't let your good be slandered,

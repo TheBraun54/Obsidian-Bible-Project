@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who say to a stock, Thou art my father; and to a stone, Thou hast brought me forth: for they have turned their back unto me, and not their face; but in the time of their trouble they will say, Arise, and save us.
+who tell wood, 'You are my father;' and a stone, 'You have brought me out:' for they have turned their back to me, and not their face; but in the time of their trouble they will say, 'Arise, and save us.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore doth the wicked contemn God, And say in his heart, Thou wilt not require [it] ?
+Why does the wicked person condemn God, and say in his heart, "God won't call me into account?"

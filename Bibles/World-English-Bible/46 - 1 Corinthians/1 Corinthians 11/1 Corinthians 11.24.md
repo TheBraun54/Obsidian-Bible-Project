@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when he had given thanks, he brake it, and said, This is my body, which is for you: this do in remembrance of me.
+When he had given thanks, he broke it, and said, "Take, eat. This is my body, which is broken for you. Do this in memory of me."

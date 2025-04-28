@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Paul and his company set sail from Paphos, and came to Perga in Pamphylia: and John departed from them and returned to Jerusalem.
+Now Paul and his company set sail from Paphos, and came to Perga in Pamphylia. John departed from them and returned to Jerusalem.

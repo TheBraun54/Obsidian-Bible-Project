@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there were some of them, men of Cyprus and Cyrene, who, when they were come to Antioch, spake unto the Greeks also, preaching the Lord Jesus.
+But there were some of them, men of Cyprus and Cyrene, who, when they had come to Antioch, spoke to the Hellenists, preaching the Lord Jesus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter answered and said unto him, If all shall be offended in thee, I will never be offended.
+But Peter answered him, "Even if all will be made to stumble because of you, I will never be made to stumble."

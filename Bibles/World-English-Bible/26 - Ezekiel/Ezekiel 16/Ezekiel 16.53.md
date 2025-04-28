@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will turn again their captivity, the captivity of Sodom and her daughters, and the captivity of Samaria and her daughters, and the captivity of thy captives in the midst of them;
+I will turn again their captivity, the captivity of Sodom and her daughters, and the captivity of Samaria and her daughters, and the captivity of your captives in the midst of them;

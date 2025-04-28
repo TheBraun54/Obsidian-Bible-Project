@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are the consolations of God too small for thee, Even the word that is gentle toward thee?
+Are the consolations of God too small for you, even the word that is gentle toward you?

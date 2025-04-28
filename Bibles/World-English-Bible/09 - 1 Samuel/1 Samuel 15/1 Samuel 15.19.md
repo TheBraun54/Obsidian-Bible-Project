@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore then didst thou not obey the voice of Jehovah, but didst fly upon the spoil, and didst that which was evil in the sight of Jehovah?
+Why then didn't you obey the voice of Yahweh, but took the spoils, and did that which was evil in the sight of Yahweh?"

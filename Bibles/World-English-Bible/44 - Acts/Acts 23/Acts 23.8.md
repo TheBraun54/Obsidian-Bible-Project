@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Sadducees say that there is no resurrection, neither angel, nor spirit; but the Pharisees confess both.
+For the Sadducees say that there is no resurrection, nor angel, nor spirit; but the Pharisees confess all of these.

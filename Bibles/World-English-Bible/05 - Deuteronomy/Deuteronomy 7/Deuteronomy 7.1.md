@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jehovah thy God shall bring thee into the land whither thou goest to possess it, and shall cast out many nations before thee, the Hittite, and the Girgashite, and the Amorite, and the Canaanite, and the Perizzite, and the Hivite, and the Jebusite, seven nations greater and mightier than thou;
+When Yahweh your God shall bring you into the land where you go to possess it, and shall cast out many nations before you, the Hittite, and the Girgashite, and the Amorite, and the Canaanite, and the Perizzite, and the Hivite, and the Jebusite, seven nations greater and mightier than you;

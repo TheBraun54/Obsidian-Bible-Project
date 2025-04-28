@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Were it not that I feared the provocation of the enemy, Lest their adversaries should judge amiss, Lest they should say, Our hand is exalted, And Jehovah hath not done all this.
+were it not that I feared the provocation of the enemy, lest their adversaries should judge wrongly, lest they should say, 'Our hand is exalted, Yahweh has not done all this.'"

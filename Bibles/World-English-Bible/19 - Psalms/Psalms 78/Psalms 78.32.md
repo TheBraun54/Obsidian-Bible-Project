@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all this they sinned still, And believed not in his wondrous works.
+For all this they still sinned, and didn't believe in his wondrous works.

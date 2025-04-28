@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but have walked after the stubbornness of their own heart, and after the Baalim, which their fathers taught them;
+but have walked after the stubbornness of their own heart, and after the Baals, which their fathers taught them;

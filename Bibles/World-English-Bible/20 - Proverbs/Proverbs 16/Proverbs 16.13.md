@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Righteous lips are the delight of kings; And they love him that speaketh right.
+Righteous lips are the delight of kings. They value one who speaks the truth.

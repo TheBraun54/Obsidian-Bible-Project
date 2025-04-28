@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went up according to the saying of Gad, as Jehovah commanded.
+David went up according to the saying of Gad, as Yahweh commanded.

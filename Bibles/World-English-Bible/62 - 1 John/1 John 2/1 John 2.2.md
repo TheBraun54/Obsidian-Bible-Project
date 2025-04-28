@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he is the propitiation for our sins; and not for ours only, but also for the whole world.
+And he is the atoning sacrifice for our sins, and not for ours only, but also for the whole world.

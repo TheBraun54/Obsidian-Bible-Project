@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if they hearken not, they shall perish by the sword, And they shall die without knowledge.
+But if they don't listen, they shall perish by the sword; they shall die without knowledge.

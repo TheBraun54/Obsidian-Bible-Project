@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he went with them. And when they came to the Jordan, they cut down wood.
+So he went with them. When they came to the Jordan, they cut down wood.

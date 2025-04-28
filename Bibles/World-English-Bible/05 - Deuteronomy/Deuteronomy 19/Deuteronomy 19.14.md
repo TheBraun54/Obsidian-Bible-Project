@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not remove thy neighbor's landmark, which they of old time have set, in thine inheritance which thou shalt inherit, in the land that Jehovah thy God giveth thee to possess it.
+You shall not remove your neighbor's landmark, which they of old time have set, in your inheritance which you shall inherit, in the land that Yahweh your God gives you to possess it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is none like unto thee, O Jehovah; thou art great, and thy name is great in might.
+There is none like you, Yahweh; you are great, and your name is great in might.

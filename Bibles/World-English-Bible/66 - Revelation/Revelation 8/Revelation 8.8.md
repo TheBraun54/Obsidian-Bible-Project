@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the second angel sounded, and as it were a great mountain burning with fire was cast into the sea: and the third part of the sea became blood;
+The second angel sounded, and something like a great burning mountain was thrown into the sea. One third of the sea became blood,

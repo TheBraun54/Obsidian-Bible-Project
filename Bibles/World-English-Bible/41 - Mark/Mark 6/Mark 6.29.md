@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when his disciples heard [thereof], they came and took up his corpse, and laid it in a tomb.
+When his disciples heard this, they came and took up his corpse, and laid it in a tomb.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that same hour he rejoiced in the Holy Spirit, and said, I thank thee, O Father, Lord of heaven and earth, that thou didst hide these things from the wise and understanding, and didst reveal them unto babes: yea, Father; for so it was well-pleasing in thy sight.
+In that same hour Jesus rejoiced in the Holy Spirit, and said, "I thank you, O Father, Lord of heaven and earth, that you have hidden these things from the wise and understanding, and revealed them to little children. Yes, Father, for so it was well-pleasing in your sight."

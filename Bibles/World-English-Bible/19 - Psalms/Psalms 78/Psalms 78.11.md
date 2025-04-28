@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they forgat his doings, And his wondrous works that he had showed them.
+They forgot his doings, his wondrous works that he had shown them.

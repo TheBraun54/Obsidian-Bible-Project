@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they have emptied out the money that was found in the house of Jehovah, and have delivered it into the hand of the overseers, and into the hand of the workmen.
+They have emptied out the money that was found in the house of Yahweh, and have delivered it into the hand of the overseers, and into the hand of the workmen."

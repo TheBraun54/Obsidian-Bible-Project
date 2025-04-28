@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for them whose heart walketh after the heart of their detestable things and their abominations, I will bring their way upon their own heads, saith the Lord Jehovah.
+But as for them whose heart walks after the heart of their detestable things and their abominations, I will bring their way on their own heads, says the Lord Yahweh.

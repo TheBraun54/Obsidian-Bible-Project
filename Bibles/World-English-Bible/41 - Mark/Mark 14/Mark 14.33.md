@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he taketh with him Peter and James and John, and began to be greatly amazed, and sore troubled.
+He took with him Peter, James, and John, and began to be greatly troubled and distressed.

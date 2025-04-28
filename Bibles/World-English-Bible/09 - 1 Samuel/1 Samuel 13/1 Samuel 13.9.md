@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, Bring hither the burnt-offering to me, and the peace-offerings. And he offered the burnt-offering.
+Saul said, "Bring here the burnt offering to me, and the peace offerings." He offered the burnt offering.

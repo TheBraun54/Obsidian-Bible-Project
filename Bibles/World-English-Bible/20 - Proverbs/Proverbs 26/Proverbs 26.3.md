@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A whip for the horse, a bridle for the ass, And a rod for the back of fools.
+A whip is for the horse, a bridle for the donkey, and a rod for the back of fools!

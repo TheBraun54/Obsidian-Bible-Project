@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, even the moon hath no brightness, And the stars are not pure in his sight:
+Behold, even the moon has no brightness, and the stars are not pure in his sight;

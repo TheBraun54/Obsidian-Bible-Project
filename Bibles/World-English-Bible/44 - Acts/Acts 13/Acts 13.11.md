@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, the hand of the Lord is upon thee, and thou shalt be blind, not seeing the sun for a season. And immediately there fell on him a mist and a darkness; and he went about seeking some to lead him by the hand.
+Now, behold, the hand of the Lord is on you, and you will be blind, not seeing the sun for a season!" Immediately a mist and darkness fell on him. He went around seeking someone to lead him by the hand.

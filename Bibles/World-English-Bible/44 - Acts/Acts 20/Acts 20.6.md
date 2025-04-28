@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we sailed away from Philippi after the days of unleavened bread, and came unto them to Troas in five days, where we tarried seven days.
+We sailed away from Philippi after the days of Unleavened Bread, and came to them at Troas in five days, where we stayed seven days.

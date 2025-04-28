@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Lay not thy hand upon the lad, neither do thou anything unto him; for now I know that thou fearest God, seeing thou hast not withheld thy son, thine only son, from me.
+He said, "Don't lay your hand on the boy, neither do anything to him. For now I know that you fear God, since you have not withheld your son, your only son, from me."

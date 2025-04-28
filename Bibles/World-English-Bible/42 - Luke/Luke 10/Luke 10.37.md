@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, He that showed mercy on him. And Jesus said unto him, Go, and do thou likewise.
+He said, "He who showed mercy on him." Then Jesus said to him, "Go and do likewise."

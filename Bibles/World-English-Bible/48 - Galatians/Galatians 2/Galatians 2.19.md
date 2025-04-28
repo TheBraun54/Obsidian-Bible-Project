@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I through the law died unto the law, that I might live unto God.
+For I, through the law, died to the law, that I might live to God.

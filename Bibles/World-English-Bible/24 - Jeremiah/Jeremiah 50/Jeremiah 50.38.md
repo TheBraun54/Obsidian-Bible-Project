@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A drought is upon her waters, and they shall be dried up; for it is a land of graven images, and they are mad over idols.
+A drought is on her waters, and they shall be dried up; for it is a land of engraved images, and they are mad over idols.

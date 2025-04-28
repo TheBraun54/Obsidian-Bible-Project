@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the inhabitant of this coast-land shall say in that day, Behold, such is our expectation, whither we fled for help to be delivered from the king of Assyria: and we, how shall we escape?
+The inhabitants of this coast land will say in that day, 'Behold, this is our expectation, where we fled for help to be delivered from the king of Assyria. And we, how will we escape?'"

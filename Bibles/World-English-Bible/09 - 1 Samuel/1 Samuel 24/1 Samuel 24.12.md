@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah judge between me and thee, and Jehovah avenge me of thee; but my hand shall not be upon thee.
+May Yahweh judge between me and you, and may Yahweh avenge me of you; but my hand shall not be on you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall lay his hand upon the head of the sin-offering, and kill it for a sin-offering in the place where they kill the burnt-offering.
+He shall lay his hand on the head of the sin offering, and kill it for a sin offering in the place where they kill the burnt offering.

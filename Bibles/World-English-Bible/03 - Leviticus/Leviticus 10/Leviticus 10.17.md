@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore have ye not eaten the sin-offering in the place of the sanctuary, seeing it is most holy, and he hath given it you to bear the iniquity of the congregation, to make atonement for them before Jehovah?
+"Why haven't you eaten the sin offering in the place of the sanctuary, since it is most holy, and he has given it you to bear the iniquity of the congregation, to make atonement for them before Yahweh?

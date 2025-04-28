@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A tranquil heart is the life of the flesh; But envy is the rottenness of the bones.
+The life of the body is a heart at peace, but envy rots the bones.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the waters of Meribah; because the children of Israel strove with Jehovah, and he was sanctified in them.
+These are the waters of Meribah; because the children of Israel strove with Yahweh, and he was sanctified in them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when Jehovah shall have done to my lord according to all the good that he hath spoken concerning thee, and shall have appointed thee prince over Israel,
+It shall come to pass, when Yahweh has done to my lord according to all the good that he has spoken concerning you, and shall have appointed you prince over Israel,

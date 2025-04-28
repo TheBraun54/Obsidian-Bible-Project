@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in the day that I shall visit the transgressions of Israel upon him, I will also visit the altars of Beth-el; and the horns of the altar shall be cut off, and fall to the ground.
+"For in the day that I visit the transgressions of Israel on him, I will also visit the altars of Bethel; and the horns of the altar will be cut off, and fall to the ground.

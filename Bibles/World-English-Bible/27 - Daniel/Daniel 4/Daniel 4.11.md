@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tree grew, and was strong, and the height thereof reached unto heaven, and the sight thereof to the end of all the earth.
+The tree grew, and was strong, and its height reached to the sky, and its sight to the end of all the earth.

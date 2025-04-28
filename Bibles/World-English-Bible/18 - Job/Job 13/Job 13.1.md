@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, mine eye hath seen all [this], Mine ear hath heard and understood it.
+"Behold, my eye has seen all this. My ear has heard and understood it.

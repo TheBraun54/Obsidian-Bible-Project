@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stretched himself upon the child three times, and cried unto Jehovah, and said, O Jehovah my God, I pray thee, let this child's soul come into him again.
+He stretched himself on the child three times, and cried to Yahweh, and said, "Yahweh my God, please let this child's soul come into him again."

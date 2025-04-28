@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But my righteous one shall live by faith: And if he shrink back, my soul hath no pleasure in him.
+But the righteous will live by faith. If he shrinks back, my soul has no pleasure in him."

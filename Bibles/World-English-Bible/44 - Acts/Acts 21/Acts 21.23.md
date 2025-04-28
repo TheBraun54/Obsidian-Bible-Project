@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do therefore this that we say to thee: We have four men that have a vow on them;
+Therefore do what we tell you. We have four men who have taken a vow.

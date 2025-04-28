@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lifted up his eyes, and saw Benjamin his brother, his mother's son, and said, Is this your youngest brother, of whom ye spake unto me? And he said, God be gracious unto thee, my son.
+He lifted up his eyes, and saw Benjamin, his brother, his mother's son, and said, "Is this your youngest brother, of whom you spoke to me?" He said, "God be gracious to you, my son."

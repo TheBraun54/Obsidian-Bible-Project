@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Passing through the valley of Weeping they make it a place of springs; Yea, the early rain covereth it with blessings.
+Passing through the valley of Weeping, they make it a place of springs. Yes, the autumn rain covers it with blessings.

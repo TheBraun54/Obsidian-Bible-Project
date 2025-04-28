@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them curse it that curse the day, Who are ready to rouse up leviathan.
+Let them curse it who curse the day, who are ready to rouse up leviathan.

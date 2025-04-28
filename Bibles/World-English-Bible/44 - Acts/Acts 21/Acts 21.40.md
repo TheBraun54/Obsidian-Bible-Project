@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had given him leave, Paul, standing on the stairs, beckoned with the hand unto the people; and when there was made a great silence, he spake unto them in the Hebrew language, saying,
+When he had given him permission, Paul, standing on the stairs, beckoned with his hand to the people. When there was a great silence, he spoke to them in the Hebrew language, saying,

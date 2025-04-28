@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was fulfilled that which was spoken through Jeremiah the prophet, saying,
+Then that which was spoken by Jeremiah the prophet was fulfilled, saying,

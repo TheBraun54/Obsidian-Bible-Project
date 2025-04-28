@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who is he that condemneth? It is Christ Jesus that died, yea rather, that was raised from the dead, who is at the right hand of God, who also maketh intercession for us.
+Who is he who condemns? It is Christ who died, yes rather, who was raised from the dead, who is at the right hand of God, who also makes intercession for us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then will Jehovah drive out all these nations from before you, and ye shall dispossess nations greater and mightier than yourselves.
+then will Yahweh drive out all these nations from before you, and you shall dispossess nations greater and mightier than yourselves.

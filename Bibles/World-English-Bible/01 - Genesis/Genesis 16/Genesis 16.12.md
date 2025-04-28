@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall be [as] a wild ass among men; his hand [shall be] against every man, and every man's hand against him; and he shall dwell over against all his brethren.
+He will be like a wild donkey among men. His hand will be against every man, and every man's hand against him. He will live opposite all of his brothers."

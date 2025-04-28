@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast not brought me of thy sheep for burnt-offerings; neither hast thou honored me with thy sacrifices. I have not burdened thee with offerings, nor wearied thee with frankincense.
+You have not brought me of your sheep for burnt offerings; neither have you honored me with your sacrifices. I have not burdened you with offerings, nor wearied you with frankincense.

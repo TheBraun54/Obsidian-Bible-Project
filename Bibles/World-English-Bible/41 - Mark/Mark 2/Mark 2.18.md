@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And John's disciples and the Pharisees were fasting: and they come and say unto him, Why do John's disciples and the disciples of the Pharisees fast, but thy disciples fast not?
+John's disciples and the Pharisees were fasting, and they came and asked him, "Why do John's disciples and the disciples of the Pharisees fast, but your disciples don't fast?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he drove them from the judgment-seat.
+He drove them from the judgment seat.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will proclaim the name of Jehovah: Ascribe ye greatness unto our God.
+For I will proclaim the name of Yahweh. Ascribe greatness to our God!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Greater joy have I none than this, to hear of my children walking in the truth.
+I have no greater joy than this, to hear about my children walking in truth.

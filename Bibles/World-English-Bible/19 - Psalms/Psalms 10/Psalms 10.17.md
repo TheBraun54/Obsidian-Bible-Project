@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, thou hast heard the desire of the meek: Thou wilt prepare their heart, thou wilt cause thine ear to hear;
+Yahweh, you have heard the desire of the humble. You will prepare their heart. You will cause your ear to hear,

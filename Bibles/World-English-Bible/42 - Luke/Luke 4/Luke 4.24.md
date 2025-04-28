@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Verily I say unto you, No prophet is acceptable in his own country.
+He said, "Most certainly I tell you, no prophet is acceptable in his hometown.

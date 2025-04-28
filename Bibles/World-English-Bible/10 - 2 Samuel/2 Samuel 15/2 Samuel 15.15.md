@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king's servants said unto the king, Behold, thy servants are ready to do whatsoever my lord the king shall choose.
+The king's servants said to the king, "Behold, your servants are ready to do whatever my lord the king chooses."

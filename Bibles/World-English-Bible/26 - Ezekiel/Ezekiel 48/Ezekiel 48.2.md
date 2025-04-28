@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Dan, from the east side unto the west side, Asher, one [portion] .
+By the border of Dan, from the east side to the west side, Asher, one [portion].

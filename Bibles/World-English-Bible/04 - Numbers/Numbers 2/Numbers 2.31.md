@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that were numbered of the camp of Dan were a hundred thousand and fifty and seven thousand and six hundred. They shall set forth hindmost by their standards.
+"All who were numbered of the camp of Dan were one hundred fifty-seven thousand six hundred. They shall set out last by their standards."

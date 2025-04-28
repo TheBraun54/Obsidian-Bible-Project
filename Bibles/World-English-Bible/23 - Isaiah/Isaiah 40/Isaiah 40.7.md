@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The grass withereth, the flower fadeth, because the breath of Jehovah bloweth upon it; surely the people is grass.
+The grass withers, the flower fades, because Yahweh's breath blows on it. Surely the people are like grass.

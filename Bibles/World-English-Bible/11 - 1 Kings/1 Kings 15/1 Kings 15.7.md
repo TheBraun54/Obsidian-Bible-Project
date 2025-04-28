@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest of the acts of Abijam, and all that he did, are they not written in the book of the chronicles of the kings of Judah? And there was war between Abijam and Jeroboam.
+The rest of the acts of Abijam, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? There was war between Abijam and Jeroboam.

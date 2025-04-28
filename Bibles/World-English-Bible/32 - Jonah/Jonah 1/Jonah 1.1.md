@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the word of Jehovah came unto Jonah the son of Amittai, saying,
+Now the word of Yahweh came to Jonah the son of Amittai, saying,

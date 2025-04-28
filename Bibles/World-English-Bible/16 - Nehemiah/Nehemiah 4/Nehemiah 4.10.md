@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah said, The strength of the bearers of burdens is decayed, and there is much rubbish; so that we are not able to build the wall.
+Judah said, "The strength of the bearers of burdens is fading, and there is much rubbish; so that we are not able to build the wall."

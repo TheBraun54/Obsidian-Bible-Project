@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And looking round on them that sat round about him, he saith, Behold, my mother and my brethren!
+Looking around at those who sat around him, he said, "Behold, my mother and my brothers!

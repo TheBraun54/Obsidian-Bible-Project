@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the scripture saith, Whosoever believeth on him shall not be put to shame.
+For the Scripture says, "Whoever believes in him will not be disappointed."

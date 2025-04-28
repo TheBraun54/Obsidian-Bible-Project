@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord said unto Paul in the night by a vision, Be not afraid, but speak and hold not thy peace:
+The Lord said to Paul in the night by a vision, "Don't be afraid, but speak and don't be silent;

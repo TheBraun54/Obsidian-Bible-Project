@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto his brethren, and unto his father's house, I will go up, and tell Pharaoh, and will say unto him, My brethren, and my father's house, who were in the land of Canaan, are come unto me;
+Joseph said to his brothers, and to his father's house, "I will go up, and speak with Pharaoh, and will tell him, 'My brothers, and my father's house, who were in the land of Canaan, have come to me.

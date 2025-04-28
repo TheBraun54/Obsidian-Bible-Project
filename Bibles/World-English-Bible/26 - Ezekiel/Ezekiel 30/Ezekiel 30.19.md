@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus will I execute judgments upon Egypt; and they shall know that I am Jehovah.
+Thus will I execute judgments on Egypt; and they shall know that I am Yahweh.

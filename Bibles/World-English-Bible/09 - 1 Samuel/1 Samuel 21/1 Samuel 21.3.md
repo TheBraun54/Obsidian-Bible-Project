@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore what is under thy hand? give me five loaves of bread in my hand, or whatsoever there is present.
+Now therefore what is under your hand? Give me five loaves of bread in my hand, or whatever there is present."

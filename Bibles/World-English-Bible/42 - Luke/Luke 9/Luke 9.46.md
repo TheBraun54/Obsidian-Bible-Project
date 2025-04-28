@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there arose a reasoning among them, which of them was the greatest.
+There arose an argument among them about which of them was the greatest.

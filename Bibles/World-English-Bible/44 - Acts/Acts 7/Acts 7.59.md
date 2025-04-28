@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stoned Stephen, calling upon [the Lord], and saying, Lord Jesus, receive my spirit.
+They stoned Stephen as he called out, saying, "Lord Jesus, receive my spirit!"

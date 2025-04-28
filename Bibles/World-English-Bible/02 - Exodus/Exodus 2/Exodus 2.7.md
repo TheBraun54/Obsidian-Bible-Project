@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said his sister to Pharaoh's daughter, Shall I go and call thee a nurse of the Hebrew women, that she may nurse the child for thee?
+Then his sister said to Pharaoh's daughter, "Should I go and call a nurse for you from the Hebrew women, that she may nurse the child for you?"

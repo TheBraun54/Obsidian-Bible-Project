@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou that art of purer eyes than to behold evil, and that canst not look on perverseness, wherefore lookest thou upon them that deal treacherously, and holdest thy peace when the wicked swalloweth up the man that is more righteous than he;
+You who have purer eyes than to see evil, and who cannot look on perversity, why do you tolerate those who deal treacherously, and keep silent when the wicked swallows up the man who is more righteous than he,

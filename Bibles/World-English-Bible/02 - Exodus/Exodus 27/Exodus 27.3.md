@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make its pots to take away its ashes, and its shovels, and its basins, and its flesh-hooks, and its firepans: all the vessels thereof thou shalt make of brass.
+You shall make its pots to take away its ashes, its shovels, its basins, its flesh hooks, and its fire pans: all its vessels you shall make of brass.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Bath-sheba bowed with her face to the earth, and did obeisance to the king, and said, Let my lord king David live for ever.
+Then Bathsheba bowed with her face to the earth, and did obeisance to the king, and said, "Let my lord king David live forever!"

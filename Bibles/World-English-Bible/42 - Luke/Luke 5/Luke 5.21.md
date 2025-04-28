@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scribes and the Pharisees began to reason, saying, Who is this that speaketh blasphemies? Who can forgive sins, but God alone?
+The scribes and the Pharisees began to reason, saying, "Who is this that speaks blasphemies? Who can forgive sins, but God alone?"

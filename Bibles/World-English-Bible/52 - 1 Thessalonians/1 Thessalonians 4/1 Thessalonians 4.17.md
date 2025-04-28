@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then we that are alive, that are left, shall together with them be caught up in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.
+then we who are alive, who are left, will be caught up together with them in the clouds, to meet the Lord in the air. So we will be with the Lord forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let him kiss me with the kisses of his mouth; For thy love is better than wine.
+Let him kiss me with the kisses of his mouth; for your love is better than wine.

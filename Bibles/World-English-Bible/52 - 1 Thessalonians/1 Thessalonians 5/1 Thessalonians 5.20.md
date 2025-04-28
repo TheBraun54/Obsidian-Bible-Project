@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-despise not prophesyings;
+Don't despise prophesies.

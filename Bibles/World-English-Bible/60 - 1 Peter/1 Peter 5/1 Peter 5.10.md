@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the God of all grace, who called you unto his eternal glory in Christ, after that ye have suffered a little while, shall himself perfect, establish, strengthen you.
+But may the God of all grace, who called you to his eternal glory by Christ Jesus, after you have suffered a little while, perfect, establish, strengthen, and settle you.

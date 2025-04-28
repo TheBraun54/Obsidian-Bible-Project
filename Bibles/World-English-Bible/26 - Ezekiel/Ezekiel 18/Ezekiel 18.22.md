@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None of his transgressions that he hath committed shall be remembered against him: in his righteousness that he hath done he shall live.
+None of his transgressions that he has committed shall be remembered against him: in his righteousness that he has done he shall live.

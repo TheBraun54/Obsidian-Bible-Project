@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is my covenant unto them, When I shall take away their sins.
+This is my covenant to them, when I will take away their sins."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for their sakes I sanctify myself, that they themselves also may be sanctified in truth.
+For their sakes I sanctify myself, that they themselves also may be sanctified in truth.

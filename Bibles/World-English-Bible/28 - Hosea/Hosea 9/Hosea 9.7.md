@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The days of visitation are come, the days of recompense are come; Israel shall know it: the prophet is a fool, the man that hath the spirit is mad, for the abundance of thine iniquity, and because the enmity is great.
+The days of visitation have come. The days of reckoning have come. Israel will consider the prophet to be a fool, and the man who is inspired to be insane, because of the abundance of your sins, and because your hostility is great.

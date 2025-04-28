@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Was he not most honorable of the three? therefore he was made their captain: howbeit he attained not unto the [first] three.
+Wasn't he most honorable of the three? therefore he was made their captain: however he didn't attain to the [first] three.

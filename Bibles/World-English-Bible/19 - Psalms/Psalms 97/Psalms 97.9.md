@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, Jehovah, art most high above all the earth: Thou art exalted far above all gods.
+For you, Yahweh, are most high above all the earth. You are exalted far above all gods.

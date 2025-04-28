@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever shall give you a cup of water to drink, because ye are Christ's, verily I say unto you, he shall in no wise lose his reward.
+For whoever will give you a cup of water to drink in my name, because you are Christ's, most certainly I tell you, he will in no way lose his reward.

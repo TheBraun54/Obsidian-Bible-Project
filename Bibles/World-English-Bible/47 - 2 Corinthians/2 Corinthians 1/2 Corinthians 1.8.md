@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we would not have you ignorant, brethren, concerning our affliction which befell [us] in Asia, that we were weighed down exceedingly, beyond our power, insomuch that we despaired even of life:
+For we don't desire to have you uninformed, brothers, concerning our affliction which happened to us in Asia, that we were weighed down exceedingly, beyond our power, so much that we despaired even of life.

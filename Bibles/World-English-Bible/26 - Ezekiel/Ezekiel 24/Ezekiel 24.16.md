@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, behold, I take away from thee the desire of thine eyes with a stroke: yet thou shalt neither mourn nor weep, neither shall thy tears run down.
+Son of man, behold, I will take away from you the desire of your eyes with a stroke: yet you shall neither mourn nor weep, neither shall your tears run down.

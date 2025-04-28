@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Surely I will be with thee, and thou shalt smite the Midianites as one man.
+Yahweh said to him, "Surely I will be with you, and you shall strike the Midianites as one man."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in mount Zion there shall be those that escape, and it shall be holy; and the house of Jacob shall possess their possessions.
+But in Mount Zion, there will be those who escape, and it will be holy. The house of Jacob will possess their possessions.

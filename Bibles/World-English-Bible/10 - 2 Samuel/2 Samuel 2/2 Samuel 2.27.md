@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab said, As God liveth, if thou hadst not spoken, surely then in the morning the people had gone away, nor followed every one his brother.
+Joab said, "As God lives, if you had not spoken, surely then in the morning the people would have gone away, and not each followed his brother."

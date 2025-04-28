@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered them and said, Verily, verily, I say unto you, Ye seek me, not because ye saw signs, but because ye ate of the loaves, and were filled.
+Jesus answered them, "Most certainly I tell you, you seek me, not because you saw signs, but because you ate of the loaves, and were filled.

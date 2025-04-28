@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when all the kings that were beyond the Jordan, in the hill-country, and in the lowland, and on all the shore of the great sea in front of Lebanon, the Hittite, and the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, heard thereof;
+It happened, when all the kings who were beyond the Jordan, in the hill country, and in the lowland, and on all the shore of the great sea in front of Lebanon, the Hittite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, heard of it

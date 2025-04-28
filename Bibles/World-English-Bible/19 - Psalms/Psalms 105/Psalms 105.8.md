@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath remembered his covenant for ever, The word which he commanded to a thousand generations,
+He has remembered his covenant forever, the word which he commanded to a thousand generations,

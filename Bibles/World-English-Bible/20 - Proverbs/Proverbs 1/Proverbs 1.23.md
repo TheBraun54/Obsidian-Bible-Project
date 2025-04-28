@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn you at my reproof: Behold, I will pour out my spirit upon you; I will make known my words unto you.
+Turn at my reproof. Behold, I will pour out my spirit on you. I will make known my words to you.

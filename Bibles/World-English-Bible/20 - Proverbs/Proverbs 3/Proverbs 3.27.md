@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Withhold not good from them to whom it is due, When it is in the power of thy hand to do it.
+Don't withhold good from those to whom it is due, when it is in the power of your hand to do it.

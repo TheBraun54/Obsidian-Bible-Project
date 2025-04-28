@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-his own hands shall bring the offerings of Jehovah made by fire; the fat with the breast shall he bring, that the breast may be waved for a wave-offering before Jehovah.
+With his own hands he shall bring the offerings of Yahweh made by fire. He shall bring the fat with the breast, that the breast may be waved for a wave offering before Yahweh.

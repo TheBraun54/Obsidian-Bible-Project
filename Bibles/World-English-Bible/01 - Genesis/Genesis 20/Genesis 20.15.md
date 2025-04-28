@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech said, Behold, my land is before thee: dwell where it pleaseth thee.
+Abimelech said, "Behold, my land is before you. Dwell where it pleases you."

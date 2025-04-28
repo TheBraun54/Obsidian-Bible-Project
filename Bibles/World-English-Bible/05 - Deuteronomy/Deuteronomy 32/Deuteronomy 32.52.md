@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou shalt see the land before thee; but thou shalt not go thither into the land which I give the children of Israel.
+For you shall see the land before you; but you shall not go there into the land which I give the children of Israel."

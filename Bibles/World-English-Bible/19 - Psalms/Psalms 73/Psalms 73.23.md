@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless I am continually with thee: Thou hast holden my right hand.
+Nevertheless, I am continually with you. You have held my right hand.

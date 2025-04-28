@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The desire of the righteous is only good; [But] the expectation of the wicked is wrath.
+The desire of the righteous is only good. The expectation of the wicked is wrath.

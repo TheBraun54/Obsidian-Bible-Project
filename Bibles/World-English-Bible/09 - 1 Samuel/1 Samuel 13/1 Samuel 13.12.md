@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore said I, Now will the Philistines come down upon me to Gilgal, and I have not entreated the favor of Jehovah: I forced myself therefore, and offered the burnt-offering.
+therefore I said, 'Now the Philistines will come down on me to Gilgal, and I haven't entreated the favor of Yahweh.' I forced myself therefore, and offered the burnt offering."

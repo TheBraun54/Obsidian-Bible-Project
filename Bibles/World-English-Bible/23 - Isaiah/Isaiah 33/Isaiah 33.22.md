@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah is our judge, Jehovah is our lawgiver, Jehovah is our king; he will save us.
+For Yahweh is our judge. Yahweh is our lawgiver. Yahweh is our king. He will save us.

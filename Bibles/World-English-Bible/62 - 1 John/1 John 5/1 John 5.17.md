@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All unrighteousness is sin: and there is a sin not unto death.
+All unrighteousness is sin, and there is a sin not leading to death.

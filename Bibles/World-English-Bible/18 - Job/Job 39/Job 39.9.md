@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will the wild-ox be content to serve thee? Or will he abide by thy crib?
+"Will the wild ox be content to serve you? Or will he stay by your feeding trough?

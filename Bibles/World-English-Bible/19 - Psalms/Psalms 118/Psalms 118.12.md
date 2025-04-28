@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They compassed me about like bees; They are quenched as the fire of thorns: In the name of Jehovah I will cut them off.
+They surrounded me like bees. They are quenched like the burning thorns. In the name of Yahweh I cut them off.

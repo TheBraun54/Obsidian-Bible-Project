@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for which things' sake cometh the wrath of God upon the sons of disobedience:
+for which things' sake the wrath of God comes on the children of disobedience.

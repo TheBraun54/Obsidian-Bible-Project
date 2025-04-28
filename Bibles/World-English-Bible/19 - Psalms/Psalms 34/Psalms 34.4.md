@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I sought Jehovah, and he answered me, And delivered me from all my fears.
+I sought Yahweh, and he answered me, and delivered me from all my fears.

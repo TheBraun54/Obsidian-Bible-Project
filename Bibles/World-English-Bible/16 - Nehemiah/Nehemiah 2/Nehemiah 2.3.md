@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto the king, Let the king live for ever: why should not my countenance be sad, when the city, the place of my fathers' sepulchres, lieth waste, and the gates thereof are consumed with fire?
+I said to the king, "Let the king live forever! Why shouldn't my face be sad, when the city, the place of my fathers' tombs, lies waste, and its gates have been consumed with fire?"

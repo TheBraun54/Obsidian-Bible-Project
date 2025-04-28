@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, behold, I have appointed with him Oholiab, the son of Ahisamach, of the tribe of Dan; and in the heart of all that are wise-hearted I have put wisdom, that they may make all that I have commanded thee:
+I, behold, I have appointed with him Oholiab, the son of Ahisamach, of the tribe of Dan; and in the heart of all who are wise-hearted I have put wisdom, that they may make all that I have commanded you:

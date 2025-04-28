@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All these were of costly stones, even of hewn stone, according to measure, sawed with saws, within and without, even from the foundation unto the coping, and so on the outside unto the great court.
+All these were of costly stones, even of cut stone, according to measure, sawed with saws, inside and outside, even from the foundation to the coping, and so on the outside to the great court.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Naphtali: Ahira the son of Enan.
+Of Naphtali: Ahira the son of Enan."

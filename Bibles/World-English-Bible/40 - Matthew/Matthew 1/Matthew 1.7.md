@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Solomon begat Rehoboam; and Rehoboam begat Abijah; and Abijah begat Asa;
+Solomon became the father of Rehoboam. Rehoboam became the father of Abijah. Abijah became the father of Asa.

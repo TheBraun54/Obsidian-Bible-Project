@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the abundance of thy traffic they filled the midst of thee with violence, and thou hast sinned: therefore have I cast thee as profane out of the mountain of God; and I have destroyed thee, O covering cherub, from the midst of the stones of fire.
+By the abundance of your traffic they filled the midst of you with violence, and you have sinned: therefore I have cast you as profane out of the mountain of God; and I have destroyed you, covering cherub, from the midst of the stones of fire.

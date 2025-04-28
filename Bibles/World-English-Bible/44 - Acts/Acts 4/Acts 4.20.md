@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for we cannot but speak the things which we saw and heard.
+for we can't help telling the things which we saw and heard."

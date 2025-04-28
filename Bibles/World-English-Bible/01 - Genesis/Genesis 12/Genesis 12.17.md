@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah plagued Pharaoh and his house with great plagues because of Sarai, Abram's wife.
+Yahweh plagued Pharaoh and his house with great plagues because of Sarai, Abram's wife.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the fifteenth day of the seventh month ye shall have a holy convocation; ye shall do no servile work, and ye shall keep a feast unto Jehovah seven days:
+"'On the fifteenth day of the seventh month you shall have a holy convocation; you shall do no servile work, and you shall keep a feast to Yahweh seven days:

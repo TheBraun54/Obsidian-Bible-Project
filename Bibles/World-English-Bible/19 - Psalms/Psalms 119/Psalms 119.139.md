@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My zeal hath consumed me, Because mine adversaries have forgotten thy words.
+My zeal wears me out, because my enemies ignore your words.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I say unto you, that none of those men that were bidden shall taste of my supper.
+For I tell you that none of those men who were invited will taste of my supper.'"

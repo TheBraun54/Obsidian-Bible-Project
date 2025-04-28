@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken: Behold, the sower went forth to sow:
+"Listen! Behold, the farmer went out to sow,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of the sons of Korah]. Oh clap your hands, all ye peoples; Shout unto God with the voice of triumph.
+Oh clap your hands, all you nations. Shout to God with the voice of triumph!

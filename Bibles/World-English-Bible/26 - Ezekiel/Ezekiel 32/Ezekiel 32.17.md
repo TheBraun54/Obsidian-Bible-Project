@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It came to pass also in the twelfth year, in the fifteenth [day] of the month, that the word of Jehovah came unto me, saying,
+It happened also in the twelfth year, in the fifteenth [day] of the month, that the word of Yahweh came to me, saying,

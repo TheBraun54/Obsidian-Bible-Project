@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we have brought Jehovah's oblation, what every man hath gotten, of jewels of gold, ankle-chains, and bracelets, signet-rings, ear-rings, and armlets, to make atonement for our souls before Jehovah.
+We have brought Yahweh's offering, what every man has gotten, of jewels of gold, armlets, and bracelets, signet rings, earrings, and necklaces, to make atonement for our souls before Yahweh."

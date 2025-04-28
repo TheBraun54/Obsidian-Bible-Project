@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he smote his adversaries backward: He put them to a perpetual reproach.
+He struck his adversaries backward. He put them to a perpetual reproach.

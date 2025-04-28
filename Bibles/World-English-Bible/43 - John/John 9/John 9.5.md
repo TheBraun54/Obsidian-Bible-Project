@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I am in the world, I am the light of the world.
+While I am in the world, I am the light of the world."

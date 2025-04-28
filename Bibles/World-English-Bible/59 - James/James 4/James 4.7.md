@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be subject therefore unto God; but resist the devil, and he will flee from you.
+Be subject therefore to God. But resist the devil, and he will flee from you.

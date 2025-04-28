@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when his friends heard it, they went out to lay hold on him: for they said, He is beside himself.
+When his friends heard it, they went out to seize him: for they said, "He is insane."

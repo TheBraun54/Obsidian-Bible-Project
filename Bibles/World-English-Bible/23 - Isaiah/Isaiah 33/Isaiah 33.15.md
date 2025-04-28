@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that walketh righteously, and speaketh uprightly; he that despiseth the gain of oppressions, that shaketh his hands from taking a bribe, that stoppeth his ears from hearing of blood, and shutteth his eyes from looking upon evil:
+He who walks righteously, and speaks blamelessly; He who despises the gain of oppressions, who gestures with his hands, refusing to take a bribe, who stops his ears from hearing of blood, and shuts his eyes from looking at evil--

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the dead are not raised, neither hath Christ been raised:
+For if the dead aren't raised, neither has Christ been raised.

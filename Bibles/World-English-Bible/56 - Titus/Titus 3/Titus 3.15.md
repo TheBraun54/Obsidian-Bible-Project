@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that are with me salute thee. Salute them that love us in faith. Grace be with you all.
+All who are with me greet you. Greet those who love us in faith. Grace be with you all. Amen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you that desire the day of Jehovah! Wherefore would ye have the day of Jehovah? It is darkness, and not light.
+"Woe to you who desire the day of Yahweh! Why do you long for the day of Yahweh? It is darkness, and not light.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I am Jehovah thy God from the land of Egypt; I will yet again make thee to dwell in tents, as in the days of the solemn feast.
+"But I am Yahweh your God from the land of Egypt. I will yet again make you dwell in tents, as in the days of the solemn feast.

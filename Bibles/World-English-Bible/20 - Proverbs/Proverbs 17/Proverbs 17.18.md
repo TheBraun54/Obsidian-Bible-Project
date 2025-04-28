@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man void of understanding striketh hands, And becometh surety in the presence of his neighbor.
+A man void of understanding strikes hands, and becomes collateral in the presence of his neighbor.

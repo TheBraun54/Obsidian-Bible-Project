@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the morning, that he went out, and stood, and said to all the people, Ye are righteous: behold, I conspired against my master, and slew him; but who smote all these?
+It happened in the morning, that he went out, and stood, and said to all the people, "You are righteous. Behold, I conspired against my master, and killed him; but who struck all these?

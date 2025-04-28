@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Abishai the son of Zeruiah answered and said, Shall not Shimei be put to death for this, because he cursed Jehovah's anointed?
+But Abishai the son of Zeruiah answered, "Shall Shimei not be put to death for this, because he cursed Yahweh's anointed?"

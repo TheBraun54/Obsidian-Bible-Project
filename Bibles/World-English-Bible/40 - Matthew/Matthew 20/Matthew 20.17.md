@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Jesus was going up to Jerusalem, he took the twelve disciples apart, and on the way he said unto them,
+As Jesus was going up to Jerusalem, he took the twelve disciples aside, and on the way he said to them,

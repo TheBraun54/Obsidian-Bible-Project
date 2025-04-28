@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, Father, for so it was well-pleasing in thy sight.
+Yes, Father, for so it was well-pleasing in your sight.

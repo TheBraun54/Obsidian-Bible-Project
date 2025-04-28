@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, According unto your words, so be it. And she sent them away, and they departed: and she bound the scarlet line in the window.
+She said, "According to your words, so be it." She sent them away, and they departed. She tied the scarlet line in the window.

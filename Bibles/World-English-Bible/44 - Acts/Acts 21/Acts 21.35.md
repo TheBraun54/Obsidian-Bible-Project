@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came upon the stairs, so it was that he was borne of the soldiers for the violence of the crowd;
+When he came to the stairs, it happened that he was carried by the soldiers because of the violence of the crowd;

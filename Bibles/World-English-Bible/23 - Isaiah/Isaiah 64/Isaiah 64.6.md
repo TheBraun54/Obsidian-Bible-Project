@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we are all become as one that is unclean, and all our righteousnesses are as a polluted garment: and we all do fade as a leaf; and our iniquities, like the wind, take us away.
+For we have all become as one who is unclean, and all our righteousness is as a polluted garment: and we all fade as a leaf; and our iniquities, like the wind, take us away.

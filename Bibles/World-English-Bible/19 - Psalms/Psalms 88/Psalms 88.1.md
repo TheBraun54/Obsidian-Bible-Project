@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song, a Psalm of the sons of Korah; for the Chief Musician; set to Mahalath Leannoth. Maschil of Heman the Ezrahite]. O Jehovah, the God of my salvation, I have cried day and night before thee.
+Yahweh, the God of my salvation, I have cried day and night before you.

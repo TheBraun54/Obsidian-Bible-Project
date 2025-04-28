@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The kings of the earth set themselves in array, And the rulers were gathered together, Against the Lord, and against his Anointed:
+The kings of the earth take a stand, and the rulers take council together, against the Lord, and against his Christ.'

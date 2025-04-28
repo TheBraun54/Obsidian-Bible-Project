@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were gathered unto him great multitudes, so that he entered into a boat, and sat; and all the multitude stood on the beach.
+Great multitudes gathered to him, so that he entered into a boat, and sat, and all the multitude stood on the beach.

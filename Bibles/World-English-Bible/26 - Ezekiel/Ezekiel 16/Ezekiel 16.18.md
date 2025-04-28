@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou tookest thy broidered garments, and coveredst them, and didst set mine oil and mine incense before them.
+and you took your embroidered garments, and covered them, and did set my oil and my incense before them.

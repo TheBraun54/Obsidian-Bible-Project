@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou trustest upon the staff of this bruised reed, even upon Egypt, whereon if a man lean, it will go into his hand, and pierce it: so is Pharaoh king of Egypt to all that trust on him.
+Behold, you trust in the staff of this bruised reed, even in Egypt, which if a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to all who trust in him.

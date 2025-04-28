@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they called the people unto the sacrifices of their gods; and the people did eat, and bowed down to their gods.
+for they called the people to the sacrifices of their gods; and the people ate, and bowed down to their gods.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O Israel, hearken unto the statutes and unto the ordinances, which I teach you, to do them; that ye may live, and go in and possess the land which Jehovah, the God of your fathers, giveth you.
+Now, Israel, listen to the statutes and to the ordinances, which I teach you, to do them; that you may live, and go in and possess the land which Yahweh, the God of your fathers, gives you.

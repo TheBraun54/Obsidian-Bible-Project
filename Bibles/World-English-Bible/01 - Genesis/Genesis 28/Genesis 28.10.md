@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob went out from Beer-sheba, and went toward Haran.
+Jacob went out from Beersheba, and went toward Haran.

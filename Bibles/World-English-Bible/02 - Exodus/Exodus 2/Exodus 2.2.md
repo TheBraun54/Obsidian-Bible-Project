@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman conceived, and bare a son: and when she saw him that he was a goodly child, she hid him three months.
+The woman conceived, and bore a son. When she saw that he was a fine child, she hid him three months.

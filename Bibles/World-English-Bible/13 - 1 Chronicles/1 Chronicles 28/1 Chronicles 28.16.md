@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the gold by weight for the tables of showbread, for every table; and silver for the tables of silver;
+and the gold by weight for the tables of show bread, for every table; and silver for the tables of silver;

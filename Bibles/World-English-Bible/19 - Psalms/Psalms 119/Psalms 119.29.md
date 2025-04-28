@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remove from me the way of falsehood; And grant me thy law graciously.
+Keep me from the way of deceit. Grant me your law graciously!

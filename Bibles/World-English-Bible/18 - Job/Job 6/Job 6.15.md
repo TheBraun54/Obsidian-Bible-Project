@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My brethren have dealt deceitfully as a brook, As the channel of brooks that pass away;
+My brothers have dealt deceitfully as a brook, as the channel of brooks that pass away;

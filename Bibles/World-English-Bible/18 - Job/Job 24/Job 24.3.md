@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They drive away the ass of the fatherless; They take the widow's ox for a pledge.
+They drive away the donkey of the fatherless, and they take the widow's ox for a pledge.

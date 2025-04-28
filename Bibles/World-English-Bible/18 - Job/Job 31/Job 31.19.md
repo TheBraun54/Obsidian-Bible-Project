@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have seen any perish for want of clothing, Or that the needy had no covering;
+if I have seen any perish for want of clothing, or that the needy had no covering;

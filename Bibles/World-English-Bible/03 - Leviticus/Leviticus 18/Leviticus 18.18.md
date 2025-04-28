@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not take a wife to her sister, to be a rival [to her], to uncover her nakedness, besides the other in her life-time.
+"'You shall not take a wife to her sister, to be a rival, to uncover her nakedness, while her sister is yet alive.

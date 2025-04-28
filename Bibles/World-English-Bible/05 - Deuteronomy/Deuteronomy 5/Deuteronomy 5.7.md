@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt have no other gods before me.
+"You shall have no other gods before me.

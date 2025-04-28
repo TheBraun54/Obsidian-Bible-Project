@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit bade me go with them, making no distinction. And these six brethren also accompanied me; and we entered into the man's house:
+The Spirit told me to go with them, without discriminating. These six brothers also accompanied me, and we entered into the man's house.

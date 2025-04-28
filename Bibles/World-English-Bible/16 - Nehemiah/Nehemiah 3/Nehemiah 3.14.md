@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the dung gate repaired Malchijah the son of Rechab, the ruler of the district of Beth-haccherem; he built it, and set up the doors thereof, the bolts thereof, and the bars thereof.
+The dung gate repaired Malchijah the son of Rechab, the ruler of the district of Beth Haccherem; he built it, and set up its doors, its bolts, and its bars.

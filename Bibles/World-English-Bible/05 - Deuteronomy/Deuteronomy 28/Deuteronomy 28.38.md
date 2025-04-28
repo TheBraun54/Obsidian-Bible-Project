@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt carry much seed out into the field, and shalt gather little in; for the locust shall consume it.
+You shall carry much seed out into the field, and shall gather little in; for the locust shall consume it.

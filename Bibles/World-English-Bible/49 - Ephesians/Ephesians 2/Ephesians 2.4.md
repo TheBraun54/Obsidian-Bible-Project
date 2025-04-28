@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but God, being rich in mercy, for his great love wherewith he loved us,
+But God, being rich in mercy, for his great love with which he loved us,

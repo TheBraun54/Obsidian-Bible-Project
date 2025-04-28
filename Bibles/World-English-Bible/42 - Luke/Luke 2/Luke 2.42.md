@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was twelve years old, they went up after the custom of the feast;
+When he was twelve years old, they went up to Jerusalem according to the custom of the feast,

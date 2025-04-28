@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So because thou art lukewarm, and neither hot nor cold, I will spew thee out of my mouth.
+So, because you are lukewarm, and neither hot nor cold, I will vomit you out of my mouth.

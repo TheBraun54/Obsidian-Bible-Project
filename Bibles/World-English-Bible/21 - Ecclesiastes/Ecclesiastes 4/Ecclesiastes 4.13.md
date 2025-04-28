@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is a poor and wise youth than an old and foolish king, who knoweth not how to receive admonition any more.
+Better is a poor and wise youth than an old and foolish king who doesn't know how to receive admonition any more.

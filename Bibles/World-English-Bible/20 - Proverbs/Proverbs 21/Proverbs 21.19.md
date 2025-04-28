@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is better to dwell in a desert land, Than with a contentious and fretful woman.
+It is better to dwell in a desert land, than with a contentious and fretful woman.

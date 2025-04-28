@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My father peradventure will feel me, and I shall seem to him as a deceiver; and I shall bring a curse upon me, and not a blessing.
+What if my father touches me? I will seem to him as a deceiver, and I would bring a curse on myself, and not a blessing."

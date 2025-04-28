@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then shall we say to these things? If God [is] for us, who [is] against us?
+What then shall we say about these things? If God is for us, who can be against us?

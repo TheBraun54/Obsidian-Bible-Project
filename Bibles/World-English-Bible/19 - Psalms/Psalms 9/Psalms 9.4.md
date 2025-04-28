@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast maintained my right and my cause; Thou sittest in the throne judging righteously.
+For you have maintained my just cause. You sit on the throne judging righteously.

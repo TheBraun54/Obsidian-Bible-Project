@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah appeared again in Shiloh; for Jehovah revealed himself to Samuel in Shiloh by the word of Jehovah.
+Yahweh appeared again in Shiloh; for Yahweh revealed himself to Samuel in Shiloh by the word of Yahweh.

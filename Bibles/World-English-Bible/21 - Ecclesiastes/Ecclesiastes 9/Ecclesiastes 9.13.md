@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have also seen wisdom under the sun on this wise, and it seemed great unto me:
+I have also seen wisdom under the sun in this way, and it seemed great to me.

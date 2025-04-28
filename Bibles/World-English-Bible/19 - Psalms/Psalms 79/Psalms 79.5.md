@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long, O Jehovah? wilt thou be angry for ever? Shall thy jealousy burn like fire?
+How long, Yahweh? Will you be angry forever? Will your jealousy burn like fire?

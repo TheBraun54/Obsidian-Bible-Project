@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall receive a blessing from Jehovah, And righteousness from the God of his salvation.
+He shall receive a blessing from Yahweh, righteousness from the God of his salvation.

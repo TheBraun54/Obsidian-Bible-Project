@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Azubah died, and Caleb took unto him Ephrath, who bare him Hur.
+Azubah died, and Caleb took to him Ephrath, who bore him Hur.

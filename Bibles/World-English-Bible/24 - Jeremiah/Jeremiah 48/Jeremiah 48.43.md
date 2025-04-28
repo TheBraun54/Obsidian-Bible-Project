@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear, and the pit, and the snare, are upon thee, O inhabitant of Moab, saith Jehovah.
+Fear, and the pit, and the snare, are on you, inhabitant of Moab, says Yahweh.

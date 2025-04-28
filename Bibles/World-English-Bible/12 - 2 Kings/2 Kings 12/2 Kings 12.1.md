@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the seventh year of Jehu began Jehoash to reign; and he reigned forty years in Jerusalem: and his mother's name was Zibiah of Beer-sheba.
+In the seventh year of Jehu began Jehoash to reign; and he reigned forty years in Jerusalem: and his mother's name was Zibiah of Beersheba.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Alush, and encamped in Rephidim, where was no water for the people to drink.
+They traveled from Alush, and encamped in Rephidim, where there was no water for the people to drink.

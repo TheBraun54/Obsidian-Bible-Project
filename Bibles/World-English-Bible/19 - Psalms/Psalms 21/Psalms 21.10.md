@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their fruit wilt thou destroy from the earth, And their seed from among the children of men.
+You will destroy their descendants from the earth, their posterity from among the children of men.

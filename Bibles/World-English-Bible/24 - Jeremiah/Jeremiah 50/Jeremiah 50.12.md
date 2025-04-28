@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-your mother shall be utterly put to shame; she that bare you shall be confounded: behold, she shall be the hindermost of the nations, a wilderness, a dry land, and a desert.
+your mother shall be utterly disappointed; she who bore you shall be confounded: behold, she shall be the least of the nations, a wilderness, a dry land, and a desert.

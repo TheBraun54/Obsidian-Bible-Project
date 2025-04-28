@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a woman have an issue of her blood many days not in the time of her impurity, or if she have an issue beyond the time of her impurity; all the days of the issue of her uncleanness she shall be as in the days of her impurity: she is unclean.
+"'If a woman has a discharge of her blood many days not in the time of her period, or if she has a discharge beyond the time of her period; all the days of the discharge of her uncleanness shall be as in the days of her period: she is unclean.

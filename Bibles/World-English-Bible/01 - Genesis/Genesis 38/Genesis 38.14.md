@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she put off from her the garments of her widowhood, and covered herself with her veil, and wrapped herself, and sat in the gate of Enaim, which is by the way to Timnah; for she saw that Shelah was grown up, and she was not given unto him to wife.
+She took off of her the garments of her widowhood, and covered herself with her veil, and wrapped herself, and sat in the gate of Enaim, which is by the way to Timnah; for she saw that Shelah was grown up, and she wasn't given to him as a wife.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can say, I have made my heart clean, I am pure from my sin?
+Who can say, "I have made my heart pure. I am clean and without sin?"

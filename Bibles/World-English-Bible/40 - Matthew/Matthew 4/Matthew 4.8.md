@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, the devil taketh him unto an exceeding high mountain, and showeth him all the kingdoms of the world, and the glory of them;
+Again, the devil took him to an exceedingly high mountain, and showed him all the kingdoms of the world, and their glory.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto them, If thou be a great people, get thee up to the forest, and cut down for thyself there in the land of the Perizzites and of the Rephaim; since the hill-country of Ephraim is too narrow for thee.
+Joshua said to them, "If you are a great people, go up to the forest, and clear land for yourself there in the land of the Perizzites and of the Rephaim; since the hill country of Ephraim is too narrow for you."

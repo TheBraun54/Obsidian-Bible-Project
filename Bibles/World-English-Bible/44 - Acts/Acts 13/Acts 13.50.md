@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Jews urged on the devout women of honorable estate, and the chief men of the city, and stirred up a persecution against Paul and Barnabas, and cast them out of their borders.
+But the Jews stirred up the devout and prominent women and the chief men of the city, and stirred up a persecution against Paul and Barnabas, and threw them out of their borders.

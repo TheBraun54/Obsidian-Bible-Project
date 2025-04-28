@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they found Adoni-bezek in Bezek; and they fought against him, and they smote the Canaanites and the Perizzites.
+They found Adoni-Bezek in Bezek; and they fought against him, and they struck the Canaanites and the Perizzites.

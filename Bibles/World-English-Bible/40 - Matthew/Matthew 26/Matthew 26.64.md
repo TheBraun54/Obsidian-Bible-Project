@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto him, Thou hast said: nevertheless I say unto you, Henceforth ye shall see the Son of man sitting at the right hand of Power, and coming on the clouds of heaven.
+Jesus said to him, "You have said it. Nevertheless, I tell you, after this you will see the Son of Man sitting at the right hand of Power, and coming on the clouds of the sky."

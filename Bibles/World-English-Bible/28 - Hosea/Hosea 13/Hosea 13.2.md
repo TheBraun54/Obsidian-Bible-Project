@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now they sin more and more, and have made them molten images of their silver, even idols according to their own understanding, all of them the work of the craftsmen: they say of them, Let the men that sacrifice kiss the calves.
+Now they sin more and more, and have made themselves molten images of their silver, even idols according to their own understanding, all of them the work of the craftsmen. They say of them, 'They offer human sacrifice and kiss the calves.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come down, and sit in the dust, O virgin daughter of Babylon; sit on the ground without a throne, O daughter of the Chaldeans: for thou shalt no more be called tender and delicate.
+"Come down, and sit in the dust, virgin daughter of Babylon; sit on the ground without a throne, daughter of the Chaldeans: for you shall no more be called tender and delicate.

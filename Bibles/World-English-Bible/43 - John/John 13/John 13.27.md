@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the sop, then entered Satan into him. Jesus therefore saith unto him, What thou doest, do quickly.
+After the piece of bread, then Satan entered into him. Then Jesus said to him, "What you do, do quickly."

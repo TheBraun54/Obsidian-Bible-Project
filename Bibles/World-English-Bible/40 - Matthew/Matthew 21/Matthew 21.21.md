@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said unto them, Verily I say unto you, If ye have faith, and doubt not, ye shall not only do what is done to the fig tree, but even if ye shall say unto this mountain, Be thou taken up and cast into the sea, it shall be done.
+Jesus answered them, "Most certainly I tell you, if you have faith, and don't doubt, you will not only do what was done to the fig tree, but even if you told this mountain, 'Be taken up and cast into the sea,' it would be done.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which is as a bridegroom coming out of his chamber, And rejoiceth as a strong man to run his course.
+which is as a bridegroom coming out of his room, like a strong man rejoicing to run his course.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath pity upon the poor lendeth unto Jehovah, And his good deed will he pay him again.
+He who has pity on the poor lends to Yahweh; he will reward him.

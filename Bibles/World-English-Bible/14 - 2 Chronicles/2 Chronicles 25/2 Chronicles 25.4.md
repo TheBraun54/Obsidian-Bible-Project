@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he put not their children to death, but did according to that which is written in the law in the book of Moses, as Jehovah commanded, saying, The fathers shall not die for the children, neither shall the children die for the fathers; but every man shall die for his own sin.
+But he didn't put their children to death, but did according to that which is written in the law in the book of Moses, as Yahweh commanded, saying, "The fathers shall not die for the children, neither shall the children die for the fathers; but every man shall die for his own sin."

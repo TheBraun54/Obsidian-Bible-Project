@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Arpachshad lived five and thirty years, and begat Shelah:
+Arpachshad lived thirty-five years and became the father of Shelah.

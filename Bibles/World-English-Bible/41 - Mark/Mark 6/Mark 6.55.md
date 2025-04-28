@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ran round about that whole region, and began to carry about on their beds those that were sick, where they heard he was.
+and ran around that whole region, and began to bring those who were sick, on their mats, to where they heard he was.

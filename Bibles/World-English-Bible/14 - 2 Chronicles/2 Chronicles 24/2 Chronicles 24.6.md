@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king called for Jehoiada the chief, and said unto him, Why hast thou not required of the Levites to bring in out of Judah and out of Jerusalem the tax of Moses the servant of Jehovah, and of the assembly of Israel, for the tent of the testimony?
+The king called for Jehoiada the chief, and said to him, "Why haven't you required of the Levites to bring in the tax of Moses the servant of Yahweh, and of the assembly of Israel, out of Judah and out of Jerusalem, for the tent of the testimony?"

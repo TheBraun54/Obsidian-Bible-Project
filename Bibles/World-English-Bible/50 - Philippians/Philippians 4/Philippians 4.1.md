@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, my brethren beloved and longed for, my joy and crown, so stand fast in the Lord, my beloved.
+Therefore, my brothers, beloved and longed for, my joy and crown, so stand firm in the Lord, my beloved.

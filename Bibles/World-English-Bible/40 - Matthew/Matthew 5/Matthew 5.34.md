@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I say unto you, swear not at all; neither by the heaven, for it is the throne of God;
+but I tell you, don't swear at all: neither by heaven, for it is the throne of God;

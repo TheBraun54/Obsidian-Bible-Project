@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the man have no kinsman to whom restitution may be made for the guilt, the restitution for guilt which is made unto Jehovah shall be the priest's; besides the ram of the atonement, whereby atonement shall be made for him.
+But if the man has no kinsman to whom restitution may be made for the guilt, the restitution for guilt which is made to Yahweh shall be the priest's; besides the ram of the atonement, by which atonement shall be made for him.

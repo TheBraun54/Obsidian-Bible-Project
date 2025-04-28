@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Produce your cause, saith Jehovah; bring forth your strong reasons, saith the King of Jacob.
+Produce your cause," says Yahweh. "Bring forth your strong reasons," says the King of Jacob.

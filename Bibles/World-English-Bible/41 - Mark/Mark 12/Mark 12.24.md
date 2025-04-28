@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto them, Is it not for this cause that ye err, that ye know not the scriptures, nor the power of God?
+Jesus answered them, "Isn't this because you are mistaken, not knowing the Scriptures, nor the power of God?

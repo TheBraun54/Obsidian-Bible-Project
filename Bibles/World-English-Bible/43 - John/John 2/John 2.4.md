@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus saith unto her, Woman, what have I to do with thee? mine hour is not yet come.
+Jesus said to her, "Woman, what does that have to do with you and me? My hour has not yet come."

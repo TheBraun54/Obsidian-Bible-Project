@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man sell his daughter to be a maid-servant, she shall not go out as the men-servants do.
+"If a man sells his daughter to be a female servant, she shall not go out as the male servants do.

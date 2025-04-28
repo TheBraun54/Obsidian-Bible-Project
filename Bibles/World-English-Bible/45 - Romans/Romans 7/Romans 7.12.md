@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that the law is holy, and the commandment holy, and righteous, and good.
+Therefore the law indeed is holy, and the commandment holy, and righteous, and good.

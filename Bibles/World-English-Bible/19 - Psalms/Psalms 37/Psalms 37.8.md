@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cease from anger, and forsake wrath: Fret not thyself, [it tendeth] only to evil-doing.
+Cease from anger, and forsake wrath. Don't fret, it leads only to evildoing.

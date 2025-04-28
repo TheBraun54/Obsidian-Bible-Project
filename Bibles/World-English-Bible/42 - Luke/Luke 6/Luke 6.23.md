@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice in that day, and leap [for joy] : for behold, your reward is great in heaven; for in the same manner did their fathers unto the prophets.
+Rejoice in that day, and leap for joy, for behold, your reward is great in heaven, for their fathers did the same thing to the prophets.

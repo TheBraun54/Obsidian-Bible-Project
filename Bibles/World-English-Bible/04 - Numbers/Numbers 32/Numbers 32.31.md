@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Gad and the children of Reuben answered, saying, As Jehovah hath said unto thy servants, so will we do.
+The children of Gad and the children of Reuben answered, saying, "As Yahweh has said to your servants, so will we do.

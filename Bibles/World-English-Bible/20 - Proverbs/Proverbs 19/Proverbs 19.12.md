@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king's wrath is as the roaring of a lion; But his favor is as dew upon the grass.
+The king's wrath is like the roaring of a lion, but his favor is like dew on the grass.

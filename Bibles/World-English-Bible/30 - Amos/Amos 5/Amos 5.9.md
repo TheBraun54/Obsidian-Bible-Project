@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that bringeth sudden destruction upon the strong, so that destruction cometh upon the fortress.
+who brings sudden destruction on the strong, so that destruction comes on the fortress.

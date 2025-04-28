@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thither ye shall bring your burnt-offerings, and your sacrifices, and your tithes, and the heave-offering of your hand, and your vows, and your freewill-offerings, and the firstlings of your herd and of your flock:
+and there you shall bring your burnt offerings, and your sacrifices, and your tithes, and the wave offering of your hand, and your vows, and your freewill offerings, and the firstborn of your herd and of your flock:

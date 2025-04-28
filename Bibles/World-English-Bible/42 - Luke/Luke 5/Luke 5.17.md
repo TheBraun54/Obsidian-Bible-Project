@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on one of those days, that he was teaching; and there were Pharisees and doctors of the law sitting by, who were come out of every village of Galilee and Judaea and Jerusalem: and the power of the Lord was with him to heal.
+It happened on one of those days, that he was teaching; and there were Pharisees and teachers of the law sitting by, who had come out of every village of Galilee, Judea, and Jerusalem. The power of the Lord was with him to heal them.

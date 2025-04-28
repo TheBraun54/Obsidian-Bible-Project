@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh's servants said unto him, How long shall this man be a snare unto us? let the men go, that they may serve Jehovah their God: knowest thou not yet that Egypt is destroyed?
+Pharaoh's servants said to him, "How long will this man be a snare to us? Let the men go, that they may serve Yahweh, their God. Don't you yet know that Egypt is destroyed?"

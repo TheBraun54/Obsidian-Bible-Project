@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, What meanest thou by all this company which I met? And he said, To find favor in the sight of my lord.
+Esau said, "What do you mean by all this company which I met?" Jacob said, "To find favor in the sight of my lord."

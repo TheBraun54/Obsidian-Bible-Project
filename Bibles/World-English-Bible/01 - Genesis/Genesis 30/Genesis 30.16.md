@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob came from the field in the evening, and Leah went out to meet him, and said, Thou must come in unto me; for I have surely hired thee with my son's mandrakes. And he lay with her that night.
+Jacob came from the field in the evening, and Leah went out to meet him, and said, "You must come in to me; for I have surely hired you with my son's mandrakes." He lay with her that night.

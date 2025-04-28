@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So [the lot] was for the rest of the children of Manasseh according to their families: for the children of Abiezer, and for the children of Helek, and for the children of Asriel, and for the children of Shechem, and for the children of Hepher, and for the children of Shemida: these were the male children of Manasseh the son of Joseph according to their families.
+So this was for the rest of the children of Manasseh according to their families: for the children of Abiezer, for the children of Helek, for the children of Asriel, for the children of Shechem, for the children of Hepher, and for the children of Shemida: these were the male children of Manasseh the son of Joseph according to their families.

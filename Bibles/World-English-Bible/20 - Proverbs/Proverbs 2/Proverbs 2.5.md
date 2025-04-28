@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou understand the fear of Jehovah, And find the knowledge of God.
+then you will understand the fear of Yahweh, and find the knowledge of God.

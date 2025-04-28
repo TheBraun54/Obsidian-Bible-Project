@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, Why callest thou me good? none is good, save one, [even] God.
+Jesus asked him, "Why do you call me good? No one is good, except one--God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the swords of the mighty will I cause thy multitude to fall; the terrible of the nations are they all: and they shall bring to nought the pride of Egypt, and all the multitude thereof shall be destroyed.
+By the swords of the mighty will I cause your multitude to fall; the terrible of the nations are they all: and they shall bring to nothing the pride of Egypt, and all its multitude shall be destroyed.

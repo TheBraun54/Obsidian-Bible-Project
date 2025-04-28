@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I shall make the land of Egypt desolate and waste, a land destitute of that whereof it was full, when I shall smite all them that dwell therein, then shall they know that I am Jehovah.
+When I shall make the land of Egypt desolate and waste, a land destitute of that of which it was full, when I shall strike all those who dwell therein, then shall they know that I am Yahweh.

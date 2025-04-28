@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Miriam was shut up without the camp seven days: and the people journeyed not till Miriam was brought in again.
+Miriam was shut up outside of the camp seven days, and the people didn't travel until Miriam was brought in again.

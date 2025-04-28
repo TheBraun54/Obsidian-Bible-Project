@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David took hold on his clothes, and rent them; and likewise all the men that were with him:
+Then David took hold on his clothes, and tore them; and likewise all the men who were with him.

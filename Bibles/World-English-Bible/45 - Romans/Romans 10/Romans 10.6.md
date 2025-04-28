@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the righteousness which is of faith saith thus, Say not in thy heart, Who shall ascend into heaven? (that is, to bring Christ down:)
+But the righteousness which is of faith says this, "Don't say in your heart, 'Who will ascend into heaven?' (that is, to bring Christ down);

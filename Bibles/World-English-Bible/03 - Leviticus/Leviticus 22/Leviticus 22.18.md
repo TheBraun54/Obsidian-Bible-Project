@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Aaron, and to his sons, and unto all the children of Israel, and say unto them, Whosoever he be of the house of Israel, or of the sojourners in Israel, that offereth his oblation, whether it be any of their vows, or any of their freewill-offerings, which they offer unto Jehovah for a burnt-offering;
+"Speak to Aaron, and to his sons, and to all the children of Israel, and say to them, 'Whoever is of the house of Israel, or of the foreigners in Israel, who offers his offering, whether it be any of their vows, or any of their freewill offerings, which they offer to Yahweh for a burnt offering;

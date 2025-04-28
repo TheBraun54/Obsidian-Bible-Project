@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and coming forth out of the tombs after his resurrection they entered into the holy city and appeared unto many.
+and coming out of the tombs after his resurrection, they entered into the holy city and appeared to many.

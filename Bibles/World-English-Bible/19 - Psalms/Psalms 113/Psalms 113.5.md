@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is like unto Jehovah our God, That hath his seat on high,
+Who is like Yahweh, our God, who has his seat on high,

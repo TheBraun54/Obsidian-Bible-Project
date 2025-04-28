@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sent away Rebekah their sister, and her nurse, and Abraham's servant, and his men.
+They sent away Rebekah, their sister, with her nurse, Abraham's servant, and his men.

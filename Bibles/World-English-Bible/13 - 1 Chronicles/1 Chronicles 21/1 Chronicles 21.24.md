@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king David said to Ornan, Nay; but I will verily buy it for the full price: for I will not take that which is thine for Jehovah, nor offer a burnt-offering without cost.
+King David said to Ornan, "No; but I will most certainly buy it for the full price. For I will not take that which is yours for Yahweh, nor offer a burnt offering without cost."

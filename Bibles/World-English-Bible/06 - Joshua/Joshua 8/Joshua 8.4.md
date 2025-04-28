@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded them, saying, Behold, ye shall lie in ambush against the city, behind the city; go not very far from the city, but be ye all ready:
+He commanded them, saying, "Behold, you shall lie in ambush against the city, behind the city. Don't go very far from the city, but all of you be ready.

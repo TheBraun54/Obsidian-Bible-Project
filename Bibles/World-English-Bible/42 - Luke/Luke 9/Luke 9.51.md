@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the days were well-nigh come that he should be received up, he stedfastly set his face to go to Jerusalem,
+It came to pass, when the days were near that he should be taken up, he intently set his face to go to Jerusalem,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if what I would not, that I do, I consent unto the law that it is good.
+But if what I don't desire, that I do, I consent to the law that it is good.

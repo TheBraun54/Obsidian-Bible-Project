@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and what he did unto you in the wilderness, until ye came unto this place;
+and what he did to you in the wilderness, until you came to this place;

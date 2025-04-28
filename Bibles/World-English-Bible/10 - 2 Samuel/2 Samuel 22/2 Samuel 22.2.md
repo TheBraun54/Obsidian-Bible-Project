@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, Jehovah is my rock, and my fortress, and my deliverer, even mine;
+and he said, "Yahweh is my rock, my fortress, and my deliverer, even mine;

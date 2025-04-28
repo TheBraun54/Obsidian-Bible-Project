@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now they desire a better [country], that is, a heavenly: wherefore God is not ashamed of them, to be called their God; for he hath prepared for them a city.
+But now they desire a better country, that is, a heavenly one. Therefore God is not ashamed of them, to be called their God, for he has prepared a city for them.

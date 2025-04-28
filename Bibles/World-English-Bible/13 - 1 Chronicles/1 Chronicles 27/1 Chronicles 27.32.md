@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Jonathan, David's uncle, was a counsellor, a man of understanding, and a scribe: and Jehiel the son of Hachmoni was with the king's sons:
+Also Jonathan, David's uncle, was a counselor, a man of understanding, and a scribe: and Jehiel the son of Hachmoni was with the king's sons:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shimei said unto the king, The saying is good: as my lord the king hath said, so will thy servant do. And Shimei dwelt in Jerusalem many days.
+Shimei said to the king, "The saying is good. As my lord the king has said, so will your servant do." Shimei lived in Jerusalem many days.

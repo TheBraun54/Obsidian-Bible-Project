@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king arose, and rent his garments, and lay on the earth; and all his servants stood by with their clothes rent.
+Then the king arose, and tore his garments, and lay on the earth; and all his servants stood by with their clothes torn.

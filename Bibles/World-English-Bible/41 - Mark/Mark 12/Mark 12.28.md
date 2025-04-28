@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the scribes came, and heard them questioning together, and knowing that he had answered them well, asked him, What commandment is the first of all?
+One of the scribes came, and heard them questioning together. Knowing that he had answered them well, asked him, "Which commandment is the greatest of all?"

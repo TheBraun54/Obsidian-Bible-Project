@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he was yet speaking, there came also another, and said, The fire of God is fallen from heaven, and hath burned up the sheep and the servants, and consumed them; and I only am escaped alone to tell thee.
+While he was still speaking, there also came another, and said, "The fire of God has fallen from the sky, and has burned up the sheep and the servants, and consumed them, and I alone have escaped to tell you."

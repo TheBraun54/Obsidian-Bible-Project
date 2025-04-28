@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For after this manner aforetime the holy women also, who hoped in God, adorned themselves, being in subjection to their own husbands:
+For this is how the holy women before, who hoped in God also adorned themselves, being in subjection to their own husbands:

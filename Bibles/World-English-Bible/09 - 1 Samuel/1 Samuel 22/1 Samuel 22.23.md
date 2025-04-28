@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Abide thou with me, fear not; for he that seeketh my life seeketh thy life: for with me thou shalt be in safeguard.
+Stay with me, don't be afraid; for he who seeks my life seeks your life. For with me you shall be in safeguard."

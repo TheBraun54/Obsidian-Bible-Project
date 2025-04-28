@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent messengers unto Abimelech craftily, saying, Behold, Gaal the son of Ebed and his brethren are come to Shechem; and, behold, they constrain the city [to take part] against thee.
+He sent messengers to Abimelech craftily, saying, "Behold, Gaal the son of Ebed and his brothers are come to Shechem; and behold, they constrain the city [to take part] against you.

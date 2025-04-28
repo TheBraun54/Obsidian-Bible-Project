@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fool uttereth all his anger; But a wise man keepeth it back and stilleth it.
+A fool vents all of his anger, but a wise man brings himself under control.

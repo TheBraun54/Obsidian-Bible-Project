@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall scourge and kill him: and the third day he shall rise again.
+They will scourge and kill him. On the third day, he will rise again."

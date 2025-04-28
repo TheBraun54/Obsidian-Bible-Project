@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye are led by the Spirit, ye are not under the law.
+But if you are led by the Spirit, you are not under the law.

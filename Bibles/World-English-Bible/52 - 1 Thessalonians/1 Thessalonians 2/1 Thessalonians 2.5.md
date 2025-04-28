@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For neither at any time were we found using words of flattery, as ye know, nor a cloak of covetousness, God is witness;
+For neither were we at any time found using words of flattery, as you know, nor a cloak of covetousness (God is witness),

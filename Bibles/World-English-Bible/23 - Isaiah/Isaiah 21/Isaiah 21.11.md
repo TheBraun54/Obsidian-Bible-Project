@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of Dumah. One calleth unto me out of Seir, Watchman, what of the night? Watchman, what of the night?
+The burden of Dumah. One calls to me out of Seir, "Watchman, what of the night? Watchman, what of the night?"

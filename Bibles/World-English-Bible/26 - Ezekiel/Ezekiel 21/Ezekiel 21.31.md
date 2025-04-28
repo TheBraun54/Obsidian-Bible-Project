@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will pour out mine indignation upon thee; I will blow upon thee with the fire of my wrath; and I will deliver thee into the hand of brutish men, skilful to destroy.
+I will pour out my indignation on you; I will blow on you with the fire of my wrath; and I will deliver you into the hand of brutish men, skillful to destroy.

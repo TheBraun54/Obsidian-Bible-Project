@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Such as lavish gold out of the bag, and weigh silver in the balance, they hire a goldsmith, and he maketh it a god; they fall down, yea, they worship.
+Some pour out gold from the bag, and weigh silver in the balance. They hire a goldsmith, and he makes it a god. They fall down--yes, they worship.

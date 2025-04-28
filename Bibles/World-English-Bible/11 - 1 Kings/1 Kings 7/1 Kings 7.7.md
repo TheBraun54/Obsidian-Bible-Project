@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the porch of the throne where he was to judge, even the porch of judgment: and it was covered with cedar from floor to floor.
+He made the porch of the throne where he was to judge, even the porch of judgment: and it was covered with cedar from floor to floor.

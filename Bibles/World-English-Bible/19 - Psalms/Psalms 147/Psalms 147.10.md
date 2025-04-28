@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He delighteth not in the strength of the horse: He taketh no pleasure in the legs of a man.
+He doesn't delight in the strength of the horse. He takes no pleasure in the legs of a man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then it shall come to pass that to the place which Jehovah your God shall choose, to cause his name to dwell there, thither shall ye bring all that I command you: your burnt-offerings, and your sacrifices, your tithes, and the heave-offering of your hand, and all your choice vows which ye vow unto Jehovah.
+then it shall happen that to the place which Yahweh your God shall choose, to cause his name to dwell there, there you shall bring all that I command you: your burnt offerings, and your sacrifices, your tithes, and the wave offering of your hand, and all your choice vows which you vow to Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The counsel of Jehovah standeth fast for ever, The thoughts of his heart to all generations.
+The counsel of Yahweh stands fast forever, the thoughts of his heart to all generations.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto the people, Fear not; ye have indeed done all this evil; yet turn not aside from following Jehovah, but serve Jehovah with all your heart:
+Samuel said to the people, "Don't be afraid. You have indeed done all this evil; yet don't turn aside from following Yahweh, but serve Yahweh with all your heart.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the pots, and the shovels, and the basins: even all these vessels, which Hiram made for king Solomon, in the house of Jehovah, were of burnished brass.
+and the pots, and the shovels, and the basins: even all these vessels, which Hiram made for king Solomon, in the house of Yahweh, were of burnished brass.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt surely give him, and thy heart shall not be grieved when thou givest unto him; because that for this thing Jehovah thy God will bless thee in all thy work, and in all that thou puttest thy hand unto.
+You shall surely give him, and your heart shall not be grieved when you give to him; because that for this thing Yahweh your God will bless you in all your work, and in all that you put your hand to.

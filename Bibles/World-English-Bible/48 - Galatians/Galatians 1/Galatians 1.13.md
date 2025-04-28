@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye have heard of my manner of life in time past in the Jews' religion, how that beyond measure I persecuted the church of God, and made havoc of it:
+For you have heard of my way of living in time past in the Jews' religion, how that beyond measure I persecuted the assembly of God, and ravaged it.

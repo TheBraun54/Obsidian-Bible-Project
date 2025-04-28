@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman fled into the wilderness, where she hath a place prepared of God, that there they may nourish her a thousand two hundred and threescore days.
+The woman fled into the wilderness, where she has a place prepared by God, that there they may nourish her one thousand two hundred sixty days.

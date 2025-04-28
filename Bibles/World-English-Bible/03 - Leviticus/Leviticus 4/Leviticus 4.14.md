@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when the sin wherein they have sinned is known, then the assembly shall offer a young bullock for a sin-offering, and bring it before the tent of meeting.
+when the sin in which they have sinned is known, then the assembly shall offer a young bull for a sin offering, and bring it before the Tent of Meeting.

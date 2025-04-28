@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How great are thy works, O Jehovah! Thy thoughts are very deep.
+How great are your works, Yahweh! Your thoughts are very deep.

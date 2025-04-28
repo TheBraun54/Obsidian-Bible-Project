@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to offer all burnt-offerings unto Jehovah, on the sabbaths, on the new moons, and on the set feasts, in number according to the ordinance concerning them, continually before Jehovah;
+and to offer all burnt offerings to Yahweh, on the Sabbaths, on the new moons, and on the set feasts, in number according to the ordinance concerning them, continually before Yahweh;

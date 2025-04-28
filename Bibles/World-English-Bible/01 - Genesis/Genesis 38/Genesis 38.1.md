@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at that time, that Judah went down from his brethren, and turned in to a certain Adullamite, whose name was Hirah.
+It happened at that time, that Judah went down from his brothers, and visited a certain Adullamite, whose name was Hirah.

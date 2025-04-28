@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God did put in their hearts to do his mind, and to come to one mind, and to give their kingdom unto the beast, until the words of God should be accomplished.
+For God has put in their hearts to do what he has in mind, and to be of one mind, and to give their kingdom to the beast, until the words of God should be accomplished.

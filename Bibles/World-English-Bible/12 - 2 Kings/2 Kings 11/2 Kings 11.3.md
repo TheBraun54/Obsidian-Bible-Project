@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was with her hid in the house of Jehovah six years. And Athaliah reigned over the land.
+He was with her hidden in the house of Yahweh six years. Athaliah reigned over the land.

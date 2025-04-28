@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that fashion a graven image are all of them vanity; and the things that they delight in shall not profit; and their own witnesses see not, nor know: that they may be put to shame.
+Everyone who makes an engraved image is vain. The things that they delight in will not profit. Their own witnesses don't see, nor know, that they may be disappointed.

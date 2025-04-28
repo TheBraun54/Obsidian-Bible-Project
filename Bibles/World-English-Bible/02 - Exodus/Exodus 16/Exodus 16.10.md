@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as Aaron spake unto the whole congregation of the children of Israel, that they looked toward the wilderness, and, behold, the glory of Jehovah appeared in the cloud.
+It happened, as Aaron spoke to the whole congregation of the children of Israel, that they looked toward the wilderness, and behold, the glory of Yahweh appeared in the cloud.

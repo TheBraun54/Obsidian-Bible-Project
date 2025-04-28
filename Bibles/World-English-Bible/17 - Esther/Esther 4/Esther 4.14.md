@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if thou altogether holdest thy peace at this time, then will relief and deliverance arise to the Jews from another place, but thou and thy father's house will perish: and who knoweth whether thou art not come to the kingdom for such a time as this?
+For if you remain silent now, then relief and deliverance will come to the Jews from another place, but you and your father's house will perish. Who knows if you haven't come to the kingdom for such a time as this?"

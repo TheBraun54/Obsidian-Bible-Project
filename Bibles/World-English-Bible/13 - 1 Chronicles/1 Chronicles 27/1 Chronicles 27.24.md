@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Joab the son of Zeruiah began to number, but finished not; and there came wrath for this upon Israel; neither was the number put into the account in the chronicles of king David.
+Joab the son of Zeruiah began to number, but didn't finish; and there came wrath for this on Israel; neither was the number put into the account in the chronicles of king David.

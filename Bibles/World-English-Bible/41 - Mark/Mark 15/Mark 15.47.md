@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mary Magdalene and Mary the [mother] of Joses beheld where he was laid.
+Mary Magdalene and Mary, the mother of Joses, saw where he was laid.

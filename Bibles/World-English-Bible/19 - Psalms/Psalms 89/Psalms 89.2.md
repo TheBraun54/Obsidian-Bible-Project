@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have said, Mercy shall be built up for ever; Thy faithfulness wilt thou establish in the very heavens.
+I indeed declare, "Love stands firm forever. You established the heavens. Your faithfulness is in them."

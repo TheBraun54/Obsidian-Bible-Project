@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehoiada the priest took a chest, and bored a hole in the lid of it, and set it beside the altar, on the right side as one cometh into the house of Jehovah: and the priests that kept the threshold put therein all the money that was brought into the house of Jehovah.
+But Jehoiada the priest took a chest, and bored a hole in its lid, and set it beside the altar, on the right side as one comes into the house of Yahweh: and the priests who kept the threshold put therein all the money that was brought into the house of Yahweh.

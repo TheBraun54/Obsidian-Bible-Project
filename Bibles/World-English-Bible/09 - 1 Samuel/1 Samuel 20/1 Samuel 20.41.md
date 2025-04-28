@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as soon as the lad was gone, David arose out of [a place] toward the South, and fell on his face to the ground, and bowed himself three times: and they kissed one another, and wept one with another, until David exceeded.
+As soon as the boy was gone, David arose out of [a place] toward the South, and fell on his face to the ground, and bowed himself three times. They kissed one another, and wept one with another, and David wept the most.

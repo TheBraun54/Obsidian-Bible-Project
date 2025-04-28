@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said, This voice hath not come for my sake, but for your sakes.
+Jesus answered, "This voice hasn't come for my sake, but for your sakes.

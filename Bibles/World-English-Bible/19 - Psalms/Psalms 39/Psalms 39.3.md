@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart was hot within me; While I was musing the fire burned: [Then] spake I with my tongue:
+My heart was hot within me. While I meditated, the fire burned: I spoke with my tongue:

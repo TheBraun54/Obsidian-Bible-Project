@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I hate them that regard lying vanities; But I trust in Jehovah.
+I hate those who regard lying vanities, but I trust in Yahweh.

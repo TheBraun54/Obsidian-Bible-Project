@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When God heard [this], he was wroth, And greatly abhorred Israel;
+When God heard this, he was angry, and greatly abhorred Israel;

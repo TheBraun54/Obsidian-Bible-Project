@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To Obed-edom southward; and to his sons the store-house.
+To Obed-Edom southward; and to his sons the storehouse.

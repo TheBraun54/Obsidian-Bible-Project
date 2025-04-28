@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now they know that all things whatsoever thou hast given me are from thee:
+Now they have known that all things whatever you have given me are from you,

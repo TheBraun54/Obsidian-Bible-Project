@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us not therefore judge one another any more: but judge ye this rather, that no man put a stumblingblock in his brother's way, or an occasion of falling.
+Therefore let's not judge one another any more, but judge this rather, that no man put a stumbling block in his brother's way, or an occasion for falling.

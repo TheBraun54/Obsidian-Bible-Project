@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lot lifted up his eyes, and beheld all the Plain of the Jordan, that it was well watered every where, before Jehovah destroyed Sodom and Gomorrah, like the garden of Jehovah, like the land of Egypt, as thou goest unto Zoar.
+Lot lifted up his eyes, and saw all the plain of the Jordan, that it was well-watered everywhere, before Yahweh destroyed Sodom and Gomorrah, like the garden of Yahweh, like the land of Egypt, as you go to Zoar.

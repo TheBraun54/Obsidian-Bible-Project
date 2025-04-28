@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the screen of the door to the tabernacle.
+He put up the screen of the door to the tabernacle.

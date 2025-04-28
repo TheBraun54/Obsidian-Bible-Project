@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah passed by before him, and proclaimed, Jehovah, Jehovah, a God merciful and gracious, slow to anger, and abundant in lovingkindness and truth;
+Yahweh passed by before him, and proclaimed, "Yahweh! Yahweh, a merciful and gracious God, slow to anger, and abundant in loving kindness and truth,

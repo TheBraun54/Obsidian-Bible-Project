@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall no man be able to stand before you: Jehovah your God shall lay the fear of you and the dread of you upon all the land that ye shall tread upon, as he hath spoken unto you.
+No man shall be able to stand before you: Yahweh your God shall lay the fear of you and the dread of you on all the land that you shall tread on, as he has spoken to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Help us, O God of our salvation, for the glory of thy name; And deliver us, and forgive our sins, for thy name's sake.
+Help us, God of our salvation, for the glory of your name. Deliver us, and forgive our sins, for your name's sake.

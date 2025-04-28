@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it was of Jehovah to harden their hearts, to come against Israel in battle, that he might utterly destroy them, that they might have no favor, but that he might destroy them, as Jehovah commanded Moses.
+For it was of Yahweh to harden their hearts, to come against Israel in battle, that he might utterly destroy them, that they might have no favor, but that he might destroy them, as Yahweh commanded Moses.

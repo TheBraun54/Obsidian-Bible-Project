@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Take all the chiefs of the people, and hang them up unto Jehovah before the sun, that the fierce anger of Jehovah may turn away from Israel.
+Yahweh said to Moses, "Take all the chiefs of the people, and hang them up to Yahweh before the sun, that the fierce anger of Yahweh may turn away from Israel."

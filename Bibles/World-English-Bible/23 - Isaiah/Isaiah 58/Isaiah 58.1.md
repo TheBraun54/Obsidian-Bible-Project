@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cry aloud, spare not, lift up thy voice like a trumpet, and declare unto my people their transgression, and to the house of Jacob their sins.
+"Cry aloud, don't spare, lift up your voice like a trumpet, and declare to my people their disobedience, and to the house of Jacob their sins.

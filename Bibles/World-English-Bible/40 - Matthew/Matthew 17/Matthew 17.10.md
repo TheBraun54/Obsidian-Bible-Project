@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his disciples asked him, saying, Why then say the scribes that Elijah must first come?
+His disciples asked him, saying, "Then why do the scribes say that Elijah must come first?"

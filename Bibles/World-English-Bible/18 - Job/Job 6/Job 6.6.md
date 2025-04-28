@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can that which hath no savor be eaten without salt? Or is there any taste in the white of an egg?
+Can that which has no flavor be eaten without salt? Or is there any taste in the white of an egg?

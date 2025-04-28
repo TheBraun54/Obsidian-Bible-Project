@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus arose, and followed him, and [so did] his disciples.
+Jesus got up and followed him, as did his disciples.

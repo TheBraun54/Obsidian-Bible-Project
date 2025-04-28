@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they reasoned among themselves, saying, We took no bread.
+They reasoned among themselves, saying, "We brought no bread."

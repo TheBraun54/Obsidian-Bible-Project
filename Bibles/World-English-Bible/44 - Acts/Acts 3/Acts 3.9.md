@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people saw him walking and praising God:
+All the people saw him walking and praising God.

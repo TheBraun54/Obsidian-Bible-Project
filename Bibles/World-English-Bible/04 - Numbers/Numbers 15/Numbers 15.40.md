@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye may remember and do all my commandments, and be holy unto your God.
+that you may remember and do all my commandments, and be holy to your God.

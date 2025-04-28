@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, I will cause them to know, this once will I cause them to know my hand and my might; and they shall know that my name is Jehovah.
+Therefore, behold, I will cause them to know, this once will I cause them to know my hand and my might; and they shall know that my name is Yahweh.

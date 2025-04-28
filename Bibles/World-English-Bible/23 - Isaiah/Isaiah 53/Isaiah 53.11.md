@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall see of the travail of his soul, [and] shall be satisfied: by the knowledge of himself shall my righteous servant justify many; and he shall bear their iniquities.
+After the suffering of his soul, he will see the light and be satisfied. My righteous servant will justify many by the knowledge of himself; and he will bear their iniquities.

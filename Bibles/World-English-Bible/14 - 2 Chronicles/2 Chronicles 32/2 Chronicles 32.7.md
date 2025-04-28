@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be strong and of good courage, be not afraid nor dismayed for the king of Assyria, nor for all the multitude that is with him; for there is a greater with us than with him:
+"Be strong and courageous, don't be afraid nor dismayed for the king of Assyria, nor for all the multitude who is with him; for there is a greater with us than with him.

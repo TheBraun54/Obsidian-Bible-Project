@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had crucified him, they parted his garments among them, casting lots;
+When they had crucified him, they divided his clothing among them, casting lots,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not only so, but we also rejoice in our tribulations: knowing that tribulation worketh stedfastness;
+Not only this, but we also rejoice in our sufferings, knowing that suffering works perseverance;

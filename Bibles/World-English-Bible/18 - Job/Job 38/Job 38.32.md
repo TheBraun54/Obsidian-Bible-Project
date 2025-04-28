@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou lead forth the Mazzaroth in their season? Or canst thou guide the Bear with her train?
+Can you lead forth the constellations in their season? Or can you guide the Bear with her cubs?

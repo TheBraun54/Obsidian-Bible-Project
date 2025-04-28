@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that lacketh these things is blind, seeing only what is near, having forgotten the cleansing from his old sins.
+For he who lacks these things is blind, seeing only what is near, having forgotten the cleansing from his old sins.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For our wrestling is not against flesh and blood, but against the principalities, against the powers, against the world-rulers of this darkness, against the spiritual [hosts] of wickedness in the heavenly [places] .
+For our wrestling is not against flesh and blood, but against the principalities, against the powers, against the world's rulers of the darkness of this age, and against the spiritual forces of wickedness in the heavenly places.

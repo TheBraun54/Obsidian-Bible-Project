@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The great day of Jehovah is near, it is near and hasteth greatly, [even] the voice of the day of Jehovah; the mighty man crieth there bitterly.
+The great day of Yahweh is near. It is near, and hurries greatly, the voice of the day of Yahweh. The mighty man cries there bitterly.

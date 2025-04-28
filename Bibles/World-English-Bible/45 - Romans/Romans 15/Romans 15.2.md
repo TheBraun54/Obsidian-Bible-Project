@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let each one of us please his neighbor for that which is good, unto edifying.
+Let each one of us please his neighbor for that which is good, to be building him up.

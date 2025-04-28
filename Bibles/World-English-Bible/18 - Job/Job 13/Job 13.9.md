@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it good that he should search you out? Or as one deceiveth a man, will ye deceive him?
+Is it good that he should search you out? Or as one deceives a man, will you deceive him?

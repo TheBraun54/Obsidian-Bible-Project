@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the word of Jehovah came unto Jeremiah the second time, while he was yet shut up in the court of the guard, saying,
+Moreover the word of Yahweh came to Jeremiah the second time, while he was yet shut up in the court of the guard, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-everything that may abide the fire, ye shall make to go through the fire, and it shall be clean; nevertheless it shall be purified with the water for impurity: and all that abideth not the fire ye shall make to go through the water.
+everything that may withstand the fire, you shall make to go through the fire, and it shall be clean; nevertheless it shall be purified with the water for impurity: and all that doesn't withstand the fire you shall make to go through the water.

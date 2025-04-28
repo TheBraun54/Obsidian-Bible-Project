@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Who shall entice Ahab, that he may go up and fall at Ramoth-gilead? And one said on this manner; and another said on that manner.
+Yahweh said, 'Who shall entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing; and another said another.

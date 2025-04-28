@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Verily I say unto you, There are some here of them that stand [by], who shall in no wise taste of death, till they see the kingdom of God come with power.
+He said to them, "Most certainly I tell you, there are some standing here who will in no way taste death until they see the Kingdom of God come with power."

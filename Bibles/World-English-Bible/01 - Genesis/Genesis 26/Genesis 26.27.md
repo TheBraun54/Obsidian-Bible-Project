@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac said unto them, Wherefore are ye come unto me, seeing ye hate me, and have sent me away from you?
+Isaac said to them, "Why have you come to me, since you hate me, and have sent me away from you?"

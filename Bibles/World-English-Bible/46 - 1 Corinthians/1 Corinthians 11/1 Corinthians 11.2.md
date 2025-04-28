@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I praise you that ye remember me in all things, and hold fast the traditions, even as I delivered them to you.
+Now I praise you, brothers, that you remember me in all things, and hold firm the traditions, even as I delivered them to you.

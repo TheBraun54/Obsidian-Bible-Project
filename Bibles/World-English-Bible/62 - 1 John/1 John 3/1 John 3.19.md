@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hereby shall we know that we are of the truth, and shall assure our heart before him:
+And by this we know that we are of the truth, and persuade our hearts before him,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to them that were in Hebron, and to all the places where David himself and his men were wont to haunt.
+and to those who were in Hebron, and to all the places where David himself and his men used to stay.

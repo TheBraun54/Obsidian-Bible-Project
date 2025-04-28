@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the number of the burnt-offerings which the assembly brought was threescore and ten bullocks, a hundred rams, and two hundred lambs: all these were for a burnt-offering to Jehovah.
+The number of the burnt offerings which the assembly brought was seventy bulls, one hundred rams, and two hundred lambs: all these were for a burnt offering to Yahweh.

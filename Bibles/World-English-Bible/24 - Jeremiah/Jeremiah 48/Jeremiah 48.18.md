@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou daughter that dwellest in Dibon, come down from thy glory, and sit in thirst; for the destroyer of Moab is come up against thee, he hath destroyed thy strongholds.
+You daughter who dwells in Dibon, come down from your glory, and sit in thirst; for the destroyer of Moab has come up against you, he has destroyed your strongholds.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in those days, after that tribulation, the sun shall be darkened, and the moon shall not give her light,
+But in those days, after that oppression, the sun will be darkened, the moon will not give its light,

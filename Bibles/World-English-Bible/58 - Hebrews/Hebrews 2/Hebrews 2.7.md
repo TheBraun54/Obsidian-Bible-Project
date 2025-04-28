@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou madest him a little lower than the angels; Thou crownedst him with glory and honor, And didst set him over the works of thy hands:
+You made him a little lower than the angels. You crowned him with glory and honor.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, prophesy unto the mountains of Israel, and say, Ye mountains of Israel, hear the word of Jehovah.
+You, son of man, prophesy to the mountains of Israel, and say, You mountains of Israel, hear the word of Yahweh.

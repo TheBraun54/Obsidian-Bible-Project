@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Declare ye, and bring [it] forth; yea, let them take counsel together: who hath showed this from ancient time? who hath declared it of old? have not I, Jehovah? and there is no God else besides me, a just God and a Saviour; there is none besides me.
+Declare and present it. Yes, let them take counsel together. Who has shown this from ancient time? Who has declared it of old? Haven't I, Yahweh? There is no other God besides me, a just God and a Savior; There is no one besides me.

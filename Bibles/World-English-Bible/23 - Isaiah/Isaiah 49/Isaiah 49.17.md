@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy children make haste; thy destroyers and they that made thee waste shall go forth from thee.
+Your children make haste; your destroyers and those who made you waste shall go forth from you.

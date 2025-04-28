@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And hath raised up a horn of salvation for us In the house of his servant David
+and has raised up a horn of salvation for us in the house of his servant David

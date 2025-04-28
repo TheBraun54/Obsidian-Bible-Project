@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these signs shall accompany them that believe: in my name shall they cast out demons; they shall speak with new tongues;
+These signs will accompany those who believe: in my name they will cast out demons; they will speak with new languages;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jehovah spake unto Moses, saying,
+Moreover Yahweh spoke to Moses, saying,

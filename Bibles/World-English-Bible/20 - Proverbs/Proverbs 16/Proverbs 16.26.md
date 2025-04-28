@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The appetite of the laboring man laboreth for him; For his mouth urgeth him [thereto] .
+The appetite of the laboring man labors for him; for his mouth urges him on.

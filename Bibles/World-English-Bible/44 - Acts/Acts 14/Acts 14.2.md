@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Jews that were disobedient stirred up the souls of the Gentiles, and made them evil affected against the brethren.
+But the disbelieving Jews stirred up and embittered the souls of the Gentiles against the brothers.

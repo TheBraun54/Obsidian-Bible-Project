@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Solomon hallowed the middle of the court that was before the house of Jehovah; for there he offered the burnt-offerings, and the fat of the peace-offerings, because the brazen altar which Solomon had made was not able to receive the burnt-offering, and the meal-offering, and the fat.
+Moreover Solomon made the middle of the court holy that was before the house of Yahweh; for there he offered the burnt offerings, and the fat of the peace offerings, because the bronze altar which Solomon had made was not able to receive the burnt offering, and the meal offering, and the fat.

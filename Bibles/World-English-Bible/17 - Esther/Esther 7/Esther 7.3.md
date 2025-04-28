@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Esther the queen answered and said, If I have found favor in thy sight, O king, and if it please the king, let my life be given me at my petition, and my people at my request:
+Then Esther the queen answered, "If I have found favor in your sight, O king, and if it please the king, let my life be given me at my petition, and my people at my request.

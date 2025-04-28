@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came to Reuel their father, he said, How is it that ye are come so soon to-day?
+When they came to Reuel, their father, he said, "How is it that you have returned so early today?"

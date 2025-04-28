@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-rejoiceth not in unrighteousness, but rejoiceth with the truth;
+doesn't rejoice in unrighteousness, but rejoices with the truth;

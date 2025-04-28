@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye, inquire of Jehovah for me, and for them that are left in Israel and in Judah, concerning the words of the book that is found; for great is the wrath of Jehovah that is poured out upon us, because our fathers have not kept the word of Jehovah, to do according unto all that is written in this book.
+"Go inquire of Yahweh for me, and for those who are left in Israel and in Judah, concerning the words of the book that is found; for great is the wrath of Yahweh that is poured out on us, because our fathers have not kept the word of Yahweh, to do according to all that is written in this book."

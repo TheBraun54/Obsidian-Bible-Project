@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many shall follow their lascivious doings; by reason of whom the way of the truth shall be evil spoken of.
+Many will follow their immoral ways, and as a result, the way of the truth will be maligned.

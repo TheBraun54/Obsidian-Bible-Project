@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mahalalel lived sixty and five years, and begat Jared:
+Mahalalel lived sixty-five years, and became the father of Jared.

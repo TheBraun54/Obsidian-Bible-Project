@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come into the house, the blind men came to him: and Jesus saith unto them, Believe ye that I am able to do this? They say unto him, Yea, Lord.
+When he had come into the house, the blind men came to him. Jesus said to them, "Do you believe that I am able to do this?" They told him, "Yes, Lord."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rob not the poor, because he is poor; Neither oppress the afflicted in the gate:
+Don't exploit the poor, because he is poor; and don't crush the needy in court;

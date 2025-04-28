@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there arose false prophets also among the people, as among you also there shall be false teachers, who shall privily bring in destructive heresies, denying even the Master that bought them, bringing upon themselves swift destruction.
+But false prophets also arose among the people, as false teachers will also be among you, who will secretly bring in destructive heresies, denying even the Master who bought them, bringing on themselves swift destruction.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but hath now been manifested by the appearing of our Saviour Christ Jesus, who abolished death, and brought life and immortality to light through the gospel,
+but has now been revealed by the appearing of our Savior, Christ Jesus, who abolished death, and brought life and immortality to light through the Good News.

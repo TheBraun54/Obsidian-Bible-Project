@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But even if ye should suffer for righteousness' sake, blessed [are ye]: and fear not their fear, neither be troubled;
+But even if you should suffer for righteousness' sake, you are blessed. "Don't fear what they fear, neither be troubled."

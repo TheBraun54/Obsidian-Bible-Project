@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the hundred talents of silver were for casting the sockets of the sanctuary, and the sockets of the veil; a hundred sockets for the hundred talents, a talent for a socket.
+The one hundred talents of silver were for casting the sockets of the sanctuary, and the sockets of the veil; one hundred sockets for the one hundred talents, a talent for a socket.

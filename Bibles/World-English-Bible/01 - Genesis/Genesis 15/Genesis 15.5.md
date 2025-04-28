@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought him forth abroad, and said, Look now toward heaven, and number the stars, if thou be able to number them: and he said unto him, So shall thy seed be.
+Yahweh brought him outside, and said, "Look now toward the sky, and count the stars, if you are able to count them." He said to Abram, "So shall your seed be."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now many nations are assembled against thee, that say, Let her be defiled, and let our eye see [our desire] upon Zion.
+Now many nations have assembled against you, that say, "Let her be defiled, and let our eye gloat over Zion."

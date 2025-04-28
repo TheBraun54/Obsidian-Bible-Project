@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Naphtali, were fifty and three thousand and four hundred.
+those who were numbered of them, of the tribe of Naphtali, were fifty-three thousand four hundred.

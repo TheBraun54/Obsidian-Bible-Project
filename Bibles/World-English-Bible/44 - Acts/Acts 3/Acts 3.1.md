@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Peter and John were going up into the temple at the hour of prayer, [being] the ninth [hour] .
+Peter and John were going up into the temple at the hour of prayer, the ninth hour.

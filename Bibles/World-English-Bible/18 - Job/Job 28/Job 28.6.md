@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The stones thereof are the place of sapphires, And it hath dust of gold.
+Sapphires come from its rocks. It has dust of gold.

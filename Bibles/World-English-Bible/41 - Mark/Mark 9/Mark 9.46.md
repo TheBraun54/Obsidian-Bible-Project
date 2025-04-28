@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+'where their worm doesn't die, and the fire is not quenched.'

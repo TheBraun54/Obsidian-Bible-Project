@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his brethren: of Eliezer [came] Rehabiah his son, and Jeshaiah his son, and Joram his son, and Zichri his son, and Shelomoth his son.
+His brothers: of Eliezer [came] Rehabiah his son, and Jeshaiah his son, and Joram his son, and Zichri his son, and Shelomoth his son.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Ulla: Arah, and Hanniel, and Rizia.
+The sons of Ulla: Arah, and Hanniel, and Rizia.

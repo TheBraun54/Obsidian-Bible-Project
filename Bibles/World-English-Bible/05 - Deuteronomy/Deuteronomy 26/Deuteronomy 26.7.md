@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and we cried unto Jehovah, the God of our fathers, and Jehovah heard our voice, and saw our affliction, and our toil, and our oppression;
+and we cried to Yahweh, the God of our fathers, and Yahweh heard our voice, and saw our affliction, and our toil, and our oppression;

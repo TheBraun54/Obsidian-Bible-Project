@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord, hear; O Lord, forgive; O Lord, hearken and do; defer not, for thine own sake, O my God, because thy city and thy people are called by thy name.
+Lord, hear; Lord, forgive; Lord, listen and do; don't defer, for your own sake, my God, because your city and your people are called by your name.

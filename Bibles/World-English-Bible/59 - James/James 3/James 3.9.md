@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therewith bless we the Lord and Father; and therewith curse we men, who are made after the likeness of God:
+With it we bless our God and Father, and with it we curse men, who are made in the image of God.

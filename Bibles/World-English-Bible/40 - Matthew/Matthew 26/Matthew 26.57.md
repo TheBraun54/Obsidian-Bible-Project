@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that had taken Jesus led him away to [the house of] Caiaphas the high priest, where the scribes and the elders were gathered together.
+Those who had taken Jesus led him away to Caiaphas the high priest, where the scribes and the elders were gathered together.

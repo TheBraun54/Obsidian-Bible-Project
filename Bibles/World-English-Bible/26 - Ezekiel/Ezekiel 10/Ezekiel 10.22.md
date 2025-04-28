@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for the likeness of their faces, they were the faces which I saw by the river Chebar, their appearances and themselves; they went every one straight forward.
+As for the likeness of their faces, they were the faces which I saw by the river Chebar, their appearances and themselves; they went every one straight forward.

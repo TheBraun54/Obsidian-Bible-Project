@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will lift up my hands also unto thy commandments, which I have loved; And I will meditate on thy statutes.
+I reach out my hands for your commandments, which I love. I will meditate on your statutes. ZAYIN

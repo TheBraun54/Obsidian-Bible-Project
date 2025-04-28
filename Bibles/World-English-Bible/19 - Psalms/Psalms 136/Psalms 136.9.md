@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The moon and stars to rule by night; For his lovingkindness [endureth] for ever:
+The moon and stars to rule by night; for his loving kindness endures forever:

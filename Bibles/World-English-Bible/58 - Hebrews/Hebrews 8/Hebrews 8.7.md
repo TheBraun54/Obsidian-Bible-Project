@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if that first [covenant] had been faultless, then would no place have been sought for a second.
+For if that first covenant had been faultless, then no place would have been sought for a second.

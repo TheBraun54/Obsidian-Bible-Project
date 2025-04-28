@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon this came his disciples; and they marvelled that he was speaking with a woman; yet no man said, What seekest thou? or, Why speakest thou with her?
+At this, his disciples came. They marveled that he was speaking with a woman; yet no one said, "What are you looking for?" or, "Why do you speak with her?"

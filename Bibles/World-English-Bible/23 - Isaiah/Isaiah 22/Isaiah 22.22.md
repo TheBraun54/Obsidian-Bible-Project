@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the key of the house of David will I lay upon his shoulder; and he shall open, and none shall shut; and he shall shut, and none shall open.
+I will lay the key of the house of David on his shoulder. He will open, and no one will shut. He will shut, and no one will open.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For from the least of them even unto the greatest of them every one is given to covetousness; and from the prophet even unto the priest every one dealeth falsely.
+"For from the least of them even to the greatest of them, everyone is given to covetousness; and from the prophet even to the priest, everyone deals falsely.

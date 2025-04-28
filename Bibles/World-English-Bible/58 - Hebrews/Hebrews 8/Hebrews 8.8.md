@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For finding fault with them, he saith, Behold, the days come, saith the Lord, That I will make a new covenant with the house of Israel and with the house of Judah;
+For finding fault with them, he said, "Behold, the days come," says the Lord, "that I will make a new covenant with the house of Israel and with the house of Judah;

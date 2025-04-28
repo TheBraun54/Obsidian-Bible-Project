@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter began to say unto him, Lo, we have left all, and have followed thee.
+Peter began to tell him, "Behold, we have left all, and have followed you."

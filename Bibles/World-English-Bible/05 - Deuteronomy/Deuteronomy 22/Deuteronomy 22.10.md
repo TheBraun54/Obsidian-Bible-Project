@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not plow with an ox and an ass together.
+You shall not plow with an ox and a donkey together.

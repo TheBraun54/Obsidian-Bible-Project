@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the earth shall worship thee, And shall sing unto thee; They shall sing to thy name. {{Selah
+All the earth will worship you, and will sing to you; they will sing to your name." Selah.

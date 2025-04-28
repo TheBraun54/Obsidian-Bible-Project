@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The letter which ye sent unto us hath been plainly read before me.
+The letter which you sent to us has been plainly read before me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she fastened it with the pin, and said unto him, The Philistines are upon thee, Samson. And he awaked out of his sleep, and plucked away the pin of the beam, and the web.
+She fastened it with the pin, and said to him, "The Philistines are on you, Samson!" He awakened out of his sleep, and plucked away the pin of the beam, and the web.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I forget thee, O Jerusalem, Let my right hand forget [her skill] .
+If I forget you, Jerusalem, let my right hand forget its skill.

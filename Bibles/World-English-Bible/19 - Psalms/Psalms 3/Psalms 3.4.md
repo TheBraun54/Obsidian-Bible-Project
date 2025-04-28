@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I cry unto Jehovah with my voice, And he answereth me out of his holy hill. {{Selah
+I cry to Yahweh with my voice, and he answers me out of his holy hill. Selah.

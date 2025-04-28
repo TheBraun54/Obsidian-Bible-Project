@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, the whole family is risen against thy handmaid, and they say, Deliver him that smote his brother, that we may kill him for the life of his brother whom he slew, and so destroy the heir also. Thus will they quench my coal which is left, and will leave to my husband neither name nor remainder upon the face of the earth.
+Behold, the whole family has risen against your handmaid, and they say, 'Deliver him who struck his brother, that we may kill him for the life of his brother whom he killed, and so destroy the heir also.' Thus they would quench my coal which is left, and would leave to my husband neither name nor remainder on the surface of the earth."

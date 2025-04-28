@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From thence also shalt thou go forth, with thy hands upon thy head: for Jehovah hath rejected those in whom thou trustest, and thou shalt not prosper with them.
+From there also you shall go forth, with your hands on your head; for Yahweh has rejected those in whom you trust, and you shall not prosper with them.

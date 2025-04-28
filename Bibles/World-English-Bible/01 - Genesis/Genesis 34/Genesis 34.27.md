@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Jacob came upon the slain, and plundered the city, because they had defiled their sister.
+Jacob's sons came on the dead, and plundered the city, because they had defiled their sister.

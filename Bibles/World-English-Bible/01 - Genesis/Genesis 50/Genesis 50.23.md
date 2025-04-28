@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph saw Ephraim's children of the third generation: the children also of Machir the son of Manasseh were born upon Joseph's knees.
+Joseph saw Ephraim's children to the third generation. The children also of Machir, the son of Manasseh, were born on Joseph's knees.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have taken the Levites instead of all the first-born among the children of Israel.
+I have taken the Levites instead of all the firstborn among the children of Israel.

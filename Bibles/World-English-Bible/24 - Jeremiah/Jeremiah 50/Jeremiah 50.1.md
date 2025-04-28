@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that Jehovah spake concerning Babylon, concerning the land of the Chaldeans, by Jeremiah the prophet.
+The word that Yahweh spoke concerning Babylon, concerning the land of the Chaldeans, by Jeremiah the prophet.

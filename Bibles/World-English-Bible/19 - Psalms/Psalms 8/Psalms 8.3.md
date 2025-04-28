@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I consider thy heavens, the work of thy fingers, The moon and the stars, which thou hast ordained;
+When I consider your heavens, the work of your fingers, the moon and the stars, which you have ordained;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only the people sacrificed in the high places, because there was no house built for the name of Jehovah until those days.
+Only the people sacrificed in the high places, because there was no house built for the name of Yahweh until those days.

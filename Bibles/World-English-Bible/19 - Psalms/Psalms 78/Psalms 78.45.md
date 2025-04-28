@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sent among them swarms of flies, which devoured them; And frogs, which destroyed them.
+He sent among them swarms of flies, which devoured them; and frogs, which destroyed them.

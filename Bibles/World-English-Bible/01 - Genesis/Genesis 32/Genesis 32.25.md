@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he saw that he prevailed not against him, he touched the hollow of his thigh; and the hollow of Jacob's thigh was strained, as he wrestled with him.
+When he saw that he didn't prevail against him, he touched the hollow of his thigh, and the hollow of Jacob's thigh was strained, as he wrestled.

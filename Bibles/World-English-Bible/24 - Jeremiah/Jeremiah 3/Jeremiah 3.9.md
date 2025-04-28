@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass through the lightness of her whoredom, that the land was polluted, and she committed adultery with stones and with stocks.
+It happened through the lightness of her prostitution, that the land was polluted, and she committed adultery with stones and with stocks.

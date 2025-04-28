@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep me, O Jehovah, from the hands of the wicked; Preserve me from the violent man: Who have purposed to thrust aside my steps.
+Yahweh, keep me from the hands of the wicked. Preserve me from the violent men who have determined to trip my feet.

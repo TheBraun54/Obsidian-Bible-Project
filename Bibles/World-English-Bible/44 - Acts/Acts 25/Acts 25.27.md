@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it seemeth to me unreasonable, in sending a prisoner, not withal to signify the charges against him.
+For it seems to me unreasonable, in sending a prisoner, not to also specify the charges against him."

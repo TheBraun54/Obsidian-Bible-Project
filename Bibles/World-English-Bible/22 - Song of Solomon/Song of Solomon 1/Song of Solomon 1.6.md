@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look not upon me, because I am swarthy, Because the sun hath scorched me. My mother's sons were incensed against me; They made me keeper of the vineyards; [But] mine own vineyard have I not kept.
+Don't stare at me because I am dark, because the sun has scorched me. My mother's sons were angry with me. They made me keeper of the vineyards. I haven't kept my own vineyard.

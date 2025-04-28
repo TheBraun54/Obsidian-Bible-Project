@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seeing their faith, he said, Man, thy sins are forgiven thee.
+Seeing their faith, he said to him, "Man, your sins are forgiven you."

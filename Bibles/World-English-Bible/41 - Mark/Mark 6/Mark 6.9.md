@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but [to go] shod with sandals: and, [said he], put not on two coats.
+but to wear sandals, and not put on two tunics.

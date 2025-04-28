@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the women sang one to another as they played, and said, Saul hath slain his thousands, And David his ten thousands.
+The women sang one to another as they played, and said, "Saul has slain his thousands, David his ten thousands."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have not yet resisted unto blood, striving against sin:
+You have not yet resisted to blood, striving against sin;

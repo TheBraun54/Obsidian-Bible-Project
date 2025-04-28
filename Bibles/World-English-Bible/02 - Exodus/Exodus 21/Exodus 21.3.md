@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he come in by himself, he shall go out by himself: if he be married, then his wife shall go out with him.
+If he comes in by himself, he shall go out by himself. If he is married, then his wife shall go out with him.

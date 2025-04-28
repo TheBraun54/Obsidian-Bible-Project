@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ledge shall be fourteen [cubits] long by fourteen broad in the four sides thereof; and the border about it shall be half a cubit; and the bottom thereof shall be a cubit round about; and the steps thereof shall look toward the east.
+The ledge shall be fourteen [cubits] long by fourteen broad in the four sides of it; and the border about it shall be half a cubit; and its bottom shall be a cubit around; and its steps shall look toward the east.

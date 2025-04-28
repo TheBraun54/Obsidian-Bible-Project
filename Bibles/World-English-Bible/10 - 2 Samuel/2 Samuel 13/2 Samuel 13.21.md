@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when king David heard of all these things, he was very wroth.
+But when king David heard of all these things, he was very angry.

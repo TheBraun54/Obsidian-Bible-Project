@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For that ye ought to say, If the Lord will, we shall both live, and do this or that.
+For you ought to say, "If the Lord wills, we will both live, and do this or that."

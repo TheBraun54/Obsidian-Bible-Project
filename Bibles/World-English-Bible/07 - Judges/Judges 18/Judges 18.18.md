@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when these went into Micah's house, and fetched the graven image, the ephod, and the teraphim, and the molten image, the priest said unto them, What do ye?
+When these went into Micah's house, and fetched the engraved image, the ephod, and the teraphim, and the molten image, the priest said to them, "What are you doing?"

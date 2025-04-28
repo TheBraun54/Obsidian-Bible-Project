@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Judah: Er, and Onan, and Shelah; which three were born unto him of Shua's daughter the Canaanitess. And Er, Judah's first-born, was wicked in the sight of Jehovah; and he slew him.
+The sons of Judah: Er, and Onan, and Shelah; which three were born to him of Shua's daughter the Canaanitess. Er, Judah's firstborn, was wicked in the sight of Yahweh; and he killed him.

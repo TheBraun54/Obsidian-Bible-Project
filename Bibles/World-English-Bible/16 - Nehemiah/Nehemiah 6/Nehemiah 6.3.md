@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I sent messengers unto them, saying, I am doing a great work, so that I cannot come down: why should the work cease, whilst I leave it, and come down to you?
+I sent messengers to them, saying, "I am doing a great work, so that I can't come down. Why should the work cease, while I leave it, and come down to you?"

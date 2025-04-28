@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Amon was twenty and two years old when he began to reign; and he reigned two years in Jerusalem: and his mother's name was Meshullemeth the daughter of Haruz of Jotbah.
+Amon was twenty-two years old when he began to reign; and he reigned two years in Jerusalem: and his mother's name was Meshullemeth the daughter of Haruz of Jotbah.

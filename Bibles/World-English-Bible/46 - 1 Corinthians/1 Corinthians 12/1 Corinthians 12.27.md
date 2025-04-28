@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now ye are the body of Christ, and severally members thereof.
+Now you are the body of Christ, and members individually.

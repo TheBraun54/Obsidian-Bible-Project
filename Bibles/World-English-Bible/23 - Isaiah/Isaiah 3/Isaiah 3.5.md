@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people shall be oppressed, every one by another, and every one by his neighbor: the child shall behave himself proudly against the old man, and the base against the honorable.
+The people will be oppressed, everyone by another, and everyone by his neighbor. The child will behave himself proudly against the old man, and the base against the honorable.

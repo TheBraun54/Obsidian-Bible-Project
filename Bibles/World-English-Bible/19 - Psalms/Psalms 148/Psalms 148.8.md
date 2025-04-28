@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fire and hail, snow and vapor; Stormy wind, fulfilling his word;
+Lightning and hail, snow and clouds; stormy wind, fulfilling his word;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the interpretation of the thing: MENE; God hath numbered thy kingdom, and brought it to an end;
+This is the interpretation of the thing: MENE; God has numbered your kingdom, and brought it to an end;

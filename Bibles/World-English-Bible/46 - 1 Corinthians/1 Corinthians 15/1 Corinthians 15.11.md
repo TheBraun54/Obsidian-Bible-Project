@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whether then [it be] I or they, so we preach, and so ye believed.
+Whether then it is I or they, so we preach, and so you believed.

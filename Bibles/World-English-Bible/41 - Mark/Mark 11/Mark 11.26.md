@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+But if you do not forgive, neither will your Father in heaven forgive your transgressions."

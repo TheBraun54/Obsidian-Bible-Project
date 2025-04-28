@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the showing, [I say], of his righteousness at this present season: that he might himself be just, and the justifier of him that hath faith in Jesus.
+to demonstrate his righteousness at this present time; that he might himself be just, and the justifier of him who has faith in Jesus.

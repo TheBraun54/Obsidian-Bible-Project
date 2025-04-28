@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus perceived that they were desirous to ask him, and he said unto them, Do ye inquire among yourselves concerning this, that I said, A little while, and ye behold me not, and again a little while, and ye shall see me?
+Therefore Jesus perceived that they wanted to ask him, and he said to them, "Do you inquire among yourselves concerning this, that I said, 'A little while, and you won't see me, and again a little while, and you will see me?'

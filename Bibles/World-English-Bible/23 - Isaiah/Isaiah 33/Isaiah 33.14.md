@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sinners in Zion are afraid; trembling hath seized the godless ones: Who among us can dwell with the devouring fire? who among us can dwell with everlasting burnings?
+The sinners in Zion are afraid. Trembling has seized the godless ones. Who among us can live with the devouring fire? Who among us can live with everlasting burning?

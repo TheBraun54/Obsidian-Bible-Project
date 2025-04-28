@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he be a poor man, thou shalt not sleep with his pledge;
+If he be a poor man, you shall not sleep with his pledge;

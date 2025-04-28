@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged them that they should tell no man of him.
+He commanded them that they should tell no one about him.

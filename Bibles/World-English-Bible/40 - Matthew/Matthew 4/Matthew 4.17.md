@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From that time began Jesus to preach, and to say, Repent ye; for the kingdom of heaven is at hand.
+From that time, Jesus began to preach, and to say, "Repent! For the Kingdom of Heaven is at hand."

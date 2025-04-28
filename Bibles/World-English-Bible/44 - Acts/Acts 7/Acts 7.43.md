@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye took up the tabernacle of Moloch, And the star of the god Rephan, The figures which ye made to worship them: And I will carry you away beyond Babylon.
+You took up the tabernacle of Moloch, the star of your god Rephan, the figures which you made to worship. I will carry you away beyond Babylon.'

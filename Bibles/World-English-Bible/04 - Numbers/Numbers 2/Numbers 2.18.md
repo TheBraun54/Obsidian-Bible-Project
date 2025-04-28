@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the west side shall be the standard of the camp of Ephraim according to their hosts: and the prince of the children of Ephraim shall be Elishama the son of Ammihud.
+"On the west side shall be the standard of the camp of Ephraim according to their divisions: and the prince of the children of Ephraim shall be Elishama the son of Ammihud.

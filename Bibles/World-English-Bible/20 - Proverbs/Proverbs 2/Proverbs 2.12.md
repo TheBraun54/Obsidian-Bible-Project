@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To deliver thee from the way of evil, From the men that speak perverse things;
+to deliver you from the way of evil, from the men who speak perverse things;

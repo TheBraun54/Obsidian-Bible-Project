@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the tenth part of an ephah of fine flour for a meal-offering, mingled with the fourth part of a hin of beaten oil.
+with the tenth part of an ephah of fine flour for a meal offering, mixed with the fourth part of a hin of beaten oil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came one that had escaped, and told Abram the Hebrew: now he dwelt by the oaks of Mamre, the Amorite, brother of Eshcol, and brother of Aner; and these were confederate with Abram. [
+One who had escaped came and told Abram, the Hebrew. Now he lived by the oaks of Mamre, the Amorite, brother of Eshcol, and brother of Aner; and these were allies of Abram.

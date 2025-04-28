@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had saluted them, he rehearsed one by one the things which God had wrought among the Gentiles through his ministry.
+When he had greeted them, he reported one by one the things which God had worked among the Gentiles through his ministry.

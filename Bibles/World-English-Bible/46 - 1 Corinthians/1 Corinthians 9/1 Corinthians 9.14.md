@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so did the Lord ordain that they that proclaim the gospel should live of the gospel.
+Even so the Lord ordained that those who proclaim the Good News should live from the Good News.

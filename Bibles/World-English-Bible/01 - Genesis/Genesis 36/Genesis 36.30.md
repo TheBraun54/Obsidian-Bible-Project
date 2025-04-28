@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-chief Dishon, chief Ezer, chief Dishan: these are the chiefs that came of the Horites, according to their chiefs in the land of Seir.
+chief Dishon, chief Ezer, and chief Dishan: these are the chiefs who came of the Horites, according to their chiefs in the land of Seir.

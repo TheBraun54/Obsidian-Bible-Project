@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Manasseh had in Issachar and in Asher Beth-shean and its towns, and Ibleam and its towns, and the inhabitants of Dor and its towns, and the inhabitants of En-dor and its towns, and the inhabitants of Taanach and its towns, and the inhabitants of Megiddo and its towns, even the three heights.
+Manasseh had three heights in Issachar, in Asher Beth Shean and its towns, and Ibleam and its towns, and the inhabitants of Dor and its towns, and the inhabitants of Endor and its towns, and the inhabitants of Taanach and its towns, and the inhabitants of Megiddo and its towns.

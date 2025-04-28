@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, Israel, what doth Jehovah thy God require of thee, but to fear Jehovah thy God, to walk in all his ways, and to love him, and to serve Jehovah thy God with all thy heart and with all thy soul,
+Now, Israel, what does Yahweh your God require of you, but to fear Yahweh your God, to walk in all his ways, and to love him, and to serve Yahweh your God with all your heart and with all your soul,

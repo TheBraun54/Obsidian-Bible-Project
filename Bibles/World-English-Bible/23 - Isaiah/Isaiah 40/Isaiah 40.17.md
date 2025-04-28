@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the nations are as nothing before him; they are accounted by him as less than nothing, and vanity.
+All the nations are like nothing before him. They are regarded by him as less than nothing, and vanity.

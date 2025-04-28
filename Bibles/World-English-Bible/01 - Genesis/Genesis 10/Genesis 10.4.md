@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Javan: Elishah, and Tarshish, Kittim, and Dodanim.
+The sons of Javan: Elishah, Tarshish, Kittim, and Dodanim.

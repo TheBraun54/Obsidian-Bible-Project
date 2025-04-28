@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will set my throne in Elam, and will destroy from thence king and princes, saith Jehovah.
+and I will set my throne in Elam, and will destroy from there king and princes, says Yahweh.

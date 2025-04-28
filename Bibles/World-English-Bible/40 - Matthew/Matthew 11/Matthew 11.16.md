@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But whereunto shall I liken this generation? It is like unto children sitting in the marketplaces, who call unto their fellows
+"But to what shall I compare this generation? It is like children sitting in the marketplaces, who call to their companions

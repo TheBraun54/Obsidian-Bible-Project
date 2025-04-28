@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the blood of the slain, from the fat of the mighty, The bow of Jonathan turned not back, And the sword of Saul returned not empty.
+From the blood of the slain, from the fat of the mighty, Jonathan's bow didn't turn back. Saul's sword didn't return empty.

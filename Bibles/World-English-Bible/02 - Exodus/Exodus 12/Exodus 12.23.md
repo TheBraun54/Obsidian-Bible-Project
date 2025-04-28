@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will pass through to smite the Egyptians; and when he seeth the blood upon the lintel, and on the two side-posts, Jehovah will pass over the door, and will not suffer the destroyer to come in unto your houses to smite you.
+For Yahweh will pass through to strike the Egyptians; and when he sees the blood on the lintel, and on the two doorposts, Yahweh will pass over the door, and will not allow the destroyer to come in to your houses to strike you.

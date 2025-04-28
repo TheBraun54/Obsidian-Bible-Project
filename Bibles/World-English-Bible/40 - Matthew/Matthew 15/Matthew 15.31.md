@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-insomuch that the multitude wondered, when they saw the dumb speaking, the maimed whole, and lame walking, and the blind seeing: and they glorified the God of Israel.
+so that the multitude wondered when they saw the mute speaking, injured whole, lame walking, and blind seeing--and they glorified the God of Israel.

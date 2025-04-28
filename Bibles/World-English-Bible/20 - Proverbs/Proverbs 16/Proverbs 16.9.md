@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man's heart deviseth his way; But Jehovah directeth his steps.
+A man's heart plans his course, but Yahweh directs his steps.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But concerning love of the brethren ye have no need that one write unto you: for ye yourselves are taught of God to love one another;
+But concerning brotherly love, you have no need that one write to you. For you yourselves are taught by God to love one another,

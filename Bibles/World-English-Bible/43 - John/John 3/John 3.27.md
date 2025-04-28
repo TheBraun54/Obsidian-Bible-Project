@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-John answered and said, A man can receive nothing, except it have been given him from heaven.
+John answered, "A man can receive nothing, unless it has been given him from heaven.

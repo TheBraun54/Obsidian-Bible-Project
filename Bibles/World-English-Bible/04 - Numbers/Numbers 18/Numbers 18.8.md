@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Aaron, And I, behold, I have given thee the charge of my heave-offerings, even all the hallowed things of the children of Israel; unto thee have I given them by reason of the anointing, and to thy sons, as a portion for ever.
+Yahweh spoke to Aaron, "I, behold, I have given you the command of my wave offerings, even all the holy things of the children of Israel; to you have I given them by reason of the anointing, and to your sons, as a portion forever.

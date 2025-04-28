@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Would he contend with me in the greatness of his power? Nay; but he would give heed unto me.
+Would he contend with me in the greatness of his power? No, but he would listen to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people shouted, [saying], The voice of a god, and not of a man.
+The people shouted, "The voice of a god, and not of a man!"

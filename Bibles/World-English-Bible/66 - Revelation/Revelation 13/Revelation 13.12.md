@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he exerciseth all the authority of the first beast in his sight. And he maketh the earth and them that dwell therein to worship the first beast, whose death-stroke was healed.
+He exercises all the authority of the first beast in his presence. He makes the earth and those who dwell in it to worship the first beast, whose fatal wound was healed.

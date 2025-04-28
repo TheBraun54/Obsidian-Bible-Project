@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thus shall ye say to him that liveth [in prosperity], Peace be unto thee, and peace be to thy house, and peace be unto all that thou hast.
+You shall tell him, 'Long life to you! Peace be to you, and peace be to your house, and peace be to all that you have.

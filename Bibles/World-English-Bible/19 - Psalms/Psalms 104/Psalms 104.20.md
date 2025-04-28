@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou makest darkness, and it is night, Wherein all the beasts of the forest creep forth.
+You make darkness, and it is night, in which all the animals of the forest prowl.

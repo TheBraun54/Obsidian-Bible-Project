@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jerahmeel had another wife, whose name was Atarah; she was the mother of Onam.
+Jerahmeel had another wife, whose name was Atarah; she was the mother of Onam.

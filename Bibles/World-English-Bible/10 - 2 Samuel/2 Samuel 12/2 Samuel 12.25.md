@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he sent by the hand of Nathan the prophet; and he called his name Jedidiah, for Jehovah's sake.
+and he sent by the hand of Nathan the prophet; and he named him Jedidiah, for Yahweh's sake.

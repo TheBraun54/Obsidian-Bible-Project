@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go not up, for Jehovah is not among you; that ye be not smitten down before your enemies.
+Don't go up, for Yahweh isn't among you; that you not be struck down before your enemies.

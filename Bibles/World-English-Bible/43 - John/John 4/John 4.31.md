@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the mean while the disciples prayed him, saying, Rabbi, eat.
+In the meanwhile, the disciples urged him, saying, "Rabbi, eat."

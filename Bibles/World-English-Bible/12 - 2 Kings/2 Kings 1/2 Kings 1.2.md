@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahaziah fell down through the lattice in his upper chamber that was in Samaria, and was sick: and he sent messengers, and said unto them, Go, inquire of Baal-zebub, the god of Ekron, whether I shall recover of this sickness.
+Ahaziah fell down through the lattice in his upper room that was in Samaria, and was sick. So he sent messengers, and said to them, "Go, inquire of Baal Zebub, the god of Ekron, whether I will recover of this sickness."

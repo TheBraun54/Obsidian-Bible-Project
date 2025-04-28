@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the son of a woman of the daughters of Dan; and his father was a man of Tyre, skilful to work in gold, and in silver, in brass, in iron, in stone, and in timber, in purple, in blue, and in fine linen, and in crimson, also to grave any manner of graving, and to devise any device; that there may be [a place] appointed unto him with thy skilful men, and with the skilful men of my lord David thy father.
+the son of a woman of the daughters of Dan; and his father was a man of Tyre, skillful to work in gold, and in silver, in brass, in iron, in stone, and in timber, in purple, in blue, and in fine linen, and in crimson, also to engrave any kind of engraving, and to devise any device; that there may be a place appointed to him with your skillful men, and with the skillful men of my lord David your father.

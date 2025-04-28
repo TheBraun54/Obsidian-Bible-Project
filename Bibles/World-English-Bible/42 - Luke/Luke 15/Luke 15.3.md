@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake unto them this parable, saying,
+He told them this parable.

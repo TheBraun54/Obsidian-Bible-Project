@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I saw all Israel scattered upon the mountains, as sheep that have no shepherd: and Jehovah said, These have no master; let them return every man to his house in peace.
+He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. Yahweh said, 'These have no master. Let them each return to his house in peace.'"

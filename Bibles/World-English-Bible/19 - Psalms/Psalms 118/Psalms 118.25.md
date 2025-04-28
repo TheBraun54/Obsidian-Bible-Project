@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Save now, we beseech thee, O Jehovah: O Jehovah, we beseech thee, send now prosperity.
+Save us now, we beg you, Yahweh! Yahweh, we beg you, send prosperity now.

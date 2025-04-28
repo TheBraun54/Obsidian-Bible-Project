@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will multiply men upon you, all the house of Israel, even all of it; and the cities shall be inhabited, and the waste places shall be builded;
+and I will multiply men on you, all the house of Israel, even all of it; and the cities shall be inhabited, and the waste places shall be built;

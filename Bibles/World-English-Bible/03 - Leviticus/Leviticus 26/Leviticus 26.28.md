@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then I will walk contrary unto you in wrath; and I also will chastise you seven times for your sins.
+then I will walk contrary to you in wrath; and I also will chastise you seven times for your sins.

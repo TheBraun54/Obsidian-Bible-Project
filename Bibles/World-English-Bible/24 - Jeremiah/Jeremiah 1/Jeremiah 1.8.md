@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not afraid because of them; for I am with thee to deliver thee, saith Jehovah.
+Don't be afraid because of them; for I am with you to deliver you," says Yahweh.

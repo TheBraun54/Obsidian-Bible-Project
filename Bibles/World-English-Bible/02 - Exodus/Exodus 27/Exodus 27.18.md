@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The length of the court shall be a hundred cubits, and the breadth fifty every where, and the height five cubits, of fine twined linen, and their sockets of brass.
+The length of the court shall be one hundred cubits, and the breadth fifty every where, and the height five cubits, of fine twined linen, and their sockets of brass.

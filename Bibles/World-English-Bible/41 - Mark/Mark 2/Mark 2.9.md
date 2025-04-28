@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which is easier, to say to the sick of the palsy, Thy sins are forgiven; or to say, Arise, and take up thy bed, and walk?
+Which is easier, to tell the paralytic, 'Your sins are forgiven;' or to say, 'Arise, and take up your bed, and walk?'

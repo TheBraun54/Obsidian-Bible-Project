@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and sent forth his servants to call them that were bidden to the marriage feast: and they would not come.
+and sent out his servants to call those who were invited to the marriage feast, but they would not come.

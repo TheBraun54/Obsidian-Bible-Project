@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Kiriathaim, and Sibmah, and Zereth-shahar in the mount of the valley,
+Kiriathaim, Sibmah, Zereth Shahar in the mount of the valley,

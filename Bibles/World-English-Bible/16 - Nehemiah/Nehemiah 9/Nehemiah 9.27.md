@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thou deliveredst them into the hand of their adversaries, who distressed them: and in the time of their trouble, when they cried unto thee, thou heardest from heaven; and according to thy manifold mercies thou gavest them saviours who saved them out of the hand of their adversaries.
+Therefore you delivered them into the hand of their adversaries, who distressed them. In the time of their trouble, when they cried to you, you heard from heaven; and according to your manifold mercies you gave them saviors who saved them out of the hand of their adversaries.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Stretch out thy hand toward heaven, that there may be darkness over the land of Egypt, even darkness which may be felt.
+Yahweh said to Moses, "Stretch out your hand toward the sky, that there may be darkness over the land of Egypt, even darkness which may be felt."

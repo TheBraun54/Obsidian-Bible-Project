@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto you first God, having raised up his Servant, sent him to bless you, in turning away every one of you from your iniquities.
+God, having raised up his servant, Jesus, sent him to you first, to bless you, in turning away everyone of you from your wickedness."

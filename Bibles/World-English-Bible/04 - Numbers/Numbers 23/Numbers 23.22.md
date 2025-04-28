@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God bringeth them forth out of Egypt; He hath as it were the strength of the wild-ox.
+God brings them out of Egypt. He has as it were the strength of the wild ox.

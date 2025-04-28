@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I will not take a thread nor a shoe-latchet nor aught that is thine, lest thou shouldest say, I have made Abram rich:
+that I will not take a thread nor a sandal strap nor anything that is yours, lest you should say, 'I have made Abram rich.'

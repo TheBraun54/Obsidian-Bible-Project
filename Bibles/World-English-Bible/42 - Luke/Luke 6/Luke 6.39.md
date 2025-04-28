@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake also a parable unto them, Can the blind guide the blind? shall they not both fall into a pit?
+He spoke a parable to them. "Can the blind guide the blind? Won't they both fall into a pit?

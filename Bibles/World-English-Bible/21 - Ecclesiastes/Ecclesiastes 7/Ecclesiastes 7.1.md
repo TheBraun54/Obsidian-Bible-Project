@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A [good] name is better than precious oil; and the day of death, than the day of one's birth.
+A good name is better than fine perfume; and the day of death better than the day of one's birth.

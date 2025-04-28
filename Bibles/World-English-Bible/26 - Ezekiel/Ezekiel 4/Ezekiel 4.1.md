@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou also, son of man, take thee a tile, and lay it before thee, and portray upon it a city, even Jerusalem:
+You also, son of man, take a tile, and lay it before yourself, and portray on it a city, even Jerusalem:

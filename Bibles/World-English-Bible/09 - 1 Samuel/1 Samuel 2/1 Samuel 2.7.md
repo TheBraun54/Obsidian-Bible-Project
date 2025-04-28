@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah maketh poor, and maketh rich: He bringeth low, he also lifteth up.
+Yahweh makes poor, and makes rich. He brings low, he also lifts up.

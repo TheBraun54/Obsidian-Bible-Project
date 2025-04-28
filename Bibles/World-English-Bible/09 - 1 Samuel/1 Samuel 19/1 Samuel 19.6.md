@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul hearkened unto the voice of Jonathan: and Saul sware, As Jehovah liveth, he shall not be put to death.
+Saul listened to the voice of Jonathan: and Saul swore, "As Yahweh lives, he shall not be put to death."

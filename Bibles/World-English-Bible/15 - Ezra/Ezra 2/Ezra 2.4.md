@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Shephatiah, three hundred seventy and two.
+The children of Shephatiah, three hundred seventy-two.

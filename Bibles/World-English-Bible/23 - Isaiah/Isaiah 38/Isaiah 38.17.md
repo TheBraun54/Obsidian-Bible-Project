@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, [it was] for [my] peace [that] I had great bitterness: But thou hast in love to my soul delivered it from the pit of corruption; For thou hast cast all my sins behind thy back.
+Behold, for peace I had great anguish, but you have in love for my soul delivered it from the pit of corruption; for you have cast all my sins behind your back.

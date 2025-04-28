@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Elihu also proceeded, and said,
+Elihu also continued, and said,

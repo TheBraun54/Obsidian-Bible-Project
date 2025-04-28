@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto her, If thou knewest the gift of God, and who it is that saith to thee, Give me to drink; thou wouldest have asked of him, and he would have given thee living water.
+Jesus answered her, "If you knew the gift of God, and who it is who says to you, 'Give me a drink,' you would have asked him, and he would have given you living water."

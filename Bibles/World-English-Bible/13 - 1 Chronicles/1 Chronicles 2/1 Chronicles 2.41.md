@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Shallum begat Jekamiah, and Jekamiah begat Elishama.
+and Shallum became the father of Jekamiah, and Jekamiah became the father of Elishama.

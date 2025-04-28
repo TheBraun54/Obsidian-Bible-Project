@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet he sent prophets to them, to bring them again unto Jehovah; and they testified against them: but they would not give ear.
+Yet he sent prophets to them, to bring them again to Yahweh; and they testified against them: but they would not give ear.

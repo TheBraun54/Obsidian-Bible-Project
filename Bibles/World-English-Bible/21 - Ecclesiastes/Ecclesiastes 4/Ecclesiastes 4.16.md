@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was no end of all the people, even of all them over whom he was: yet they that come after shall not rejoice in him. Surely this also is vanity and a striving after wind.
+There was no end of all the people, even of all them over whom he was--yet those who come after shall not rejoice in him. Surely this also is vanity and a chasing after wind.

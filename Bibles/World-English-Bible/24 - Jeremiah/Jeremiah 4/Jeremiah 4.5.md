@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Declare ye in Judah, and publish in Jerusalem; and say, Blow ye the trumpet in the land: cry aloud and say, Assemble yourselves, and let us go into the fortified cities.
+Declare in Judah, and publish in Jerusalem; and say, 'Blow the trumpet in the land!' Cry aloud and say, 'Assemble yourselves! Let us go into the fortified cities!'

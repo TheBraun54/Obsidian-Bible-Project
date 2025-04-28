@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Assemble yourselves, and hear, ye sons of Jacob; And hearken unto Israel your father.
+Assemble yourselves, and hear, you sons of Jacob. Listen to Israel, your father.

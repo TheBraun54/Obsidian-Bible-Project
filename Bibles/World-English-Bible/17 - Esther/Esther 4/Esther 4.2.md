@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he came even before the king's gate: for none might enter within the king's gate clothed with sackcloth.
+He came even before the king's gate, for no one is allowed inside the king's gate clothed with sackcloth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For before these days rose up Theudas, giving himself out to be somebody; to whom a number of men, about four hundred, joined themselves: who was slain; and all, as many as obeyed him, were dispersed, and came to nought.
+For before these days Theudas rose up, making himself out to be somebody; to whom a number of men, about four hundred, joined themselves: who was slain; and all, as many as obeyed him, were dispersed, and came to nothing.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her princes in the midst thereof are like wolves ravening the prey, to shed blood, [and] to destroy souls, that they may get dishonest gain.
+Her princes in its midst are like wolves ravening the prey, to shed blood, [and] to destroy souls, that they may get dishonest gain.

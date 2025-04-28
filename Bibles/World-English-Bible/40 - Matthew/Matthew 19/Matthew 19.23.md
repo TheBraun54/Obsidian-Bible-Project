@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto his disciples, Verily I say unto you, It is hard for a rich man to enter into the kingdom of heaven.
+Jesus said to his disciples, "Most certainly I say to you, a rich man will enter into the Kingdom of Heaven with difficulty.

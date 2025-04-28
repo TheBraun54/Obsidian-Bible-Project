@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Him that dieth of Jeroboam in the city shall the dogs eat; and him that dieth in the field shall the birds of the heavens eat: for Jehovah hath spoken it.
+He who dies of Jeroboam in the city shall the dogs eat; and he who dies in the field shall the birds of the sky eat: for Yahweh has spoken it."'

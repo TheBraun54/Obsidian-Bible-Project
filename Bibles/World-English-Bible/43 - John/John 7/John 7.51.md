@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth our law judge a man, except it first hear from himself and know what he doeth?
+"Does our law judge a man, unless it first hears from him personally and knows what he does?"

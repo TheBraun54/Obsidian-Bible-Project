@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O give thanks unto Jehovah, call upon his name; Make known his doings among the peoples.
+Oh give thanks to Yahweh. Call on his name. Make his doings known among the peoples.

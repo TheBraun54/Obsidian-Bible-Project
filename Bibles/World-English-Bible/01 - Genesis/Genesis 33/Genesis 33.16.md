@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Esau returned that day on his way unto Seir.
+So Esau returned that day on his way to Seir.

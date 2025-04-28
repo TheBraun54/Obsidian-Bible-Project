@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his concubine played the harlot against him, and went away from him unto her father's house to Beth-lehem-judah, and was there the space of four months.
+His concubine played the prostitute against him, and went away from him to her father's house to Bethlehem Judah, and was there the space of four months.

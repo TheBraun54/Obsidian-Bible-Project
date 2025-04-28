@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have sinned with our fathers, We have committed iniquity, we have done wickedly.
+We have sinned with our fathers. We have committed iniquity. We have done wickedly.

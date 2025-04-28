@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if the cloud was not taken up, then they journeyed not till the day that it was taken up.
+but if the cloud wasn't taken up, then they didn't travel until the day that it was taken up.

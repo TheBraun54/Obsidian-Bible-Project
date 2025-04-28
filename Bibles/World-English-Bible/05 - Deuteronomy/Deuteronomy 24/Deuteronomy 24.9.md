@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember what Jehovah thy God did unto Miriam, by the way as ye came forth out of Egypt.
+Remember what Yahweh your God did to Miriam, by the way as you came forth out of Egypt.

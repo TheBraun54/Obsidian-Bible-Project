@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Afterward he measured a thousand; [and it was] a river that I could not pass through; for the waters were risen, waters to swim in, a river that could not be passed through.
+Afterward he measured one thousand; [and it was] a river that I could not pass through; for the waters were risen, waters to swim in, a river that could not be passed through.

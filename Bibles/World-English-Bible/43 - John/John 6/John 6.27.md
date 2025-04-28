@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Work not for the food which perisheth, but for the food which abideth unto eternal life, which the Son of man shall give unto you: for him the Father, even God, hath sealed.
+Don't work for the food which perishes, but for the food which remains to eternal life, which the Son of Man will give to you. For God the Father has sealed him."

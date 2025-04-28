@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing that thou canst take knowledge that it is not more than twelve days since I went up to worship at Jerusalem:
+seeing that you can recognize that it is not more than twelve days since I went up to worship at Jerusalem.

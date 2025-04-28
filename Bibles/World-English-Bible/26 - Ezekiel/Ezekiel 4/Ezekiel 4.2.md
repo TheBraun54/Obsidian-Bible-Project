@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and lay siege against it, and build forts against it, and cast up a mound against it; set camps also against it, and plant battering rams against it round about.
+and lay siege against it, and build forts against it, and cast up a mound against it; set camps also against it, and plant battering rams against it all around.

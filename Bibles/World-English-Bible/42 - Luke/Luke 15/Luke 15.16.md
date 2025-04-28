@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he would fain have filled his belly with the husks that the swine did eat: and no man gave unto him.
+He wanted to fill his belly with the husks that the pigs ate, but no one gave him any.

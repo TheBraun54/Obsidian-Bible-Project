@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then cometh Jesus from Galilee to the Jordan unto John, to be baptized of him.
+Then Jesus came from Galilee to the Jordan to John, to be baptized by him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stood in the midst of the plot, and defended it, and slew the Philistines; and Jehovah saved them by a great victory.
+They stood in the midst of the plot, and defended it, and killed the Philistines; and Yahweh saved them by a great victory.

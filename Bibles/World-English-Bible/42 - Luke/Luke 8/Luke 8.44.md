@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-came behind him, and touched the border of his garment: and immediately the issue of her blood stanched.
+came behind him, and touched the fringe of his cloak, and immediately the flow of her blood stopped.

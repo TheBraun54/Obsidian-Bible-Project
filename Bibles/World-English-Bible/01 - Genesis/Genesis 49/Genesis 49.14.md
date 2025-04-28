@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Issachar is a strong ass, Couching down between the sheepfolds:
+"Issachar is a strong donkey, lying down between the saddlebags.

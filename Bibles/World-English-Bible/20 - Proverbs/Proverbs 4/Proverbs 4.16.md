@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they sleep not, except they do evil; And their sleep is taken away, unless they cause some to fall.
+For they don't sleep, unless they do evil. Their sleep is taken away, unless they make someone fall.

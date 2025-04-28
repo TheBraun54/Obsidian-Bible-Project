@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Zedekiah the king sent, and fetched him: and the king asked him secretly in his house, and said, Is there any word from Jehovah? And Jeremiah said, There is. He said also, Thou shalt be delivered into the hand of the king of Babylon.
+Then Zedekiah the king sent, and fetched him: and the king asked him secretly in his house, and said, Is there any word from Yahweh? Jeremiah said, There is. He said also, You shall be delivered into the hand of the king of Babylon.

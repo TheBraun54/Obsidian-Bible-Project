@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who knoweth the power of thine anger, And thy wrath according to the fear that is due unto thee?
+Who knows the power of your anger, your wrath according to the fear that is due to you?

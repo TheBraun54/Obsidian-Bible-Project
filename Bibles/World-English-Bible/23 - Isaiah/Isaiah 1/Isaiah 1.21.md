@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How is the faithful city become a harlot! she that was full of justice! righteousness lodged in her, but now murderers.
+How the faithful city has become a prostitute! She was full of justice; righteousness lodged in her, but now murderers.

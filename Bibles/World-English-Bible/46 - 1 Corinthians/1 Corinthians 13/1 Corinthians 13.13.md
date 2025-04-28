@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now abideth faith, hope, love, these three; and the greatest of these is love.
+But now faith, hope, and love remain--these three. The greatest of these is love.

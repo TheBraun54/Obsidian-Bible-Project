@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I see him, but not now; I behold him, but not nigh: There shall come forth a star out of Jacob, And a sceptre shall rise out of Israel, And shall smite through the corners of Moab, And break down all the sons of tumult.
+I see him, but not now. I see him, but not near. A star will come out of Jacob. A scepter will rise out of Israel, and shall strike through the corners of Moab, and break down all the sons of Sheth.

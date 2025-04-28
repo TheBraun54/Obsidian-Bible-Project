@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forasmuch therefore as ye trample upon the poor, and take exactions from him of wheat: ye have built houses of hewn stone, but ye shall not dwell in them; ye have planted pleasant vineyards, but ye shall not drink the wine thereof.
+Forasmuch therefore as you trample on the poor, and take taxes from him of wheat: You have built houses of cut stone, but you will not dwell in them. You have planted pleasant vineyards, but you shall not drink their wine.

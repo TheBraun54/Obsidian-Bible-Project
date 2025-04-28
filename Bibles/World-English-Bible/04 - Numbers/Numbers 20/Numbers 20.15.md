@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how our fathers went down into Egypt, and we dwelt in Egypt a long time; and the Egyptians dealt ill with us, and our fathers:
+how our fathers went down into Egypt, and we lived in Egypt a long time; and the Egyptians dealt ill with us, and our fathers:

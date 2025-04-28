@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso privily slandereth his neighbor, him will I destroy: Him that hath a high look and a proud heart will I not suffer.
+I will silence whoever secretly slanders his neighbor. I won't tolerate one who is haughty and conceited.

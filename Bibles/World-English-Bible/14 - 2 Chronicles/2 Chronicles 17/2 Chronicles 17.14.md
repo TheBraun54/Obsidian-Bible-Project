@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this was the numbering of them according to their fathers' houses: Of Judah, the captains of thousands: Adnah the captain, and with him mighty men of valor three hundred thousand;
+This was the numbering of them according to their fathers' houses: Of Judah, the captains of thousands: Adnah the captain, and with him mighty men of valor three hundred thousand;

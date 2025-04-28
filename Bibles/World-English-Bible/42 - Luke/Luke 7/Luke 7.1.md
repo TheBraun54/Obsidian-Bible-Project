@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After he had ended all his sayings in the ears of the people, he entered into Capernaum.
+After he had finished speaking in the hearing of the people, he entered into Capernaum.

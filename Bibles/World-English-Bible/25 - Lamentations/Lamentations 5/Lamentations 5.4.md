@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have drunken our water for money; Our wood is sold unto us.
+We have drunken our water for money; Our wood is sold to us.

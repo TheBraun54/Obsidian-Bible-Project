@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave Hebron unto Caleb, as Moses had spoken: and he drove out thence the three sons of Anak.
+They gave Hebron to Caleb, as Moses had spoken: and he drove out there the three sons of Anak.

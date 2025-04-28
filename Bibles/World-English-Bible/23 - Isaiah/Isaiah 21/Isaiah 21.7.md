@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when he seeth a troop, horsemen in pairs, a troop of asses, a troop of camels, he shall hearken diligently with much heed.
+When he sees a troop, horsemen in pairs, a troop of donkeys, a troop of camels, he shall listen diligently with great attentiveness."

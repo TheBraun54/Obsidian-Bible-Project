@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I contended with the nobles of Judah, and said unto them, What evil thing is this that ye do, and profane the sabbath day?
+Then I contended with the nobles of Judah, and said to them, "What evil thing is this that you do, and profane the Sabbath day?

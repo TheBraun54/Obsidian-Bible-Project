@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king answered them roughly; and king Rehoboam forsook the counsel of the old men,
+The king answered them roughly; and king Rehoboam forsook the counsel of the old men,

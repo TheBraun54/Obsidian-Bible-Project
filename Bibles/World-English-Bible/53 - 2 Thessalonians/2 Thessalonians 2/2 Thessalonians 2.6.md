@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now ye know that which restraineth, to the end that he may be revealed in his own season.
+Now you know what is restraining him, to the end that he may be revealed in his own season.

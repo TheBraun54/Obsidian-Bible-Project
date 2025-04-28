@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they cried unto Jehovah in their trouble, And he saved them out of their distresses.
+Then they cried to Yahweh in their trouble, and he saved them out of their distresses.

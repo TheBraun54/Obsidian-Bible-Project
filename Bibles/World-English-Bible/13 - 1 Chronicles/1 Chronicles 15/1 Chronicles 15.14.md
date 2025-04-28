@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the priests and the Levites sanctified themselves to bring up the ark of Jehovah, the God of Israel.
+So the priests and the Levites sanctified themselves to bring up the ark of Yahweh, the God of Israel.

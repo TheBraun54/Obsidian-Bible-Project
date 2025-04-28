@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the ten bases of brass; four cubits was the length of one base, and four cubits the breadth thereof, and three cubits the height of it.
+He made the ten bases of brass; four cubits was the length of one base, and four cubits its breadth, and three cubits its height.

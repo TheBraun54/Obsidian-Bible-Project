@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am come into my garden, my sister, [my] bride: I have gathered my myrrh with my spice; I have eaten my honeycomb with my honey; I have drunk my wine with my milk. Eat, O friends; Drink, yea, drink abundantly, O beloved.
+I have come into my garden, my sister, my bride. I have gathered my myrrh with my spice; I have eaten my honeycomb with my honey; I have drunk my wine with my milk. Friends Eat, friends! Drink, yes, drink abundantly, beloved. Beloved

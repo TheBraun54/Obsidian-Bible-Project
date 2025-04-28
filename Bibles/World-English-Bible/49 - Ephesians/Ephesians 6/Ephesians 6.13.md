@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore take up the whole armor of God, that ye may be able to withstand in the evil day, and, having done all, to stand.
+Therefore, put on the whole armor of God, that you may be able to withstand in the evil day, and, having done all, to stand.

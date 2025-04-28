@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Samuel called unto Jehovah; and Jehovah sent thunder and rain that day: and all the people greatly feared Jehovah and Samuel.
+So Samuel called to Yahweh; and Yahweh sent thunder and rain that day: and all the people greatly feared Yahweh and Samuel.

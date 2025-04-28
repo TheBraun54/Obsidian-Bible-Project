@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore fear ye not: I will nourish you, and your little ones. And he comforted them, and spake kindly unto them.
+Now therefore don't be afraid. I will nourish you and your little ones." He comforted them, and spoke kindly to them.

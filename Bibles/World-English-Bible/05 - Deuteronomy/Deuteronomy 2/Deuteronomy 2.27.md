@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let me pass through thy land: I will go along by the highway, I will turn neither unto the right hand nor to the left.
+"Let me pass through your land: I will go along by the highway, I will turn neither to the right hand nor to the left.

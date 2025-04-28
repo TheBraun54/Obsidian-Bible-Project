@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the mountain falling cometh to nought; And the rock is removed out of its place;
+"But the mountain falling comes to nothing. The rock is removed out of its place;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the twelve golden spoons, full of incense, [weighing] ten [shekels] apiece, after the shekel of the sanctuary; all the gold of the spoons a hundred and twenty [shekels] ;
+the twelve golden ladles, full of incense, weighing ten shekels apiece, after the shekel of the sanctuary; all the gold of the ladles weighed one hundred twenty shekels;

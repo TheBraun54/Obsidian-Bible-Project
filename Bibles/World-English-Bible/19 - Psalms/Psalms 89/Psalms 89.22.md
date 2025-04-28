@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The enemy shall not exact from him, Nor the son of wickedness afflict him.
+No enemy will tax him. No wicked man will oppress him.

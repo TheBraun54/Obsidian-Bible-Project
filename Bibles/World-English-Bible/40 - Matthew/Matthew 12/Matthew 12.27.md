@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if I by Beelzebub cast out demons, by whom do your sons cast them out? therefore shall they be your judges.
+If I by Beelzebul cast out demons, by whom do your children cast them out? Therefore they will be your judges.

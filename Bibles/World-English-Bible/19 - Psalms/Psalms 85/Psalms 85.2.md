@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast forgiven the iniquity of thy people; Thou hast covered all their sin. {{Selah
+You have forgiven the iniquity of your people. You have covered all their sin. Selah.

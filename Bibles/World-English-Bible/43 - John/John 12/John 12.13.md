@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-took the branches of the palm trees, and went forth to meet him, and cried out, Hosanna: Blessed [is] he that cometh in the name of the Lord, even the King of Israel.
+they took the branches of the palm trees, and went out to meet him, and cried out, "Hosanna! Blessed is he who comes in the name of the Lord, the King of Israel!"

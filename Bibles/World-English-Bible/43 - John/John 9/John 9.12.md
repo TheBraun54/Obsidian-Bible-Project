@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Where is he? He saith, I know not.
+Then they asked him, "Where is he?" He said, "I don't know."

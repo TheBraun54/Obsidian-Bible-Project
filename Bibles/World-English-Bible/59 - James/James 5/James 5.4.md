@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the hire of the laborers who mowed your fields, which is of you kept back by fraud, crieth out: and the cries of them that reaped have entered into the ears of the Lord of Sabaoth.
+Behold, the wages of the laborers who mowed your fields, which you have kept back by fraud, cry out, and the cries of those who reaped have entered into the ears of the Lord of Armies.

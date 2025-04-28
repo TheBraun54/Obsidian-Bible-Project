@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nathan said to David, Thou art the man. Thus saith Jehovah, the God of Israel, I anointed thee king over Israel, and I delivered thee out of the hand of Saul;
+Nathan said to David, "You are the man. This is what Yahweh, the God of Israel, says: 'I anointed you king over Israel, and I delivered you out of the hand of Saul.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that saith unto the wicked, Thou art righteous; Peoples shall curse him, nations shall abhor him:
+He who says to the wicked, "You are righteous;" peoples shall curse him, and nations shall abhor him--

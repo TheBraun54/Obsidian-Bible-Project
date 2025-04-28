@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the stones were according to the names of the children of Israel, twelve, according to their names; like the engravings of a signet, every one according to his name, for the twelve tribes.
+The stones were according to the names of the children of Israel, twelve, according to their names; like the engravings of a signet, everyone according to his name, for the twelve tribes.

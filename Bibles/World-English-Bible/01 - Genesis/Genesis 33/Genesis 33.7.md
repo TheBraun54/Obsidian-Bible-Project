@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah also and her children came near, and bowed themselves: and after came Joseph near and Rachel, and they bowed themselves.
+Leah also and her children came near, and bowed themselves. After them, Joseph came near with Rachel, and they bowed themselves.

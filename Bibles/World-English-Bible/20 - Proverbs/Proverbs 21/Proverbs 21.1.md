@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king's heart is in the hand of Jehovah as the watercourses: He turneth it whithersoever he will.
+The king's heart is in Yahweh's hand like the watercourses. He turns it wherever he desires.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Joshua drew not back his hand, wherewith he stretched out the javelin, until he had utterly destroyed all the inhabitants of Ai.
+For Joshua didn't draw back his hand, with which he stretched out the javelin, until he had utterly destroyed all the inhabitants of Ai.

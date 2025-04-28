@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And putting to sea from thence, we sailed under the lee of Cyprus, because the winds were contrary.
+Putting to sea from there, we sailed under the lee of Cyprus, because the winds were contrary.

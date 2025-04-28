@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to the worthless shepherd that leaveth the flock! the sword shall be upon his arm, and upon his right eye: his arm shall be clean dried up, and his right eye shall be utterly darkened.
+Woe to the worthless shepherd who leaves the flock! The sword will be on his arm, and on his right eye. His arm will be completely withered, and his right eye will be totally blinded!"

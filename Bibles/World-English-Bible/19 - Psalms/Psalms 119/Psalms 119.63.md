@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am a companion of all them that fear thee, And of them that observe thy precepts.
+I am a friend of all those who fear you, of those who observe your precepts.

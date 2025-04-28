@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye walk in my statutes, and keep my commandments, and do them;
+"'If you walk in my statutes, and keep my commandments, and do them;

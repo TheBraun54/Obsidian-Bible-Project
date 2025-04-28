@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not a witness against thy neighbor without cause; And deceive not with thy lips.
+Don't be a witness against your neighbor without cause. Don't deceive with your lips.

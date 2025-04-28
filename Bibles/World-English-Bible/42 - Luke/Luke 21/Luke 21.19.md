@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In your patience ye shall win your souls.
+"By your endurance you will win your lives.

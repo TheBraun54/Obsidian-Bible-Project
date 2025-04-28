@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Achish gave him Ziklag that day: wherefore Ziklag pertaineth unto the kings of Judah unto this day.
+Then Achish gave him Ziklag that day: why Ziklag pertains to the kings of Judah to this day.

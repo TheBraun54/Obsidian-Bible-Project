@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now, brethren, if I come unto you speaking with tongues, what shall I profit you, unless I speak to you either by way of revelation, or of knowledge, or of prophesying, or of teaching?
+But now, brothers, if I come to you speaking with other languages, what would I profit you, unless I speak to you either by way of revelation, or of knowledge, or of prophesying, or of teaching?

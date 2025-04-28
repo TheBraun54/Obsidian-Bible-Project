@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thine enemy be hungry, give him bread to eat; And if he be thirsty, give him water to drink:
+If your enemy is hungry, give him food to eat. If he is thirsty, give him water to drink:

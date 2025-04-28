@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the court of the tabernacle: for the south side southward there shall be hangings for the court of fine twined linen a hundred cubits long for one side:
+"You shall make the court of the tabernacle: for the south side southward there shall be hangings for the court of fine twined linen one hundred cubits long for one side:

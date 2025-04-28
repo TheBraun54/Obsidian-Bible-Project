@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah thy God, who delighted in thee, to set thee on the throne of Israel: because Jehovah loved Israel for ever, therefore made he thee king, to do justice and righteousness.
+Blessed is Yahweh your God, who delighted in you, to set you on the throne of Israel. Because Yahweh loved Israel forever, therefore made he you king, to do justice and righteousness."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the unclean spirits, whensoever they beheld him, fell down before him, and cried, saying, Thou art the Son of God.
+The unclean spirits, whenever they saw him, fell down before him, and cried, "You are the Son of God!"

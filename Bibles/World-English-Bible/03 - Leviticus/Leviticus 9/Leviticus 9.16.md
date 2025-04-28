@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he presented the burnt-offering, and offered it according to the ordinance.
+He presented the burnt offering, and offered it according to the ordinance.

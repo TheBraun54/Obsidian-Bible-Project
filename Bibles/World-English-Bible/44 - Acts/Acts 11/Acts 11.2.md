@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Peter was come up to Jerusalem, they that were of the circumcision contended with him,
+When Peter had come up to Jerusalem, those who were of the circumcision contended with him,

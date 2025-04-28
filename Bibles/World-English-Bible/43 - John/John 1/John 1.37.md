@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the two disciples heard him speak, and they followed Jesus.
+The two disciples heard him speak, and they followed Jesus.

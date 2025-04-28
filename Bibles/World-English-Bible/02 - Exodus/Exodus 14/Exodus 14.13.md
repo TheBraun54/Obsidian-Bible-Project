@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto the people, Fear ye not, stand still, and see the salvation of Jehovah, which he will work for you to-day: for the Egyptians whom ye have seen to-day, ye shall see them again no more for ever.
+Moses said to the people, "Don't be afraid. Stand still, and see the salvation of Yahweh, which he will work for you today: for the Egyptians whom you have seen today, you shall never see them again.

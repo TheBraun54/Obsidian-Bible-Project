@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain man that was lame from his mother's womb was carried, whom they laid daily at the door of the temple which is called Beautiful, to ask alms of them that entered into the temple;
+A certain man who was lame from his mother's womb was being carried, whom they laid daily at the door of the temple which is called Beautiful, to ask gifts for the needy of those who entered into the temple.

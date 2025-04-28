@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his master saw that Jehovah was with him, and that Jehovah made all that he did to prosper in his hand.
+His master saw that Yahweh was with him, and that Yahweh made all that he did prosper in his hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And men were scorched with great heat: and they blasphemed the name of God who hath the power over these plagues; and they repented not to give him glory.
+People were scorched with great heat, and people blasphemed the name of God who has the power over these plagues. They didn't repent and give him glory.

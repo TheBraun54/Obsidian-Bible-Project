@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to the masons and the hewers of stone, and for buying timber and hewn stone to repair the breaches of the house of Jehovah, and for all that was laid out for the house to repair it.
+and to the masons and the stone cutters, and for buying timber and cut stone to repair the breaches of the house of Yahweh, and for all that was laid out for the house to repair it.

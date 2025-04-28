@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king rose up, and the governor, and Bernice, and they that sat with them:
+The king rose up with the governor, and Bernice, and those who sat with them.

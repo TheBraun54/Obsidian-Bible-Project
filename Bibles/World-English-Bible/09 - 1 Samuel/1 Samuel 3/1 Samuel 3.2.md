@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at that time, when Eli was laid down in his place (now his eyes had begun to wax dim, so that he could not see),
+It happened at that time, when Eli was laid down in his place (now his eyes had begun to grow dim, so that he could not see),

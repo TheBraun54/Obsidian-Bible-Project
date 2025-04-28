@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Solomon had made an end of praying, the fire came down from heaven, and consumed the burnt-offering and the sacrifices; and the glory of Jehovah filled the house.
+Now when Solomon had made an end of praying, the fire came down from heaven, and consumed the burnt offering and the sacrifices; and the glory of Yahweh filled the house.

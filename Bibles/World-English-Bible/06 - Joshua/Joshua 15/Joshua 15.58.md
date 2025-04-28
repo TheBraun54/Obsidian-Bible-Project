@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Halhul, Beth-zur, and Gedor,
+Halhul, Beth Zur, Gedor,

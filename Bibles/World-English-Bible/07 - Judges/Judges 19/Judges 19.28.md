@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Up, and let us be going; but none answered: then he took her up upon the ass; and the man rose up, and gat him unto his place.
+He said to her, "Get up, and let us be going!" but no one answered. Then he took her up on the donkey; and the man rose up, and went to his place.

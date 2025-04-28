@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sware unto her, Whatsoever thou shalt ask of me, I will give it thee, unto the half of my kingdom.
+He swore to her, "Whatever you shall ask of me, I will give you, up to half of my kingdom."

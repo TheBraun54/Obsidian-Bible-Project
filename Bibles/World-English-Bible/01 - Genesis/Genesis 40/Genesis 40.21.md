@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he restored the chief butler unto his butlership again; and he gave the cup into Pharaoh's hand:
+He restored the chief cupbearer to his position again, and he gave the cup into Pharaoh's hand;

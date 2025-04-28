@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A just balance and scales are Jehovah's; All the weights of the bag are his work.
+Honest balances and scales are Yahweh's; all the weights in the bag are his work.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the waters returned, and covered the chariots, and the horsemen, even all the host of Pharaoh that went in after them into the sea; there remained not so much as one of them.
+The waters returned, and covered the chariots and the horsemen, even all Pharaoh's army that went in after them into the sea. There remained not so much as one of them.

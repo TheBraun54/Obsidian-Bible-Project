@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Behold, I will bring evil upon this place, and upon the inhabitants thereof, even all the curses that are written in the book which they have read before the king of Judah.
+"Thus says Yahweh, 'Behold, I will bring evil on this place, and on its inhabitants, even all the curses that are written in the book which they have read before the king of Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac sowed in that land, and found in the same year a hundredfold: and Jehovah blessed him.
+Isaac sowed in that land, and reaped in the same year one hundred times what he planted. Yahweh blessed him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his disciples came, and took up the corpse, and buried him; and they went and told Jesus.
+His disciples came, and took the body, and buried it; and they went and told Jesus.

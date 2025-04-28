@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it fell on a day, that he came thither, and he turned into the chamber and lay there.
+One day he came there, and he turned into the room and lay there.

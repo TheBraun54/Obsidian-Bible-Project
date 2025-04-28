@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Herod saw Jesus, he was exceeding glad: for he was of a long time desirous to see him, because he had heard concerning him; and he hoped to see some miracle done by him.
+Now when Herod saw Jesus, he was exceedingly glad, for he had wanted to see him for a long time, because he had heard many things about him. He hoped to see some miracle done by him.

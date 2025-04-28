@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there have I set the ark, wherein is the covenant of Jehovah, which he made with the children of Israel.
+There I have set the ark, in which is the covenant of Yahweh, which he made with the children of Israel."

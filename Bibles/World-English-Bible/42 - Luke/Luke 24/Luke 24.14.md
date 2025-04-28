@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they communed with each other of all these things which had happened.
+They talked with each other about all of these things which had happened.

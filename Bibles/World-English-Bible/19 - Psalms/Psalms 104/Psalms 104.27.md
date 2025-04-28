@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These wait all for thee, That thou mayest give them their food in due season.
+These all wait for you, that you may give them their food in due season.

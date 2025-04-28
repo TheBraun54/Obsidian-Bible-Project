@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have heard of the pride of Moab, [that] he is very proud; even of his arrogancy, and his pride, and his wrath; his boastings are nought.
+We have heard of the pride of Moab, that he is very proud; even of his arrogance, his pride, and his wrath. His boastings are nothing.

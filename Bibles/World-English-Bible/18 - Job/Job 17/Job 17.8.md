@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upright men shall be astonished at this, And the innocent shall stir up himself against the godless.
+Upright men shall be astonished at this. The innocent shall stir up himself against the godless.

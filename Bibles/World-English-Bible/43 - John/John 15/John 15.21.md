@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all these things will they do unto you for my name's sake, because they know not him that sent me.
+But all these things will they do to you for my name's sake, because they don't know him who sent me.

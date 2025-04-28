@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now all this is come to pass, that it might be fulfilled which was spoken by the Lord through the prophet, saying,
+Now all this has happened, that it might be fulfilled which was spoken by the Lord through the prophet, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, If now I have found favor in thy sight, then show me a sign that it is thou that talkest with me.
+He said to him, "If now I have found favor in your sight, then show me a sign that it is you who talk with me.

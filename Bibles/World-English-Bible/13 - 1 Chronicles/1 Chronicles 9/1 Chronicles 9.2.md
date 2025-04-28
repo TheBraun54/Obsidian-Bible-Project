@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the first inhabitants that dwelt in their possessions in their cities were Israel, the priests, the Levites, and the Nethinim.
+Now the first inhabitants who lived in their possessions in their cities were Israel, the priests, the Levites, and the Nethinim.

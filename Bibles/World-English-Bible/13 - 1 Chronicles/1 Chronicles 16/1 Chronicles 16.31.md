@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the heavens be glad, and let the earth rejoice; And let them say among the nations, Jehovah reigneth.
+Let the heavens be glad, and let the earth rejoice! Let them say among the nations, "Yahweh reigns!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Quicken me after thy lovingkindness; So shall I observe the testimony of thy mouth.
+Preserve my life according to your loving kindness, so I will obey the statutes of your mouth. LAMED

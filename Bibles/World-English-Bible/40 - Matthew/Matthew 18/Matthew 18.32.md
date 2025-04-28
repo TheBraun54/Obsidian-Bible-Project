@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then his lord called him unto him, and saith to him, Thou wicked servant, I forgave thee all that debt, because thou besoughtest me:
+Then his lord called him in, and said to him, 'You wicked servant! I forgave you all that debt, because you begged me.

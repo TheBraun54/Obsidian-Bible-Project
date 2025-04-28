@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the avenger of blood find him without the border of his city of refuge, and the avenger of blood slay the manslayer; he shall not be guilty of blood,
+and the avenger of blood find him outside of the border of his city of refuge, and the avenger of blood kill the manslayer; he shall not be guilty of blood,

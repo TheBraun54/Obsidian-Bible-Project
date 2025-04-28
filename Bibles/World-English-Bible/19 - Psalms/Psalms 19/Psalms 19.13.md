@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep back thy servant also from presumptuous [sins] ; Let them not have dominion over me: Then shall I be upright, And I shall be clear from great transgression.
+Keep back your servant also from presumptuous sins. Let them not have dominion over me. Then I will be upright. I will be blameless and innocent of great transgression.

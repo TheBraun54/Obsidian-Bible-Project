@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he brought upon them the king of the Chaldeans, who slew their young men with the sword in the house of their sanctuary, and had no compassion upon young man or virgin, old man or hoary-headed: he gave them all into his hand.
+Therefore he brought on them the king of the Chaldeans, who killed their young men with the sword in the house of their sanctuary, and had no compassion on young man or virgin, old man or gray-headed: he gave them all into his hand.

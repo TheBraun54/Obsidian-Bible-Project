@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of thanksgiving]. Make a joyful noise unto Jehovah, all ye lands.
+Shout for joy to Yahweh, all you lands!

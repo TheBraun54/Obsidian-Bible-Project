@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the land that yet remaineth: all the regions of the Philistines, and all the Geshurites;
+"This is the land that still remains: all the regions of the Philistines, and all the Geshurites;

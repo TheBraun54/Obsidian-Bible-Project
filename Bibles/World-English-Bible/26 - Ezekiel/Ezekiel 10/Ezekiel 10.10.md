@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for their appearance, they four had one likeness, as if a wheel had been within a wheel.
+As for their appearance, the four of them had one likeness, like a wheel within a wheel.

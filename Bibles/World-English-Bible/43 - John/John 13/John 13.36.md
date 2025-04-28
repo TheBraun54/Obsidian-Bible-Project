@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter saith unto him, Lord, whither goest thou? Jesus answered, Whither I go, thou canst not follow now; but thou shalt follow afterwards.
+Simon Peter said to him, "Lord, where are you going?" Jesus answered, "Where I am going, you can't follow now, but you will follow afterwards."

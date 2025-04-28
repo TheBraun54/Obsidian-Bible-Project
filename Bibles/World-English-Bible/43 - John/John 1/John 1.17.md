@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the law was given through Moses; grace and truth came through Jesus Christ.
+For the law was given through Moses. Grace and truth were realized through Jesus Christ.

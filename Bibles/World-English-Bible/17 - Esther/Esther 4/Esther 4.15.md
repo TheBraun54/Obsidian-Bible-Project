@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Esther bade them return answer unto Mordecai,
+Then Esther asked them to answer Mordecai,

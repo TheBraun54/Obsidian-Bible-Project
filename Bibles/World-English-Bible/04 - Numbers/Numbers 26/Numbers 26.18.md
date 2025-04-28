@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of the sons of Gad according to those that were numbered of them, forty thousand and five hundred.
+These are the families of the sons of Gad according to those who were numbered of them, forty thousand and five hundred.

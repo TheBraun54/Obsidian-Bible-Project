@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were seven steps to go up to it, and the arches thereof were before them; and it had palm-trees, one on this side, and another on that side, upon the posts thereof.
+There were seven steps to go up to it, and its arches were before them; and it had palm trees, one on this side, and another on that side, on its posts.

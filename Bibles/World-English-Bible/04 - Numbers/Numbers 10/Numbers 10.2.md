@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make thee two trumpets of silver; of beaten work shalt thou make them: and thou shalt use them for the calling of the congregation, and for the journeying of the camps.
+"Make two trumpets of silver. You shall make them of beaten work. You shall use them for the calling of the congregation, and for the journeying of the camps.

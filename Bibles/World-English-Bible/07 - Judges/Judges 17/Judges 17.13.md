@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Micah, Now know I that Jehovah will do me good, seeing I have a Levite to my priest.
+Then Micah said, "Now know I that Yahweh will do good to me, since I have a Levite to my priest."

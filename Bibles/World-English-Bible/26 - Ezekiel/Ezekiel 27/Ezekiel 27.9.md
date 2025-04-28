@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The old men of Gebal and the wise men thereof were in thee thy calkers: all the ships of the sea with their mariners were in thee to deal in thy merchandise.
+The old men of Gebal and the wise men of it were in you your repairers of ship seams: all the ships of the sea with their mariners were in you to deal in your merchandise.

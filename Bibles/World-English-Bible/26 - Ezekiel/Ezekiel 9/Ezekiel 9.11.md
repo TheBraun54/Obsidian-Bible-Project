@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, the man clothed in linen, who had the inkhorn by his side, reported the matter, saying, I have done as thou hast commanded me.
+Behold, the man clothed in linen, who had the inkhorn by his side, reported the matter, saying, I have done as you have commanded me.

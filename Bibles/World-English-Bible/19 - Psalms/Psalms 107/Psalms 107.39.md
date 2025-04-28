@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, they are diminished and bowed down Through oppression, trouble, and sorrow.
+Again, they are diminished and bowed down through oppression, trouble, and sorrow.

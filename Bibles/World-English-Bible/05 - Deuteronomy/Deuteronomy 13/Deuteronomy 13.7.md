@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the gods of the peoples that are round about you, nigh unto thee, or far off from thee, from the one end of the earth even unto the other end of the earth;
+of the gods of the peoples who are around you, near to you, or far off from you, from the one end of the earth even to the other end of the earth;

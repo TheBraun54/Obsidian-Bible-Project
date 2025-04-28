@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And though they found no cause of death [in him], yet asked they of Pilate that he should be slain.
+Though they found no cause for death, they still asked Pilate to have him killed.

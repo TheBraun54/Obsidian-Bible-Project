@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And see if there be any wicked way in me, And lead me in the way everlasting.
+See if there is any wicked way in me, and lead me in the everlasting way. For the Chief Musician. A Psalm by David.

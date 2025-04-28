@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the thief be not found, then the master of the house shall come near unto God, [to see] whether he have not put his hand unto his neighbor's goods.
+If the thief isn't found, then the master of the house shall come near to God, to find out if he hasn't put his hand to his neighbor's goods.

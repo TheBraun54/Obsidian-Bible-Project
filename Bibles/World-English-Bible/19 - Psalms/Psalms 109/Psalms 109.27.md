@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That they may know that this is thy hand; [That] thou, Jehovah, hast done it.
+that they may know that this is your hand; that you, Yahweh, have done it.

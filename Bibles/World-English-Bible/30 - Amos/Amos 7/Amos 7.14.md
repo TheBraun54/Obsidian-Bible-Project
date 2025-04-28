@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Amos, and said to Amaziah, I was no prophet, neither was I a prophet's son; but I was a herdsman, and a dresser of sycomore-trees:
+Then Amos answered Amaziah, "I was no prophet, neither was I a prophet's son; but I was a herdsman, and a farmer of sycamore figs;

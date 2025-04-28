@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the day of Pentecost was now come, they were all together in one place.
+Now when the day of Pentecost had come, they were all with one accord in one place.

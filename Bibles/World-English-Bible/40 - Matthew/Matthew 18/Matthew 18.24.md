@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had begun to reckon, one was brought unto him, that owed him ten thousand talents.
+When he had begun to reconcile, one was brought to him who owed him ten thousand talents.

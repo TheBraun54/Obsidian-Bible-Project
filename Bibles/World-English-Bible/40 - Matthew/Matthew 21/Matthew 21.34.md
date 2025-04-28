@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the season of the fruits drew near, he sent his servants to the husbandmen, to receive his fruits.
+When the season for the fruit drew near, he sent his servants to the farmers, to receive his fruit.

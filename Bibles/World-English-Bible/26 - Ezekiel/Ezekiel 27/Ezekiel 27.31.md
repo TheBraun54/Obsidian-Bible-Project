@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall make themselves bald for thee, and gird them with sackcloth, and they shall weep for thee in bitterness of soul with bitter mourning.
+and they shall make themselves bald for you, and clothe them with sackcloth, and they shall weep for you in bitterness of soul with bitter mourning.

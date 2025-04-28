@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye will not drive out the inhabitants of the land from before you, then shall those that ye let remain of them be as pricks in your eyes, and as thorns in your sides, and they shall vex you in the land wherein ye dwell.
+"But if you do not drive out the inhabitants of the land from before you, then those you let remain of them will be as pricks in your eyes and as thorns in your sides, and they will harass you in the land in which you dwell.

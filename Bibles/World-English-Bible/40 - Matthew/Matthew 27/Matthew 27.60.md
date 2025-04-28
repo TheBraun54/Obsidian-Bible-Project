@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and laid it in his own new tomb, which he had hewn out in the rock: and he rolled a great stone to the door of the tomb, and departed.
+and laid it in his own new tomb, which he had cut out in the rock, and he rolled a great stone to the door of the tomb, and departed.

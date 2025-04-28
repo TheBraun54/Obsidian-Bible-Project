@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go now to the flock, and fetch me from thence two good kids of the goats; and I will make them savory food for thy father, such as he loveth:
+Go now to the flock, and get me from there two good young goats. I will make them savory food for your father, such as he loves.

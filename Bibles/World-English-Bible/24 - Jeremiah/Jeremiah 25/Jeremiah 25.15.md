@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, the God of Israel, unto me: take this cup of the wine of wrath at my hand, and cause all the nations, to whom I send thee, to drink it.
+For thus says Yahweh, the God of Israel, to me: take this cup of the wine of wrath at my hand, and cause all the nations, to whom I send you, to drink it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt gird them with girdles, Aaron and his sons, and bind head-tires on them: and they shall have the priesthood by a perpetual statute: and thou shalt consecrate Aaron and his sons.
+You shall clothe them with belts, Aaron and his sons, and bind headbands on them: and they shall have the priesthood by a perpetual statute: and you shall consecrate Aaron and his sons.

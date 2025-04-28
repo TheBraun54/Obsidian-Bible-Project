@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou shalt set apart unto Jehovah all that openeth the womb, and every firstling which thou hast that cometh of a beast; the males shall be Jehovah's.
+that you shall set apart to Yahweh all that opens the womb, and every firstborn which you have that comes from an animal. The males shall be Yahweh's.

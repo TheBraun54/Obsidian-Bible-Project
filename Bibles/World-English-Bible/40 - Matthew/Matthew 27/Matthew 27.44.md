@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the robbers also that were crucified with him cast upon him the same reproach.
+The robbers also who were crucified with him cast on him the same reproach.

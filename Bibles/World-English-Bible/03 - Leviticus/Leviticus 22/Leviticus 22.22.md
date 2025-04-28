@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blind, or broken, or maimed, or having a wen, or scurvy, or scabbed, ye shall not offer these unto Jehovah, nor make an offering by fire of them upon the altar unto Jehovah.
+Blind, injured, maimed, having a wart, festering, or having a running sore, you shall not offer these to Yahweh, nor make an offering by fire of them on the altar to Yahweh.

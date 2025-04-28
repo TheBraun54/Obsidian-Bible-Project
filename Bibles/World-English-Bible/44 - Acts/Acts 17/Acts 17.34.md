@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But certain men clave unto him, and believed: among whom also was Dionysius the Areopagite, and a woman named Damaris, and others with them.
+But certain men joined with him, and believed, among whom also was Dionysius the Areopagite, and a woman named Damaris, and others with them.

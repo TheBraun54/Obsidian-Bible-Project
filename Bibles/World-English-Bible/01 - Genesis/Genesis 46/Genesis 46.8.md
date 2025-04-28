@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of the children of Israel, who came into Egypt, Jacob and his sons: Reuben, Jacob's first-born.
+These are the names of the children of Israel, who came into Egypt, Jacob and his sons: Reuben, Jacob's firstborn.

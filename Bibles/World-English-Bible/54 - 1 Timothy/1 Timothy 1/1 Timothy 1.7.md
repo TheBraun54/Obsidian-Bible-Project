@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-desiring to be teachers of the law, though they understand neither what they say, nor whereof they confidently affirm.
+desiring to be teachers of the law, though they understand neither what they say, nor about what they strongly affirm.

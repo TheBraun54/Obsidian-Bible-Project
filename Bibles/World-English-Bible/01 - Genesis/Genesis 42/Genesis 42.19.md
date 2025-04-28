@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if ye be true men, let one of your brethren be bound in your prison-house; but go ye, carry grain for the famine of your houses:
+If you are honest men, then let one of your brothers be bound in your prison; but you go, carry grain for the famine of your houses.

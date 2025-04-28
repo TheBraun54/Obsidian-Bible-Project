@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that justify the wicked for a bribe, and take away the righteousness of the righteous from him!
+who acquit the guilty for a bribe, but deny justice for the innocent!

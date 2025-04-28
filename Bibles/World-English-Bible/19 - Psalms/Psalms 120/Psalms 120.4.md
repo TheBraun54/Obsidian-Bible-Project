@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sharp arrows of the mighty, With coals of juniper.
+Sharp arrows of the mighty, with coals of juniper.

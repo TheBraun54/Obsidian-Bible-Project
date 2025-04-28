@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if thou draw out thy soul to the hungry, and satisfy the afflicted soul: then shall thy light rise in darkness, and thine obscurity be as the noonday;
+and if you draw out your soul to the hungry, and satisfy the afflicted soul: then your light shall rise in darkness, and your obscurity be as the noonday;

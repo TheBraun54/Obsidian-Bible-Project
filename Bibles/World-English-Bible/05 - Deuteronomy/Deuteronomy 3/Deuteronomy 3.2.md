@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Fear him not; for I have delivered him, and all his people, and his land, into thy hand; and thou shalt do unto him as thou didst unto Sihon king of the Amorites, who dwelt at Heshbon.
+Yahweh said to me, "Don't fear him; for I have delivered him, and all his people, and his land, into your hand; and you shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-YODH. Thy hands have made me and fashioned me: Give me understanding, that I may learn thy commandments.
+Your hands have made me and formed me. Give me understanding, that I may learn your commandments.

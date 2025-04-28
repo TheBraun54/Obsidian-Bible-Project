@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto Moses, I, thy father-in-law Jethro, am come unto thee, and thy wife, and her two sons with her.
+He said to Moses, "I, your father-in-law Jethro, have come to you with your wife, and her two sons with her."

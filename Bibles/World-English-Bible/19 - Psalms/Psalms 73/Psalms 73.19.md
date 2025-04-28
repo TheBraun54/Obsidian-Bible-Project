@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How are they become a desolation in a moment! They are utterly consumed with terrors.
+How they are suddenly destroyed! They are completely swept away with terrors.

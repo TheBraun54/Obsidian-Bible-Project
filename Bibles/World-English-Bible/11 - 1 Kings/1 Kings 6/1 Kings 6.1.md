@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Ziv, which is the second month, that he began to build the house of Jehovah.
+It happened in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Ziv, which is the second month, that he began to build the house of Yahweh.

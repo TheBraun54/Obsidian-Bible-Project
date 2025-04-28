@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On that day Jehovah magnified Joshua in the sight of all Israel; and they feared him, as they feared Moses, all the days of his life.
+On that day, Yahweh magnified Joshua in the sight of all Israel; and they feared him, as they feared Moses, all the days of his life.

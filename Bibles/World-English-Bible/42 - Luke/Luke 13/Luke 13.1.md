@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there were some present at that very season who told him of the Galilaeans, whose blood Pilate had mingled with their sacrifices.
+Now there were some present at the same time who told him about the Galileans, whose blood Pilate had mixed with their sacrifices.

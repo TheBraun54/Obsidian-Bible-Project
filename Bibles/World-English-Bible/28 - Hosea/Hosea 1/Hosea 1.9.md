@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [Jehovah] said, Call his name Lo-ammi; for ye are not my people, and I will not be your [God] .
+He said, "Call his name Lo-Ammi; for you are not my people, and I will not be yours.

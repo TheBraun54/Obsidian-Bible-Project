@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I rejoice in my sufferings for your sake, and fill up on my part that which is lacking of the afflictions of Christ in my flesh for his body's sake, which is the church;
+Now I rejoice in my sufferings for your sake, and fill up on my part that which is lacking of the afflictions of Christ in my flesh for his body's sake, which is the assembly;

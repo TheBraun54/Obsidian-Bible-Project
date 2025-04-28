@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Saul, Thy servant was keeping his father's sheep; and when there came a lion, or a bear, and took a lamb out of the flock,
+David said to Saul, "Your servant was keeping his father's sheep; and when a lion or a bear came, and took a lamb out of the flock,

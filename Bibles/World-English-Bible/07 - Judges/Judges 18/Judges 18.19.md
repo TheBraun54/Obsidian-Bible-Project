@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Hold thy peace, lay thy hand upon thy mouth, and go with us, and be to us a father and a priest: is it better for thee to be priest unto the house of one man, or to be priest unto a tribe and a family in Israel?
+They said to him, "Hold your peace, put your hand on your mouth, and go with us, and be to us a father and a priest. Is it better for you to be priest to the house of one man, or to be priest to a tribe and a family in Israel?"

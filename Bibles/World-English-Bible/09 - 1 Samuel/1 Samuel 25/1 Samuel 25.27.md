@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now this present which thy servant hath brought unto my lord, let it be given unto the young men that follow my lord.
+Now this present which your servant has brought to my lord, let it be given to the young men who follow my lord.

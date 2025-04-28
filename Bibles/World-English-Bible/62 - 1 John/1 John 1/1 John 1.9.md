@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we confess our sins, he is faithful and righteous to forgive us our sins, and to cleanse us from all unrighteousness.
+If we confess our sins, he is faithful and righteous to forgive us the sins, and to cleanse us from all unrighteousness.

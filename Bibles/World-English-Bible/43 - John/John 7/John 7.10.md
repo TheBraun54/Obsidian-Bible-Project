@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when his brethren were gone up unto the feast, then went he also up, not publicly, but as it were in secret.
+But when his brothers had gone up to the feast, then he also went up, not publicly, but as it were in secret.

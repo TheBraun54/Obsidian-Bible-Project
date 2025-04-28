@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is slow to anger, and abundant in lovingkindness, forgiving iniquity and transgression; and that will by no means clear [the guilty], visiting the iniquity of the fathers upon the children, upon the third and upon the fourth generation.
+'Yahweh is slow to anger, and abundant in loving kindness, forgiving iniquity and disobedience; and that will by no means clear [the guilty], visiting the iniquity of the fathers on the children, on the third and on the fourth generation.'

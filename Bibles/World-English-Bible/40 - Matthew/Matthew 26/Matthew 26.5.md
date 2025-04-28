@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they said, Not during the feast, lest a tumult arise among people.
+But they said, "Not during the feast, lest a riot occur among the people."

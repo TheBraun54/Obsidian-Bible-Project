@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zanoah, and En-gannim, Tappuah, and Enam,
+Zanoah, En Gannim, Tappuah, Enam,

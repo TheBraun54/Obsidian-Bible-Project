@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah of hosts hath purposed, and who shall annul it? and his hand is stretched out, and who shall turn it back?
+For Yahweh of Armies has planned, and who can stop it? His hand is stretched out, and who can turn it back?"

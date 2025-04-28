@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing forth the glory of his name: Make his praise glorious.
+Sing to the glory of his name! Offer glory and praise!

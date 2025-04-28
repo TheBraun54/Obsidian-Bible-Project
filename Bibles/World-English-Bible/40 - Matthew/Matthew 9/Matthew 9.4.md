@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus knowing their thoughts said, Wherefore think ye evil in your hearts?
+Jesus, knowing their thoughts, said, "Why do you think evil in your hearts?

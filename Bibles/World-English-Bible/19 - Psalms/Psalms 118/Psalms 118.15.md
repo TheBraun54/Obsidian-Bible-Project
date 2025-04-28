@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of rejoicing and salvation is in the tents of the righteous: The right hand of Jehovah doeth valiantly.
+The voice of rejoicing and salvation is in the tents of the righteous. "The right hand of Yahweh does valiantly.

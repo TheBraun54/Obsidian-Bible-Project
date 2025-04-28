@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain man of the sons of the prophets said unto his fellow by the word of Jehovah, Smite me, I pray thee. And the man refused to smite him.
+A certain man of the sons of the prophets said to his fellow by the word of Yahweh, "Please strike me!" The man refused to strike him.

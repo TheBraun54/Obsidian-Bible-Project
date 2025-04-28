@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou art come into the land which Jehovah thy God giveth thee, thou shalt not learn to do after the abominations of those nations.
+When you are come into the land which Yahweh your God gives you, you shall not learn to do after the abominations of those nations.

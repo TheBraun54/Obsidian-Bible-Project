@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye also bear witness, because ye have been with me from the beginning.
+You will also testify, because you have been with me from the beginning.

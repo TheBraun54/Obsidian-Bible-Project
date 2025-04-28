@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when ye were servants of sin, ye were free in regard of righteousness.
+For when you were servants of sin, you were free in regard to righteousness.

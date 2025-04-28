@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are our epistle, written in our hearts, known and read of all men;
+You are our letter, written in our hearts, known and read by all men;

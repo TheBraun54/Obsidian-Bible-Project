@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I charge [thee] in the sight of God, and Christ Jesus, and the elect angels, that thou observe these things without prejudice, doing nothing by partiality.
+I command you in the sight of God, and Christ Jesus, and the chosen angels, that you observe these things without prejudice, doing nothing by partiality.

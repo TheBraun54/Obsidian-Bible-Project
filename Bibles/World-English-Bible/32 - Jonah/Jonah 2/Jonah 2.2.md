@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I called by reason of mine affliction unto Jehovah, And he answered me; Out of the belly of Sheol cried I, [And] thou heardest my voice.
+He said, "I called because of my affliction to Yahweh. He answered me. Out of the belly of Sheol I cried. You heard my voice.

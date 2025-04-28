@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Naaman, captain of the host of the king of Syria, was a great man with his master, and honorable, because by him Jehovah had given victory unto Syria: he was also a mighty man of valor, [but he was] a leper.
+Now Naaman, captain of the army of the king of Syria, was a great man with his master, and honorable, because by him Yahweh had given victory to Syria: he was also a mighty man of valor, [but he was] a leper.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O daughter of my people, gird thee with sackcloth, and wallow thyself in ashes: make thee mourning, as for an only son, most bitter lamentation; for the destroyer shall suddenly come upon us.
+Daughter of my people, clothe yourself with sackcloth, and wallow in ashes! Mourn, as for an only son, most bitter lamentation; for the destroyer shall suddenly come on us.

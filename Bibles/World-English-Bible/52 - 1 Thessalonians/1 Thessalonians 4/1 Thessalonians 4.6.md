@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that no man transgress, and wrong his brother in the matter: because the Lord is an avenger in all these things, as also we forewarned you and testified.
+that no one should take advantage of and wrong a brother or sister in this matter; because the Lord is an avenger in all these things, as also we forewarned you and testified.

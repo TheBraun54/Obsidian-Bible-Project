@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For through the voice of Jehovah shall the Assyrian be dismayed; with his rod will he smite [him] .
+For through the voice of Yahweh the Assyrian will be dismayed. He will strike him with his rod.

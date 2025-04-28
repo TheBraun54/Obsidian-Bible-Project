@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the bright spot be white in the skin of his flesh, and the appearance thereof be not deeper than the skin, and the hair thereof be not turned white, then the priest shall shut up [him that hath] the plague seven days:
+If the bright spot is white in the skin of his body, and its appearance isn't deeper than the skin, and its hair hasn't turned white, then the priest shall isolate the infected person for seven days.

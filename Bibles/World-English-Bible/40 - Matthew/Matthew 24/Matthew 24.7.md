@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For nation shall rise against nation, and kingdom against kingdom; and there shall be famines and earthquakes in divers places.
+For nation will rise against nation, and kingdom against kingdom; and there will be famines, plagues, and earthquakes in various places.

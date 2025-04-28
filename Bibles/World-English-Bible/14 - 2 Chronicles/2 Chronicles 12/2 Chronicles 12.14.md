@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil, because he set not his heart to seek Jehovah.
+He did that which was evil, because he didn't set his heart to seek Yahweh.

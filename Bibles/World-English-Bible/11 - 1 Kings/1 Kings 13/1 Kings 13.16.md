@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I may not return with thee, nor go in with thee; neither will I eat bread nor drink water with thee in this place:
+He said, "I may not return with you, nor go in with you; neither will I eat bread nor drink water with you in this place.

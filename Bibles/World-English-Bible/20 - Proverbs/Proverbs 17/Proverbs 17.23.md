@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wicked man receiveth a bribe out of the bosom, To pervert the ways of justice.
+A wicked man receives a bribe in secret, to pervert the ways of justice.

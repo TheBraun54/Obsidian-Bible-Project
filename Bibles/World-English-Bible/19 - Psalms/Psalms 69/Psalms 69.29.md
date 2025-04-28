@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I am poor and sorrowful: Let thy salvation, O God, set me up on high.
+But I am in pain and distress. Let your salvation, God, protect me.

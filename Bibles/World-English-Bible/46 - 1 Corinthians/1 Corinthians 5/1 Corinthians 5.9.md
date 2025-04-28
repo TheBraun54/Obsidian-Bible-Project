@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I wrote unto you in my epistle to have no company with fornicators;
+I wrote to you in my letter to have no company with sexual sinners;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, Prophesy unto the wind, prophesy, son of man, and say to the wind, Thus saith the Lord Jehovah: Come from the four winds, O breath, and breathe upon these slain, that they may live.
+Then he said to me, Prophesy to the wind, prophesy, son of man, and tell the wind, Thus says the Lord Yahweh: Come from the four winds, breath, and breathe on these slain, that they may live.

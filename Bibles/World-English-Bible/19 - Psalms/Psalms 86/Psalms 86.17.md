@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Show me a token for good, That they who hate me may see it, and be put to shame, Because thou, Jehovah, hast helped me, and comforted me.
+Show me a sign of your goodness, that those who hate me may see it, and be shamed, because you, Yahweh, have helped me, and comforted me. A Psalm by the sons of Korah; a Song.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but to sit on my right hand or on [my] left hand is not mine to give; but [it is for them] for whom it hath been prepared.
+but to sit at my right hand and at my left hand is not mine to give, but for whom it has been prepared."

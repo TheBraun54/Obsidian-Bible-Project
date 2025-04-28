@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went up into the mount, and the cloud covered the mount.
+Moses went up on the mountain, and the cloud covered the mountain.

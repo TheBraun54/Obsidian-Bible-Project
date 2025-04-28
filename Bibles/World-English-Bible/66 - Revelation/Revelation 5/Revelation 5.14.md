@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the four living creatures said, Amen. And the elders fell down and worshipped.
+The four living creatures said, "Amen!" The elders fell down and worshiped.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Elpaal: Eber, and Misham, and Shemed, who built Ono and Lod, with the towns thereof;
+The sons of Elpaal: Eber, and Misham, and Shemed, who built Ono and Lod, with its towns;

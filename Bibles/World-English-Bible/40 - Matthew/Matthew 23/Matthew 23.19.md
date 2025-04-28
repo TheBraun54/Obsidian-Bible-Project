@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye blind: for which is greater, the gift, or the altar that sanctifieth the gift?
+You blind fools! For which is greater, the gift, or the altar that sanctifies the gift?

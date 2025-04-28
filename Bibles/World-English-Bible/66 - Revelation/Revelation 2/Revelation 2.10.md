@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not the things which thou art about to suffer: behold, the devil is about to cast some of you into prison, that ye may be tried; and ye shall have tribulation ten days. Be thou faithful unto death, and I will give thee the crown of life.
+Don't be afraid of the things which you are about to suffer. Behold, the devil is about to throw some of you into prison, that you may be tested; and you will have oppression for ten days. Be faithful to death, and I will give you the crown of life.

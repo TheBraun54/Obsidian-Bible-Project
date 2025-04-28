@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he was going forth into the way, there ran one to him, and kneeled to him, and asked him, Good Teacher, what shall I do that I may inherit eternal life?
+As he was going out into the way, one ran to him, knelt before him, and asked him, "Good Teacher, what shall I do that I may inherit eternal life?"

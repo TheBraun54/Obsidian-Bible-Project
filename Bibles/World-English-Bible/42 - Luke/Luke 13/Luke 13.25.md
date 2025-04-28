@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When once the master of the house is risen up, and hath shut to the door, and ye begin to stand without, and to knock at the door, saying, Lord, open to us; and he shall answer and say to you, I know you not whence ye are;
+When once the master of the house has risen up, and has shut the door, and you begin to stand outside, and to knock at the door, saying, 'Lord, Lord, open to us!' then he will answer and tell you, 'I don't know you or where you come from.'

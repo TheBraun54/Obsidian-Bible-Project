@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These words Jehovah spake unto all your assembly in the mount out of the midst of the fire, of the cloud, and of the thick darkness, with a great voice: and he added no more. And he wrote them upon two tables of stone, and gave them unto me.
+These words Yahweh spoke to all your assembly on the mountain out of the midst of the fire, of the cloud, and of the thick darkness, with a great voice: and he added no more. He wrote them on two tables of stone, and gave them to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if ye love them that love you, what reward have ye? do not even the publicans the same?
+For if you love those who love you, what reward do you have? Don't even the tax collectors do the same?

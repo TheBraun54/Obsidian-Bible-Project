@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Jehovah established the kingdom in his hand; and all Judah brought to Jehoshaphat tribute; and he had riches and honor in abundance.
+Therefore Yahweh established the kingdom in his hand; and all Judah brought to Jehoshaphat tribute; and he had riches and honor in abundance.

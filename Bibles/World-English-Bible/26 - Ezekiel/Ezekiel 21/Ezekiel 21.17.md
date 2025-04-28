@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also smite my hands together, and I will cause my wrath to rest: I, Jehovah, have spoken it.
+I will also strike my hands together, and I will cause my wrath to rest: I, Yahweh, have spoken it.

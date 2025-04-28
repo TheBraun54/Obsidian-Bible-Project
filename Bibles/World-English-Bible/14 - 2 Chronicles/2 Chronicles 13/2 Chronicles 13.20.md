@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither did Jeroboam recover strength again in the days of Abijah: and Jehovah smote him, and he died.
+Neither did Jeroboam recover strength again in the days of Abijah: and Yahweh struck him, and he died.

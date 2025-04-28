@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye adulteresses, know ye not that the friendship of the world is enmity with God? Whosoever therefore would be a friend of the world maketh himself an enemy of God.
+You adulterers and adulteresses, don't you know that friendship with the world is enmity with God? Whoever therefore wants to be a friend of the world makes himself an enemy of God.

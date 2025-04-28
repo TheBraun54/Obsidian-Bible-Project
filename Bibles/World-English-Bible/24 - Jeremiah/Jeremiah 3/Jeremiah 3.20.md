@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely as a wife treacherously departeth from her husband, so have ye dealt treacherously with me, O house of Israel, saith Jehovah.
+"Surely as a wife treacherously departs from her husband, so you have dealt treacherously with me, house of Israel," says Yahweh.

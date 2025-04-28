@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, if God so loved us, we also ought to love one another.
+Beloved, if God loved us in this way, we also ought to love one another.

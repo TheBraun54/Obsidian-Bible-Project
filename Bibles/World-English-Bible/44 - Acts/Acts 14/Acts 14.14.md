@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the apostles, Barnabas and Paul, heard of it, they rent their garments, and sprang forth among the multitude, crying out
+But when the apostles, Barnabas and Paul, heard of it, they tore their clothes, and sprang into the multitude, crying out,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is written in the book of Psalms, Let his habitation be made desolate, And let no man dwell therein: and, His office let another take. [
+For it is written in the book of Psalms, 'Let his habitation be made desolate. Let no one dwell therein;' and, 'Let another take his office.'

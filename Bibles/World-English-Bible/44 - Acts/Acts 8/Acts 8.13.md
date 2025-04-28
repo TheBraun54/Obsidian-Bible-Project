@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Simon also himself believed: and being baptized, he continued with Philip; and beholding signs and great miracles wrought, he was amazed.
+Simon himself also believed. Being baptized, he continued with Philip. Seeing signs and great miracles occurring, he was amazed.

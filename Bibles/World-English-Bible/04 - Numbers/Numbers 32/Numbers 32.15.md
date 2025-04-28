@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if ye turn away from after him, he will yet again leave them in the wilderness; and ye will destroy all this people.
+For if you turn away from after him, he will yet again leave them in the wilderness; and you will destroy all this people."

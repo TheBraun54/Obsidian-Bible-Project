@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-come, let us deal wisely with them, lest they multiply, and it come to pass, that, when there falleth out any war, they also join themselves unto our enemies, and fight against us, and get them up out of the land.
+Come, let us deal wisely with them, lest they multiply, and it happen that when any war breaks out, they also join themselves to our enemies, and fight against us, and escape out of the land."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my God put into my heart to gather together the nobles, and the rulers, and the people, that they might be reckoned by genealogy. And I found the book of the genealogy of them that came up at the first, and I found written therein:
+My God put into my heart to gather together the nobles, and the rulers, and the people, that they might be reckoned by genealogy. I found the book of the genealogy of those who came up at the first, and I found written therein:

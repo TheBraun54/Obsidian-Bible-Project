@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover when ye fast, be not, as the hypocrites, of a sad countenance: for they disfigure their faces, that they may be seen of men to fast. Verily I say unto you, They have received their reward.
+"Moreover when you fast, don't be like the hypocrites, with sad faces. For they disfigure their faces, that they may be seen by men to be fasting. Most certainly I tell you, they have received their reward.

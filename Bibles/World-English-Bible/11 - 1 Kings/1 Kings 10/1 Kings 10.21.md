@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all king Solomon's drinking vessels were of gold, and all the vessels of the house of the forest of Lebanon were of pure gold: none were of silver; it was nothing accounted of in the days of Solomon.
+All king Solomon's drinking vessels were of gold, and all the vessels of the house of the forest of Lebanon were of pure gold: none were of silver; it was nothing accounted of in the days of Solomon.

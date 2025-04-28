@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Woe is me! for I am undone; because I am a man of unclean lips, and I dwell in the midst of a people of unclean lips: for mine eyes have seen the King, Jehovah of hosts.
+Then I said, "Woe is me! For I am undone, because I am a man of unclean lips, and I dwell in the midst of a people of unclean lips: for my eyes have seen the King, Yahweh of Armies!"

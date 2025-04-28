@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The dead praise not Jehovah, Neither any that go down into silence;
+The dead don't praise Yah, neither any who go down into silence;

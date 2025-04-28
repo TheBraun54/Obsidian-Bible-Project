@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The meal-offering and the drink-offering are cut off from the house of Jehovah; the priests, Jehovah's ministers, mourn.
+The meal offering and the drink offering are cut off from Yahweh's house. The priests, Yahweh's ministers, mourn.

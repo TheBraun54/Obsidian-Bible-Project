@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Pharisees, when they saw it, said unto him, Behold, thy disciples do that which it is not lawful to do upon the sabbath.
+But the Pharisees, when they saw it, said to him, "Behold, your disciples do what is not lawful to do on the Sabbath."

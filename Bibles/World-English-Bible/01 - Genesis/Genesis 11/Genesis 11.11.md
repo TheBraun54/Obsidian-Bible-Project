@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Shem lived after he begat Arpachshad five hundred years, and begat sons and daughters.
+Shem lived five hundred years after he became the father of Arpachshad, and became the father of sons and daughters.

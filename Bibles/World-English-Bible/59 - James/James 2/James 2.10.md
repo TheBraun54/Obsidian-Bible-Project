@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever shall keep the whole law, and yet stumble in one [point], he is become guilty of all.
+For whoever keeps the whole law, and yet stumbles in one point, he has become guilty of all.

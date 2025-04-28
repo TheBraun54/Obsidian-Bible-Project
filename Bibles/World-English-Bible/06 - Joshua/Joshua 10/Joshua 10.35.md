@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they took it on that day, and smote it with the edge of the sword; and all the souls that were therein he utterly destroyed that day, according to all that he had done to Lachish.
+They took it on that day, and struck it with the edge of the sword. He utterly destroyed all the souls who were in it that day, according to all that he had done to Lachish.

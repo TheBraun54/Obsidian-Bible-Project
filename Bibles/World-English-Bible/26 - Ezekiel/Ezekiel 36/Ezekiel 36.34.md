@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the land that was desolate shall be tilled, whereas it was a desolation in the sight of all that passed by.
+The land that was desolate shall be tilled, whereas it was a desolation in the sight of all who passed by.

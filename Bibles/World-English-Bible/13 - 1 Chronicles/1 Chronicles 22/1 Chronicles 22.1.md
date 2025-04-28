@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David said, This is the house of Jehovah God, and this is the altar of burnt-offering for Israel.
+Then David said, "This is the house of Yahweh God, and this is the altar of burnt offering for Israel."

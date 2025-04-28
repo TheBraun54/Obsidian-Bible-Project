@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man's gift maketh room for him, And bringeth him before great men.
+A man's gift makes room for him, and brings him before great men.

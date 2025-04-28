@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their young ones become strong, they grow up in the open field; They go forth, and return not again.
+Their young ones become strong. They grow up in the open field. They go forth, and don't return again.

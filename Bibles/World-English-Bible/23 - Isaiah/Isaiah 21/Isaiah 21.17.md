@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the residue of the number of the archers, the mighty men of the children of Kedar, shall be few; for Jehovah, the God of Israel, hath spoken it.
+and the residue of the number of the archers, the mighty men of the children of Kedar, will be few; for Yahweh, the God of Israel, has spoken it."

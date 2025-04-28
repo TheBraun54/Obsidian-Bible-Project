@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I Jehovah am its keeper; I will water it every moment: lest any hurt it, I will keep it night and day.
+I, Yahweh, am its keeper. I will water it every moment. Lest anyone damage it, I will keep it night and day.

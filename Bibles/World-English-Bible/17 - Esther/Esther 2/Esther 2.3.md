@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let the king appoint officers in all the provinces of his kingdom, that they may gather together all the fair young virgins unto Shushan the palace, to the house of the women, unto the custody of Hegai the king's chamberlain, keeper of the women; and let their things for purification be given them;
+Let the king appoint officers in all the provinces of his kingdom, that they may gather together all the beautiful young virgins to the citadel of Susa, to the women's house, to the custody of Hegai the king's eunuch, keeper of the women. Let cosmetics be given them;

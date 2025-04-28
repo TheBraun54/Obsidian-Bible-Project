@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with him will I speak mouth to mouth, even manifestly, and not in dark speeches; and the form of Jehovah shall he behold: wherefore then were ye not afraid to speak against my servant, against Moses?
+With him I will speak mouth to mouth, even plainly, and not in riddles; and he shall see Yahweh's form. Why then were you not afraid to speak against my servant, against Moses?"

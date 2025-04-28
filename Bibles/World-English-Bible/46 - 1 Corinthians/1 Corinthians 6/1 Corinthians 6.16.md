@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or know ye not that he that is joined to a harlot is one body? for, The twain, saith he, shall become one flesh.
+Or don't you know that he who is joined to a prostitute is one body? For, "The two," says he, "will become one flesh."

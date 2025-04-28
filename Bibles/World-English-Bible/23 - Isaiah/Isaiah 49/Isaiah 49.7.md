@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, the Redeemer of Israel, [and] his Holy One, to him whom man despiseth, to him whom the nation abhorreth, to a servant of rulers: Kings shall see and arise; princes, and they shall worship; because of Jehovah that is faithful, [even] the Holy One of Israel, who hath chosen thee.
+Thus says Yahweh, the Redeemer of Israel, [and] his Holy One, to him whom man despises, to him whom the nation abhors, to a servant of rulers: "Kings shall see and arise; princes, and they shall worship; because of Yahweh who is faithful, [even] the Holy One of Israel, who has chosen you."

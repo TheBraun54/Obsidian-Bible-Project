@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had fasted forty days and forty nights, he afterward hungered.
+When he had fasted forty days and forty nights, he was hungry afterward.

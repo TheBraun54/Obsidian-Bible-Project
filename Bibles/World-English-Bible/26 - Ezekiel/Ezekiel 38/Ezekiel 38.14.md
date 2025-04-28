@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, son of man, prophesy, and say unto Gog, Thus saith the Lord Jehovah: In that day when my people Israel dwelleth securely, shalt thou not know it?
+Therefore, son of man, prophesy, and tell Gog, Thus says the Lord Yahweh: In that day when my people Israel dwells securely, shall you not know it?

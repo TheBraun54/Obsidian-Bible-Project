@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he be destroyed from his place, Then it shall deny him, [saying], I have not seen thee.
+If he is destroyed from his place, then it shall deny him, saying, 'I have not seen you.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine eyes shall see the king in his beauty: they shall behold a land that reacheth afar.
+Your eyes will see the king in his beauty. They will see a distant land.

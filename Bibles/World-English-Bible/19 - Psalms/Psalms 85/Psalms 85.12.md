@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, Jehovah will give that which is good; And our land shall yield its increase.
+Yes, Yahweh will give that which is good. Our land will yield its increase.

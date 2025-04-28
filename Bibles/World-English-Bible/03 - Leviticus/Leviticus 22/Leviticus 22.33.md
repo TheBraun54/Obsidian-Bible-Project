@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who brought you out of the land of Egypt, to be your God: I am Jehovah.
+who brought you out of the land of Egypt, to be your God. I am Yahweh."

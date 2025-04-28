@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Finally, [be] ye all likeminded, compassionate, loving as brethren, tenderhearted, humbleminded:
+Finally, be all like-minded, compassionate, loving as brothers, tenderhearted, courteous,

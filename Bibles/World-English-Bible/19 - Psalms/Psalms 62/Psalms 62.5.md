@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul, wait thou in silence for God only; For my expectation is from him.
+My soul, wait in silence for God alone, for my expectation is from him.

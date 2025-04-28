@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Putting away therefore all wickedness, and all guile, and hypocrisies, and envies, and all evil speakings,
+Putting away therefore all wickedness, all deceit, hypocrisies, envies, and all evil speaking,

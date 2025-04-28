@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take thou also unto thee wheat, and barley, and beans, and lentils, and millet, and spelt, and put them in one vessel, and make thee bread thereof; [according to] the number of the days that thou shalt lie upon thy side, even three hundred and ninety days, shalt thou eat thereof.
+Take for yourself also wheat, and barley, and beans, and lentils, and millet, and spelt, and put them in one vessel, and make bread of it; [according to] the number of the days that you shall lie on your side, even three hundred ninety days, you shall eat of it.

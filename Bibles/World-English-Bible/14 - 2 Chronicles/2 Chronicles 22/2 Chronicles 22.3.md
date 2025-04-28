@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He also walked in the ways of the house of Ahab; for his mother was his counsellor to do wickedly.
+He also walked in the ways of the house of Ahab; for his mother was his counselor to do wickedly.

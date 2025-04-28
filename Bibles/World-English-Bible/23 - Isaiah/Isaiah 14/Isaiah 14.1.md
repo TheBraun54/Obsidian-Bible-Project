@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will have compassion on Jacob, and will yet choose Israel, and set them in their own land: and the sojourner shall join himself with them, and they shall cleave to the house of Jacob.
+For Yahweh will have compassion on Jacob, and will yet choose Israel, and set them in their own land. The foreigner will join himself with them, and they will unite with the house of Jacob.

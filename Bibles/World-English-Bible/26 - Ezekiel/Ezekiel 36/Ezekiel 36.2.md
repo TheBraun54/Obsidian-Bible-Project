@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Because the enemy hath said against you, Aha! and, The ancient high places are ours in possession;
+Thus says the Lord Yahweh: Because the enemy has said against you, Aha! and, The ancient high places are ours in possession;

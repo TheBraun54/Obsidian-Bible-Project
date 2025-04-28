@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah; For it is good to sing praises unto our God; For it is pleasant, [and] praise is comely.
+Praise Yah, for it is good to sing praises to our God; for it is pleasant and fitting to praise him.

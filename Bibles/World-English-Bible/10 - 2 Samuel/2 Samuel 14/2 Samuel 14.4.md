@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the woman of Tekoa spake to the king, she fell on her face to the ground, and did obeisance, and said, Help, O king.
+When the woman of Tekoa spoke to the king, she fell on her face to the ground, and did obeisance, and said, "Help, O king!"

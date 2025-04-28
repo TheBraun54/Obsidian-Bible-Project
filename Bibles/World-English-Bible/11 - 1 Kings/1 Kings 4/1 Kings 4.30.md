@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon's wisdom excelled the wisdom of all the children of the east, and all the wisdom of Egypt.
+Solomon's wisdom excelled the wisdom of all the children of the east, and all the wisdom of Egypt.

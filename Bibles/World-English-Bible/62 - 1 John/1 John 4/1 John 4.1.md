@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, believe not every spirit, but prove the spirits, whether they are of God; because many false prophets are gone out into the world.
+Beloved, don't believe every spirit, but test the spirits, whether they are of God, because many false prophets have gone out into the world.

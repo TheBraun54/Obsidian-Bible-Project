@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take of the blood of the sin-offering, and put it upon the door-posts of the house, and upon the four corners of the ledge of the altar, and upon the posts of the gate of the inner court.
+The priest shall take of the blood of the sin offering, and put it on the door posts of the house, and on the four corners of the ledge of the altar, and on the posts of the gate of the inner court.

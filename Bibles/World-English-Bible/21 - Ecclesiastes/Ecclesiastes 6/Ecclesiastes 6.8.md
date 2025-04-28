@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what advantage hath the wise more than the fool? [or] what hath the poor man, that knoweth how to walk before the living?
+For what advantage has the wise more than the fool? What has the poor man, that knows how to walk before the living?

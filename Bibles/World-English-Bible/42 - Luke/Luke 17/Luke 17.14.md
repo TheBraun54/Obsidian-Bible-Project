@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he saw them, he said unto them, Go and show yourselves unto the priests. And it came to pass, as they went, they were cleansed.
+When he saw them, he said to them, "Go and show yourselves to the priests." It happened that as they went, they were cleansed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jesus therefore saw his mother, and the disciple standing by whom he loved, he saith unto his mother, Woman, behold thy son!
+Therefore when Jesus saw his mother, and the disciple whom he loved standing there, he said to his mother, "Woman, behold your son!"

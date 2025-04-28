@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the ox was wont to gore in time past, and it hath been testified to its owner, and he hath not kept it in, but it hath killed a man or a woman; the ox shall be stoned, and its owner also shall be put to death.
+But if the bull had a habit of goring in the past, and it has been testified to its owner, and he has not kept it in, but it has killed a man or a woman, the bull shall be stoned, and its owner shall also be put to death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they forsook Jehovah, the God of their fathers, who brought them out of the land of Egypt, and followed other gods, of the gods of the peoples that were round about them, and bowed themselves down unto them: and they provoked Jehovah to anger.
+and they forsook Yahweh, the God of their fathers, who brought them out of the land of Egypt, and followed other gods, of the gods of the peoples who were around them, and bowed themselves down to them: and they provoked Yahweh to anger.

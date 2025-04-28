@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, This man began to build, and was not able to finish.
+saying, 'This man began to build, and wasn't able to finish.'

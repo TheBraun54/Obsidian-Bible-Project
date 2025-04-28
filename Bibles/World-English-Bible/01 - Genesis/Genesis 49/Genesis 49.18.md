@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have waited for thy salvation, O Jehovah.
+I have waited for your salvation, Yahweh.

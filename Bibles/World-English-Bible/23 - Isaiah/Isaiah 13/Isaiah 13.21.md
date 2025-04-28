@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But wild beasts of the desert shall lie there; and their houses shall be full of doleful creatures; and ostriches shall dwell there, and wild goats shall dance there.
+But wild animals of the desert will lie there, and their houses will be full of jackals. Ostriches will dwell there, and wild goats will frolic there.

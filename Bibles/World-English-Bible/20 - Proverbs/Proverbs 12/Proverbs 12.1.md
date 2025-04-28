@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso loveth correction loveth knowledge; But he that hateth reproof is brutish.
+Whoever loves correction loves knowledge, but he who hates reproof is stupid.

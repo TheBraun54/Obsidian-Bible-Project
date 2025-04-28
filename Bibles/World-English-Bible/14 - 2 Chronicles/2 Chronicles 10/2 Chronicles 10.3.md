@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sent and called him; and Jeroboam and all Israel came, and they spake to Rehoboam, saying,
+They sent and called him; and Jeroboam and all Israel came, and they spoke to Rehoboam, saying,

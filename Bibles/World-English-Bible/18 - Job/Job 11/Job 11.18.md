@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt be secure, because there is hope; Yea, thou shalt search [about thee], and shalt take thy rest in safety.
+You shall be secure, because there is hope. Yes, you shall search, and shall take your rest in safety.

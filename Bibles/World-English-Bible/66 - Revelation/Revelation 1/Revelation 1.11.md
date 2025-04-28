@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, What thou seest, write in a book and send [it] to the seven churches: unto Ephesus, and unto Smyrna, and unto Pergamum, and unto Thyatira, and unto Sardis, and unto Philadelphia, and unto Laodicea.
+saying, "What you see, write in a book and send to the seven assemblies: to Ephesus, Smyrna, Pergamum, Thyatira, Sardis, Philadelphia, and to Laodicea."

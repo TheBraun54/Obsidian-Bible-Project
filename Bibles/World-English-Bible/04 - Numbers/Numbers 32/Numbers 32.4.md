@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the land which Jehovah smote before the congregation of Israel, is a land for cattle; and thy servants have cattle.
+the land which Yahweh struck before the congregation of Israel, is a land for livestock; and your servants have livestock."

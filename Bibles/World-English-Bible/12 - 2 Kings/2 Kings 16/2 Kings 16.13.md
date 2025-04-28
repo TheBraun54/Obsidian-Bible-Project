@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he burnt his burnt-offering and his meal-offering, and poured his drink-offering, and sprinkled the blood of his peace-offerings, upon the altar.
+He burnt his burnt offering and his meal offering, and poured his drink offering, and sprinkled the blood of his peace offerings, on the altar.

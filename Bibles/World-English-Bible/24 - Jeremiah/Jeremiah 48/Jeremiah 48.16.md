@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The calamity of Moab is near to come, and his affliction hasteth fast.
+The calamity of Moab is near to come, and his affliction hurries fast.

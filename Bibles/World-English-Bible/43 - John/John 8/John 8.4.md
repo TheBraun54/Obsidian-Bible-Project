@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they say unto him, Teacher, this woman hath been taken in adultery, in the very act.
+they told him, "Teacher, we found this woman in adultery, in the very act.

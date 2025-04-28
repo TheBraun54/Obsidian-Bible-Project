@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines came up yet again, and spread themselves in the valley of Rephaim.
+The Philistines came up yet again, and spread themselves in the valley of Rephaim.

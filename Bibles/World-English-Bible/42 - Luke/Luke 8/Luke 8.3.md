@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Joanna the wife of Chuzas Herod's steward, and Susanna, and many others, who ministered unto them of their substance.
+and Joanna, the wife of Chuzas, Herod's steward; Susanna; and many others; who served them from their possessions.

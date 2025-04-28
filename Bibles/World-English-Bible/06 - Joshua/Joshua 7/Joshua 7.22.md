@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua sent messengers, and they ran unto the tent; and, behold, it was hid in his tent, and the silver under it.
+So Joshua sent messengers, and they ran to the tent. Behold, it was hidden in his tent, with the silver under it.

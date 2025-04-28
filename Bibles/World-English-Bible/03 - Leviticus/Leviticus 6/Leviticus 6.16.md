@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that which is left thereof shall Aaron and his sons eat: it shall be eaten without leaven in a holy place; in the court of the tent of meeting they shall eat it.
+That which is left of it Aaron and his sons shall eat. It shall be eaten without yeast in a holy place. They shall eat it in the court of the Tent of Meeting

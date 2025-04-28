@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also regard not your stuff; for the good of all the land of Egypt is yours.
+Also, don't concern yourselves about your belongings, for the good of all of the land of Egypt is yours."

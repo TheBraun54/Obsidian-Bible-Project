@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Notwithstanding, thou mayest kill and eat flesh within all thy gates, after all the desire of thy soul, according to the blessing of Jehovah thy God which he hath given thee: the unclean and the clean may eat thereof, as of the gazelle, and as of the hart.
+Notwithstanding, you may kill and eat flesh within all your gates, after all the desire of your soul, according to the blessing of Yahweh your God which he has given you: the unclean and the clean may eat of it, as of the gazelle, and as of the hart.

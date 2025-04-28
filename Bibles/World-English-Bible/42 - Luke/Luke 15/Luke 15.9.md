@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she hath found it, she calleth together her friends and neighbors, saying, Rejoice with me, for I have found the piece which I had lost.
+When she has found it, she calls together her friends and neighbors, saying, 'Rejoice with me, for I have found the drachma which I had lost.'

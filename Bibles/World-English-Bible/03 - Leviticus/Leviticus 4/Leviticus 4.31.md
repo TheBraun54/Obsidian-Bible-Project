@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the fat thereof shall he take away, as the fat is taken away from off the sacrifice of peace-offerings; and the priest shall burn it upon the altar for a sweet savor unto Jehovah; and the priest shall make atonement for him, and he shall be forgiven.
+All its fat he shall take away, like the fat is taken away from off of the sacrifice of peace offerings; and the priest shall burn it on the altar for a pleasant aroma to Yahweh; and the priest shall make atonement for him, and he will be forgiven.

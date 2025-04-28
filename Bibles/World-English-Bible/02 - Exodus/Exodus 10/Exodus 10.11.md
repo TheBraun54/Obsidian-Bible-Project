@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not so: go now ye that are men, and serve Jehovah; for that is what ye desire. And they were driven out from Pharaoh's presence.
+Not so! Go now you who are men, and serve Yahweh; for that is what you desire!" They were driven out from Pharaoh's presence.

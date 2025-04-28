@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also every sickness, and every plague, which is not written in the book of this law, them will Jehovah bring upon thee, until thou be destroyed.
+Also every sickness, and every plague, which is not written in the book of this law, Yahweh will bring them on you, until you are destroyed.

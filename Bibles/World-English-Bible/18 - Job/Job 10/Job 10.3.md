@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it good unto thee that thou shouldest oppress, That thou shouldest despise the work of thy hands, And shine upon the counsel of the wicked?
+Is it good to you that you should oppress, that you should despise the work of your hands, and smile on the counsel of the wicked?

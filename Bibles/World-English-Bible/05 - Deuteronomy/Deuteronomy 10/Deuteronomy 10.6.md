@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(And the children of Israel journeyed from Beeroth Bene-jaakan to Moserah. There Aaron died, and there he was buried; and Eleazar his son ministered in the priest's office in his stead.
+(The children of Israel traveled from Beeroth Bene Jaakan to Moserah. There Aaron died, and there he was buried; and Eleazar his son ministered in the priest's office in his place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus was come into Peter's house, he saw his wife's mother lying sick of a fever.
+When Jesus came into Peter's house, he saw his wife's mother lying sick with a fever.

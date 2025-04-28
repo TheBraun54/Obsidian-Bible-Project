@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I tell you a mystery: We all shall not sleep, but we shall all be changed,
+Behold, I tell you a mystery. We will not all sleep, but we will all be changed,

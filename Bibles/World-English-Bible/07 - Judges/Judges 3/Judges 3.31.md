@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him was Shamgar the son of Anath, who smote of the Philistines six hundred men with an ox-goad: and he also saved Israel.
+After him was Shamgar the son of Anath, who struck of the Philistines six hundred men with an oxgoad: and he also saved Israel.

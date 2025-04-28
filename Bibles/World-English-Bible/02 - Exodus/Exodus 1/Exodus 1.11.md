@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore they did set over them taskmasters to afflict them with their burdens. And they built for Pharaoh store-cities, Pithom and Raamses.
+Therefore they set taskmasters over them to afflict them with their burdens. They built storage cities for Pharaoh: Pithom and Raamses.

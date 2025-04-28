@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They send forth their little ones like a flock, And their children dance.
+They send forth their little ones like a flock. Their children dance.

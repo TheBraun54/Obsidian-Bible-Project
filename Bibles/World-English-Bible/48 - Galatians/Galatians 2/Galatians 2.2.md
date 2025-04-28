@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I went up by revelation; and I laid before them the gospel which I preach among the Gentiles but privately before them who were of repute, lest by any means I should be running, or had run, in vain.
+I went up by revelation, and I laid before them the Good News which I preach among the Gentiles, but privately before those who were respected, for fear that I might be running, or had run, in vain.

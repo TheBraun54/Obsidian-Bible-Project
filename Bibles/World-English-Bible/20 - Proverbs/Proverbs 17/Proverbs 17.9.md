@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that covereth a transgression seeketh love; But he that harpeth on a matter separateth chief friends.
+He who covers an offense promotes love; but he who repeats a matter separates best friends.

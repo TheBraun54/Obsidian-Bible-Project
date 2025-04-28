@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for thee also, because of the blood of thy covenant I have set free thy prisoners from the pit wherein is no water.
+As for you also, because of the blood of your covenant, I have set free your prisoners from the pit in which is no water.

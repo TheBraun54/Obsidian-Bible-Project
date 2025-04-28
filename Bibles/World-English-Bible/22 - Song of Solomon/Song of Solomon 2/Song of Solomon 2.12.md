@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The flowers appear on the earth; The time of the singing [of birds] is come, And the voice of the turtle-dove is heard in our land;
+The flowers appear on the earth. The time of the singing has come, and the voice of the turtledove is heard in our land.

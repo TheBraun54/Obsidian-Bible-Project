@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had forty sons and thirty sons' sons, that rode on threescore and ten ass colts: and he judged Israel eight years.
+He had forty sons and thirty sons' sons, who rode on seventy donkey colts: and he judged Israel eight years.

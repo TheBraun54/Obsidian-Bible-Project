@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there are last who shall be first, and there are first who shall be last.
+Behold, there are some who are last who will be first, and there are some who are first who will be last."

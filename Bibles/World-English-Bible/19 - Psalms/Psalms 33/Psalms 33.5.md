@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He loveth righteousness and justice: The earth is full of the lovingkindness of Jehovah.
+He loves righteousness and justice. The earth is full of the loving kindness of Yahweh.

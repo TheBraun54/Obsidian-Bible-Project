@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ahitub begat Zadok, and Zadok begat Ahimaaz,
+and Ahitub became the father of Zadok, and Zadok became the father of Ahimaaz,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face toward the mountains of Israel, and prophesy unto them,
+Son of man, set your face toward the mountains of Israel, and prophesy to them,

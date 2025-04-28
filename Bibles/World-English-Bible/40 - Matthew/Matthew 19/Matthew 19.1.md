@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass when Jesus had finished these words, he departed from Galilee, and came into the borders of Judaea beyond the Jordan;
+It happened when Jesus had finished these words, he departed from Galilee, and came into the borders of Judea beyond the Jordan.

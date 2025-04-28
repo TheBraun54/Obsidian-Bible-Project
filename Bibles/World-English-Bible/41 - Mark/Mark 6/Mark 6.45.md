@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway he constrained his disciples to enter into the boat, and to go before [him] unto the other side to Bethsaida, while he himself sendeth the multitude away.
+Immediately he made his disciples get into the boat, and to go ahead to the other side, to Bethsaida, while he himself sent the multitude away.

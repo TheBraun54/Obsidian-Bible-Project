@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that came before me are thieves and robbers: but the sheep did not hear them.
+All who came before me are thieves and robbers, but the sheep didn't listen to them.

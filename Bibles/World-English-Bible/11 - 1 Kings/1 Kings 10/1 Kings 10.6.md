@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said to the king, It was a true report that I heard in mine own land of thine acts, and of thy wisdom.
+She said to the king, "It was a true report that I heard in my own land of your acts, and of your wisdom.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For our citizenship is in heaven; whence also we wait for a Saviour, the Lord Jesus Christ:
+For our citizenship is in heaven, from where we also wait for a Savior, the Lord Jesus Christ;

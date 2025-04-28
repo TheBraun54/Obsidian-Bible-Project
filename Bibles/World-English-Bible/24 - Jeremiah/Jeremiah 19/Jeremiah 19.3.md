@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, Hear ye the word of Jehovah, O kings of Judah, and inhabitants of Jerusalem: thus saith Jehovah of hosts, the God of Israel, Behold, I will bring evil upon this place, which whosoever heareth, his ears shall tingle.
+and say, Hear the word of Yahweh, kings of Judah, and inhabitants of Jerusalem: thus says Yahweh of Armies, the God of Israel, Behold, I will bring evil on this place, which whoever hears, his ears shall tingle.

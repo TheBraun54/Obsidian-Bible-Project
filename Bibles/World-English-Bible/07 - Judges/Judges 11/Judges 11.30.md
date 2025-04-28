@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jephthah vowed a vow unto Jehovah, and said, If thou wilt indeed deliver the children of Ammon into my hand,
+Jephthah vowed a vow to Yahweh, and said, "If you will indeed deliver the children of Ammon into my hand,

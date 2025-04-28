@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who will bring me into the fortified city? Who hath led me unto Edom?
+Who will bring me into the fortified city? Who has led me to Edom?

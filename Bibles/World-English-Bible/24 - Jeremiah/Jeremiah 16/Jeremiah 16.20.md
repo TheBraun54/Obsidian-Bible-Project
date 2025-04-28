@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall a man make unto himself gods, which yet are no gods?
+Shall a man make to himself gods, which yet are no gods?

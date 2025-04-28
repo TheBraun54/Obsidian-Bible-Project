@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit took me up, and brought me into the inner court; and, behold, the glory of Jehovah filled the house.
+The Spirit took me up, and brought me into the inner court; and behold, the glory of Yahweh filled the house.

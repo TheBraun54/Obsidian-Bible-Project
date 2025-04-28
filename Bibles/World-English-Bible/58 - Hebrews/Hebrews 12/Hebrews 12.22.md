@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye are come unto mount Zion, and unto the city of the living God, the heavenly Jerusalem, and to innumerable hosts of angels,
+But you have come to Mount Zion, and to the city of the living God, the heavenly Jerusalem, and to innumerable multitudes of angels,

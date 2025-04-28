@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These also did king David dedicate unto Jehovah, with the silver and gold that he dedicated of all the nations which he subdued;
+These also did king David dedicate to Yahweh, with the silver and gold that he dedicated of all the nations which he subdued;

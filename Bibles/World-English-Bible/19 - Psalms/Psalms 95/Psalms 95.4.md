@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In his hand are the deep places of the earth; The heights of the mountains are his also.
+In his hand are the deep places of the earth. The heights of the mountains are also his.

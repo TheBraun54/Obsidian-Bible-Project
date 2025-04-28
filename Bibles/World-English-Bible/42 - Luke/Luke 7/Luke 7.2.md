@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain centurion's servant, who was dear unto him, was sick and at the point of death.
+A certain centurion's servant, who was dear to him, was sick and at the point of death.

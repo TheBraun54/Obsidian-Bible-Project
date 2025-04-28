@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I would lead thee, [and] bring thee into my mother's house, Who would instruct me; I would cause thee to drink of spiced wine, Of the juice of my pomegranate.
+I would lead you, bringing you into my mother's house, who would instruct me. I would have you drink spiced wine, of the juice of my pomegranate.

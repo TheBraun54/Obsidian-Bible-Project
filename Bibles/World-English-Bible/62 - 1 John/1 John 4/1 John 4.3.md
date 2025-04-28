@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and every spirit that confesseth not Jesus is not of God: and this is the [spirit] of the antichrist, whereof ye have heard that it cometh; and now it is in the world already.
+and every spirit who doesn't confess that Jesus Christ has come in the flesh is not of God, and this is the spirit of the Antichrist, of whom you have heard that it comes. Now it is in the world already.

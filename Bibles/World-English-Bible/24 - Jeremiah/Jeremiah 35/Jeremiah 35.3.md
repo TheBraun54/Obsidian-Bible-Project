@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I took Jaazaniah the son of Jeremiah, the son of Habazziniah, and his brethren, and all his sons, and the whole house of the Rechabites;
+Then I took Jaazaniah the son of Jeremiah, the son of Habazziniah, and his brothers, and all his sons, and the whole house of the Rechabites;

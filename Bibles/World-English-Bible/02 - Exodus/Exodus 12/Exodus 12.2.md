@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This month shall be unto you the beginning of months: it shall be the first month of the year to you.
+"This month shall be to you the beginning of months. It shall be the first month of the year to you.

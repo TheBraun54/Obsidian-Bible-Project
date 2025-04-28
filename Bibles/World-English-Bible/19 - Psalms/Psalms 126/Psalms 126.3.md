@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath done great things for us, [Whereof] we are glad.
+Yahweh has done great things for us, and we are glad.

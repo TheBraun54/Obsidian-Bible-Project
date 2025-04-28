@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the end of every seven years thou shalt make a release.
+At the end of every seven years you shall make a release.

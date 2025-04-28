@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They reward me evil for good, [To] the bereaving of my soul.
+They reward me evil for good, to the bereaving of my soul.

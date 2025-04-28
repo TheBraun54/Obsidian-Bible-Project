@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fool's mouth is his destruction, And his lips are the snare of his soul.
+A fool's mouth is his destruction, and his lips are a snare to his soul.

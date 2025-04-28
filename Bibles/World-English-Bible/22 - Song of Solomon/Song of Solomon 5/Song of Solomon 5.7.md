@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The watchmen that go about the city found me, They smote me, they wounded me; The keepers of the walls took away my mantle from me.
+The watchmen who go about the city found me. They beat me. They bruised me. The keepers of the walls took my cloak away from me.

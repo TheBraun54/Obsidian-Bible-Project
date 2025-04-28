@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not round the corners of your heads, neither shalt thou mar the corners of thy beard.
+"'You shall not cut the hair on the sides of your heads, neither shall you clip off the edge of your beard.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the inheritance is of the law, it is no more of promise: but God hath granted it to Abraham by promise.
+For if the inheritance is of the law, it is no more of promise; but God has granted it to Abraham by promise.

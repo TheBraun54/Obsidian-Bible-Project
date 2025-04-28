@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the mighty man, and the man of war; the judge, and the prophet, and the diviner, and the elder;
+the mighty man, the man of war, the judge, the prophet, the diviner, the elder,

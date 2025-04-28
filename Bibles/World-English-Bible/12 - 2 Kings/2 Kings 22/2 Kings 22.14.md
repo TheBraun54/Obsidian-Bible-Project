@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Hilkiah the priest, and Ahikam, and Achbor, and Shaphan, and Asaiah, went unto Huldah the prophetess, the wife of Shallum the son of Tikvah, the son of Harhas, keeper of the wardrobe (now she dwelt in Jerusalem in the second quarter); and they communed with her.
+So Hilkiah the priest, and Ahikam, and Achbor, and Shaphan, and Asaiah, went to Huldah the prophetess, the wife of Shallum the son of Tikvah, the son of Harhas, keeper of the wardrobe (now she lived in Jerusalem in the second quarter); and they talked with her.

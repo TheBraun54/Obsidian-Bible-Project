@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of the garrison answered Jonathan and his armorbearer, and said, Come up to us, and we will show you a thing. And Jonathan said unto his armorbearer, Come up after me; for Jehovah hath delivered them into the hand of Israel.
+The men of the garrison answered Jonathan and his armor bearer, and said, "Come up to us, and we will show you something!" Jonathan said to his armor bearer, "Come up after me; for Yahweh has delivered them into the hand of Israel."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, and let us go up by night, and let us destroy her palaces.
+Arise, and let us go up by night, and let us destroy her palaces."

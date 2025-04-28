@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Paul, as his custom was, went in unto them, and for three sabbath days reasoned with them from the Scriptures,
+Paul, as was his custom, went in to them, and for three Sabbath days reasoned with them from the Scriptures,

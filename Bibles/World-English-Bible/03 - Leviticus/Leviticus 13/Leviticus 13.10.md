@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look; and, behold, if there be a white rising in the skin, and it have turned the hair white, and there be quick raw flesh in the rising,
+and the priest shall examine him. Behold, if there is a white rising in the skin, and it has turned the hair white, and there is raw flesh in the rising,

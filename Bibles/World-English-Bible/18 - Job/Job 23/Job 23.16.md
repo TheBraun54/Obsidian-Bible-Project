@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God hath made my heart faint, And the Almighty hath terrified me;
+For God has made my heart faint. The Almighty has terrified me.

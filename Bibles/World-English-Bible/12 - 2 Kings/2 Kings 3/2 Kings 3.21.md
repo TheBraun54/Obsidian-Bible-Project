@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when all the Moabites heard that the kings were come up to fight against them, they gathered themselves together, all that were able to put on armor, and upward, and stood on the border.
+Now when all the Moabites heard that the kings had come up to fight against them, they gathered themselves together, all who were able to put on armor, and upward, and stood on the border.

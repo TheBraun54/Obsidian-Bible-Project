@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they set up over his head his accusation written, THIS IS JESUS THE KING OF THE JEWS.
+They set up over his head the accusation against him written, "THIS IS JESUS, THE KING OF THE JEWS."

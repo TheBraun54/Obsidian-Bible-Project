@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Write therefore the things which thou sawest, and the things which are, and the things which shall come to pass hereafter;
+Write therefore the things which you have seen, and the things which are, and the things which will happen hereafter;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day, saith Jehovah of hosts, will I take thee, O Zerubbabel, my servant, the son of Shealtiel, saith Jehovah, and will make thee as a signet; for I have chosen thee, saith Jehovah of hosts.
+In that day, says Yahweh of Armies, will I take you, Zerubbabel, my servant, the son of Shealtiel,' says Yahweh, 'and will make you as a signet, for I have chosen you,' says Yahweh of Armies."

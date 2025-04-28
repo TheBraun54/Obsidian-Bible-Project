@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the sons of Eli were base men; they knew not Jehovah.
+Now the sons of Eli were base men; they didn't know Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the morning, when the wine was gone out of Nabal, that his wife told him these things, and his heart died within him, and he became as a stone.
+It happened in the morning, when the wine was gone out of Nabal, that his wife told him these things, and his heart died within him, and he became as a stone.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy lovingkindness is before mine eyes; And I have walked in thy truth.
+For your loving kindness is before my eyes. I have walked in your truth.

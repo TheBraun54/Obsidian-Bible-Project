@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it were better for them not to have known the way of righteousness, than, after knowing it, to turn back from the holy commandment delivered unto them.
+For it would be better for them not to have known the way of righteousness, than, after knowing it, to turn back from the holy commandment delivered to them.

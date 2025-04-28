@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there shall in no wise enter into it anything unclean, or he that maketh an abomination and a lie: but only they that are written in the Lamb's book of life.
+There will in no way enter into it anything profane, or one who causes an abomination or a lie, but only those who are written in the Lamb's book of life.

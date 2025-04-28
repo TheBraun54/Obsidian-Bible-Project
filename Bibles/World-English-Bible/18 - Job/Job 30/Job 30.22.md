@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou liftest me up to the wind, thou causest me to ride [upon it] ; And thou dissolvest me in the storm.
+You lift me up to the wind, and drive me with it. You dissolve me in the storm.

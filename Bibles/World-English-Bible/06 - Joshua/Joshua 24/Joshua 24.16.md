@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people answered and said, Far be it from us that we should forsake Jehovah, to serve other gods;
+The people answered, "Far be it from us that we should forsake Yahweh, to serve other gods;

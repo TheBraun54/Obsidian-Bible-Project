@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go, gather together all the Jews that are present in Shushan, and fast ye for me, and neither eat nor drink three days, night or day: I also and my maidens will fast in like manner; and so will I go in unto the king, which is not according to the law: and if I perish, I perish.
+"Go, gather together all the Jews who are present in Shushan, and fast for me, and neither eat nor drink three days, night or day. I and my maidens will also fast the same way. Then I will go in to the king, which is against the law; and if I perish, I perish."

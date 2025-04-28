@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All thy rulers fled away together, they were bound by the archers; all that were found of thee were bound together; they fled afar off.
+All your rulers fled away together. They were bound by the archers. All who were found by you were bound together. They fled far away.

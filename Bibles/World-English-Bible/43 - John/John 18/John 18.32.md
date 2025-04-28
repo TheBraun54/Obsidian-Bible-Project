@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the word of Jesus might be fulfilled, which he spake, signifying by what manner of death he should die.
+that the word of Jesus might be fulfilled, which he spoke, signifying by what kind of death he should die.

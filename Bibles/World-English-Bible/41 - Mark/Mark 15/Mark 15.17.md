@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they clothe him with purple, and platting a crown of thorns, they put it on him;
+They clothed him with purple, and weaving a crown of thorns, they put it on him.

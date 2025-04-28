@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] a ring of gold in a swine's snout, [So is] a fair woman that is without discretion.
+Like a gold ring in a pig's snout, is a beautiful woman who lacks discretion.

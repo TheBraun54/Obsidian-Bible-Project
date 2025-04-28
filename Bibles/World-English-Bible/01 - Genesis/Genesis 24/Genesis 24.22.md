@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as the camels had done drinking, that the man took a golden ring of half a shekel weight, and two bracelets for her hands of ten shekels weight of gold,
+It happened, as the camels had done drinking, that the man took a golden ring of half a shekel weight, and two bracelets for her hands of ten shekels weight of gold,

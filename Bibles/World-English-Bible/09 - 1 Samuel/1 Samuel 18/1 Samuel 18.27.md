@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and David arose and went, he and his men, and slew of the Philistines two hundred men; and David brought their foreskins, and they gave them in full number to the king, that he might be the king's son-in-law. And Saul gave him Michal his daughter to wife.
+and David arose and went, he and his men, and killed of the Philistines two hundred men; and David brought their foreskins, and they gave them in full number to the king, that he might be the king's son-in-law. Saul gave him Michal his daughter as wife.

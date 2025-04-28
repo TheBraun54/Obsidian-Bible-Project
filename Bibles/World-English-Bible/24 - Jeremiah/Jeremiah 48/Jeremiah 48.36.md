@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore my heart soundeth for Moab like pipes, and my heart soundeth like pipes for the men of Kir-heres: therefore the abundance that he hath gotten is perished.
+Therefore my heart sounds for Moab like pipes, and my heart sounds like pipes for the men of Kir Heres: therefore the abundance that he has gotten is perished.

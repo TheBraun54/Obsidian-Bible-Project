@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David came to Saul, and stood before him: and he loved him greatly; and he became his armorbearer.
+David came to Saul, and stood before him. He loved him greatly; and he became his armor bearer.

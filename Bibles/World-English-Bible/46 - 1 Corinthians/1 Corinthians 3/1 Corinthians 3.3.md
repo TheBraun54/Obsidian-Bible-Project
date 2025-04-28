@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for ye are yet carnal: for whereas there is among you jealousy and strife, are ye not carnal, and do ye not walk after the manner of men?
+for you are still fleshly. For insofar as there is jealousy, strife, and factions among you, aren't you fleshly, and don't you walk in the ways of men?

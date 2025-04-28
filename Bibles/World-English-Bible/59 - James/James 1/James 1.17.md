@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every good gift and every perfect gift is from above, coming down from the Father of lights, with whom can be no variation, neither shadow that is cast by turning.
+Every good gift and every perfect gift is from above, coming down from the Father of lights, with whom can be no variation, nor turning shadow.

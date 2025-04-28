@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proverbs of Solomon. A wise son maketh a glad father; But a foolish son is the heaviness of his mother.
+The proverbs of Solomon. A wise son makes a glad father; but a foolish son brings grief to his mother.

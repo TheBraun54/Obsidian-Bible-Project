@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Manasseh shed innocent blood very much, till he had filled Jerusalem from one end to another; besides his sin wherewith he made Judah to sin, in doing that which was evil in the sight of Jehovah.
+Moreover Manasseh shed innocent blood very much, until he had filled Jerusalem from one end to another; besides his sin with which he made Judah to sin, in doing that which was evil in the sight of Yahweh.

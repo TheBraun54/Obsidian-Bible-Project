@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall take away the ashes from the altar, and spread a purple cloth thereon:
+"They shall take away the ashes from the altar, and spread a purple cloth on it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jahaz, and Kedemoth, and Mephaath,
+Jahaz, Kedemoth, Mephaath,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came Jeremiah from Topheth, whither Jehovah had sent him to prophesy; and he stood in the court of Jehovah's house, and said to all the people:
+Then came Jeremiah from Topheth, where Yahweh had sent him to prophesy; and he stood in the court of Yahweh's house, and said to all the people:

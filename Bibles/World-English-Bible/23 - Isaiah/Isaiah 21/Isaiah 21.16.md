@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus hath the Lord said unto me, Within a year, according to the years of a hireling, all the glory of Kedar shall fail;
+For the Lord said to me, "Within a year, as a worker bound by contract would count it, all the glory of Kedar will fail,

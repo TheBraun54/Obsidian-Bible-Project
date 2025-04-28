@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, if it make thee answer of peace, and open unto thee, then it shall be, that all the people that are found therein shall become tributary unto thee, and shall serve thee.
+It shall be, if it makes you answer of peace, and opens to you, then it shall be, that all the people who are found therein shall become tributary to you, and shall serve you.

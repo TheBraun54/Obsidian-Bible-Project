@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Ammon came out, and put the battle in array at the gate of the city: and the kings that were come were by themselves in the field.
+The children of Ammon came out, and put the battle in array at the gate of the city: and the kings who had come were by themselves in the field.

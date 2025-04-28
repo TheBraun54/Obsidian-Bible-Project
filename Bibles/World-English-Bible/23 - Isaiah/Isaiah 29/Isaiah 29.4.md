@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt be brought down, and shalt speak out of the ground, and thy speech shall be low out of the dust; and thy voice shall be as of one that hath a familiar spirit, out of the ground, and thy speech shall whisper out of the dust.
+You will be brought down, and will speak out of the ground. Your speech will mumble out of the dust. Your voice will be as of one who has a familiar spirit, out of the ground, and your speech will whisper out of the dust.

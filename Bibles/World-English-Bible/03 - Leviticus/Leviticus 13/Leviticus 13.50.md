@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall look upon the plague, and shut up [that which hath] the plague seven days:
+The priest shall examine the plague, and isolate the plague seven days.

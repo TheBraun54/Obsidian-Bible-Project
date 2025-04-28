@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The cup of blessing which we bless, is it not a communion of the blood of Christ? The bread which we break, is it not a communion of the body of Christ?
+The cup of blessing which we bless, isn't it a sharing of the blood of Christ? The bread which we break, isn't it a sharing of the body of Christ?

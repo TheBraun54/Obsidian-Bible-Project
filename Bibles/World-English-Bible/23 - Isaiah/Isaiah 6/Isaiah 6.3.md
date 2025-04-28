@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one cried unto another, and said, Holy, holy, holy, is Jehovah of hosts: the whole earth is full of his glory.
+One called to another, and said, "Holy, holy, holy, is Yahweh of Armies! The whole earth is full of his glory!"

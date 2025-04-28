@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel said, Take Micaiah, and carry him back unto Amon the governor of the city, and to Joash the king's son;
+The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city, and to Joash the king's son.

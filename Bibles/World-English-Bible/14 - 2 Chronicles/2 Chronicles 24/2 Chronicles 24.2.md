@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joash did that which was right in the eyes of Jehovah all the days of Jehoiada the priest.
+Joash did that which was right in the eyes of Yahweh all the days of Jehoiada the priest.

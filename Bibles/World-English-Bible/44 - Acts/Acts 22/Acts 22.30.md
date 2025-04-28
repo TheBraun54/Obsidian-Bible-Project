@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But on the morrow, desiring to know the certainty wherefore he was accused of the Jews, he loosed him, and commanded the chief priests and all the council to come together, and brought Paul down and set him before them.
+But on the next day, desiring to know the truth about why he was accused by the Jews, he freed him from the bonds, and commanded the chief priests and all the council to come together, and brought Paul down and set him before them.

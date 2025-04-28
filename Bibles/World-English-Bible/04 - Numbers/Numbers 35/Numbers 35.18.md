@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if he smote him with a weapon of wood in the hand, whereby a man may die, and he died, he is a murderer: the murderer shall surely be put to death.
+Or if he struck him with a weapon of wood in the hand, by which a man may die, and he died, he is a murderer: the murderer shall surely be put to death.

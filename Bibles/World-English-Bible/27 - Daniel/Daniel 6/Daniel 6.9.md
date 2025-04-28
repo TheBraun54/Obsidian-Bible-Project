@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore king Darius signed the writing and the interdict.
+Therefore king Darius signed the writing and the decree.

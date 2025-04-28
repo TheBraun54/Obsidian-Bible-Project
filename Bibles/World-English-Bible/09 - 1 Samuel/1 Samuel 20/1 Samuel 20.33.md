@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul cast his spear at him to smite him; whereby Jonathan knew that it was determined of his father to put David to death.
+Saul cast his spear at him to strike him. By this Jonathan knew that his father was determined to put David to death.

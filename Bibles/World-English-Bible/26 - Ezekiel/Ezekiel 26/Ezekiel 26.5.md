@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She shall be a place for the spreading of nets in the midst of the sea; for I have spoken it, saith the Lord Jehovah; and she shall become a spoil to the nations.
+She shall be a place for the spreading of nets in the midst of the sea; for I have spoken it, says the Lord Yahweh; and she shall become a spoil to the nations.

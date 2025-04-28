@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: Refrain thy voice from weeping, and thine eyes from tears; for thy work shall be rewarded, saith Jehovah; and they shall come again from the land of the enemy.
+Thus says Yahweh: Refrain your voice from weeping, and your eyes from tears; for your work shall be rewarded, says Yahweh; and they shall come again from the land of the enemy.

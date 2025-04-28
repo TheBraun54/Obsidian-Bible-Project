@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And pray ye that it be not in the winter.
+Pray that your flight won't be in the winter.

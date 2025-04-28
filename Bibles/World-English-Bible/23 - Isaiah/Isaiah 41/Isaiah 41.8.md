@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, Israel, my servant, Jacob whom I have chosen, the seed of Abraham my friend,
+"But you, Israel, my servant, Jacob whom I have chosen, the seed of Abraham my friend,

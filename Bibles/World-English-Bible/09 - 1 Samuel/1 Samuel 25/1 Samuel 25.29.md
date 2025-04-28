@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And though men be risen up to pursue thee, and to seek thy soul, yet the soul of my lord shall be bound in the bundle of life with Jehovah thy God; and the souls of thine enemies, them shall he sling out, as from the hollow of a sling.
+Though men may rise up to pursue you, and to seek your soul, yet the soul of my lord shall be bound in the bundle of life with Yahweh your God. He will sling out the souls of your enemies, as from the hollow of a sling.

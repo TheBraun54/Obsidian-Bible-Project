@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How thy garments are warm, When the earth is still by reason of the south [wind] ?
+You whose clothing is warm, when the earth is still by reason of the south wind?

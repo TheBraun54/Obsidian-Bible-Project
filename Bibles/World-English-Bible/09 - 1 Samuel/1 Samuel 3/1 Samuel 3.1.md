@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the child Samuel ministered unto Jehovah before Eli. And the word of Jehovah was precious in those days; there was no frequent vision.
+The child Samuel ministered to Yahweh before Eli. The word of Yahweh was precious in those days; there was no frequent vision.

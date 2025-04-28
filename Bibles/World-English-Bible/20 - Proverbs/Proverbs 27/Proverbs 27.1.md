@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Boast not thyself of to-morrow; For thou knowest not what a day may bring forth.
+Don't boast about tomorrow; for you don't know what a day may bring forth.

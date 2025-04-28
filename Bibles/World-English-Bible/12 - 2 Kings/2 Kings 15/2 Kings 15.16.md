@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Menahem smote Tiphsah, and all that were therein, and the borders thereof, from Tirzah: because they opened not to him, therefore he smote it; and all the women therein that were with child he ripped up.
+Then Menahem struck Tiphsah, and all who were therein, and its borders, from Tirzah: because they didn't open to him, therefore he struck it; and all the women therein who were with child he ripped up.

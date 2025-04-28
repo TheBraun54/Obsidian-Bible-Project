@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hiram king of Tyre sent messengers to David, and cedar-trees, and carpenters, and masons; and they built David a house.
+Hiram king of Tyre sent messengers to David, and cedar trees, and carpenters, and masons; and they built David a house.

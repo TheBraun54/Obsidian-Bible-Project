@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Absalom in his lifetime had taken and reared up for himself the pillar, which is in the king's dale; for he said, I have no son to keep my name in remembrance: and he called the pillar after his own name; and it is called Absalom's monument, unto this day.
+Now Absalom in his lifetime had taken and reared up for himself the pillar, which is in the king's dale; for he said, "I have no son to keep my name in memory." He called the pillar after his own name; and it is called Absalom's monument, to this day.

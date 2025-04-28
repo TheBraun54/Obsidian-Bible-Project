@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Eli heard the noise of the crying, he said, What meaneth the noise of this tumult? And the man hasted, and came and told Eli.
+When Eli heard the noise of the crying, he said, "What does the noise of this tumult mean?" The man hurried, and came and told Eli.

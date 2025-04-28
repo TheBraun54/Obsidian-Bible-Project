@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who rejoice to do evil, And delight in the perverseness of evil;
+who rejoice to do evil, and delight in the perverseness of evil;

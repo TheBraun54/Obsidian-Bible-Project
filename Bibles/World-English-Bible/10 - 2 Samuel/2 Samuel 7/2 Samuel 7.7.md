@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In all places wherein I have walked with all the children of Israel, spake I a word with any of the tribes of Israel, whom I commanded to be shepherd of my people Israel, saying, Why have ye not built me a house of cedar?
+In all places in which I have walked with all the children of Israel, did I say a word to any of the tribes of Israel, whom I commanded to be shepherd of my people Israel, saying, 'Why have you not built me a house of cedar?'"'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hath performed his word that he spake; for I am risen up in the room of David my father, and sit on the throne of Israel, as Jehovah promised, and have built the house for the name of Jehovah, the God of Israel.
+"Yahweh has performed his word that he spoke; for I have risen up in the place of David my father, and sit on the throne of Israel, as Yahweh promised, and have built the house for the name of Yahweh, the God of Israel.

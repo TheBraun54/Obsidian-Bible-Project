@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the flesh-hooks, and the basins, and the cups, of pure gold; and for the golden bowls by weight for every bowl; and for the silver bowls by weight for every bowl;
+and the forks, and the basins, and the cups, of pure gold; and for the golden bowls by weight for every bowl; and for the silver bowls by weight for every bowl;

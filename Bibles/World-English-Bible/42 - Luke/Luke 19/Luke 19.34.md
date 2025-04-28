@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, The Lord hath need of him.
+They said, "The Lord needs it."

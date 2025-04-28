@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] a roaring lion, and a ranging bear, [So is] a wicked ruler over a poor people.
+As a roaring lion or a charging bear, so is a wicked ruler over helpless people.

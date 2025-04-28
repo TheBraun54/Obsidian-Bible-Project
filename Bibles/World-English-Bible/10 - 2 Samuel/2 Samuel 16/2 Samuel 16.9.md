@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Abishai the son of Zeruiah unto the king, Why should this dead dog curse my lord the king? let me go over, I pray thee, and take off his head.
+Then Abishai the son of Zeruiah said to the king, "Why should this dead dog curse my lord the king? Please let me go over and take off his head."

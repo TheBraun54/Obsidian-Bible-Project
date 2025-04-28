@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said, Behold, the people of the land are now many, and ye make them rest from their burdens.
+Pharaoh said, "Behold, the people of the land are now many, and you make them rest from their burdens."

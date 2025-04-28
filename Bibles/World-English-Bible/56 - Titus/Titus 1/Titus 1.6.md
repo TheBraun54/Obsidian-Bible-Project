@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if any man is blameless, the husband of one wife, having children that believe, who are not accused of riot or unruly.
+if anyone is blameless, the husband of one wife, having children who believe, who are not accused of loose or unruly behavior.

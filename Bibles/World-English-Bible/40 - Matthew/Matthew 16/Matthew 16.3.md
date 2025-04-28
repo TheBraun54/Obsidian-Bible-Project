@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the morning, [It will be] foul weather to-day: for the heaven is red and lowering. Ye know how to discern the face of the heaven; but ye cannot [discern] the signs of the times.
+In the morning, 'It will be foul weather today, for the sky is red and threatening.' Hypocrites! You know how to discern the appearance of the sky, but you can't discern the signs of the times!

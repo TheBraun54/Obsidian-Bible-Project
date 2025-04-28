@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the sons of Esau, and these are their chiefs: the same is Edom.
+These are the sons of Esau (that is, Edom), and these are their chiefs.

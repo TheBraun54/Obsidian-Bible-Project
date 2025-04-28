@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is [as] the waters of Noah unto me; for as I have sworn that the waters of Noah shall no more go over the earth, so have I sworn that I will not be wroth with thee, nor rebuke thee.
+"For this is like the waters of Noah to me; for as I have sworn that the waters of Noah shall no more go over the earth, so have I sworn that I will not be angry with you, nor rebuke you.

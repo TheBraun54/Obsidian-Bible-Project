@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that toucheth the flesh of him that hath the issue shall wash his clothes, and bathe himself in water, and be unclean until the even.
+"'He who touches the body of him who has the discharge shall wash his clothes, and bathe himself in water, and be unclean until the evening.

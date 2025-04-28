@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and two turtle-doves, or two young pigeons, such as he is able to get; and the one shall be a sin-offering, and the other a burnt-offering.
+and two turtledoves, or two young pigeons, such as he is able to afford; and the one shall be a sin offering, and the other a burnt offering.

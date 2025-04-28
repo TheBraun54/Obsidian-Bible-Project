@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when thou hearest the sound of marching in the tops of the mulberry-trees, that then thou shalt bestir thyself; for then is Jehovah gone out before thee to smite the host of the Philistines.
+It shall be, when you hear the sound of marching in the tops of the mulberry trees, that then you shall stir yourself up; for then Yahweh has gone out before you to strike the army of the Philistines."

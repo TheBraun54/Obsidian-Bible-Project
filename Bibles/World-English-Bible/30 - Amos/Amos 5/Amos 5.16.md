@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah, the God of hosts, the Lord: Wailing shall be in all the broad ways; and they shall say in all the streets, Alas! Alas! and they shall call the husbandman to mourning, and such as are skilful in lamentation to wailing.
+Therefore thus says Yahweh, the God of Armies, the Lord: "Wailing will be in all the broad ways; and they will say in all the streets, 'Alas! Alas!' and they will call the farmer to mourning, and those who are skillful in lamentation to wailing.

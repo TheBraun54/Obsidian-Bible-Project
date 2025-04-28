@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the Pharisees heard it, they said, This man doth not cast out demons, but by Beelzebub the prince of the demons.
+But when the Pharisees heard it, they said, "This man does not cast out demons, except by Beelzebul, the prince of the demons."

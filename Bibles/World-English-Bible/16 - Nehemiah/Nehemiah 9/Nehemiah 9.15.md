@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and gavest them bread from heaven for their hunger, and broughtest forth water for them out of the rock for their thirst, and commandedst them that they should go in to possess the land which thou hadst sworn to give them.
+and gave them bread from the sky for their hunger, and brought forth water for them out of the rock for their thirst, and commanded them that they should go in to possess the land which you had sworn to give them.

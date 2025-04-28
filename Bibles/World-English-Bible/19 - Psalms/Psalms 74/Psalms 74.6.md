@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now all the carved work thereof They break down with hatchet and hammers.
+Now they break all its carved work down with hatchet and hammers.

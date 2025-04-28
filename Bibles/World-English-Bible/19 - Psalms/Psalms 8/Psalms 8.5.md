@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast made him but little lower than God, And crownest him with glory and honor.
+For you have made him a little lower than God, and crowned him with glory and honor.

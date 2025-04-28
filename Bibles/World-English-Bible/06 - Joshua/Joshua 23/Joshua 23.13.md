@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-know for a certainty that Jehovah your God will no more drive these nations from out of your sight; but they shall be a snare and a trap unto you, and a scourge in your sides, and thorns in your eyes, until ye perish from off this good land which Jehovah your God hath given you.
+know for a certainty that Yahweh your God will no longer drive these nations from out of your sight; but they shall be a snare and a trap to you, a scourge in your sides, and thorns in your eyes, until you perish from off this good land which Yahweh your God has given you.

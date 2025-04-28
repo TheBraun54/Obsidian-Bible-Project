@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt eat it before Jehovah thy God year by year in the place which Jehovah shall choose, thou and thy household.
+You shall eat it before Yahweh your God year by year in the place which Yahweh shall choose, you and your household.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that ye study to be quiet, and to do your own business, and to work with your hands, even as we charged you;
+and that you make it your ambition to lead a quiet life, and to do your own business, and to work with your own hands, even as we instructed you;

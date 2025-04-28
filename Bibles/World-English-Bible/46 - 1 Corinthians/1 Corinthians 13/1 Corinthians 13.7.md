@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-beareth all things, believeth all things, hopeth all things, endureth all things.
+bears all things, believes all things, hopes all things, endures all things.

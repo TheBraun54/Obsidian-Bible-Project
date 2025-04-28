@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are there yet treasures of wickedness in the house of the wicked, and a scant measure that is abominable?
+Are there yet treasures of wickedness in the house of the wicked, and a short ephah that is accursed?

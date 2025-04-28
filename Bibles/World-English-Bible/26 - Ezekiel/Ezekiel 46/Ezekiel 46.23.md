@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was a wall round about in them, round about the four, and boiling-places were made under the walls round about.
+There was a wall around in them, around the four, and boiling places were made under the walls all around.

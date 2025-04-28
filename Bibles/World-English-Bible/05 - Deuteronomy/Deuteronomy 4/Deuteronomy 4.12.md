@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto you out of the midst of the fire: ye heard the voice of words, but ye saw no form; only [ye heard] a voice.
+Yahweh spoke to you out of the midst of the fire: you heard the voice of words, but you saw no form; only [you heard] a voice.

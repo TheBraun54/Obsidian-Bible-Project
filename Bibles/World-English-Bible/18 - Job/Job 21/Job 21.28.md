@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye say, Where is the house of the prince? And where is the tent wherein the wicked dwelt?
+For you say, 'Where is the house of the prince? Where is the tent in which the wicked lived?'

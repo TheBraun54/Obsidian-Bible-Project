@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I know such a man (whether in the body, or apart from the body, I know not; God knoweth),
+I know such a man (whether in the body, or outside of the body, I don't know; God knows),

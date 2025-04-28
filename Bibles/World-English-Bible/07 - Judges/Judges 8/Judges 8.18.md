@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto Zebah and Zalmunna, What manner of men were they whom ye slew at Tabor? And they answered, As thou art, so were they; each one resembled the children of a king.
+Then he said to Zebah and Zalmunna, "What kind of men were they whom you killed at Tabor?" They answered, "They were like you. Each one resembled the children of a king."

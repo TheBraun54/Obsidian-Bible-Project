@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as it is written, For thy sake we are killed all the day long; We were accounted as sheep for the slaughter.
+Even as it is written, "For your sake we are killed all day long. We were accounted as sheep for the slaughter."

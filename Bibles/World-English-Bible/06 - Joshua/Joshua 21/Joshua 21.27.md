@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto the children of Gershon, of the families of the Levites, out of the half-tribe of Manasseh [they gave] Golan in Bashan with its suburbs, the city of refuge for the manslayer, and Be-eshterah with its suburbs; two cities.
+They gave to the children of Gershon, of the families of the Levites, out of the half-tribe of Manasseh Golan in Bashan with its suburbs, the city of refuge for the manslayer, and Be Eshterah with its suburbs; two cities.

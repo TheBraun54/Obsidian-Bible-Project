@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will sacrifice unto thee with the voice of thanksgiving; I will pay that which I have vowed. Salvation is of Jehovah.
+But I will sacrifice to you with the voice of thanksgiving. I will pay that which I have vowed. Salvation belongs to Yahweh."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then she came and told the man of God. And he said, Go, sell the oil, and pay thy debt, and live thou and thy sons of the rest.
+Then she came and told the man of God. He said, "Go, sell the oil, and pay your debt; and you and your sons live on the rest."

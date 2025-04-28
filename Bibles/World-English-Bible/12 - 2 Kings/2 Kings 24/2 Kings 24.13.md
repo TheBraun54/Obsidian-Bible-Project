@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he carried out thence all the treasures of the house of Jehovah, and the treasures of the king's house, and cut in pieces all the vessels of gold, which Solomon king of Israel had made in the temple of Jehovah, as Jehovah had said.
+He carried out there all the treasures of the house of Yahweh, and the treasures of the king's house, and cut in pieces all the vessels of gold, which Solomon king of Israel had made in the temple of Yahweh, as Yahweh had said.

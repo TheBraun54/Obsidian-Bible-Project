@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fruit of righteousness is sown in peace for them that make peace.
+Now the fruit of righteousness is sown in peace by those who make peace.

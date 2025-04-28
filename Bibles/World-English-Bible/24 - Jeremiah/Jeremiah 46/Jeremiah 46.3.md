@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Prepare ye the buckler and shield, and draw near to battle.
+Prepare the buckler and shield, and draw near to battle!

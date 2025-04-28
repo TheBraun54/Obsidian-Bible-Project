@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he fled with all that he had; and he rose up, and passed over the River, and set his face toward the mountain of Gilead.
+So he fled with all that he had. He rose up, passed over the River, and set his face toward the mountain of Gilead.

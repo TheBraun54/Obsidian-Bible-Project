@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the trees of the wood sing for joy before Jehovah; For he cometh to judge the earth.
+Then the trees of the forest will sing for joy before Yahweh, for he comes to judge the earth.

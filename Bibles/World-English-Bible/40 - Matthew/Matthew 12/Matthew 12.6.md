@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say unto you, that one greater than the temple is here.
+But I tell you that one greater than the temple is here.

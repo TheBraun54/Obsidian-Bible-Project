@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I myself also am persuaded of you, my brethren, that ye yourselves are full of goodness, filled with all knowledge, able also to admonish one another.
+I myself am also persuaded about you, my brothers, that you yourselves are full of goodness, filled with all knowledge, able also to admonish others.

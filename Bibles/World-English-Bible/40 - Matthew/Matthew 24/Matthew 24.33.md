@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even so ye also, when ye see all these things, know ye that he is nigh, [even] at the doors.
+Even so you also, when you see all these things, know that it is near, even at the doors.

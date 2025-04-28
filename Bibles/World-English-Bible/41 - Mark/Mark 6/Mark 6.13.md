@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cast out many demons, and anointed with oil many that were sick, and healed them.
+They cast out many demons, and anointed many with oil who were sick, and healed them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the high priest rose up, and all they that were with him (which is the sect of the Sadducees), and they were filled with jealousy,
+But the high priest rose up, and all those who were with him (which is the sect of the Sadducees), and they were filled with jealousy,

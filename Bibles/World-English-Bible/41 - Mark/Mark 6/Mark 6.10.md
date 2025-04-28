@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Wheresoever ye enter into a house, there abide till ye depart thence.
+He said to them, "Wherever you enter into a house, stay there until you depart from there.

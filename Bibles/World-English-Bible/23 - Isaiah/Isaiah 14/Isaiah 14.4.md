@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou shalt take up this parable against the king of Babylon, and say, How hath the oppressor ceased! the golden city ceased!
+that you will take up this parable against the king of Babylon, and say, "How the oppressor has ceased! The golden city has ceased!"

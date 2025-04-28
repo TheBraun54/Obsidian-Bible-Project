@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou say in thy heart, Wherefore are these things come upon me? for the greatness of thine iniquity are thy skirts uncovered, and thy heels suffer violence.
+If you say in your heart, Why are these things come on me? for the greatness of your iniquity are your skirts uncovered, and your heels suffer violence.

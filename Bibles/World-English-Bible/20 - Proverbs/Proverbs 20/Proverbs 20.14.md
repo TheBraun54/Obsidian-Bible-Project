@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is bad, it is bad, saith the buyer; But when he is gone his way, then he boasteth.
+"It's no good, it's no good," says the buyer; but when he is gone his way, then he boasts.

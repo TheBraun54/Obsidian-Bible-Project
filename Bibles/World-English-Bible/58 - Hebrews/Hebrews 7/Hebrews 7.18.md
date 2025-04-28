@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is a disannulling of a foregoing commandment because of its weakness and unprofitableness
+For there is an annulling of a foregoing commandment because of its weakness and uselessness

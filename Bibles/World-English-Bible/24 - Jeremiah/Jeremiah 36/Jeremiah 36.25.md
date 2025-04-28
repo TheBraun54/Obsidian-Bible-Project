@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Elnathan and Delaiah and Gemariah had made intercession to the king that he would not burn the roll; but he would not hear them.
+Moreover Elnathan and Delaiah and Gemariah had made intercession to the king that he would not burn the scroll; but he would not hear them.

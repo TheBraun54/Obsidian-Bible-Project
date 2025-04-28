@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel answered and said unto her, The Holy Spirit shall come upon thee, and the power of the Most High shall overshadow thee: wherefore also the holy thing which is begotten shall be called the Son of God.
+The angel answered her, "The Holy Spirit will come on you, and the power of the Most High will overshadow you. Therefore also the holy one who is born from you will be called the Son of God.

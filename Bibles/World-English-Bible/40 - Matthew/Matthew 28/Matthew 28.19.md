@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye therefore, and make disciples of all the nations, baptizing them into the name of the Father and of the Son and of the Holy Spirit:
+Go, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,

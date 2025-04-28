@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Melea, the [son] of Menna, the [son] of Mattatha, the [son] of Nathan, the [son] of David,
+the son of Melea, the son of Menan, the son of Mattatha, the son of Nathan, the son of David,

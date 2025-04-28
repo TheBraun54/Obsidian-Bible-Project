@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Prepare ye slaughter for his children for the iniquity of their fathers, that they rise not up, and possess the earth, and fill the face of the world with cities.
+Prepare for slaughter of his children because of the iniquity of their fathers, that they not rise up and possess the earth, and fill the surface of the world with cities.

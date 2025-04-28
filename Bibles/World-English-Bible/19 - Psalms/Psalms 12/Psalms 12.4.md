@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who have said, With our tongue will we prevail; Our lips are our own: Who is lord over us?
+who have said, "With our tongue we will prevail. Our lips are our own. Who is lord over us?"

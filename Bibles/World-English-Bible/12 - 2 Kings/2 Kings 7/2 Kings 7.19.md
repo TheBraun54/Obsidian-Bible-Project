@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that captain answered the man of God, and said, Now, behold, if Jehovah should make windows in heaven, might such a thing be? and he said, Behold, thou shalt see it with thine eyes, but shalt not eat thereof:
+and that captain answered the man of God, and said, "Now, behold, if Yahweh should make windows in heaven, might such a thing be?" and he said, "Behold, you shall see it with your eyes, but shall not eat of it."

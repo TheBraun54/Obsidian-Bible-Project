@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are that Aaron and Moses, to whom Jehovah said, Bring out the children of Israel from the land of Egypt according to their hosts.
+These are that Aaron and Moses, to whom Yahweh said, "Bring out the children of Israel from the land of Egypt according to their armies."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esau dwelt in mount Seir: Esau is Edom.
+Esau lived in the hill country of Seir. Esau is Edom.

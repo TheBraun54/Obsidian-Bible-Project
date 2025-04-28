@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Conaniah also, and Shemaiah and Nethanel, his brethren, and Hashabiah and Jeiel and Jozabad, the chiefs of the Levites, gave unto the Levites for the passover-offerings five thousand [small cattle], and five hundred oxen.
+Conaniah also, and Shemaiah and Nethanel, his brothers, and Hashabiah and Jeiel and Jozabad, the chiefs of the Levites, gave to the Levites for the Passover offerings five thousand [small livestock], and five hundred head of cattle.

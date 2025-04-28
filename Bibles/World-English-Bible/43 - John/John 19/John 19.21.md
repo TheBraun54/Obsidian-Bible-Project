@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The chief priests of the Jews therefore said to Pilate, Write not, The King of the Jews; but that he said, I am King of the Jews.
+The chief priests of the Jews therefore said to Pilate, "Don't write, 'The King of the Jews,' but, 'he said, I am King of the Jews.'"

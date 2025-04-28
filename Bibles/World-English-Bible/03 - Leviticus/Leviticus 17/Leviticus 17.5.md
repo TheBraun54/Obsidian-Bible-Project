@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the end that the children of Israel may bring their sacrifices, which they sacrifice in the open field, even that they may bring them unto Jehovah, unto the door of the tent of meeting, unto the priest, and sacrifice them for sacrifices of peace-offerings unto Jehovah.
+This is to the end that the children of Israel may bring their sacrifices, which they sacrifice in the open field, that they may bring them to Yahweh, to the door of the Tent of Meeting, to the priest, and sacrifice them for sacrifices of peace offerings to Yahweh.

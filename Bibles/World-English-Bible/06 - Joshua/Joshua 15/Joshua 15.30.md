@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Eltolad, and Chesil, and Hormah,
+Eltolad, Chesil, Hormah,

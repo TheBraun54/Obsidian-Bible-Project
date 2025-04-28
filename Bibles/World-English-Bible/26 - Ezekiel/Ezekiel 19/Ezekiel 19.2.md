@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, What was thy mother? A lioness: she couched among lions, in the midst of the young lions she nourished her whelps.
+and say, What was your mother? A lioness: she couched among lions, in the midst of the young lions she nourished her cubs.

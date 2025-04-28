@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt eat before Jehovah thy God, in the place which he shall choose, to cause his name to dwell there, the tithe of thy grain, of thy new wine, and of thine oil, and the firstlings of thy herd and of thy flock; that thou mayest learn to fear Jehovah thy God always.
+You shall eat before Yahweh your God, in the place which he shall choose, to cause his name to dwell there, the tithe of your grain, of your new wine, and of your oil, and the firstborn of your herd and of your flock; that you may learn to fear Yahweh your God always.

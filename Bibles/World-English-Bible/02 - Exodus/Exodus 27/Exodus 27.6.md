@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make staves for the altar, staves of acacia wood, and overlay them with brass.
+You shall make poles for the altar, poles of acacia wood, and overlay them with brass.

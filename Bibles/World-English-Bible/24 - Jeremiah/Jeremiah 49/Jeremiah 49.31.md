@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, get you up unto a nation that is at ease, that dwelleth without care, saith Jehovah; that have neither gates nor bars, that dwell alone.
+Arise, go up to a nation that is at ease, that dwells without care, says Yahweh; that have neither gates nor bars, that dwell alone.

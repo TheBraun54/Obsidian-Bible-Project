@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there was a certain man, Simon by name, who beforetime in the city used sorcery, and amazed the people of Samaria, giving out that himself was some great one:
+But there was a certain man, Simon by name, who used to practice sorcery in the city, and amazed the people of Samaria, making himself out to be some great one,

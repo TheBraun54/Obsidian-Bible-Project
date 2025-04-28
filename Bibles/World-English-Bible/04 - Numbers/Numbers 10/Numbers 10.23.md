@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the host of the tribe of the children of Manasseh was Gamaliel the son of Pedahzur.
+Gamaliel the son of Pedahzur was over the army of the tribe of the children of Manasseh.

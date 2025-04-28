@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I will weep with the weeping of Jazer for the vine of Sibmah; I will water thee with my tears, O Heshbon, and Elealeh: for upon thy summer fruits and upon thy harvest the [battle] shout is fallen.
+Therefore I will weep with the weeping of Jazer for the vine of Sibmah. I will water you with my tears, Heshbon, and Elealeh: for on your summer fruits and on your harvest the battle shout has fallen.

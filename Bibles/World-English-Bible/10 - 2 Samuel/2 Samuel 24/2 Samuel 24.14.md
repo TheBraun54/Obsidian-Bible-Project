@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Gad, I am in a great strait: let us fall now into the hand of Jehovah; for his mercies are great; and let me not fall into the hand of man.
+David said to Gad, "I am in distress. Let us fall now into the hand of Yahweh; for his mercies are great. Let me not fall into the hand of man."

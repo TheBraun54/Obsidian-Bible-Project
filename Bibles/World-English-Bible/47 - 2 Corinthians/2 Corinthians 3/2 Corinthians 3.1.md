@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are we beginning again to commend ourselves? or need we, as do some, epistles of commendation to you or from you?
+Are we beginning again to commend ourselves? Or do we need, as do some, letters of commendation to you or from you?

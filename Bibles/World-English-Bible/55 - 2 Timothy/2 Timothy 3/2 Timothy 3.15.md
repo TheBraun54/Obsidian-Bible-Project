@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that from a babe thou hast known the sacred writings which are able to make thee wise unto salvation through faith which is in Christ Jesus.
+From infancy, you have known the holy Scriptures which are able to make you wise for salvation through faith, which is in Christ Jesus.

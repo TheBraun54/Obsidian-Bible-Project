@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, be not children in mind: yet in malice be ye babes, but in mind be men.
+Brothers, don't be children in thoughts, yet in malice be babies, but in thoughts be mature.

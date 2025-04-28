@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye come not among these nations, these that remain among you; neither make mention of the name of their gods, nor cause to swear [by them], neither serve them, nor bow down yourselves unto them;
+that you not come among these nations, these that remain among you; neither make mention of the name of their gods, nor cause to swear by them, neither serve them, nor bow down yourselves to them;

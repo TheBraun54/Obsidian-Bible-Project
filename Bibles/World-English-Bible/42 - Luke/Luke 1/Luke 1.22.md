@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came out, he could not speak unto them: and they perceived that he had seen a vision in the temple: and he continued making signs unto them, and remained dumb.
+When he came out, he could not speak to them, and they perceived that he had seen a vision in the temple. He continued making signs to them, and remained mute.

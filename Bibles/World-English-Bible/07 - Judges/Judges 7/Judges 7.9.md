@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass the same night, that Jehovah said unto him, Arise, get thee down into the camp; for I have delivered it into thy hand.
+It happened the same night, that Yahweh said to him, "Arise, go down into the camp; for I have delivered it into your hand.

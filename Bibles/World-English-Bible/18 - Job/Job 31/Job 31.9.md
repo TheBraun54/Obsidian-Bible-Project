@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If my heart hath been enticed unto a woman, And I have laid wait at my neighbor's door;
+"If my heart has been enticed to a woman, and I have laid wait at my neighbor's door,

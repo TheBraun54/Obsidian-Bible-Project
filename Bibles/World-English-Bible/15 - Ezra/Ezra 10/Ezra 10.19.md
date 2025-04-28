@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave their hand that they would put away their wives; and being guilty, [they offered] a ram of the flock for their guilt.
+They gave their hand that they would put away their wives; and being guilty, [they offered] a ram of the flock for their guilt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for as Jonah was three days and three nights in the belly of the whale; so shall the Son of man be three days and three nights in the heart of the earth.
+For as Jonah was three days and three nights in the belly of the whale, so will the Son of Man be three days and three nights in the heart of the earth.

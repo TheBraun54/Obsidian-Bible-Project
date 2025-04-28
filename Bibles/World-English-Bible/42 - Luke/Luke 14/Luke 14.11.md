@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every one that exalteth himself shall be humbled; and he that humbleth himself shall be exalted.
+For everyone who exalts himself will be humbled, and whoever humbles himself will be exalted."

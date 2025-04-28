@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the place which Jehovah thy God shall choose, to put his name there, be too far from thee, then thou shalt kill of thy herd and of thy flock, which Jehovah hath given thee, as I have commanded thee; and thou mayest eat within thy gates, after all the desire of thy soul.
+If the place which Yahweh your God shall choose, to put his name there, is too far from you, then you shall kill of your herd and of your flock, which Yahweh has given you, as I have commanded you; and you may eat within your gates, after all the desire of your soul.

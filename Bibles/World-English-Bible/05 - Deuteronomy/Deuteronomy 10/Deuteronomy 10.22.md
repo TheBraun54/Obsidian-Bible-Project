@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy fathers went down into Egypt with threescore and ten persons; and now Jehovah thy God hath made thee as the stars of heaven for multitude.
+Your fathers went down into Egypt with seventy persons; and now Yahweh your God has made you as the stars of the sky for multitude.

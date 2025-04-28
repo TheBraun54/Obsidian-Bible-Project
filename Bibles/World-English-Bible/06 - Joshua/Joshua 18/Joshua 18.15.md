@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the south quarter was from the uttermost part of Kiriath-jearim; and the border went out westward, and went out to the fountain of the waters of Nephtoah;
+The south quarter was from the farthest part of Kiriath Jearim. The border went out westward, and went out to the spring of the waters of Nephtoah.

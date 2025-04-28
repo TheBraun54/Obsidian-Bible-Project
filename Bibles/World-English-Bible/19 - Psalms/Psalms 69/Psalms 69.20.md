@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Reproach hath broken my heart; and I am full of heaviness: And I looked for some to take pity, but there was none; And for comforters, but I found none.
+Reproach has broken my heart, and I am full of heaviness. I looked for some to take pity, but there was none; for comforters, but I found none.

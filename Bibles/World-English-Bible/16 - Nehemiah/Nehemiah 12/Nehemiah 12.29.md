@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-also from Beth-gilgal, and out of the fields of Geba and Azmaveth: for the singers had builded them villages round about Jerusalem.
+also from Beth Gilgal, and out of the fields of Geba and Azmaveth: for the singers had built them villages around Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Caleb the son of Hezron begat [children] of Azubah [his] wife, and of Jerioth; and these were her sons: Jesher, and Shobab, and Ardon.
+Caleb the son of Hezron became the father of [children] of Azubah [his] wife, and of Jerioth; and these were her sons: Jesher, and Shobab, and Ardon.

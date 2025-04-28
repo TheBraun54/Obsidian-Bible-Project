@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Saul unto his servants, Seek me a woman that hath a familiar spirit, that I may go to her, and inquire of her. And his servants said to him, Behold, there is a woman that hath a familiar spirit at En-dor.
+Then Saul said to his servants, "Seek me a woman who has a familiar spirit, that I may go to her, and inquire of her." His servants said to him, "Behold, there is a woman who has a familiar spirit at Endor."

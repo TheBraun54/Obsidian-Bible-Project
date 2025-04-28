@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember ye not the former things, neither consider the things of old.
+"Don't remember the former things, and don't consider the things of old.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said in my heart, God will judge the righteous and the wicked; for there is a time there for every purpose and for every work.
+I said in my heart, "God will judge the righteous and the wicked; for there is a time there for every purpose and for every work."

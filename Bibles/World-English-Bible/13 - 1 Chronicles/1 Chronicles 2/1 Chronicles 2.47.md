@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Jahdai: Regem, and Jothan, and Geshan, and Pelet, and Ephah, and Shaaph.
+The sons of Jahdai: Regem, and Jothan, and Geshan, and Pelet, and Ephah, and Shaaph.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the bread in order upon it before Jehovah; as Jehovah commanded Moses.
+He set the bread in order on it before Yahweh, as Yahweh commanded Moses.

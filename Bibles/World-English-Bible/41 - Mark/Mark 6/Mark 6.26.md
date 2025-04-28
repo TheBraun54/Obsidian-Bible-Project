@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king was exceeding sorry; but for the sake of his oaths, and of them that sat at meat, he would not reject her.
+The king was exceedingly sorry, but for the sake of his oaths, and of his dinner guests, he didn't wish to refuse her.

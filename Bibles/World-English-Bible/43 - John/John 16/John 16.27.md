@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the Father himself loveth you, because ye have loved me, and have believed that I came forth from the Father.
+for the Father himself loves you, because you have loved me, and have believed that I came forth from God.

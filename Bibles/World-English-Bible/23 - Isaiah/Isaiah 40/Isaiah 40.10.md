@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the Lord Jehovah will come as a mighty one, and his arm will rule for him: Behold, his reward is with him, and his recompense before him.
+Behold, the Lord Yahweh will come as a mighty one, and his arm will rule for him. Behold, his reward is with him, and his recompense before him.

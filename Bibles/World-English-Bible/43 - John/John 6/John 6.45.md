@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is written in the prophets, And they shall all be taught of God. Every one that hath heard from the Father, and hath learned, cometh unto me.
+It is written in the prophets, 'They will all be taught by God.' Therefore everyone who hears from the Father, and has learned, comes to me.

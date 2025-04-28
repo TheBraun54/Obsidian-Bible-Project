@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they gave that to them that did the work, and repaired therewith the house of Jehovah.
+for they gave that to those who did the work, and repaired therewith the house of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when they have a matter, they come unto me; and I judge between a man and his neighbor, and I make them know the statutes of God, and his laws.
+When they have a matter, they come to me, and I judge between a man and his neighbor, and I make them know the statutes of God, and his laws."

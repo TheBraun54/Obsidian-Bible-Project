@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses and Aaron, This is the ordinance of the passover: there shall no foreigner eat thereof;
+Yahweh said to Moses and Aaron, "This is the ordinance of the Passover. No foreigner shall eat of it,

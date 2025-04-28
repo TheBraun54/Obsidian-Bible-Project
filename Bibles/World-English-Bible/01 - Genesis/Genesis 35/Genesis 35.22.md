@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while Israel dwelt in that land, that Reuben went and lay with Bilhah his father's concubine: and Israel heard of it. Now the sons of Jacob were twelve:
+It happened, while Israel lived in that land, that Reuben went and lay with Bilhah, his father's concubine, and Israel heard of it. Now the sons of Jacob were twelve.

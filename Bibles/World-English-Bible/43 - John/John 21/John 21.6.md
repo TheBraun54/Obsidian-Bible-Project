@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Cast the net on the right side of the boat, and ye shall find. They cast therefore, and now they were not able to draw it for the multitude of fishes.
+He said to them, "Cast the net on the right side of the boat, and you will find some." They cast it therefore, and now they weren't able to draw it in for the multitude of fish.

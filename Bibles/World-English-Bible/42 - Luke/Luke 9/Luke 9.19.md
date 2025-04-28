@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answering said, John the Baptist; but others [say], Elijah; and others, that one of the old prophets is risen again.
+They answered, "'John the Baptizer,' but others say, 'Elijah,' and others, that one of the old prophets is risen again."

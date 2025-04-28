@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall go forth, and look upon the dead bodies of the men that have transgressed against me: for their worm shall not die, neither shall their fire be quenched; and they shall be an abhorring unto all flesh.
+"They shall go forth, and look on the dead bodies of the men who have transgressed against me: for their worm shall not die, neither shall their fire be quenched; and they will be loathsome to all mankind."

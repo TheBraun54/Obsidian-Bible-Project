@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the third day Abraham lifted up his eyes, and saw the place afar off.
+On the third day Abraham lifted up his eyes, and saw the place far off.

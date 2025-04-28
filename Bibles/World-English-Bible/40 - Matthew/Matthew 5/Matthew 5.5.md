@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are the meek: for they shall inherit the earth.
+Blessed are the gentle, for they shall inherit the earth.

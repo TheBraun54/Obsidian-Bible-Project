@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As he spake these things, many believed on him.
+As he spoke these things, many believed in him.

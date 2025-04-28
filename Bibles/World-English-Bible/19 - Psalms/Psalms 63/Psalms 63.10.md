@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall be given over to the power of the sword: They shall be a portion for foxes.
+They shall be given over to the power of the sword. They shall be jackal food.

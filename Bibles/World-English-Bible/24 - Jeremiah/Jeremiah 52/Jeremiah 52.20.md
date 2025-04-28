@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The two pillars, the one sea, and the twelve brazen bulls that were under the bases, which king Solomon had made for the house of Jehovah--the brass of all these vessels was without weight.
+The two pillars, the one sea, and the twelve bronze bulls that were under the bases, which king Solomon had made for the house of Yahweh. The brass of all these vessels was without weight.

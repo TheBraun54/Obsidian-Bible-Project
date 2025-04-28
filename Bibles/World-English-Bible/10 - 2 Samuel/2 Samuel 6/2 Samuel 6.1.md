@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David again gathered together all the chosen men of Israel, thirty thousand.
+David again gathered together all the chosen men of Israel, thirty thousand.

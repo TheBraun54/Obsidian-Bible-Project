@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God thundereth marvellously with his voice; Great things doeth he, which we cannot comprehend.
+God thunders marvelously with his voice. He does great things, which we can't comprehend.

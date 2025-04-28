@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses brought their cause before Jehovah.
+Moses brought their cause before Yahweh.

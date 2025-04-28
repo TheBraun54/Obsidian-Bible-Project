@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah spake with you face to face in the mount out of the midst of the fire,
+Yahweh spoke with you face to face on the mountain out of the midst of the fire,

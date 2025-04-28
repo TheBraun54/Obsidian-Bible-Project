@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the children of Israel walked upon dry land in the midst of the sea; and the waters were a wall unto them on their right hand, and on their left.
+But the children of Israel walked on dry land in the midst of the sea, and the waters were a wall to them on their right hand, and on their left.

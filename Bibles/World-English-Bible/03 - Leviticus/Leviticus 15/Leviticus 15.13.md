@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he that hath an issue is cleansed of his issue, then he shall number to himself seven days for his cleansing, and wash his clothes; and he shall bathe his flesh in running water, and shall be clean.
+"'When he who has a discharge is cleansed of his discharge, then he shall count to himself seven days for his cleansing, and wash his clothes; and he shall bathe his flesh in running water, and shall be clean.

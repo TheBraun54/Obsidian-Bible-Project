@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every way of a man is right in his own eyes; But Jehovah weigheth the hearts.
+Every way of a man is right in his own eyes, but Yahweh weighs the hearts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Add thou not unto his words, Lest he reprove thee, and thou be found a liar.
+Don't you add to his words, lest he reprove you, and you be found a liar.

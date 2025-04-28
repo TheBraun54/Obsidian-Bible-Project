@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Chelub the brother of Shuhah begat Mehir, who was the father of Eshton.
+Chelub the brother of Shuhah became the father of Mehir, who was the father of Eshton.

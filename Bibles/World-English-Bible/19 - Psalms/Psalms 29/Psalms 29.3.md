@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of Jehovah is upon the waters: The God of glory thundereth, Even Jehovah upon many waters.
+Yahweh's voice is on the waters. The God of glory thunders, even Yahweh on many waters.

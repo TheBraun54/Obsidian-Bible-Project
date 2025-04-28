@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there was a widow in that city; and she came oft unto him, saying, Avenge me of mine adversary.
+A widow was in that city, and she often came to him, saying, 'Defend me from my adversary!'

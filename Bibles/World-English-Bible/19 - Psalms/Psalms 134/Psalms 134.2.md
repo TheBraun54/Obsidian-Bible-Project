@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up your hands to the sanctuary, And bless ye Jehovah.
+Lift up your hands in the sanctuary. Praise Yahweh!

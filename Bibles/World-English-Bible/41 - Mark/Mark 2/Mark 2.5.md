@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus seeing their faith saith unto the sick of the palsy, Son, thy sins are forgiven.
+Jesus, seeing their faith, said to the paralytic, "Son, your sins are forgiven you."

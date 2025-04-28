@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and whatsoever we ask we receive of him, because we keep his commandments and do the things that are pleasing in his sight.
+and whatever we ask, we receive from him, because we keep his commandments and do the things that are pleasing in his sight.

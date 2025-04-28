@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou saidst, I shall be mistress for ever; so that thou didst not lay these things to thy heart, neither didst remember the latter end thereof.
+You said, I shall be mistress forever; so that you did not lay these things to your heart, neither did remember the latter end of it.

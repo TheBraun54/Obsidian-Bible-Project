@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Issachar, were fifty and four thousand and four hundred.
+those who were numbered of them, of the tribe of Issachar, were fifty-four thousand four hundred.

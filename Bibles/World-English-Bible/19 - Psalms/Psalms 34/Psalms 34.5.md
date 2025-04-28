@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They looked unto him, and were radiant; And their faces shall never be confounded.
+They looked to him, and were radiant. Their faces shall never be covered with shame.

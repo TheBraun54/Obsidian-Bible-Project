@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will take unto me faithful witnesses to record, Uriah the priest, and Zechariah the son of Jeberechiah.
+and I will take for myself faithful witnesses to testify: Uriah the priest, and Zechariah the son of Jeberechiah."

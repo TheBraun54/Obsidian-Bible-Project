@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his soul clave unto Dinah the daughter of Jacob, and he loved the damsel, and spake kindly unto the damsel.
+His soul joined to Dinah, the daughter of Jacob, and he loved the young lady, and spoke kindly to the young lady.

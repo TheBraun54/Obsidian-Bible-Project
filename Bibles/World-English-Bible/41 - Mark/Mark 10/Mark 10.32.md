@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were on the way, going up to Jerusalem; and Jesus was going before them: and they were amazed; and they that followed were afraid. And he took again the twelve, and began to tell them the things that were to happen unto him,
+They were on the way, going up to Jerusalem; and Jesus was going in front of them, and they were amazed; and those who followed were afraid. He again took the twelve, and began to tell them the things that were going to happen to him.

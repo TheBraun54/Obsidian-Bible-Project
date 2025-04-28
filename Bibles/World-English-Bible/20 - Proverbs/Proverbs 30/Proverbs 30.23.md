@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For an odious woman when she is married; And a handmaid that is heir to her mistress.
+for an unloved woman when she is married; and a handmaid who is heir to her mistress.

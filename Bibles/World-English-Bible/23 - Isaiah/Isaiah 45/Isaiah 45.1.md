@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah to his anointed, to Cyrus, whose right hand I have holden, to subdue nations before him, and I will loose the loins of kings; to open the doors before him, and the gates shall not be shut:
+Thus says Yahweh to his anointed, to Cyrus, whose right hand I have held, to subdue nations before him, and strip kings of their armor; to open the doors before him, and the gates shall not be shut:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Notwithstanding, the sons of Korah died not.
+Notwithstanding, the sons of Korah didn't die.

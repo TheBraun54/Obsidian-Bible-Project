@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, The set feasts of Jehovah, which ye shall proclaim to be holy convocations, even these are my set feasts.
+"Speak to the children of Israel, and tell them, 'The set feasts of Yahweh, which you shall proclaim to be holy convocations, even these are my set feasts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, Jehovah hath kept me alive, as he spake, these forty and five years, from the time that Jehovah spake this word unto Moses, while Israel walked in the wilderness: and now, lo, I am this day fourscore and five years old.
+"Now, behold, Yahweh has kept me alive, as he spoke, these forty-five years, from the time that Yahweh spoke this word to Moses, while Israel walked in the wilderness. Now, behold, I am eighty-five years old, today.

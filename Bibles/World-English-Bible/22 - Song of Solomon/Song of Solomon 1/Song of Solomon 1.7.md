@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell me, O thou whom my soul loveth, Where thou feedest [thy flock], Where thou makest [it] to rest at noon: For why should I be as one that is veiled Beside the flocks of thy companions?
+Tell me, you whom my soul loves, where you graze your flock, where you rest them at noon; For why should I be as one who is veiled beside the flocks of your companions? Lover

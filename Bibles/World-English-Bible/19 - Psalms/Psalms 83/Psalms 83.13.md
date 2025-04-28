@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my God, make them like the whirling dust; As stubble before the wind.
+My God, make them like tumbleweed; like chaff before the wind.

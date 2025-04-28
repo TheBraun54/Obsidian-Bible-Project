@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he entered into a certain village, there met him ten men that were lepers, who stood afar off:
+As he entered into a certain village, ten men who were lepers met him, who stood at a distance.

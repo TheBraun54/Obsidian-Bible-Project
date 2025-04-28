@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that was sown upon the good ground, this is he that heareth the word, and understandeth it; who verily beareth fruit, and bringeth forth, some a hundredfold, some sixty, some thirty.
+What was sown on the good ground, this is he who hears the word, and understands it, who most certainly bears fruit, and brings forth, some one hundred times as much, some sixty, and some thirty."

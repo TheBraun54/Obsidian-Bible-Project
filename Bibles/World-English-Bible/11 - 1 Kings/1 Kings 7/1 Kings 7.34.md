@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were four undersetters at the four corners of each base: the undersetters thereof were of the base itself.
+There were four supports at the four corners of each base: its supports were of the base itself.

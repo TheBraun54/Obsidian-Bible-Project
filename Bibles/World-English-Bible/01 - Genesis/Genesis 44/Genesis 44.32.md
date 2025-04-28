@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy servant became surety for the lad unto my father, saying, If I bring him not unto thee, then shall I bear the blame to my father for ever.
+For your servant became collateral for the boy to my father, saying, 'If I don't bring him to you, then I will bear the blame to my father forever.'

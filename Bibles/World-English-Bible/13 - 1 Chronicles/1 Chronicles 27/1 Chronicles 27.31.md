@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and over the flocks was Jaziz the Hagrite.<sync value="H27:31" /> All these were the rulers of the substance which was king David's.
+All these were the rulers of the substance which was king David's.

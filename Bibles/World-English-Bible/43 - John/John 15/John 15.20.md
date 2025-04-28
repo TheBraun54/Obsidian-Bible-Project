@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember the word that I said unto you, A servant is not greater than his lord. If they persecuted me, they will also persecute you; if they kept my word, they will keep yours also.
+Remember the word that I said to you: 'A servant is not greater than his lord.' If they persecuted me, they will also persecute you. If they kept my word, they will keep yours also.

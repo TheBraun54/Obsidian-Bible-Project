@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the candlesticks, five on the right side, and five on the left, before the oracle, of pure gold; and the flowers, and the lamps, and the tongs, of gold;
+and the lampstands, five on the right side, and five on the left, before the oracle, of pure gold; and the flowers, and the lamps, and the tongs, of gold;

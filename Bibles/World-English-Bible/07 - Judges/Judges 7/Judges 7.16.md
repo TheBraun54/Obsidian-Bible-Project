@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he divided the three hundred men into three companies, and he put into the hands of all of them trumpets, and empty pitchers, with torches within the pitchers.
+He divided the three hundred men into three companies, and he put into the hands of all of them trumpets, and empty pitchers, with torches within the pitchers.

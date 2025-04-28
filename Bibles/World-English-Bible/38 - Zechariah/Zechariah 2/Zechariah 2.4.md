@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto him, Run, speak to this young man, saying, Jerusalem shall be inhabited as villages without walls, by reason of the multitude of men and cattle therein.
+and said to him, "Run, speak to this young man, saying, 'Jerusalem will be inhabited as villages without walls, because of the multitude of men and livestock in it.

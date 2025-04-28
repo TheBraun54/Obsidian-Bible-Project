@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan stripped himself of the robe that was upon him, and gave it to David, and his apparel, even to his sword, and to his bow, and to his girdle.
+Jonathan stripped himself of the robe that was on him, and gave it to David, and his clothing, even to his sword, and to his bow, and to his sash.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Exalt ye Jehovah our God, And worship at his holy hill; For Jehovah our God is holy.
+Exalt Yahweh, our God. Worship at his holy hill, for Yahweh, our God, is holy! A Psalm of thanksgiving.

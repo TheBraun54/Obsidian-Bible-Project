@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and them that are turned back from following Jehovah; and those that have not sought Jehovah, nor inquired after him.
+those who have turned back from following Yahweh, and those who haven't sought Yahweh nor inquired after him.

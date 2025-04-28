@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They soon forgat his works; They waited not for his counsel,
+They soon forgot his works. They didn't wait for his counsel,

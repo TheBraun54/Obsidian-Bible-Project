@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that they are no more two, but one flesh. What therefore God hath joined together, let not man put asunder.
+So that they are no more two, but one flesh. What therefore God has joined together, don't let man tear apart."

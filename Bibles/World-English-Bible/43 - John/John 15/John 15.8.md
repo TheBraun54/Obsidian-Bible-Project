@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Herein is my Father glorified, that ye bear much fruit; and [so] shall ye be my disciples.
+"In this is my Father glorified, that you bear much fruit; and so you will be my disciples.

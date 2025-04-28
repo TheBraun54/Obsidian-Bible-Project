@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereunto I labor also, striving according to his working, which worketh in me mightily.
+for which I also labor, striving according to his working, which works in me mightily.

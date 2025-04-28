@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I appoint unto you a kingdom, even as my Father appointed unto me,
+I confer on you a kingdom, even as my Father conferred on me,

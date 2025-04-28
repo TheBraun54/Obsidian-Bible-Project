@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep thy tongue from evil, And thy lips from speaking guile.
+Keep your tongue from evil, and your lips from speaking lies.

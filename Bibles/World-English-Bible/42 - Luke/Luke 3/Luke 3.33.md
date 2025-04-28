@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Amminadab, the [son] of Arni, the [son] of Hezron, the [son] of Perez, the [son] of Judah,
+the son of Amminadab, the son of Aram, the son of Hezron, the son of Perez, the son of Judah,

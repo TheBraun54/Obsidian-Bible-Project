@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [having] a great priest over the house of God;
+and having a great priest over the house of God,

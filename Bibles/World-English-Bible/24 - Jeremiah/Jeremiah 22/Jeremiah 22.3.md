@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: Execute ye justice and righteousness, and deliver him that is robbed out of the hand of the oppressor: and do no wrong, do no violence, to the sojourner, the fatherless, nor the widow; neither shed innocent blood in this place.
+Thus says Yahweh: Execute justice and righteousness, and deliver him who is robbed out of the hand of the oppressor: and do no wrong, do no violence, to the foreigner, the fatherless, nor the widow; neither shed innocent blood in this place.

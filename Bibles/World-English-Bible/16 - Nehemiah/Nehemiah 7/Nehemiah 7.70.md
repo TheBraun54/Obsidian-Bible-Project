@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some from among the heads of fathers' [houses] gave unto the work. The governor gave to the treasury a thousand darics of gold, fifty basins, five hundred and thirty priests' garments.
+Some from among the heads of fathers' [houses] gave to the work. The governor gave to the treasury one thousand darics of gold, fifty basins, and five hundred thirty priests' garments.

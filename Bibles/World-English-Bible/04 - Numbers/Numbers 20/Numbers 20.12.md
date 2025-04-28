@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses and Aaron, Because ye believed not in me, to sanctify me in the eyes of the children of Israel, therefore ye shall not bring this assembly into the land which I have given them.
+Yahweh said to Moses and Aaron, "Because you didn't believe in me, to sanctify me in the eyes of the children of Israel, therefore you shall not bring this assembly into the land which I have given them."

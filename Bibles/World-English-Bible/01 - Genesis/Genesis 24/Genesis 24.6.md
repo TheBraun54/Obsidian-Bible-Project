@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham said unto him, Beware thou that thou bring not my son thither again.
+Abraham said to him, "Beware that you don't bring my son there again.

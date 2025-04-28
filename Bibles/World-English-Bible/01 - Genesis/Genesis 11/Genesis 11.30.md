@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Sarai was barren; she had no child.
+Sarai was barren. She had no child.

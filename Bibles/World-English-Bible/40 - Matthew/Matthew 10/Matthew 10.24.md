@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A disciple is not above his teacher, nor a servant above his lord.
+"A disciple is not above his teacher, nor a servant above his lord.

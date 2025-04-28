@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Hew thee two tables of stone like unto the first: and I will write upon the tables the words that were on the first tables, which thou brakest.
+Yahweh said to Moses, "Chisel two stone tablets like the first: and I will write on the tablets the words that were on the first tablets, which you broke.

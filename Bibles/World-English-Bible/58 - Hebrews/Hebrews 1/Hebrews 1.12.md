@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as a mantle shalt thou roll them up, As a garment, and they shall be changed: But thou art the same, And thy years shall not fail.
+As a mantle, you will roll them up, and they will be changed; but you are the same. Your years will not fail."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall I render unto Jehovah For all his benefits toward me?
+What will I give to Yahweh for all his benefits toward me?

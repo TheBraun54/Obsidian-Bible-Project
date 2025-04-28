@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter therefore seeing him saith to Jesus, Lord, and what shall this man do?
+Peter seeing him, said to Jesus, "Lord, what about this man?"

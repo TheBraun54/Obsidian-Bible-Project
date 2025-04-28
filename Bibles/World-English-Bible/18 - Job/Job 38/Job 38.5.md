@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who determined the measures thereof, if thou knowest? Or who stretched the line upon it?
+Who determined its measures, if you know? Or who stretched the line on it?

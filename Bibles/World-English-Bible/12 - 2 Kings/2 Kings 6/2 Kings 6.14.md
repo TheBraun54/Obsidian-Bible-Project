@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore sent he thither horses, and chariots, and a great host: and they came by night, and compassed the city about.
+Therefore he sent horses, chariots, and a great army there. They came by night, and surrounded the city.

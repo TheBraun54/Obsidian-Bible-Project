@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give diligence to come shortly unto me:
+Be diligent to come to me soon,

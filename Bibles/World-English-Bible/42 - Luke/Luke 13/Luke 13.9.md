@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if it bear fruit thenceforth, [well] ; but if not, thou shalt cut it down.
+If it bears fruit, fine; but if not, after that, you can cut it down.'"

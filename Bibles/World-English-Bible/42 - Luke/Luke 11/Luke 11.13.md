@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye then, being evil, know how to give good gifts unto your children, how much more shall [your] heavenly Father give the Holy Spirit to them that ask him?
+If you then, being evil, know how to give good gifts to your children, how much more will your heavenly Father give the Holy Spirit to those who ask him?"

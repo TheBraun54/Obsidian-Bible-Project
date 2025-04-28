@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, If the Syrians be too strong for me, then thou shalt help me; but if the children of Ammon be too strong for thee, then I will help thee.
+He said, "If the Syrians are too strong for me, then you are to help me; but if the children of Ammon are too strong for you, then I will help you.

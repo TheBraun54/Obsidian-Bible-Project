@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As one whom his mother comforteth, so will I comfort you; and ye shall be comforted in Jerusalem.
+As one whom his mother comforts, so will I comfort you; and you will be comforted in Jerusalem."

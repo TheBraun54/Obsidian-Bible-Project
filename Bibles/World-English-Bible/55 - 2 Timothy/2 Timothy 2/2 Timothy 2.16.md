@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But shun profane babblings: for they will proceed further in ungodliness,
+But shun empty chatter, for they will proceed further in ungodliness,

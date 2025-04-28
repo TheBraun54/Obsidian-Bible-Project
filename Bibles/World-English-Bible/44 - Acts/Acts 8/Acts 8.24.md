@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Simon answered and said, Pray ye for me to the Lord, that none of the things which ye have spoken come upon me.
+Simon answered, "Pray for me to the Lord, that none of the things which you have spoken happen to me."

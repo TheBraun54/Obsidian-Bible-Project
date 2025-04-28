@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take thou away from me the noise of thy songs; for I will not hear the melody of thy viols.
+Take away from me the noise of your songs! I will not listen to the music of your harps.

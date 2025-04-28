@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they could not come nigh unto him for the crowd, they uncovered the roof where he was: and when they had broken it up, they let down the bed whereon the sick of the palsy lay.
+When they could not come near to him for the crowd, they removed the roof where he was. When they had broken it up, they let down the mat that the paralytic was lying on.

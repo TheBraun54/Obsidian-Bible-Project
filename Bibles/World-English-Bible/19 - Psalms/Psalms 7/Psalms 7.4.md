@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have rewarded evil unto him that was at peace with me; (Yea, I have delivered him that without cause was mine adversary;)
+if I have rewarded evil to him who was at peace with me (yes, if I have delivered him who without cause was my adversary),

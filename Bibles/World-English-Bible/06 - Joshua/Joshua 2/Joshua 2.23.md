@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the two men returned, and descended from the mountain, and passed over, and came to Joshua the son of Nun; and they told him all that had befallen them.
+Then the two men returned, descended from the mountain, passed over, and came to Joshua the son of Nun; and they told him all that had happened to them.

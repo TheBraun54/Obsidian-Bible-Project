@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall dwell in that city, until he stand before the congregation for judgment, until the death of the high priest that shall be in those days: then shall the manslayer return, and come unto his own city, and unto his own house, unto the city from whence he fled.
+He shall dwell in that city until he stands before the congregation for judgment, until the death of the high priest that shall be in those days. Then the manslayer shall return, and come to his own city, and to his own house, to the city he fled from.'"

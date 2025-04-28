@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am like a pelican of the wilderness; I am become as an owl of the waste places.
+I am like a pelican of the wilderness. I have become as an owl of the waste places.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then certain of the scribes and Pharisees answered him, saying, Teacher, we would see a sign from thee.
+Then certain of the scribes and Pharisees answered, "Teacher, we want to see a sign from you."

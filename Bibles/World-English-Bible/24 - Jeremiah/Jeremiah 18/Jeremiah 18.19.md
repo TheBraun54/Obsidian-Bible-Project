@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give heed to me, O Jehovah, and hearken to the voice of them that contend with me.
+Give heed to me, Yahweh, and listen to the voice of those who contend with me.

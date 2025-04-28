@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: For this, moreover, will I be inquired of by the house of Israel, to do it for them: I will increase them with men like a flock.
+Thus says the Lord Yahweh: For this, moreover, will I be inquired of by the house of Israel, to do it for them: I will increase them with men like a flock.

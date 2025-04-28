@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king answered the people roughly, and forsook the counsel of the old men which they had given him,
+The king answered the people roughly, and forsook the counsel of the old men which they had given him,

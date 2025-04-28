@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Beth-lehem and Netophah, a hundred fourscore and eight.
+The men of Bethlehem and Netophah, one hundred eighty-eight.

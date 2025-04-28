@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when thou comest nigh over against the children of Ammon, vex them not, nor contend with them; for I will not give thee of the land of the children of Ammon for a possession; because I have given it unto the children of Lot for a possession.
+and when you come near over against the children of Ammon, don't bother them, nor contend with them; for I will not give you of the land of the children of Ammon for a possession; because I have given it to the children of Lot for a possession."

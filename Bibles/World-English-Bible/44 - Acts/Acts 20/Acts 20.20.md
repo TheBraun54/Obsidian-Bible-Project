@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how I shrank not from declaring unto you anything that was profitable, and teaching you publicly, and from house to house,
+how I didn't shrink from declaring to you anything that was profitable, teaching you publicly and from house to house,

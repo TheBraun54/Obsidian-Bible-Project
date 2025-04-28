@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my thoughts are not your thoughts, neither are your ways my ways, saith Jehovah.
+"For my thoughts are not your thoughts, neither are your ways my ways," says Yahweh.

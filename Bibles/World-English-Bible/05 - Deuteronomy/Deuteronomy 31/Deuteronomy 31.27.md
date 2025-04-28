@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know thy rebellion, and thy stiff neck: behold, while I am yet alive with you this day, ye have been rebellious against Jehovah; and how much more after my death?
+For I know your rebellion, and your stiff neck: behold, while I am yet alive with you this day, you have been rebellious against Yahweh; and how much more after my death?

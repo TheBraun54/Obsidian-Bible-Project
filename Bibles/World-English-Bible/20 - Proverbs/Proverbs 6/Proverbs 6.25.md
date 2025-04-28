@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lust not after her beauty in thy heart; Neither let her take thee with her eyelids.
+Don't lust after her beauty in your heart, neither let her captivate you with her eyelids.

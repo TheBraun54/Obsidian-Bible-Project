@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or hath not the potter a right over the clay, from the same lump to make one part a vessel unto honor, and another unto dishonor?
+Or hasn't the potter a right over the clay, from the same lump to make one part a vessel for honor, and another for dishonor?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How he entered into the house of God when Abiathar was high priest, and ate the showbread, which it is not lawful to eat save for the priests, and gave also to them that were with him?
+How he entered into the house of God when Abiathar was high priest, and ate the show bread, which is not lawful to eat except for the priests, and gave also to those who were with him?"

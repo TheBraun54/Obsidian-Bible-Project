@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if one of the Levites redeem, then the house that was sold, and the city of his possession, shall go out in the jubilee; for the houses of the cities of the Levites are their possession among the children of Israel.
+The Levites may redeem the house that was sold, and the city of his possession, and it shall be released in the Jubilee; for the houses of the cities of the Levites are their possession among the children of Israel.

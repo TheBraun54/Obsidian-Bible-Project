@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Defile not ye yourselves in any of these things: for in all these the nations are defiled which I cast out from before you;
+"'Don't defile yourselves in any of these things: for in all these the nations which I am casting out before you were defiled.

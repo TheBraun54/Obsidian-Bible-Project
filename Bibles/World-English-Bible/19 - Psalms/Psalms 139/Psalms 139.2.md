@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou knowest my downsitting and mine uprising; Thou understandest my thought afar off.
+You know my sitting down and my rising up. You perceive my thoughts from afar.

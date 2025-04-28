@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make with them a covenant of peace, and will cause evil beasts to cease out of the land; and they shall dwell securely in the wilderness, and sleep in the woods.
+I will make with them a covenant of peace, and will cause evil animals to cease out of the land; and they shall dwell securely in the wilderness, and sleep in the woods.

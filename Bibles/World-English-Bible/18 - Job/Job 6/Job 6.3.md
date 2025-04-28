@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For now it would be heavier than the sand of the seas: Therefore have my words been rash.
+For now it would be heavier than the sand of the seas, therefore have my words been rash.

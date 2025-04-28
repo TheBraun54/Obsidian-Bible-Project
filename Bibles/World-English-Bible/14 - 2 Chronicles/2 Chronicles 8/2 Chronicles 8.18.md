@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Huram sent him by the hands of his servants ships, and servants that had knowledge of the sea; and they came with the servants of Solomon to Ophir, and fetched from thence four hundred and fifty talents of gold, and brought them to king Solomon.
+Huram sent him ships and servants who had knowledge of the sea by the hands of his servants; and they came with the servants of Solomon to Ophir, and fetched from there four hundred fifty talents of gold, and brought them to king Solomon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Michael the archangel, when contending with the devil he disputed about the body of Moses, durst not bring against him a railing judgment, but said, The Lord rebuke thee.
+But Michael, the archangel, when contending with the devil and arguing about the body of Moses, dared not bring against him an abusive condemnation, but said, "May the Lord rebuke you!"

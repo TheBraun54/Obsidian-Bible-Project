@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah came unto Zechariah, saying,
+The word of Yahweh came to Zechariah, saying,

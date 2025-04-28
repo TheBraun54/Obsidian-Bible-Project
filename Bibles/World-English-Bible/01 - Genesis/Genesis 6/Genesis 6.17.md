@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, behold, I do bring the flood of waters upon the earth, to destroy all flesh, wherein is the breath of life, from under heaven; everything that is in the earth shall die.
+I, even I, do bring the flood of waters on this earth, to destroy all flesh having the breath of life from under the sky. Everything that is in the earth will die.

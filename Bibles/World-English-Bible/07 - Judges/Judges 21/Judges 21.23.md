@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Benjamin did so, and took them wives, according to their number, of them that danced, whom they carried off: and they went and returned unto their inheritance, and built the cities, and dwelt in them.
+The children of Benjamin did so, and took them wives, according to their number, of those who danced, whom they carried off. They went and returned to their inheritance, built the cities, and lived in them.

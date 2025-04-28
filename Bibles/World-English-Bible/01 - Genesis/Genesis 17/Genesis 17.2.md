@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make my covenant between me and thee, and will multiply thee exceedingly.
+I will make my covenant between me and you, and will multiply you exceedingly."

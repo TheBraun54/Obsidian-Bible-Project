@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cried aloud, and cut themselves after their manner with knives and lances, till the blood gushed out upon them.
+They cried aloud, and cut themselves in their way with knives and lances, until the blood gushed out on them.

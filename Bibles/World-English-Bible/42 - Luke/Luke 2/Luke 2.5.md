@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to enrol himself with Mary, who was betrothed to him, being great with child.
+to enroll himself with Mary, who was pledged to be married to him as wife, being pregnant.

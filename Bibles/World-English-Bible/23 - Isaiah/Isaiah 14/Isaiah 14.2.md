@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the peoples shall take them, and bring them to their place; and the house of Israel shall possess them in the land of Jehovah for servants and for handmaids: and they shall take them captive whose captives they were; and they shall rule over their oppressors.
+The peoples will take them, and bring them to their place. The house of Israel will possess them in Yahweh's land for servants and for handmaids. They will take as captives those whose captives they were; and they shall rule over their oppressors.

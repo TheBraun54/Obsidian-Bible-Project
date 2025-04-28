@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he divided himself against them by night, he and his servants, and smote them, and pursued them unto Hobah, which is on the left hand of Damascus.
+He divided himself against them by night, he and his servants, and struck them, and pursued them to Hobah, which is on the left hand of Damascus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sendeth his word, and healeth them, And delivereth [them] from their destructions.
+He sends his word, and heals them, and delivers them from their graves.

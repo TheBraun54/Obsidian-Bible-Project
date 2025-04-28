@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The blessing of him that was ready to perish came upon me; And I caused the widow's heart to sing for joy.
+the blessing of him who was ready to perish came on me, and I caused the widow's heart to sing for joy.

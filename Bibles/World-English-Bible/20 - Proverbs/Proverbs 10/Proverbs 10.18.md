@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hideth hatred is of lying lips; And he that uttereth a slander is a fool.
+He who hides hatred has lying lips. He who utters a slander is a fool.

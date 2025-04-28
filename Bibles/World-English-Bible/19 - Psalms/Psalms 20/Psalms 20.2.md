@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Send thee help from the sanctuary, And strengthen thee out of Zion;
+send you help from the sanctuary, grant you support from Zion,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the saints salute you, especially they that are of Caesar's household.
+All the saints greet you, especially those who are of Caesar's household.

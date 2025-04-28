@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, my sons; for it is no good report that I hear: ye make Jehovah's people to transgress.
+No, my sons; for it is no good report that I hear: you make Yahweh's people disobey.

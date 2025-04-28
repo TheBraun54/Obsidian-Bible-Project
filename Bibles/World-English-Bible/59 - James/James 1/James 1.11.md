@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the sun ariseth with the scorching wind, and withereth the grass: and the flower thereof falleth, and the grace of the fashion of it perisheth: so also shall the rich man fade away in his goings.
+For the sun arises with the scorching wind, and withers the grass, and the flower in it falls, and the beauty of its appearance perishes. So also will the rich man fade away in his pursuits.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a voice came forth from the throne, saying, Give praise to our God, all ye his servants, ye that fear him, the small and the great.
+A voice came forth from the throne, saying, "Give praise to our God, all you his servants, you who fear him, the small and the great!"

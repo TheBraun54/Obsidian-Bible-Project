@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bring his sons, and put coats upon them.
+You shall bring his sons, and put coats on them.

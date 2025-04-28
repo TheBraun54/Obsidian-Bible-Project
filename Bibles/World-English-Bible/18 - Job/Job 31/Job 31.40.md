@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thistles grow instead of wheat, And cockle instead of barley. The words of Job are ended.
+let briars grow instead of wheat, and stinkweed instead of barley." The words of Job are ended.

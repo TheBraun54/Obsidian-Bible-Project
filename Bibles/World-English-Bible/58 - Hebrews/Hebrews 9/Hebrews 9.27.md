@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And inasmuch as it is appointed unto men once to die, and after this [cometh] judgment;
+Inasmuch as it is appointed for men to die once, and after this, judgment,

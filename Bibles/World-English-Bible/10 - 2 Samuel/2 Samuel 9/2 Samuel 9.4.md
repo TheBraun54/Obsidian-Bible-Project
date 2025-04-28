@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto him, Where is he? And Ziba said unto the king, Behold, he is in the house of Machir the son of Ammiel, in Lo-debar.
+The king said to him, "Where is he?" Ziba said to the king, "Behold, he is in the house of Machir the son of Ammiel, in Lo Debar."

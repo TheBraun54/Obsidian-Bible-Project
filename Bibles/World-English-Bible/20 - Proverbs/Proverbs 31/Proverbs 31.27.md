@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She looketh well to the ways of her household, And eateth not the bread of idleness.
+She looks well to the ways of her household, and doesn't eat the bread of idleness.

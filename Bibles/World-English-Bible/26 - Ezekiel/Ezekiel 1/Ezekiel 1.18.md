@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for their rims, they were high and dreadful; and they four had their rims full of eyes round about.
+As for their rims, they were high and dreadful; and the four of them had their rims full of eyes all around.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, as I live, saith the Lord Jehovah, I will do according to thine anger, and according to thine envy which thou hast showed out of thy hatred against them; and I will make myself known among them, when I shall judge thee.
+therefore, as I live, says the Lord Yahweh, I will do according to your anger, and according to your envy which you have shown out of your hatred against them; and I will make myself known among them, when I shall judge you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, God is great, and we know him not; The number of his years is unsearchable.
+Behold, God is great, and we don't know him. The number of his years is unsearchable.

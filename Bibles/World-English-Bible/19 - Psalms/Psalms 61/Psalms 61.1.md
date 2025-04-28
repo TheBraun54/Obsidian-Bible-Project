@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; on a stringed instrument. [A Psalm] of David]. Hear my cry, O God; Attend unto my prayer.
+Hear my cry, God. Listen to my prayer.

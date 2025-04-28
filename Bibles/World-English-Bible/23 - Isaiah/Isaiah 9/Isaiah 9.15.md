@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The elder and the honorable man, he is the head; and the prophet that teacheth lies, he is the tail.
+The elder and the honorable man is the head, and the prophet who teaches lies is the tail.

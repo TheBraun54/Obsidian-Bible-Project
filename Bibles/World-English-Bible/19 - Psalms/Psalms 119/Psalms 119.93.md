@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will never forget thy precepts; For with them thou hast quickened me.
+I will never forget your precepts, for with them, you have revived me.

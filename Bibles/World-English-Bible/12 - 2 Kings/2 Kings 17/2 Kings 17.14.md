@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Notwithstanding, they would not hear, but hardened their neck, like to the neck of their fathers, who believed not in Jehovah their God.
+Notwithstanding, they would not listen, but hardened their neck, like the neck of their fathers, who didn't believe in Yahweh their God.

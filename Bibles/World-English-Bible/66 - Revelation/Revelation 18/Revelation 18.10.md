@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-standing afar off for the fear of her torment, saying, Woe, woe, the great city, Babylon, the strong city! for in one hour is thy judgment come.
+standing far away for the fear of her torment, saying, 'Woe, woe, the great city, Babylon, the strong city! For your judgment has come in one hour.'

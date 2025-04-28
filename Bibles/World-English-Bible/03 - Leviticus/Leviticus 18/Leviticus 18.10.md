@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nakedness of thy son's daughter, or of thy daughter's daughter, even their nakedness thou shalt not uncover: for theirs is thine own nakedness.
+"'You shall not uncover the nakedness of your son's daughter, or of your daughter's daughter, even their nakedness: for theirs is your own nakedness.

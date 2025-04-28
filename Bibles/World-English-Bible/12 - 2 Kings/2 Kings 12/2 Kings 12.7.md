@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then king Jehoash called for Jehoiada the priest, and for the [other] priests, and said unto them, Why repair ye not the breaches of the house? now therefore take no [more] money from your acquaintance, but deliver it for the breaches of the house.
+Then king Jehoash called for Jehoiada the priest, and for the [other] priests, and said to them, "Why don't you repair the breaches of the house? Now therefore take no more money from your treasurers, but deliver it for the breaches of the house."

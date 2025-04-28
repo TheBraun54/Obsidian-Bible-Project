@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did I take advantage of you by any one of them whom I have sent unto you?
+Did I take advantage of you by anyone of them whom I have sent to you?

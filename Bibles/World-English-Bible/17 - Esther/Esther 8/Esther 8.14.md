@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the posts that rode upon swift steeds that were used in the king's service went out, being hastened and pressed on by the king's commandment; and the decree was given out in Shushan the palace.
+So the couriers who rode on royal horses went out, hastened and pressed on by the king's commandment. The decree was given out in the citadel of Susa.

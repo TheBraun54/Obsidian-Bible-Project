@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how that by revelation was made known unto me the mystery, as I wrote before in few words,
+how that by revelation the mystery was made known to me, as I wrote before in few words,

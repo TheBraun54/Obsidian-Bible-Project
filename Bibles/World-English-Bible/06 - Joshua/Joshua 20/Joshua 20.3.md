@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the manslayer that killeth any person unwittingly [and] unawares may flee thither: and they shall be unto you for a refuge from the avenger of blood.
+that the manslayer who kills any person accidentally or unintentionally may flee there. They shall be to you for a refuge from the avenger of blood.

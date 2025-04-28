@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it seemed good to me also, having traced the course of all things accurately from the first, to write unto thee in order, most excellent Theophilus;
+it seemed good to me also, having traced the course of all things accurately from the first, to write to you in order, most excellent Theophilus;

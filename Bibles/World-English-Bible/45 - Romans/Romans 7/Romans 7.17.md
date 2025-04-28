@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So now it is no more I that do it, but sin which dwelleth in me.
+So now it is no more I that do it, but sin which dwells in me.

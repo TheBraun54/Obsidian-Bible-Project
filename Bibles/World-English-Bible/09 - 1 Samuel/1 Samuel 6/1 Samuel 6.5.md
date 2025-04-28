@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore ye shall make images of your tumors, and images of your mice that mar the land; and ye shall give glory unto the God of Israel: peradventure he will lighten his hand from off you, and from off your gods, and from off your land.
+Therefore you shall make images of your tumors, and images of your mice that mar the land; and you shall give glory to the God of Israel: perhaps he will lighten his hand from off you, and from off your gods, and from off your land.

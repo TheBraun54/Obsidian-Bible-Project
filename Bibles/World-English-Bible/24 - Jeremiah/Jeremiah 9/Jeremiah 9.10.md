@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the mountains will I take up a weeping and wailing, and for the pastures of the wilderness a lamentation, because they are burned up, so that none passeth through; neither can men hear the voice of the cattle; both the birds of the heavens and the beasts are fled, they are gone.
+For the mountains will I take up a weeping and wailing, and for the pastures of the wilderness a lamentation, because they are burned up, so that none passes through; neither can men hear the voice of the livestock; both the birds of the sky and the animals are fled, they are gone.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon built Gezer, and Beth-horon the nether,
+Solomon built Gezer, and Beth Horon the lower,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he opened the seventh seal, there followed a silence in heaven about the space of half an hour.
+When he opened the seventh seal, there was silence in heaven for about half an hour.

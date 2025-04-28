@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Give me also this power, that on whomsoever I lay my hands, he may receive the Holy Spirit.
+saying, "Give me also this power, that whoever I lay my hands on may receive the Holy Spirit."

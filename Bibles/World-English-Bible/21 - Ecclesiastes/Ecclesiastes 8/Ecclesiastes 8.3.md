@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not hasty to go out of his presence; persist not in an evil thing: for he doeth whatsoever pleaseth him.
+Don't be hasty to go out of his presence. Don't persist in an evil thing, for he does whatever pleases him,

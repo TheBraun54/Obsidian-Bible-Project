@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that saith he is in the light and hateth his brother, is in the darkness even until now.
+He who says he is in the light and hates his brother, is in the darkness even until now.

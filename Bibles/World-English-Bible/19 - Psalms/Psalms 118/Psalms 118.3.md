@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the house of Aaron now say, That his lovingkindness [endureth] for ever.
+Let the house of Aaron now say that his loving kindness endures forever.

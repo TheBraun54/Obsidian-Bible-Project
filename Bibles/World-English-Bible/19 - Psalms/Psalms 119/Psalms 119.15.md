@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will meditate on thy precepts, And have respect unto thy ways.
+I will meditate on your precepts, and consider your ways.

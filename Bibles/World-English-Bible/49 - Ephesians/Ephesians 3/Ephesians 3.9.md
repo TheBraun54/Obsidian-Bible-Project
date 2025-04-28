@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to make all men see what is the dispensation of the mystery which for ages hath been hid in God who created all things;
+and to make all men see what is the administration of the mystery which for ages has been hidden in God, who created all things through Jesus Christ;

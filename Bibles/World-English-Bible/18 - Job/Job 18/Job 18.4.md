@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou that tearest thyself in thine anger, Shall the earth be forsaken for thee? Or shall the rock be removed out of its place?
+You who tear yourself in your anger, shall the earth be forsaken for you? Or shall the rock be removed out of its place?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every one that heareth these words of mine, and doeth them not, shall be likened unto a foolish man, who built his house upon the sand:
+Everyone who hears these words of mine, and doesn't do them will be like a foolish man, who built his house on the sand.

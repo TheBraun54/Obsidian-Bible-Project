@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said one to another, Was not our heart burning within us, while he spake to us in the way, while he opened to us the scriptures?
+They said one to another, "Weren't our hearts burning within us, while he spoke to us along the way, and while he opened the Scriptures to us?"

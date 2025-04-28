@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now a certain Jew named Apollos, an Alexandrian by race, an eloquent man, came to Ephesus; and he was mighty in the scriptures.
+Now a certain Jew named Apollos, an Alexandrian by race, an eloquent man, came to Ephesus. He was mighty in the Scriptures.

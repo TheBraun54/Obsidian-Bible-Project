@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if ye shall diligently keep all this commandment which I command you, to do it, to love Jehovah your God, to walk in all his ways, and to cleave unto him;
+For if you shall diligently keep all this commandment which I command you, to do it, to love Yahweh your God, to walk in all his ways, and to cling to him;

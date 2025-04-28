@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel rose up in the morning, and encamped against Gibeah.
+The children of Israel rose up in the morning, and encamped against Gibeah.

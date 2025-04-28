@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy hand be ready to help me; For I have chosen thy precepts.
+Let your hand be ready to help me, for I have chosen your precepts.

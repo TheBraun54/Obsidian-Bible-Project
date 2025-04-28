@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I can do all things in him that strengtheneth me.
+I can do all things through Christ, who strengthens me.

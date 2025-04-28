@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ZAYIN. Remember the word unto thy servant, Because thou hast made me to hope.
+Remember your word to your servant, because you gave me hope.

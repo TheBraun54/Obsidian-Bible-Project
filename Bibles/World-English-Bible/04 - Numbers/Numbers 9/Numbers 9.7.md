@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and those men said unto him, We are unclean by reason of the dead body of a man: wherefore are we kept back, that we may not offer the oblation of Jehovah in its appointed season among the children of Israel?
+Those men said to him, "We are unclean because of the dead body of a man. Why are we kept back, that we may not offer the offering of Yahweh in its appointed season among the children of Israel?"

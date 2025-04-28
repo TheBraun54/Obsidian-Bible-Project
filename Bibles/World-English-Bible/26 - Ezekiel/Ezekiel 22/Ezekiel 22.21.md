@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, I will gather you, and blow upon you with the fire of my wrath, and ye shall be melted in the midst thereof.
+Yes, I will gather you, and blow on you with the fire of my wrath, and you shall be melted in its midst.

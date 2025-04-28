@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the fields of the city, and the villages thereof, gave they to Caleb the son of Jephunneh for his possession.
+But they gave the fields of the city and its villages to Caleb the son of Jephunneh for his possession.

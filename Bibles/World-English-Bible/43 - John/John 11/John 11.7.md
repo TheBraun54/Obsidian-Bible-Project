@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then after this he saith to the disciples, Let us go into Judaea again.
+Then after this he said to the disciples, "Let's go into Judea again."

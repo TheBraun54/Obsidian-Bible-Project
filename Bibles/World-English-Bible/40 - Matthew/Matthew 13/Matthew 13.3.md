@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake to them many things in parables, saying, Behold, the sower went forth to sow;
+He spoke to them many things in parables, saying, "Behold, a farmer went out to sow.

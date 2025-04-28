@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and two doors of fir-wood: the two leaves of the one door were folding, and the two leaves of the other door were folding.
+and two doors of fir wood: the two leaves of the one door were folding, and the two leaves of the other door were folding.

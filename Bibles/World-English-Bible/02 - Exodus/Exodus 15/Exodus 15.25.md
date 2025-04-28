@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An he cried unto Jehovah; And Jehovah showed him a tree, and he cast it into the waters, and the waters were made sweet. There he made for them a statute and an ordinance, and there he proved them;
+Then he cried to Yahweh. Yahweh showed him a tree, and he threw it into the waters, and the waters were made sweet. There he made a statute and an ordinance for them, and there he tested them;

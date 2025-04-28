@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, they cried out, saying, What have we to do with thee, thou Son of God? art thou come hither to torment us before the time?
+Behold, they cried out, saying, "What do we have to do with you, Jesus, Son of God? Have you come here to torment us before the time?"

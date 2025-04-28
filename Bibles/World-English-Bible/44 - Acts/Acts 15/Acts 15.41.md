@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went through Syria and Cilicia, confirming the churches.
+He went through Syria and Cilicia, strengthening the assemblies.

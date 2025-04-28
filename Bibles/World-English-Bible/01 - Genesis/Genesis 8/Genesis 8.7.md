@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he sent forth a raven, and it went forth to and fro, until the waters were dried up from off the earth.
+and he sent forth a raven. It went back and forth, until the waters were dried up from the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Moses, when he was born, was hid three months by his parents, because they saw he was a goodly child; and they were not afraid of the king's commandment.
+By faith, Moses, when he was born, was hidden for three months by his parents, because they saw that he was a beautiful child, and they were not afraid of the king's commandment.

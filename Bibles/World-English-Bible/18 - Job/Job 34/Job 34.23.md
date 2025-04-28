@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he needeth not further to consider a man, That he should go before God in judgment.
+For he doesn't need to consider a man further, that he should go before God in judgment.

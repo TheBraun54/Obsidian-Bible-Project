@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the ways of a man are clean in his own eyes; But Jehovah weigheth the spirits.
+All the ways of a man are clean in his own eyes; but Yahweh weighs the motives.

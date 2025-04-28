@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They then that received his word were baptized: and there were added [unto them] in that day about three thousand souls.
+Then those who gladly received his word were baptized. There were added that day about three thousand souls.

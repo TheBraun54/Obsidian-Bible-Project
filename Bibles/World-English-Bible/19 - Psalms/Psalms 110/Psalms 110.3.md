@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy people offer themselves willingly In the day of thy power, in holy array: Out of the womb of the morning Thou hast the dew of thy youth.
+Your people offer themselves willingly in the day of your power, in holy array. Out of the womb of the morning, you have the dew of your youth.

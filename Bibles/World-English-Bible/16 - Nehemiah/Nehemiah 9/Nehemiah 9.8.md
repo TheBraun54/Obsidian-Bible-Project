@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and foundest his heart faithful before thee, and madest a covenant with him to give the land of the Canaanite, the Hittite, the Amorite, and the Perizzite, and the Jebusite, and the Girgashite, to give it unto his seed, and hast performed thy words; for thou art righteous.
+and found his heart faithful before you, and made a covenant with him to give the land of the Canaanite, the Hittite, the Amorite, and the Perizzite, and the Jebusite, and the Girgashite, to give it to his seed, and have performed your words; for you are righteous.

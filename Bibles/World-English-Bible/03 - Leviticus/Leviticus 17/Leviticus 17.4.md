@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and hath not brought it unto the door of the tent of meeting, to offer it as an oblation unto Jehovah before the tabernacle of Jehovah: blood shall be imputed unto that man; he hath shed blood; and that man shall be cut off from among his people:
+and hasn't brought it to the door of the Tent of Meeting, to offer it as an offering to Yahweh before the tabernacle of Yahweh: blood shall be imputed to that man. He has shed blood; and that man shall be cut off from among his people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith unto them, Come, and ye shall see. They came therefore and saw where he abode; and they abode with him that day: it was about the tenth hour.
+He said to them, "Come, and see." They came and saw where he was staying, and they stayed with him that day. It was about the tenth hour.

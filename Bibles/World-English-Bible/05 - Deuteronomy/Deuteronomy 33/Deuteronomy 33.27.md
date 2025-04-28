@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eternal God is [thy] dwelling-place, And underneath are the everlasting arms. And he thrust out the enemy from before thee, And said, Destroy.
+The eternal God is [your] dwelling place. Underneath are the everlasting arms. He thrust out the enemy from before you, and said, 'Destroy!'

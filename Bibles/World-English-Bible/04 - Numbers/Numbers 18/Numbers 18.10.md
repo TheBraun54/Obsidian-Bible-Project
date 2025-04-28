@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the most holy things shalt thou eat thereof; every male shall eat thereof: it shall be holy unto thee.
+You shall eat of it like the most holy things. Every male shall eat of it. It shall be holy to you.

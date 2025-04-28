@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall kill him, and the third day he shall be raised up. And they were exceeding sorry.
+and they will kill him, and the third day he will be raised up." They were exceedingly sorry.

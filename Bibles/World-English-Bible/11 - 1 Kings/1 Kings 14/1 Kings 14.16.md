@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will give Israel up because of the sins of Jeroboam, which he hath sinned, and wherewith he hath made Israel to sin.
+He will give Israel up because of the sins of Jeroboam, which he has sinned, and with which he has made Israel to sin."

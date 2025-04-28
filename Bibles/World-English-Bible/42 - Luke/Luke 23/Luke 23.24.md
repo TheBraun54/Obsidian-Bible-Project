@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate gave sentence that what they asked for should be done.
+Pilate decreed that what they asked for should be done.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Felix, having more exact knowledge concerning the Way, deferred them, saying, When Lysias the chief captain shall come down, I will determine your matter.
+But Felix, having more exact knowledge concerning the Way, deferred them, saying, "When Lysias, the commanding officer, comes down, I will decide your case."

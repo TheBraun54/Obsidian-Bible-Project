@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and tarry with him a few days, until thy brother's fury turn away;
+Stay with him a few days, until your brother's fury turns away;

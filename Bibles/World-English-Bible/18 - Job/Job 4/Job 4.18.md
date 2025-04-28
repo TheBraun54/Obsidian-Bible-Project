@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he putteth no trust in his servants; And his angels he chargeth with folly:
+Behold, he puts no trust in his servants. He charges his angels with error.

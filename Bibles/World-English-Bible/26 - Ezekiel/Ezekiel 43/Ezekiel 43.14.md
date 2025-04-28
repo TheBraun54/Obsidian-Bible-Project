@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from the bottom upon the ground to the lower ledge shall be two cubits, and the breadth one cubit; and from the lesser ledge to the greater ledge shall be four cubits, and the breadth a cubit.
+From the bottom on the ground to the lower ledge shall be two cubits, and the breadth one cubit; and from the lesser ledge to the greater ledge shall be four cubits, and the breadth a cubit.

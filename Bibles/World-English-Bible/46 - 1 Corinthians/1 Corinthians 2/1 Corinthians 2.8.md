@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which none of the rulers of this world hath known: for had they known it, they would not have crucified the Lord of glory:
+which none of the rulers of this world has known. For had they known it, they wouldn't have crucified the Lord of glory.

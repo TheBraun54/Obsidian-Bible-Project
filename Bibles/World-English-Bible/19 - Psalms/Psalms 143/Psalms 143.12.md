@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in thy lovingkindness cut off mine enemies, And destroy all them that afflict my soul; For I am thy servant.
+In your loving kindness, cut off my enemies, and destroy all those who afflict my soul, For I am your servant. By David.

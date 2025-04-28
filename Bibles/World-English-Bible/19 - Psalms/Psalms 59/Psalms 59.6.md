@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They return at evening, they howl like a dog, And go round about the city.
+They return at evening, howling like dogs, and prowl around the city.

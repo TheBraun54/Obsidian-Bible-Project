@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am thine, save me; For I have sought thy precepts.
+I am yours. Save me, for I have sought your precepts.

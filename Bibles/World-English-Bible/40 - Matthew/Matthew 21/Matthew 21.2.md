@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying unto them, Go into the village that is over against you, and straightway ye shall find an ass tied, and a colt with her: loose [them], and bring [them] unto me.
+saying to them, "Go into the village that is opposite you, and immediately you will find a donkey tied, and a colt with her. Untie them, and bring them to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Although there is no violence in my hands, And my prayer is pure.
+Although there is no violence in my hands, and my prayer is pure.

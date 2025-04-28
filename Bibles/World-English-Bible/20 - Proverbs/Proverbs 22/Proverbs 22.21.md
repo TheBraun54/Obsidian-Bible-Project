@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To make thee know the certainty of the words of truth, That thou mayest carry back words of truth to them that send thee?
+To teach you truth, reliable words, to give sound answers to the ones who sent you?

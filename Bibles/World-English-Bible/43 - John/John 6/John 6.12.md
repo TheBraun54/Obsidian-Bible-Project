@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were filled, he saith unto his disciples, Gather up the broken pieces which remain over, that nothing be lost.
+When they were filled, he said to his disciples, "Gather up the broken pieces which are left over, that nothing be lost."

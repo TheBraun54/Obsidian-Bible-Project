@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith the walls of Jericho fell down, after they had been compassed about for seven days.
+By faith, the walls of Jericho fell down, after they had been encircled for seven days.

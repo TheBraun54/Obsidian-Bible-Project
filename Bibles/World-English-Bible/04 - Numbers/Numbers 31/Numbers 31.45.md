@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thirty thousand and five hundred asses,
+and thirty thousand five hundred donkeys,

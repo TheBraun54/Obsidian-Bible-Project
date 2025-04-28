@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but that the world may know that I love the Father, and as the Father gave me commandment, even so I do. Arise, let us go hence.
+But that the world may know that I love the Father, and as the Father commanded me, even so I do. Arise, let us go from here.

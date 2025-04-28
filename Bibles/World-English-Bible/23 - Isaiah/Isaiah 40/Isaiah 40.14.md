@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With whom took he counsel, and who instructed him, and taught him in the path of justice, and taught him knowledge, and showed to him the way of understanding?
+Who did he take counsel with, and who instructed him, and taught him in the path of justice, and taught him knowledge, and showed him the way of understanding?

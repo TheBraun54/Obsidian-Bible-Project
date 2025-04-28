@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Azariah the chief priest, of the house of Zadok, answered him and said, Since [the people] began to bring the oblations into the house of Jehovah, we have eaten and had enough, and have left plenty: for Jehovah hath blessed his people; and that which is left is this great store.
+Azariah the chief priest, of the house of Zadok, answered him and said, "Since people began to bring the offerings into the house of Yahweh, we have eaten and had enough, and have left plenty: for Yahweh has blessed his people; and that which is left is this great store."

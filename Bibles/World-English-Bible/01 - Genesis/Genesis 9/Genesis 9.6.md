@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso sheddeth man's blood, by man shall his blood be shed: For in the image of God made he man.
+Whoever sheds man's blood, his blood will be shed by man, for God made man in his own image.

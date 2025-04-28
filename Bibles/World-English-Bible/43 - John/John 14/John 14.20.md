@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day ye shall know that I am in my Father, and ye in me, and I in you.
+In that day you will know that I am in my Father, and you in me, and I in you.

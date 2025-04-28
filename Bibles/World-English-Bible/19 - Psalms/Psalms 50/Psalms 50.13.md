@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will I eat the flesh of bulls, Or drink the blood of goats?
+Will I eat the flesh of bulls, or drink the blood of goats?

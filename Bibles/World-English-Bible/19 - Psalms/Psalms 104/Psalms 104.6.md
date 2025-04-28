@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou coveredst it with the deep as with a vesture; The waters stood above the mountains.
+You covered it with the deep as with a cloak. The waters stood above the mountains.

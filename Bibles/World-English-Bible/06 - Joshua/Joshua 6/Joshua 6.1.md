@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jericho was straitly shut up because of the children of Israel: none went out, and none came in.
+Now Jericho was tightly shut up because of the children of Israel. No one went out, and no one came in.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso loveth wisdom rejoiceth his father; But he that keepeth company with harlots wasteth [his] substance.
+Whoever loves wisdom brings joy to his father; but a companion of prostitutes squanders his wealth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Joshua, saying, The five kings are found, hidden in the cave at Makkedah.
+Joshua was told, saying, "The five kings are found, hidden in the cave at Makkedah."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Let them be] as a snail which melteth and passeth away, [Like] the untimely birth of a woman, that hath not seen the sun.
+Let them be like a snail which melts and passes away, like the stillborn child, who has not seen the sun.

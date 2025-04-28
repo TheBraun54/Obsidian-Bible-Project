@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh come, let us worship and bow down; Let us kneel before Jehovah our Maker:
+Oh come, let's worship and bow down. Let's kneel before Yahweh, our Maker,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will set up an ensign for the nations, and will assemble the outcasts of Israel, and gather together the dispersed of Judah from the four corners of the earth.
+He will set up a banner for the nations, and will assemble the outcasts of Israel, and gather together the dispersed of Judah from the four corners of the earth.

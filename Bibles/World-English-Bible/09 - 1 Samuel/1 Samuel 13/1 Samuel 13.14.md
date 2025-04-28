@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now thy kingdom shall not continue: Jehovah hath sought him a man after his own heart, and Jehovah hath appointed him to be prince over his people, because thou hast not kept that which Jehovah commanded thee.
+But now your kingdom shall not continue. Yahweh has sought for himself a man after his own heart, and Yahweh has appointed him to be prince over his people, because you have not kept that which Yahweh commanded you."

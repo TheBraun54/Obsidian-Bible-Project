@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and showedst signs and wonders upon Pharaoh, and on all his servants, and on all the people of his land; for thou knewest that they dealt proudly against them, and didst get thee a name, as it is this day.
+and showed signs and wonders against Pharaoh, and against all his servants, and against all the people of his land; for you knew that they dealt proudly against them, and made a name for yourself, as it is this day.

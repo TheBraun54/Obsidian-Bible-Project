@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The conies are but a feeble folk, Yet make they their houses in the rocks;
+The conies are but a feeble folk, yet make they their houses in the rocks.

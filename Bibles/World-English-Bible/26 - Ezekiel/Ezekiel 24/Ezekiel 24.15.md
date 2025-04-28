@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also the word of Jehovah came unto me, saying,
+Also the word of Yahweh came to me, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I gave unto Isaac Jacob and Esau: and I gave unto Esau mount Seir, to possess it: and Jacob and his children went down into Egypt.
+I gave to Isaac Jacob and Esau: and I gave to Esau Mount Seir, to possess it. Jacob and his children went down into Egypt.

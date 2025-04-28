@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise Jehovah, O Jerusalem; Praise thy God, O Zion.
+Praise Yahweh, Jerusalem! Praise your God, Zion!

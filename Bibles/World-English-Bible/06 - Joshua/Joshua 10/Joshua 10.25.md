@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto them, Fear not, nor be dismayed; be strong and of good courage: for thus shall Jehovah do to all your enemies against whom ye fight.
+Joshua said to them, "Don't be afraid, nor be dismayed. Be strong and courageous, for Yahweh will do this to all your enemies against whom you fight."

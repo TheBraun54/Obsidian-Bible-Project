@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Son of man, hast thou seen [this] ? Then he brought me, and caused me to return to the bank of the river.
+He said to me, Son of man, have you seen [this]? Then he brought me, and caused me to return to the bank of the river.

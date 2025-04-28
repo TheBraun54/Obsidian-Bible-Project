@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore ye see the abomination of desolation, which was spoken of through Daniel the prophet, standing in the holy place (let him that readeth understand),
+"When, therefore, you see the abomination of desolation, which was spoken of through Daniel the prophet, standing in the holy place (let the reader understand),

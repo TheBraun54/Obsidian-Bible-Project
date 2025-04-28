@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who shall declare his way to his face? And who shall repay him what he hath done?
+Who shall declare his way to his face? Who shall repay him what he has done?

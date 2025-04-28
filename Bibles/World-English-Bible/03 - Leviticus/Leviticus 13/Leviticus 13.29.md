@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when a man or woman hath a plague upon the head or upon the beard,
+"When a man or woman has a plague on the head or on the beard,

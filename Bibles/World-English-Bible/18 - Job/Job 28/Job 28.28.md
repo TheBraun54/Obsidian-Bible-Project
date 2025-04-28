@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto man he said, Behold, the fear of the Lord, that is wisdom; And to depart from evil is understanding.
+To man he said, 'Behold, the fear of the Lord, that is wisdom. To depart from evil is understanding.'"

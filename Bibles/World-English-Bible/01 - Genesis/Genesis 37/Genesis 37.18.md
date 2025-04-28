@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they saw him afar off, and before he came near unto them, they conspired against him to slay him.
+They saw him afar off, and before he came near to them, they conspired against him to kill him.

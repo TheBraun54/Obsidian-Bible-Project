@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he passed by, he saw Levi the [son] of Alphaeus sitting at the place of toll, and he saith unto him, Follow me. And he arose and followed him.
+As he passed by, he saw Levi, the son of Alphaeus, sitting at the tax office, and he said to him, "Follow me." And he arose and followed him.

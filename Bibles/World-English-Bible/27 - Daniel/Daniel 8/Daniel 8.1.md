@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the third year of the reign of king Belshazzar a vision appeared unto me, even unto me, Daniel, after that which appeared unto me at the first.
+In the third year of the reign of king Belshazzar a vision appeared to me, even to me, Daniel, after that which appeared to me at the first.

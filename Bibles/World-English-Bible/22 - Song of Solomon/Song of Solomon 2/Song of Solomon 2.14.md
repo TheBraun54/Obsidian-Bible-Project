@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my dove, that art in the clefts of the rock, In the covert of the steep place, Let me see thy countenance, Let me hear thy voice; For sweet is thy voice, and thy countenance is comely.
+My dove in the clefts of the rock, In the hiding places of the mountainside, Let me see your face. Let me hear your voice; for your voice is sweet, and your face is lovely.

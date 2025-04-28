@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, the winter is past; The rain is over and gone;
+For, behold, the winter is past. The rain is over and gone.

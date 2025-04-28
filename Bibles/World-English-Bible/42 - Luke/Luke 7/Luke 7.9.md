@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus heard these things, he marvelled at him, and turned and said unto the multitude that followed him, I say unto you, I have not found so great faith, no, not in Israel.
+When Jesus heard these things, he marveled at him, and turned and said to the multitude who followed him, "I tell you, I have not found such great faith, no, not in Israel."

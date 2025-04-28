@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet he shall perish for ever like his own dung: They that have seen him shall say, Where is he?
+yet he shall perish forever like his own dung. Those who have seen him shall say, 'Where is he?'

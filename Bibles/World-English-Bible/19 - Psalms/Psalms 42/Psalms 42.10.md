@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As with a sword in my bones, mine adversaries reproach me, While they continually say unto me, Where is thy God?
+As with a sword in my bones, my adversaries reproach me, while they continually ask me, "Where is your God?"

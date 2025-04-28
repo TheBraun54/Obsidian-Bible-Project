@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In God have I put my trust, I will not be afraid; What can man do unto me?
+I have put my trust in God. I will not be afraid. What can man do to me?

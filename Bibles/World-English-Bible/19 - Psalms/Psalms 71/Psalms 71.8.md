@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My mouth shall be filled with thy praise, And with thy honor all the day.
+My mouth shall be filled with your praise, with your honor all the day.

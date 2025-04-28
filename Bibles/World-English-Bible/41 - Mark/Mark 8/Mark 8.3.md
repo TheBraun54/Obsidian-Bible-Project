@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if I send them away fasting to their home, they will faint on the way; and some of them are come from far.
+If I send them away fasting to their home, they will faint on the way, for some of them have come a long way."

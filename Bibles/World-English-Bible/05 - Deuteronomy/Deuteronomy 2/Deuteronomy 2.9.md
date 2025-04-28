@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Vex not Moab, neither contend with them in battle; for I will not give thee of his land for a possession; because I have given Ar unto the children of Lot for a possession.
+Yahweh said to me, "Don't bother Moab, neither contend with them in battle; for I will not give you of his land for a possession; because I have given Ar to the children of Lot for a possession."

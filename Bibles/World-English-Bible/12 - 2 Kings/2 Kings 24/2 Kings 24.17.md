@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Babylon made Mattaniah, [Jehoiachin's] father's brother, king is his stead, and changed his name to Zedekiah.
+The king of Babylon made Mattaniah, [Jehoiachin's] father's brother, king is his place, and changed his name to Zedekiah.

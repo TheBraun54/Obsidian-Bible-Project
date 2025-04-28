@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made loops of blue upon the edge of the one curtain from the selvedge in the coupling: likewise he made in the edge of the curtain that was outmost in the second coupling.
+He made loops of blue on the edge of the one curtain from the edge in the coupling. Likewise he made in the edge of the curtain that was outmost in the second coupling.

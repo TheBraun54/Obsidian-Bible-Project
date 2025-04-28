@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he looked behind him, he saw me, and called unto me. And I answered, Here am I.
+When he looked behind him, he saw me, and called to me. I answered, 'Here I am.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My tears have been my food day and night, While they continually say unto me, Where is thy God?
+My tears have been my food day and night, while they continually ask me, "Where is your God?"

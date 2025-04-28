@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he saith unto them, It is written, My house shall be called a house of prayer: but ye make it a den of robbers.
+He said to them, "It is written, 'My house shall be called a house of prayer,' but you have made it a den of robbers!"

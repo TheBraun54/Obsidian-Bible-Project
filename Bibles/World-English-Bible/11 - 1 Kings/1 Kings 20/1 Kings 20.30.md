@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the rest fled to Aphek, into the city; and the wall fell upon twenty and seven thousand men that were left. And Ben-hadad fled, and came into the city, into an inner chamber.
+But the rest fled to Aphek, into the city; and the wall fell on twenty-seven thousand men who were left. Ben Hadad fled, and came into the city, into an inner room.

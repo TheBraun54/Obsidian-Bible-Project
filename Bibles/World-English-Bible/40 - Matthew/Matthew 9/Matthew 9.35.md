@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus went about all the cities and the villages, teaching in their synagogues, and preaching the gospel of the kingdom, and healing all manner of disease and all manner of sickness.
+Jesus went about all the cities and the villages, teaching in their synagogues, and preaching the Good News of the Kingdom, and healing every disease and every sickness among the people.

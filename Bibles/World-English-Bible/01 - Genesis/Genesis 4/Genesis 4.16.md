@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Cain went out from the presence of Jehovah, and dwelt in the land of Nod, on the east of Eden.
+Cain went out from Yahweh's presence, and lived in the land of Nod, east of Eden.

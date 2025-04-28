@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he questioned him in many words; but he answered him nothing.
+He questioned him with many words, but he gave no answers.

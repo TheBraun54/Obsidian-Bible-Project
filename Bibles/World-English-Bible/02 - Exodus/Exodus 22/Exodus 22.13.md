@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If it be torn in pieces, let him bring it for witness; he shall not make good that which was torn.
+If it is torn in pieces, let him bring it for evidence. He shall not make good that which was torn.

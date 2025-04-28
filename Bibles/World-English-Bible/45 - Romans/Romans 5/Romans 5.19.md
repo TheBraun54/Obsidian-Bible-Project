@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as through the one man's disobedience the many were made sinners, even so through the obedience of the one shall the many be made righteous.
+For as through the one man's disobedience many were made sinners, even so through the obedience of the one, many will be made righteous.

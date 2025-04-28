@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if an ox gore a man or a woman to death, the ox shall be surely stoned, and its flesh shall not be eaten; but the owner of the ox shall be quit.
+"If a bull gores a man or a woman to death, the bull shall surely be stoned, and its flesh shall not be eaten; but the owner of the bull shall not be held responsible.

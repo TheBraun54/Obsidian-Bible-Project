@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the women, and the little ones, and the cattle, and all that is in the city, even all the spoil thereof, shalt thou take for a prey unto thyself; and thou shalt eat the spoil of thine enemies, which Jehovah thy God hath given thee.
+but the women, and the little ones, and the livestock, and all that is in the city, even all its spoil, you shall take for a prey to yourself; and you shall eat the spoil of your enemies, which Yahweh your God has given you.

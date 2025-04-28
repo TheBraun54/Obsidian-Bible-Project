@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the pillars of the court round about shall be filleted with silver; their hooks of silver, and their sockets of brass.
+All the pillars of the court around shall be filleted with silver; their hooks of silver, and their sockets of brass.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are inclosed in their own fat: With their mouth they speak proudly.
+They close up their callous hearts. With their mouth they speak proudly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have remembered thy name, O Jehovah, in the night, And have observed thy law.
+I have remembered your name, Yahweh, in the night, and I obey your law.

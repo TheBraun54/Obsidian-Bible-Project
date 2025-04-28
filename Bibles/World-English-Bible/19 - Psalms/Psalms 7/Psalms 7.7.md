@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let the congregation of the peoples compass thee about; And over them return thou on high.
+Let the congregation of the peoples surround you. Rule over them on high.

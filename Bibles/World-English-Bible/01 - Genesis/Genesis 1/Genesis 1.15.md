@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let them be for lights in the firmament of heaven to give light upon the earth: and it was so.
+and let them be for lights in the expanse of sky to give light on the earth;" and it was so.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, my lord, hear me: the field give I thee, and the cave that is therein, I give it thee; in the presence of the children of my people give I it thee: bury thy dead.
+"No, my lord, hear me. I give you the field, and I give you the cave that is in it. In the presence of the children of my people I give it to you. Bury your dead."

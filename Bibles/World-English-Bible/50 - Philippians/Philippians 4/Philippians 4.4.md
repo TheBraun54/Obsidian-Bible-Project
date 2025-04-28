@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice in the Lord always: again I will say, Rejoice.
+Rejoice in the Lord always! Again I will say, Rejoice!

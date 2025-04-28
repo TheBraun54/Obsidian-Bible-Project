@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Martha saith unto him, I know that he shall rise again in the resurrection at the last day.
+Martha said to him, "I know that he will rise again in the resurrection at the last day."

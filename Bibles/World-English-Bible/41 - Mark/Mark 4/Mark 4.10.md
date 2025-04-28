@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was alone, they that were about him with the twelve asked of him the parables.
+When he was alone, those who were around him with the twelve asked him about the parables.

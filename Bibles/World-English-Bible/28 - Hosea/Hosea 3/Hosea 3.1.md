@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Go again, love a woman beloved of [her] friend, and an adulteress, even as Jehovah loveth the children of Israel, though they turn unto other gods, and love cakes of raisins.
+Yahweh said to me, "Go again, love a woman loved by another, and an adulteress, even as Yahweh loves the children of Israel, though they turn to other gods, and love cakes of raisins."

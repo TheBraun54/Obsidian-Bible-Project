@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart fluttereth, horror hath affrighted me; the twilight that I desired hath been turned into trembling unto me.
+My heart flutters. Horror has frightened me. The twilight that I desired has been turned into trembling for me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The house of the wicked shall be overthrown; But the tent of the upright shall flourish.
+The house of the wicked will be overthrown, but the tent of the upright will flourish.

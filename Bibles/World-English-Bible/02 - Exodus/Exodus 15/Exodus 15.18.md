@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah shall reign for ever and ever.
+Yahweh shall reign forever and ever."

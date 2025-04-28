@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that the prophets shall be ashamed every one of his vision, when he prophesieth; neither shall they wear a hairy mantle to deceive:
+It will happen in that day, that the prophets will each be ashamed of his vision, when he prophesies; neither will they wear a hairy mantle to deceive:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob said, Sell me first thy birthright.
+Jacob said, "First, sell me your birthright."

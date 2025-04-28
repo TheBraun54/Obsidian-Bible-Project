@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the noise of the taking of Babylon the earth trembleth, and the cry is heard among the nations.
+At the noise of the taking of Babylon the earth trembles, and the cry is heard among the nations.

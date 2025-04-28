@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah, Woe unto the foolish prophets, that follow their own spirit, and have seen nothing!
+Thus says the Lord Yahweh, Woe to the foolish prophets, who follow their own spirit, and have seen nothing!

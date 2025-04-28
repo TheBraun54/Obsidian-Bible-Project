@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the high priest stood up, and said unto him, Answerest thou nothing? what is it which these witness against thee?
+The high priest stood up, and said to him, "Have you no answer? What is this that these testify against you?"

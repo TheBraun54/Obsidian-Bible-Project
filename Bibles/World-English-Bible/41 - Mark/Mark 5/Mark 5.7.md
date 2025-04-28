@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and crying out with a loud voice, he saith, What have I to do with thee, Jesus, thou Son of the Most High God? I adjure thee by God, torment me not.
+and crying out with a loud voice, he said, "What have I to do with you, Jesus, you Son of the Most High God? I adjure you by God, don't torment me."

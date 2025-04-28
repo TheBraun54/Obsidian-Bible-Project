@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the disciples went away again unto their own home.
+So the disciples went away again to their own homes.

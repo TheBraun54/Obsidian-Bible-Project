@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jehovah will raise him up a king over Israel, who shall cut off the house of Jeroboam that day: but what? even now.
+Moreover Yahweh will raise him up a king over Israel, who shall cut off the house of Jeroboam. This is day! What? Even now.

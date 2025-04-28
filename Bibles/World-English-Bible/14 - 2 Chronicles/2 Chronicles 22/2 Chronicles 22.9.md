@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sought Ahaziah, and they caught him (now he was hiding in Samaria), and they brought him to Jehu, and slew him; and they buried him, for they said, He is the son of Jehoshaphat, who sought Jehovah with all his heart. And the house of Ahaziah had no power to hold the kingdom.
+He sought Ahaziah, and they caught him (now he was hiding in Samaria), and they brought him to Jehu, and killed him; and they buried him, for they said, "He is the son of Jehoshaphat, who sought Yahweh with all his heart." The house of Ahaziah had no power to hold the kingdom.

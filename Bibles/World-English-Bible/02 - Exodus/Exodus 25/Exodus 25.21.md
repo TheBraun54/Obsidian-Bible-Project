@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put the mercy-seat above upon the ark; and in the ark thou shalt put the testimony that I shall give thee.
+You shall put the mercy seat on top of the ark, and in the ark you shall put the testimony that I will give you.

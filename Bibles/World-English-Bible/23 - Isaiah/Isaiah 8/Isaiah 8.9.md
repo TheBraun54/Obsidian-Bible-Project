@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make an uproar, O ye peoples, and be broken in pieces; and give ear, all ye of far countries: gird yourselves, and be broken in pieces; gird yourselves, and be broken in pieces.
+Make an uproar, you peoples, and be broken in pieces! Listen, all you from far countries: dress for battle, and be shattered! Dress for battle, and be shattered!

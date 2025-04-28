@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this, knowing the season, that already it is time for you to awake out of sleep: for now is salvation nearer to us than when we [first] believed.
+Do this, knowing the time, that it is already time for you to awaken out of sleep, for salvation is now nearer to us than when we first believed.

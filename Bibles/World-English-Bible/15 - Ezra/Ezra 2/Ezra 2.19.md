@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Hashum, two hundred twenty and three.
+The children of Hashum, two hundred Twenty-three.

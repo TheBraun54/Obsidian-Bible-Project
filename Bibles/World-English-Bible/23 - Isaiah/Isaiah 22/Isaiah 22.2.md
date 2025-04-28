@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou that art full of shoutings, a tumultuous city, a joyous town; thy slain are not slain with the sword, neither are they dead in battle.
+You that are full of shouting, a tumultuous city, a joyous town; your slain are not slain with the sword, neither are they dead in battle.

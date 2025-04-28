@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it have any blemish, [as if it be] lame or blind, any ill blemish whatsoever, thou shalt not sacrifice it unto Jehovah thy God.
+If it have any blemish, [as if it be] lame or blind, any ill blemish whatever, you shall not sacrifice it to Yahweh your God.

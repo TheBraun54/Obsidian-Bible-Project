@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, ye are of nothing, and your work is of nought; an abomination is he that chooseth you.
+Behold, you are of nothing, and your work is of nothing. He who chooses you is an abomination.

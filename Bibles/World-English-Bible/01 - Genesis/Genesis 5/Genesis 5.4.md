@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the days of Adam after he begat Seth were eight hundred years: and he begat sons and daughters.
+The days of Adam after he became the father of Seth were eight hundred years, and he became the father of sons and daughters.

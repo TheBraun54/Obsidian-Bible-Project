@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The breath of our nostrils, the anointed of Jehovah, was taken in their pits; Of whom we said, Under his shadow we shall live among the nations.
+The breath of our nostrils, the anointed of Yahweh, was taken in their pits; Of whom we said, Under his shadow we shall live among the nations.

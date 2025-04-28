@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But on the first day of the week, at early dawn, they came unto the tomb, bringing the spices which they had prepared.
+But on the first day of the week, at early dawn, they and some others came to the tomb, bringing the spices which they had prepared.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the chief priests and the Pharisees had given commandment, that, if any man knew where he was, he should show it, that they might take him.
+Now the chief priests and the Pharisees had commanded that if anyone knew where he was, he should report it, that they might seize him.

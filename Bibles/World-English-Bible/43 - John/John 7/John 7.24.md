@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judge not according to appearance, but judge righteous judgment.
+Don't judge according to appearance, but judge righteous judgment."

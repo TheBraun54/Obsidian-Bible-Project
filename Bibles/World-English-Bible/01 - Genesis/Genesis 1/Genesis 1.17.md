@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God set them in the firmament of heaven to give light upon the earth,
+God set them in the expanse of sky to give light to the earth,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he carried away all his cattle, and all his substance which he had gathered, the cattle of his getting, which he had gathered in Paddan-aram, to go to Isaac his father unto the land of Canaan.
+and he took away all his livestock, and all his possessions which he had gathered, including the livestock which he had gained in Paddan Aram, to go to Isaac his father, to the land of Canaan.

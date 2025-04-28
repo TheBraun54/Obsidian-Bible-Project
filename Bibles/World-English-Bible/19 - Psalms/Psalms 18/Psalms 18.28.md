@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou wilt light my lamp: Jehovah my God will lighten my darkness.
+For you will light my lamp, Yahweh. My God will light up my darkness.

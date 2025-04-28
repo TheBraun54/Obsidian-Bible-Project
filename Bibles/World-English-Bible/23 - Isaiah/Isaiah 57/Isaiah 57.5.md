@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye that inflame yourselves among the oaks, under every green tree; that slay the children in the valleys, under the clefts of the rocks?
+you who inflame yourselves among the oaks, under every green tree; who kill the children in the valleys, under the clefts of the rocks?

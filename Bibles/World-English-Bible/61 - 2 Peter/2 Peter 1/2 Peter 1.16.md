@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we did not follow cunningly devised fables, when we made known unto you the power and coming of our Lord Jesus Christ, but we were eyewitnesses of his majesty.
+For we did not follow cunningly devised fables, when we made known to you the power and coming of our Lord Jesus Christ, but we were eyewitnesses of his majesty.

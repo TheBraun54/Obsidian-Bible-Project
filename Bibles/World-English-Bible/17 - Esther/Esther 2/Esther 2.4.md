@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let the maiden that pleaseth the king be queen instead of Vashti. And the thing pleased the king; and he did so.
+and let the maiden who pleases the king be queen instead of Vashti." The thing pleased the king, and he did so.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seest thou a man wise in his own conceit? There is more hope of a fool than of him.
+Do you see a man wise in his own eyes? There is more hope for a fool than for him.

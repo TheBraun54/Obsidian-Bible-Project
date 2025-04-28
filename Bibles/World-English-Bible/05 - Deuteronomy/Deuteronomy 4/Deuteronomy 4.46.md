@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-beyond the Jordan, in the valley over against Beth-peor, in the land of Sihon king of the Amorites, who dwelt at Heshbon, whom Moses and the children of Israel smote, when they came forth out of Egypt.
+beyond the Jordan, in the valley over against Beth Peor, in the land of Sihon king of the Amorites, who lived at Heshbon, whom Moses and the children of Israel struck, when they came forth out of Egypt.

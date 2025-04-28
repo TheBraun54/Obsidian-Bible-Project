@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt be over my house, and according unto thy word shall all my people be ruled: only in the throne will I be greater than thou.
+You shall be over my house, and according to your word will all my people be ruled. Only in the throne I will be greater than you."

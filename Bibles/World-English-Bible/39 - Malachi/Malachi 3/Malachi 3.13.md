@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your words have been stout against me, saith Jehovah. Yet ye say, What have we spoken against thee?
+"Your words have been stout against me," says Yahweh. "Yet you say, 'What have we spoken against you?'

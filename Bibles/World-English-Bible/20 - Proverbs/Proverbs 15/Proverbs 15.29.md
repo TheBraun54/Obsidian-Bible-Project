@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is far from the wicked; But he heareth the prayer of the righteous.
+Yahweh is far from the wicked, but he hears the prayer of the righteous.

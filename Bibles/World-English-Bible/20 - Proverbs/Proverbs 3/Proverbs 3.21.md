@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, let them not depart from thine eyes; Keep sound wisdom and discretion:
+My son, let them not depart from your eyes. Keep sound wisdom and discretion:

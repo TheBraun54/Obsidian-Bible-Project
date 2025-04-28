@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing that from the Lord ye shall receive the recompense of the inheritance: ye serve the Lord Christ.
+knowing that from the Lord you will receive the reward of the inheritance; for you serve the Lord Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Ezra rose up from before the house of God, and went into the chamber of Jehohanan the son of Eliashib: and [when] he came thither, he did eat no bread, nor drink water; for he mourned because of the trespass of them of the captivity.
+Then Ezra rose up from before the house of God, and went into the room of Jehohanan the son of Eliashib: and [when] he came there, he ate no bread, nor drank water; for he mourned because of the trespass of them of the captivity.

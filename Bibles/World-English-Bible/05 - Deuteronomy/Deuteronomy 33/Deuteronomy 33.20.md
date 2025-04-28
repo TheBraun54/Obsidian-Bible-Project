@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Gad he said, Blessed be he that enlargeth Gad: He dwelleth as a lioness, And teareth the arm, yea, the crown of the head.
+Of Gad he said, "He who enlarges Gad is blessed. He dwells as a lioness, and tears the arm, yes, the crown of the head.

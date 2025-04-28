@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He chooseth our inheritance for us, The glory of Jacob whom he loved. {{Selah
+He chooses our inheritance for us, the glory of Jacob whom he loved. Selah.

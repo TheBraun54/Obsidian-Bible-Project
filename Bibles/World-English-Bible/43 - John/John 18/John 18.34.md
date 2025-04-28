@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, Sayest thou this of thyself, or did others tell it thee concerning me?
+Jesus answered him, "Do you say this by yourself, or did others tell you about me?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon sent and fetched Hiram out of Tyre.
+King Solomon sent and fetched Hiram out of Tyre.

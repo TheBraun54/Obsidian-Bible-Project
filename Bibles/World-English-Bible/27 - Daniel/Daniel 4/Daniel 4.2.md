@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It hath seemed good unto me to show the signs and wonders that the Most High God hath wrought toward me.
+It has seemed good to me to show the signs and wonders that the Most High God has worked toward me.

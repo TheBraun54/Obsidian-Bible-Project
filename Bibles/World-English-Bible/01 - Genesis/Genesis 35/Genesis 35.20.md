@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob set up a pillar upon her grave: the same is the Pillar of Rachel's grave unto this day.
+Jacob set up a pillar on her grave. The same is the Pillar of Rachel's grave to this day.

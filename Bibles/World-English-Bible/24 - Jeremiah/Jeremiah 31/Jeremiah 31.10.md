@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear the word of Jehovah, O ye nations, and declare it in the isles afar off; and say, He that scattered Israel will gather him, and keep him, as a shepherd doth his flock.
+Hear the word of Yahweh, you nations, and declare it in the islands afar off; and say, He who scattered Israel will gather him, and keep him, as shepherd does his flock.

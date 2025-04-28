@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I have five brethren; that he may testify unto them, lest they also come into this place of torment.
+for I have five brothers, that he may testify to them, so they won't also come into this place of torment.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked on the Kenite, and took up his parable, and said, Strong is thy dwelling-place, And thy nest is set in the rock.
+He looked at the Kenite, and took up his parable, and said, "Your dwelling place is strong. Your nest is set in the rock.

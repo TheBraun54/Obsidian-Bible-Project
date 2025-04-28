@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Save thy people, and bless thine inheritance: Be their shepherd also, and bear them up for ever.
+Save your people, and bless your inheritance. Be their shepherd also, and bear them up forever. A Psalm by David.

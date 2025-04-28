@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having become by so much better than the angels, as he hath inherited a more excellent name than they.
+having become so much better than the angels, as he has inherited a more excellent name than they have.

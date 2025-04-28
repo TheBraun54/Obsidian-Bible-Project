@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Rahab the harlot, and her father's household, and all that she had, did Joshua save alive; and she dwelt in the midst of Israel unto this day, because she hid the messengers, whom Joshua sent to spy out Jericho.
+But Rahab the prostitute, her father's household, and all that she had, Joshua saved alive. She lived in the midst of Israel to this day, because she hid the messengers, whom Joshua sent to spy out Jericho.

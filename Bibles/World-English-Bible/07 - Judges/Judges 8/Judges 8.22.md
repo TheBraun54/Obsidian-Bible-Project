@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the men of Israel said unto Gideon, Rule thou over us, both thou, and thy son, and thy son's son also; for thou hast saved us out of the hand of Midian.
+Then the men of Israel said to Gideon, "Rule over us, both you, and your son, and your son's son also; for you have saved us out of the hand of Midian."

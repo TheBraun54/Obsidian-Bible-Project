@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not uncover the nakedness of thy mother's sister, nor of thy father's sister; for he hath made naked his near kin: they shall bear their iniquity.
+"'You shall not uncover the nakedness of your mother's sister, nor of your father's sister; for he has made naked his close relative: they shall bear their iniquity.

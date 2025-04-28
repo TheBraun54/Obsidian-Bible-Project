@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold ye among the nations, and look, and wonder marvellously; for I am working a work in your days, which ye will not believe though it be told you.
+"Look among the nations, watch, and wonder marvelously; for I am working a work in your days, which you will not believe though it is told you.

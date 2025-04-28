@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They go from strength to strength; Every one of them appeareth before God in Zion.
+They go from strength to strength. Everyone of them appears before God in Zion.

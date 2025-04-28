@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In times past, when Saul was king over us, it was thou that leddest out and broughtest in Israel: and Jehovah said to thee, Thou shalt be shepherd of my people Israel, and thou shalt be prince over Israel.
+In times past, when Saul was king over us, it was you who led out and brought in Israel. Yahweh said to you, 'You shall be shepherd of my people Israel, and you shall be prince over Israel.'"

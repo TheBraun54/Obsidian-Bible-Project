@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to thrust out all thine enemies from before thee, as Jehovah hath spoken.
+to thrust out all your enemies from before you, as Yahweh has spoken.

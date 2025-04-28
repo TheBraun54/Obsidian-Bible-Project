@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto him, Verily, verily, I say unto thee, Except one be born anew, he cannot see the kingdom of God.
+Jesus answered him, "Most certainly, I tell you, unless one is born anew, he can't see the Kingdom of God."

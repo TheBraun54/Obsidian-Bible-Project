@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have denied Jehovah, and said, It is not he; neither shall evil come upon us; neither shall we see sword nor famine:
+They have denied Yahweh, and said, "It is not he; neither shall evil come on us; neither shall we see sword nor famine.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Men do therefore fear him: He regardeth not any that are wise of heart.
+Therefore men revere him. He doesn't regard any who are wise of heart."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for the fruit of the light is in all goodness and righteousness and truth),
+for the fruit of the Spirit is in all goodness and righteousness and truth,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall present with the bread seven lambs without blemish a year old, and one young bullock, and two rams: they shall be a burnt-offering unto Jehovah, with their meal-offering, and their drink-offerings, even an offering made by fire, of a sweet savor unto Jehovah.
+You shall present with the bread seven lambs without blemish a year old, one young bull, and two rams. They shall be a burnt offering to Yahweh, with their meal offering, and their drink offerings, even an offering made by fire, of a sweet aroma to Yahweh.

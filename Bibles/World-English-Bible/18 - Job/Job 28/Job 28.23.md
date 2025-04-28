@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God understandeth the way thereof, And he knoweth the place thereof.
+"God understands its way, and he knows its place.

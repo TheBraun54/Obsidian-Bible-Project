@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there shall be no reward to the evil man; The lamp of the wicked shall be put out.
+for there will be no reward to the evil man; and the lamp of the wicked shall be snuffed out.

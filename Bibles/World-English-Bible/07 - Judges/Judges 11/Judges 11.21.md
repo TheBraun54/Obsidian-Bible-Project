@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah, the God of Israel, delivered Sihon and all his people into the hand of Israel, and they smote them: so Israel possessed all the land of the Amorites, the inhabitants of that country.
+Yahweh, the God of Israel, delivered Sihon and all his people into the hand of Israel, and they struck them: so Israel possessed all the land of the Amorites, the inhabitants of that country.

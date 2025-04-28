@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A copy of the writing, that the decree should be given out in every province, was published unto all the peoples, that they should be ready against that day.
+A copy of the letter, that the decree should be given out in every province, was published to all the peoples, that they should be ready against that day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David assembled all Israel together, from the Shihor [the brook] of Egypt even unto the entrance of Hamath, to bring the ark of God from Kiriath-jearim.
+So David assembled all Israel together, from the Shihor [the brook] of Egypt even to the entrance of Hamath, to bring the ark of God from Kiriath Jearim.

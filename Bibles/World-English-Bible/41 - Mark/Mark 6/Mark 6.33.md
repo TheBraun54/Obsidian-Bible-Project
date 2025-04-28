@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [the people] saw them going, and many knew [them], and they ran together there on foot from all the cities, and outwent them.
+They saw them going, and many recognized him and ran there on foot from all the cities. They arrived before them and came together to him.

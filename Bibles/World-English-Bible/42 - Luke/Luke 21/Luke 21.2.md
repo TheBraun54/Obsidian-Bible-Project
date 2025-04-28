@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saw a certain poor widow casting in thither two mites.
+He saw a certain poor widow casting in two small brass coins.

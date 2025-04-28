@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ten acres of vineyard shall yield one bath, and a homer of seed shall yield [but] an ephah.
+For ten acres of vineyard shall yield one bath, and a homer of seed shall yield an ephah."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Behold, I will extend peace to her like a river, and the glory of the nations like an overflowing stream: and ye shall suck [thereof] ; ye shall be borne upon the side, and shall be dandled upon the knees.
+For thus says Yahweh, "Behold, I will extend peace to her like a river, and the glory of the nations like an overflowing stream: and you will nurse. You will be carried on her side, and will be dandled on her knees.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the women, who had come with him out of Galilee, followed after, and beheld the tomb, and how his body was laid.
+The women, who had come with him out of Galilee, followed after, and saw the tomb, and how his body was laid.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because Syria, Ephraim, and the son of Remaliah, have purposed evil against thee, saying,
+Because Syria, Ephraim, and the son of Remaliah, have plotted evil against you, saying,

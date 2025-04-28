@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fruit of the righteous is a tree of life; And he that is wise winneth souls.
+The fruit of the righteous is a tree of life. He who is wise wins souls.

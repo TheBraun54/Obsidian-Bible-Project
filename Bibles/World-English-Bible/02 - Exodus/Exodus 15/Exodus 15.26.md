@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, If thou wilt diligently hearken to the voice of Jehovah thy God, and wilt do that which is right in his eyes, and wilt give ear to his commandments, and keep all his statutes, I will put none of the diseases upon thee, which I have put upon the Egyptians: for I am Jehovah that healeth thee.
+and he said, "If you will diligently listen to the voice of Yahweh your God, and will do that which is right in his eyes, and will pay attention to his commandments, and keep all his statutes, I will put none of the diseases on you, which I have put on the Egyptians; for I am Yahweh who heals you."

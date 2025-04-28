@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Here, moreover, it is required in stewards, that a man be found faithful.
+Here, moreover, it is required of stewards, that they be found faithful.

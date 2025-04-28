@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And having this confidence, I know that I shall abide, yea, and abide with you all, for your progress and joy in the faith;
+Having this confidence, I know that I will remain, yes, and remain with you all, for your progress and joy in the faith,

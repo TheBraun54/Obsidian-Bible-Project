@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that no flesh should glory before God.
+that no flesh should boast before God.

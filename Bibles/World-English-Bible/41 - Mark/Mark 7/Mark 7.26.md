@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the woman was a Greek, a Syrophoenician by race. And she besought him that he would cast forth the demon out of her daughter.
+Now the woman was a Greek, a Syrophoenician by race. She begged him that he would cast the demon out of her daughter.

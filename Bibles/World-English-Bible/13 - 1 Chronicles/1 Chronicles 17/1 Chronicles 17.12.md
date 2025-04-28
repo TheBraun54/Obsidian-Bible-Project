@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall build me a house, and I will establish his throne for ever.
+He shall build me a house, and I will establish his throne forever.

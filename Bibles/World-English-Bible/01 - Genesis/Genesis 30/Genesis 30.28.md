@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Appoint me thy wages, and I will give it.
+He said, "Appoint me your wages, and I will give it."

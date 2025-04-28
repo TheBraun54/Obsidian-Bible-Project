@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have seen the foolish taking root: But suddenly I cursed his habitation.
+I have seen the foolish taking root, but suddenly I cursed his habitation.

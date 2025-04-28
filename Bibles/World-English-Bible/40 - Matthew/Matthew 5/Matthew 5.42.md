@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give to him that asketh thee, and from him that would borrow of thee turn not thou away.
+Give to him who asks you, and don't turn away him who desires to borrow from you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they sent the ark of God to Ekron. And it came to pass, as the ark of God came to Ekron, that the Ekronites cried out, saying, They have brought about the ark of the God of Israel to us, to slay us and our people.
+So they sent the ark of God to Ekron. It happened, as the ark of God came to Ekron, that the Ekronites cried out, saying, "They have brought about the ark of the God of Israel to us, to kill us and our people."

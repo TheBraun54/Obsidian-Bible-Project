@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came David to Nob to Ahimelech the priest: and Ahimelech came to meet David trembling, and said unto him, Why art thou alone, and no man with thee?
+Then came David to Nob to Ahimelech the priest. Ahimelech came to meet David trembling, and said to him, "Why are you alone, and no man with you?"

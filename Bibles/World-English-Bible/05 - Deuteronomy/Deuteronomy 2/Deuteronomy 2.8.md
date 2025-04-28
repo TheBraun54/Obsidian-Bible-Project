@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So we passed by from our brethren the children of Esau, that dwell in Seir, from the way of the Arabah from Elath and from Ezion-geber. And we turned and passed by the way of the wilderness of Moab.
+So we passed by from our brothers the children of Esau, who dwell in Seir, from the way of the Arabah from Elath and from Ezion Geber. We turned and passed by the way of the wilderness of Moab.

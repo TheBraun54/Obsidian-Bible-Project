@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for thou shalt worship no other god: for Jehovah, whose name is Jealous, is a jealous God);
+for you shall worship no other god: for Yahweh, whose name is Jealous, is a jealous God.

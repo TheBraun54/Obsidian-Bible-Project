@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much more, when wicked men have slain a righteous person in his own house upon his bed, shall I not now require his blood of your hand, and take you away from the earth?
+How much more, when wicked men have slain a righteous person in his own house on his bed, shall I not now require his blood of your hand, and take you away from the earth?"

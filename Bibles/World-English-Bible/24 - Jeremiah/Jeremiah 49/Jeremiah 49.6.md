@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But afterward I will bring back the captivity of the children of Ammon, saith Jehovah.
+But afterward I will bring back the captivity of the children of Ammon, says Yahweh.

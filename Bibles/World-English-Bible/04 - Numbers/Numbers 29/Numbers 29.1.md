@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the seventh month, on the first day of the month, ye shall have a holy convocation; ye shall do no servile work: it is a day of blowing of trumpets unto you.
+"'In the seventh month, on the first day of the month, you shall have a holy convocation; you shall do no servile work: it is a day of blowing of trumpets to you.

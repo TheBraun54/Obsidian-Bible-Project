@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gathered it morning by morning, every man according to his eating: and when the sun waxed hot, it melted.
+They gathered it morning by morning, everyone according to his eating. When the sun grew hot, it melted.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [of] the sons of Harim: Eliezer, Isshijah, Malchijah, Shemaiah, Shimeon,
+[of] the sons of Harim: Eliezer, Isshijah, Malchijah, Shemaiah, Shimeon,

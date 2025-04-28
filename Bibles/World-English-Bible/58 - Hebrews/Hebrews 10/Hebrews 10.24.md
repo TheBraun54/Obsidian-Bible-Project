@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let us consider one another to provoke unto love and good works;
+Let us consider how to provoke one another to love and good works,

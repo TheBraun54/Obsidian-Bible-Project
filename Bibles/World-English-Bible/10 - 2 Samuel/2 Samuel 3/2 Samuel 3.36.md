@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people took notice of it, and it pleased them; as whatsoever the king did pleased all the people.
+All the people took notice of it, and it pleased them; as whatever the king did pleased all the people.

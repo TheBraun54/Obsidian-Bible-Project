@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thou shalt with all diligence buy with this money bullocks, rams, lambs, with their meal-offerings and their drink-offerings, and shalt offer them upon the altar of the house of your God which is in Jerusalem.
+therefore you shall with all diligence buy with this money bulls, rams, lambs, with their meal offerings and their drink offerings, and shall offer them on the altar of the house of your God which is in Jerusalem.

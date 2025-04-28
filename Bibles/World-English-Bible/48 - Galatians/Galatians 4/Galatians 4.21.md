@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell me, ye that desire to be under the law, do ye not hear the law?
+Tell me, you that desire to be under the law, don't you listen to the law?

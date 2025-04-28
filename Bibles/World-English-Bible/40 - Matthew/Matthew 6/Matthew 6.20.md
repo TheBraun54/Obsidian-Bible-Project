@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but lay up for yourselves treasures in heaven, where neither moth nor rust doth consume, and where thieves do not break through nor steal:
+but lay up for yourselves treasures in heaven, where neither moth nor rust consume, and where thieves don't break through and steal;

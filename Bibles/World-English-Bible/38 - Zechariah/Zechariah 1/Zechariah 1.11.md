@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered the angel of Jehovah that stood among the myrtle-trees, and said, We have walked to and fro through the earth, and, behold, all the earth sitteth still, and is at rest.
+They reported to the angel of Yahweh who stood among the myrtle trees, and said, "We have walked back and forth through the earth, and behold, all the earth is at rest and in peace."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is his commandment, that we should believe in the name of his Son Jesus Christ, and love one another, even as he gave us commandment.
+This is his commandment, that we should believe in the name of his Son, Jesus Christ, and love one another, even as he commanded.

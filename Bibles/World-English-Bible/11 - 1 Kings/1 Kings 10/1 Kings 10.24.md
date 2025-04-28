@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the earth sought the presence of Solomon, to hear his wisdom, which God had put in his heart.
+All the earth sought the presence of Solomon, to hear his wisdom, which God had put in his heart.

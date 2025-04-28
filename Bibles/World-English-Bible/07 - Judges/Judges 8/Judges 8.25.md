@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered, We will willingly give them. And they spread a garment, and did cast therein every man the ear-rings of his spoil.
+They answered, "We will willingly give them." They spread a garment, and every man threw the earrings of his spoil into it.

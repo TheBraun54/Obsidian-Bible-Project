@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the fat thereof shall he take off from it, and burn it upon the altar.
+All its fat he shall take from it, and burn it on the altar.

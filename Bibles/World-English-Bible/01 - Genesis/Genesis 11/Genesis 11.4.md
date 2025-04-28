@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Come, let us build us a city, and a tower, whose top [may reach] unto heaven, and let us make us a name; lest we be scattered abroad upon the face of the whole earth.
+They said, "Come, let's build ourselves a city, and a tower whose top reaches to the sky, and let's make ourselves a name, lest we be scattered abroad on the surface of the whole earth."

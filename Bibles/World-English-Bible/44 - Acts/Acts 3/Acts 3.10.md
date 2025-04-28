@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they took knowledge of him, that it was he that sat for alms at the Beautiful Gate of the temple; and they were filled with wonder and amazement at that which had happened unto him.
+They recognized him, that it was he who used to sit begging for gifts for the needy at the Beautiful Gate of the temple. They were filled with wonder and amazement at what had happened to him.

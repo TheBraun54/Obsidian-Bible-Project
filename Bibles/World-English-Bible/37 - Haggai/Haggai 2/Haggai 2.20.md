@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah came the second time unto Haggai in the four and twentieth [day] of the month, saying,
+The Word of Yahweh came the second time to Haggai in the twenty-fourth day of the month, saying,

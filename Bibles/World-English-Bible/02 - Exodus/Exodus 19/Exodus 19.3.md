@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went up unto God, and Jehovah called unto him out of the mountain, saying, Thus shalt thou say to the house of Jacob, and tell the children of Israel:
+Moses went up to God, and Yahweh called to him out of the mountain, saying, "This is what you shall tell the house of Jacob, and tell the children of Israel:

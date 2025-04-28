@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter raised him up, saying, Stand up; I myself also am a man.
+But Peter raised him up, saying, "Stand up! I myself am also a man."

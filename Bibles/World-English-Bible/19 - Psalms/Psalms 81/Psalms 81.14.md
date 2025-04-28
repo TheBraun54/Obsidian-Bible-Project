@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I would soon subdue their enemies, And turn my hand against their adversaries.
+I would soon subdue their enemies, and turn my hand against their adversaries.

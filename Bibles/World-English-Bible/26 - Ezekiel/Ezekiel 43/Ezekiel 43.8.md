@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in their setting of their threshold by my threshold, and their door-post beside my door-post, and there was [but] the wall between me and them; and they have defiled my holy name by their abominations which they have committed: wherefore I have consumed them in mine anger.
+in their setting of their threshold by my threshold, and their doorpost beside my doorpost, and there was [but] the wall between me and them; and they have defiled my holy name by their abominations which they have committed: therefore I have consumed them in my anger.

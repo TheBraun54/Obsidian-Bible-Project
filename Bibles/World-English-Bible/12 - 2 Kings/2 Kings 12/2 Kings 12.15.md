@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover they reckoned not with the men, into whose hand they delivered the money to give to them that did the work; for they dealt faithfully.
+Moreover they didn't demand an accounting from the men into whose hand they delivered the money to give to those who did the work; for they dealt faithfully.

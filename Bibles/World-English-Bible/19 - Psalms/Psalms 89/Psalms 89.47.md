@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh remember how short my time is: For what vanity hast thou created all the children of men!
+Remember how short my time is! For what vanity have you created all the children of men!

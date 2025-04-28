@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it came to pass on the third day, that, behold, a man came out of the camp from Saul, with his clothes rent, and earth upon his head: and so it was, when he came to David, that he fell to the earth, and did obeisance.
+it happened on the third day, that behold, a man came out of the camp from Saul, with his clothes torn, and earth on his head: and so it was, when he came to David, that he fell to the earth, and did obeisance.

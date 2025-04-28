@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He judged the cause of the poor and needy; then it was well. Was not this to know me? saith Jehovah.
+He judged the cause of the poor and needy; then it was well. Wasn't this to know me? says Yahweh.

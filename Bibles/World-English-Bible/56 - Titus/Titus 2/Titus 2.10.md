@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not purloining, but showing all good fidelity; that they may adorn the doctrine of God our Saviour in all things.
+not stealing, but showing all good fidelity; that they may adorn the doctrine of God, our Savior, in all things.

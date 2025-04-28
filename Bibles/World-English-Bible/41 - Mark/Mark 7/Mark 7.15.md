@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-there is nothing from without the man, that going into him can defile him; but the things which proceed out of the man are those that defile the man.
+There is nothing from outside of the man, that going into him can defile him; but the things which proceed out of the man are those that defile the man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to them that rebuke [him] shall be delight, And a good blessing shall come upon them.
+but it will go well with those who convict the guilty, and a rich blessing will come on them.

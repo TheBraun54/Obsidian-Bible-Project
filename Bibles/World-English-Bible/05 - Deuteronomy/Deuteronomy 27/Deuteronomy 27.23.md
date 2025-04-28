@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that lieth with his mother-in-law. And all the people shall say, Amen.
+'Cursed is he who lies with his mother-in-law.' All the people shall say, 'Amen.'

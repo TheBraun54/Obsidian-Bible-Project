@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom is too high for a fool: He openeth not his mouth in the gate.
+Wisdom is too high for a fool: he doesn't open his mouth in the gate.

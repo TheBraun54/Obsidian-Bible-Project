@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, lift up the lad, and hold him in thy hand; for I will make him a great nation.
+Get up, lift up the boy, and hold him in your hand. For I will make him a great nation."

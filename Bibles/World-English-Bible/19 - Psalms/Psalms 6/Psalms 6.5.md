@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in death there is no remembrance of thee: In Sheol who shall give thee thanks?
+For in death there is no memory of you. In Sheol, who shall give you thanks?

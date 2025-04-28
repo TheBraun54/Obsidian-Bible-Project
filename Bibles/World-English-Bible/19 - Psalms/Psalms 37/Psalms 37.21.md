@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked borroweth, and payeth not again; But the righteous dealeth graciously, and giveth.
+The wicked borrow, and don't pay back, but the righteous give generously.

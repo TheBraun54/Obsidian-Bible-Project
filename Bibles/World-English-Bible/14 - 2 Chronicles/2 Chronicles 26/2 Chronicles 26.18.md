@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they withstood Uzziah the king, and said unto him, It pertaineth not unto thee, Uzziah, to burn incense unto Jehovah, but to the priests the sons of Aaron, that are consecrated to burn incense: go out of the sanctuary; for thou hast trespassed; neither shall it be for thine honor from Jehovah God.
+and they resisted Uzziah the king, and said to him, "It isn't for you, Uzziah, to burn incense to Yahweh, but for the priests the sons of Aaron, who are consecrated to burn incense. Go out of the sanctuary; for you have trespassed; neither shall it be for your honor from Yahweh God."

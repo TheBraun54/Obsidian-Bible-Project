@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter therefore was kept in the prison: but prayer was made earnestly of the church unto God for him.
+Peter therefore was kept in the prison, but constant prayer was made by the assembly to God for him.

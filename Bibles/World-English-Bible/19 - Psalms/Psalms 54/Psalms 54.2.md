@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear my prayer, O God; Give ear to the words of my mouth.
+Hear my prayer, God. Listen to the words of my mouth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is my strength and song; And he is become my salvation.
+Yah is my strength and song. He has become my salvation.

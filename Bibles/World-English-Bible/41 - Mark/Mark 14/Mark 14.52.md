@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he left the linen cloth, and fled naked.
+but he left the linen cloth, and fled from them naked.

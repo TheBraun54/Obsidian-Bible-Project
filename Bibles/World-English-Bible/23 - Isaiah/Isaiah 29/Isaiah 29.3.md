@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will encamp against thee round about, and will lay siege against thee with posted troops, and I will raise siege works against thee.
+I will encamp against you all around you, and will lay siege against you with posted troops. I will raise siege works against you.

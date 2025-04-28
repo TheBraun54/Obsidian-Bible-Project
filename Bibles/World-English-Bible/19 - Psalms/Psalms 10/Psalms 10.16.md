@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is King for ever and ever: The nations are perished out of his land.
+Yahweh is King forever and ever! The nations will perish out of his land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am jealous over you with a godly jealousy: for I espoused you to one husband, that I might present you [as] a pure virgin to Christ.
+For I am jealous over you with a godly jealousy. For I married you to one husband, that I might present you as a pure virgin to Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought him upon horses, and buried him with his fathers in the city of Judah.
+They brought him on horses, and buried him with his fathers in the city of Judah.

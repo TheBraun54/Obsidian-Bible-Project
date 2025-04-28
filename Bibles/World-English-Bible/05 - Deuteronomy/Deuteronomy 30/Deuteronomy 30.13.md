@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither is it beyond the sea, that thou shouldest say, Who shall go over the sea for us, and bring it unto us, and make us to hear it, that we may do it?
+Neither is it beyond the sea, that you should say, "Who shall go over the sea for us, and bring it to us, and make us to hear it, that we may do it?"

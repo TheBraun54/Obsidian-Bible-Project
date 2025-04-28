@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore hidest thou thy face, And forgettest our affliction and our oppression?
+Why do you hide your face, and forget our affliction and our oppression?

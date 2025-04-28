@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let their table before them become a snare; And when they are in peace, [let it become] a trap.
+Let their table before them become a snare. May it become a retribution and a trap.

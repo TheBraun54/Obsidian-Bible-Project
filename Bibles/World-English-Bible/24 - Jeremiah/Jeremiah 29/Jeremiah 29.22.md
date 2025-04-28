@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and of them shall be taken up a curse by all the captives of Judah that are in Babylon, saying, Jehovah make thee like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire;
+and of them shall be taken up a curse by all the captives of Judah who are in Babylon, saying, Yahweh make you like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire;

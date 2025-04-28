@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God created man in his own image, in the image of God created he him; male and female created he them.
+God created man in his own image. In God's image he created him; male and female he created them.

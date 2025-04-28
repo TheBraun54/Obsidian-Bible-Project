@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their brethren the Levites were appointed for all the service of the tabernacle of the house of God.
+Their brothers the Levites were appointed for all the service of the tabernacle of the house of God.

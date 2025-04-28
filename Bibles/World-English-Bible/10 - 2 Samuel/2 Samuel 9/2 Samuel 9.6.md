@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mephibosheth, the son of Jonathan, the son of Saul, came unto David, and fell on his face, and did obeisance. And David said, Mephibosheth. And he answered, Behold, thy servant!
+Mephibosheth, the son of Jonathan, the son of Saul, came to David, and fell on his face, and did obeisance. David said, "Mephibosheth." He answered, "Behold, your servant!"

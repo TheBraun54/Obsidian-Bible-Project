@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every thing whereupon [any part] of their carcass falleth shall be unclean; whether oven, or range for pots, it shall be broken in pieces: they are unclean, and shall be unclean unto you.
+Everything whereupon part of their carcass falls shall be unclean; whether oven, or range for pots, it shall be broken in pieces: they are unclean, and shall be unclean to you.

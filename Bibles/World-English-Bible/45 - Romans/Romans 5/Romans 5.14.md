@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless death reigned from Adam until Moses, even over them that had not sinned after the likeness of Adam's transgression, who is a figure of him that was to come.
+Nevertheless death reigned from Adam until Moses, even over those whose sins weren't like Adam's disobedience, who is a foreshadowing of him who was to come.

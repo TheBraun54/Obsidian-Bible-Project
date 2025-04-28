@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his return was to Ramah, for there was his house; and there he judged Israel: and he built there an altar unto Jehovah.
+His return was to Ramah, for there was his house; and there he judged Israel: and he built there an altar to Yahweh.

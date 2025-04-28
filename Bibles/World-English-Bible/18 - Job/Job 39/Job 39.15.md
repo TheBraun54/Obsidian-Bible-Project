@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And forgetteth that the foot may crush them, Or that the wild beast may trample them.
+and forgets that the foot may crush them, or that the wild animal may trample them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-southward it was Ephraim's, and northward it was Manasseh's, and the sea was his border; and they reached to Asher on the north, and to Issachar on the east.
+Southward it was Ephraim's, and northward it was Manasseh's, and the sea was his border. They reached to Asher on the north, and to Issachar on the east.

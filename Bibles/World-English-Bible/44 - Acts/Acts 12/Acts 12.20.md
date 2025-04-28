@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he was highly displeased with them of Tyre and Sidon: and they came with one accord to him, and, having made Blastus the king's chamberlain their friend, they asked for peace, because their country was fed from the king's country.
+Now Herod was very angry with the people of Tyre and Sidon. They came with one accord to him, and, having made Blastus, the king's personal aide, their friend, they asked for peace, because their country depended on the king's country for food.

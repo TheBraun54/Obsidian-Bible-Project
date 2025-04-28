@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember all thy offerings, And accept thy burnt-sacrifice; {{Selah
+remember all your offerings, and accept your burnt sacrifice. Selah.

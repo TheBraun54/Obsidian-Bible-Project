@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall put of the blood upon the horns of the altar which is before Jehovah, that is in the tent of meeting; and all the blood shall he pour out at the base of the altar of burnt-offering, which is at the door of the tent of meeting.
+He shall put some of the blood on the horns of the altar which is before Yahweh, that is in the Tent of Meeting; and the rest of the blood he shall pour out at the base of the altar of burnt offering, which is at the door of the Tent of Meeting.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Canaanite, the king of Arad, who dwelt in the South, heard tell that Israel came by the way of Atharim; and he fought against Israel, and took some of them captive.
+The Canaanite, the king of Arad, who lived in the South, heard tell that Israel came by the way of Atharim; and he fought against Israel, and took some of them captive.

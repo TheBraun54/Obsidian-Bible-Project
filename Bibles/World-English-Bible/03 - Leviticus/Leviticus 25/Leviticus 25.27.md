@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then let him reckon the years of the sale thereof, and restore the overplus unto the man to whom he sold it; and he shall return unto his possession.
+then let him reckon the years since its sale, and restore the surplus to the man to whom he sold it; and he shall return to his property.

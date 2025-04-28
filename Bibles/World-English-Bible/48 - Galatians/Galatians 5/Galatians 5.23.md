@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-meekness, self-control; against such there is no law.
+gentleness, and self-control. Against such things there is no law.

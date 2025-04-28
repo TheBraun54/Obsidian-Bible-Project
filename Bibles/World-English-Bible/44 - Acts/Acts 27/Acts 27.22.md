@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I exhort you to be of good cheer; for there shall be no loss of life among you, but [only] of the ship.
+Now I exhort you to cheer up, for there will be no loss of life among you, but only of the ship.

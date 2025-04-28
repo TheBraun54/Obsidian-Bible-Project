@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her prophets are light and treacherous persons; her priests have profaned the sanctuary, they have done violence to the law.
+Her prophets are arrogant and treacherous people. Her priests have profaned the sanctuary. They have done violence to the law.

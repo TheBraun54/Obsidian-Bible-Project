@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to them that were in Racal, and to them that were in the cities of the Jerahmeelites, and to them that were in the cities of the Kenites,
+and to those who were in Racal, and to those who were in the cities of the Jerahmeelites, and to those who were in the cities of the Kenites,

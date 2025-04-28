@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eye runneth down with streams of water, for the destruction of the daughter of my people.
+My eye runs down with streams of water, for the destruction of the daughter of my people.

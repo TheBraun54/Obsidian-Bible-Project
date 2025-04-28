@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Because of] his strength I will give heed unto thee; For God is my high tower.
+Oh, my Strength, I watch for you, for God is my high tower.

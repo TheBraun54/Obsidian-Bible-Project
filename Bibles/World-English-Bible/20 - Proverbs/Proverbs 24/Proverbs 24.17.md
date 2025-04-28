@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice not when thine enemy falleth, And let not thy heart be glad when he is overthrown;
+Don't rejoice when your enemy falls. Don't let your heart be glad when he is overthrown;

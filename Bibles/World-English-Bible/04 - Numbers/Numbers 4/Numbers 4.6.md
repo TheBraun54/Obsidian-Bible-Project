@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall put thereon a covering of sealskin, and shall spread over it a cloth all of blue, and shall put in the staves thereof.
+and shall put a covering of sealskin on it, and shall spread over it a cloth all of blue, and shall put in its poles.

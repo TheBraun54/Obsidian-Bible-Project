@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely he hath borne our griefs, and carried our sorrows; yet we did esteem him stricken, smitten of God, and afflicted.
+Surely he has borne our sickness, and carried our suffering; yet we considered him plagued, struck by God, and afflicted.

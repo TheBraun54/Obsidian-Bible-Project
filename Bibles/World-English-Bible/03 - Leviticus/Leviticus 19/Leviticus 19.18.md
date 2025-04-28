@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not take vengeance, nor bear any grudge against the children of thy people; but thou shalt love thy neighbor as thyself: I am Jehovah.
+"'You shall not take vengeance, nor bear any grudge against the children of your people; but you shall love your neighbor as yourself. I am Yahweh.

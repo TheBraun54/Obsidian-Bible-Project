@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he smote him with an instrument of iron, so that he died, he is a murderer: the murderer shall surely be put to death.
+"'But if he struck him with an instrument of iron, so that he died, he is a murderer: the murderer shall surely be put to death.

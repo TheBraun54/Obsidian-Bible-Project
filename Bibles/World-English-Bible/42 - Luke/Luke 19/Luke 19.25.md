@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Lord, he hath ten pounds.
+"They said to him, 'Lord, he has ten minas!'

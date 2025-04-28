@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith he to Thomas, Reach hither thy finger, and see my hands; and reach [hither] thy hand, and put it into my side: and be not faithless, but believing.
+Then he said to Thomas, "Reach here your finger, and see my hands. Reach here your hand, and put it into my side. Don't be unbelieving, but believing."

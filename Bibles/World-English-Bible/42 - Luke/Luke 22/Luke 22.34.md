@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I tell thee, Peter, the cock shall not crow this day, until thou shalt thrice deny that thou knowest me.
+He said, "I tell you, Peter, the rooster will by no means crow today until you deny that you know me three times."

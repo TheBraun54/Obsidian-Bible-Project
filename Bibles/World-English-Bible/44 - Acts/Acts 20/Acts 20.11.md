@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was gone up, and had broken the bread, and eaten, and had talked with them a long while, even till break of day, so he departed.
+When he had gone up, and had broken bread, and eaten, and had talked with them a long while, even until break of day, he departed.

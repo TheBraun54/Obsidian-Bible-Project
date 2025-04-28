@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lizard taketh hold with her hands, Yet is she in kings' palaces.
+You can catch a lizard with your hands, yet it is in kings' palaces.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came near unto him, and said, We will build sheepfolds here for our cattle, and cities for our little ones:
+They came near to him, and said, "We will build sheepfolds here for our livestock, and cities for our little ones:

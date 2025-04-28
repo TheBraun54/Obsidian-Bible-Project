@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will say to the north, Give up; and to the south, Keep not back; bring my sons from far, and my daughters from the end of the earth;
+I will tell the north, 'Give them up!' and tell the south, 'Don't hold them back! Bring my sons from far, and my daughters from the ends of the earth--

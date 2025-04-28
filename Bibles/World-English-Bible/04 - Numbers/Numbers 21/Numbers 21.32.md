@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses sent to spy out Jazer; and they took the towns thereof, and drove out the Amorites that were there.
+Moses sent to spy out Jazer; and they took its towns, and drove out the Amorites who were there.

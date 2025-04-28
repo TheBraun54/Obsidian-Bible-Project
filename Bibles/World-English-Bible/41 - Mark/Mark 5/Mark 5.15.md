@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come to Jesus, and behold him that was possessed with demons sitting, clothed and in his right mind, [even] him that had the legion: and they were afraid.
+They came to Jesus, and saw him who had been possessed by demons sitting, clothed, and in his right mind, even him who had the legion; and they were afraid.

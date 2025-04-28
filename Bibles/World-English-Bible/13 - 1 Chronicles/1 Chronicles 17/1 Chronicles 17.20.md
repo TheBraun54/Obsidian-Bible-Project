@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, there is none like thee, neither is there any God besides thee, according to all that we have heard with our ears.
+Yahweh, there is none like you, neither is there any God besides you, according to all that we have heard with our ears.

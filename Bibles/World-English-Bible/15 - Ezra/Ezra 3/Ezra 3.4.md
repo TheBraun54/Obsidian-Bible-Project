@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they kept the feast of tabernacles, as it is written, and [offered] the daily burnt-offerings by number, according to the ordinance, as the duty of every day required;
+They kept the feast of tents, as it is written, and [offered] the daily burnt offerings by number, according to the ordinance, as the duty of every day required;

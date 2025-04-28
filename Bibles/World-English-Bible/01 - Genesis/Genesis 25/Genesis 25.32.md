@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esau said, Behold, I am about to die: and what profit shall the birthright do to me?
+Esau said, "Behold, I am about to die. What good is the birthright to me?"

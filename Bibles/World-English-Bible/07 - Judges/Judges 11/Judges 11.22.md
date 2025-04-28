@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they possessed all the border of the Amorites, from the Arnon even unto the Jabbok, and from the wilderness even unto the Jordan.
+They possessed all the border of the Amorites, from the Arnon even to the Jabbok, and from the wilderness even to the Jordan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word which came unto Jeremiah from Jehovah in the days of Jehoiakim the son of Josiah, king of Judah, saying,
+The word which came to Jeremiah from Yahweh in the days of Jehoiakim the son of Josiah, king of Judah, saying,

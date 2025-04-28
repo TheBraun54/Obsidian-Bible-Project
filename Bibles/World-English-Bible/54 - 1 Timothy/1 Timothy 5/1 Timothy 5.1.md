@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rebuke not an elder, but exhort him as a father; the younger men as brethren:
+Don't rebuke an older man, but exhort him as a father; the younger men as brothers;

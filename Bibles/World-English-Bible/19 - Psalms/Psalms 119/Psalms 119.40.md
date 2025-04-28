@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have longed after thy precepts: Quicken me in thy righteousness.
+Behold, I long for your precepts! Revive me in your righteousness. WAW

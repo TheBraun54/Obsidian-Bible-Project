@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as God is faithful, our word toward you is not yea and nay.
+But as God is faithful, our word toward you was not "Yes and no."

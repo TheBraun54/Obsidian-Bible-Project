@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Thy hurt is incurable, and thy wound grievous.
+For thus says Yahweh, Your hurt is incurable, and your wound grievous.

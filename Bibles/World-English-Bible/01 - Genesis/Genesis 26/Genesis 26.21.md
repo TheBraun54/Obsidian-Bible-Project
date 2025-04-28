@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they digged another well, and they strove for that also: and he called the name of it Sitnah.
+They dug another well, and they argued over that, also. He called its name Sitnah.

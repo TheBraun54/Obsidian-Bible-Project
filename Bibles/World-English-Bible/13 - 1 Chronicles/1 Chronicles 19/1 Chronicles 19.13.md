@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be of good courage, and let us play the man for our people, and for the cities of our God: and Jehovah do that which seemeth him good.
+Be courageous, and let us be strong for our people, and for the cities of our God. May Yahweh do that which seems good to him."

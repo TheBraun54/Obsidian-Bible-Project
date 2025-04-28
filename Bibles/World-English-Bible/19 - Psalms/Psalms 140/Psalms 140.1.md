@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. Deliver me, O Jehovah, from the evil man; Preserve me from the violent man:
+Deliver me, Yahweh, from the evil man. Preserve me from the violent man;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the apostles, when they were returned, declared unto him what things they had done. And he took them, and withdrew apart to a city called Bethsaida.
+The apostles, when they had returned, told him what things they had done. He took them, and withdrew apart to a deserted place of a city called Bethsaida.

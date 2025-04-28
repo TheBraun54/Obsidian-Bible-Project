@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Whether they are come out for peace, take them alive, or whether they are come out for war, take them alive.
+He said, "If they have come out for peace, take them alive; or if they have come out for war, take them alive."

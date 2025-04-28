@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, though they hire among the nations, now will I gather them; and they begin to be diminished by reason of the burden of the king of princes.
+But although they sold themselves among the nations, I will now gather them; and they begin to waste away because of the oppression of the king of mighty ones.

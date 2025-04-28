@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehovah said unto me, The prophets prophesy lies in my name; I sent them not, neither have I commanded them, neither spake I unto them: they prophesy unto you a lying vision, and divination, and a thing of nought, and the deceit of their own heart.
+Then Yahweh said to me, The prophets prophesy lies in my name; I didn't send them, neither have I commanded them, neither spoke I to them: they prophesy to you a lying vision, and divination, and a thing of nothing, and the deceit of their own heart.

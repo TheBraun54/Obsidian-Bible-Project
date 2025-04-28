@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, get thee to Zarephath, which belongeth to Sidon, and dwell there: behold, I have commanded a widow there to sustain thee.
+"Arise, go to Zarephath, which belongs to Sidon, and stay there. Behold, I have commanded a widow there to sustain you."

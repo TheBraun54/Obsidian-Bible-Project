@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [salute] the church that is in their house. Salute Epaenetus my beloved, who is the firstfruits of Asia unto Christ.
+Greet the assembly that is in their house. Greet Epaenetus, my beloved, who is the first fruits of Achaia to Christ.

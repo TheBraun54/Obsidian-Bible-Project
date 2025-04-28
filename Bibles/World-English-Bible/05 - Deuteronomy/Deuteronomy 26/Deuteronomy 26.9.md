@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he hath brought us into this place, and hath given us this land, a land flowing with milk and honey.
+and he has brought us into this place, and has given us this land, a land flowing with milk and honey.

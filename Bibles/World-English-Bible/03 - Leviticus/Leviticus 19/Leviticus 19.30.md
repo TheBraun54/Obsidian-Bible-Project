@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall keep my sabbaths, and reverence my sanctuary; I am Jehovah.
+"'You shall keep my Sabbaths, and reverence my sanctuary; I am Yahweh.

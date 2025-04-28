@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou hast heard what the kings of Assyria have done to all lands, by destroying them utterly: and shalt thou be delivered?
+Behold, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Will you be delivered?

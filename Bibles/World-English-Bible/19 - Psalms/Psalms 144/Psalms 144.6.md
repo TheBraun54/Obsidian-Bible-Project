@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast forth lightning, and scatter them; Send out thine arrows, and discomfit them.
+Throw out lightning, and scatter them. Send out your arrows, and rout them.

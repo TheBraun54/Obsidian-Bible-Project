@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: A voice is heard in Ramah, lamentation, and bitter weeping, Rachel weeping for her children; she refuseth to be comforted for her children, because they are not.
+Thus says Yahweh: A voice is heard in Ramah, lamentation, and bitter weeping, Rachel weeping for her children; she refuses to be comforted for her children, because they are no more.

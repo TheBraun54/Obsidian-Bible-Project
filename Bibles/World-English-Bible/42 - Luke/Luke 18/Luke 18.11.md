@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Pharisee stood and prayed thus with himself, God, I thank thee, that I am not as the rest of men, extortioners, unjust, adulterers, or even as this publican.
+The Pharisee stood and prayed to himself like this: 'God, I thank you, that I am not like the rest of men, extortioners, unrighteous, adulterers, or even like this tax collector.

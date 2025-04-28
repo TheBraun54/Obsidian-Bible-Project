@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our fathers understood not thy wonders in Egypt; They remembered not the multitude of thy lovingkindnesses, But were rebellious at the sea, even at the Red Sea.
+Our fathers didn't understand your wonders in Egypt. They didn't remember the multitude of your loving kindnesses, but were rebellious at the sea, even at the Red Sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not have in thy bag diverse weights, a great and a small.
+You shall not have in your bag diverse weights, a great and a small.

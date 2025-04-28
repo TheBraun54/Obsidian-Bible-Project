@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Suffer me, and I also will speak; And after that I have spoken, mock on.
+Allow me, and I also will speak; After I have spoken, mock on.

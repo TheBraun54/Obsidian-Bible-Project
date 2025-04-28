@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his brother Asaph, who stood on his right hand, even Asaph the son of Berechiah, the son of Shimea,
+His brother Asaph, who stood on his right hand, even Asaph the son of Berechiah, the son of Shimea,

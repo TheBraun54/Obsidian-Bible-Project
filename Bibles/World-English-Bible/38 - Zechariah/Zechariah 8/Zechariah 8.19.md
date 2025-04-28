@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: The fast of the fourth [month], and the fast of the fifth, and the fast of the seventh, and the fast of the tenth, shall be to the house of Judah joy and gladness, and cheerful feasts; therefore love truth and peace.
+Thus says Yahweh of Armies: "The fasts of the fourth fifth, seventh, and tenth months shall be for the house of Judah joy and gladness, and cheerful feasts. Therefore love truth and peace."

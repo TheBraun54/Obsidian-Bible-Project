@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while the children of Israel were in the wilderness, they found a man gathering sticks upon the sabbath day.
+While the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day.

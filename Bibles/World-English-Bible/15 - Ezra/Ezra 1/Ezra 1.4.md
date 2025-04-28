@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever is left, in any place where he sojourneth, let the men of his place help him with silver, and with gold, and with goods, and with beasts, besides the freewill-offering for the house of God which is in Jerusalem.
+Whoever is left, in any place where he lives, let the men of his place help him with silver, with gold, with goods, and with animals, besides the freewill offering for the house of God which is in Jerusalem.'"

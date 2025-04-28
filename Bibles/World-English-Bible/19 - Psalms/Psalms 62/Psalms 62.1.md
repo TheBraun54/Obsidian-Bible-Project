@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; after the manner of Jeduthun. A Psalm of David]. My soul waiteth in silence for God only: From him [cometh] my salvation.
+My soul rests in God alone. My salvation is from him.

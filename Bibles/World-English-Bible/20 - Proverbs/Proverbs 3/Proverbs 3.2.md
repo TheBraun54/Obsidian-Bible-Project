@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For length of days, and years of life, And peace, will they add to thee.
+for length of days, and years of life, and peace, will they add to you.

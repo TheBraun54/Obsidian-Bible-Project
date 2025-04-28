@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of the sluggard is as a hedge of thorns; But the path of the upright is made a highway.
+The way of the sluggard is like a thorn patch, but the path of the upright is a highway.

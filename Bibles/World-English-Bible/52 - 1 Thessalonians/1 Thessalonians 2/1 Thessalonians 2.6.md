@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-nor seeking glory of men, neither from you nor from others, when we might have claimed authority as apostles of Christ.
+nor seeking glory from men (neither from you nor from others), when we might have claimed authority as apostles of Christ.

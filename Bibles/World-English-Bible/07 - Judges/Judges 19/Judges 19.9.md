@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the man rose up to depart, he, and his concubine, and his servant, his father-in-law, the damsel's father, said unto him, Behold, now the day draweth toward evening, I pray you tarry all night: behold, the day groweth to an end, lodge here, that thy heart may be merry; and to-morrow get you early on your way, that thou mayest go home.
+When the man rose up to depart, he, and his concubine, and his servant, his father-in-law, the young lady's father, said to him, "Behold, now the day draws toward evening, please stay all night: behold, the day grows to an end, lodge here, that your heart may be merry; and tomorrow go on your way early, that you may go home."

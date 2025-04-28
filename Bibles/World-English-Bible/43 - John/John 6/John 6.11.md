@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore took the loaves; and having given thanks, he distributed to them that were set down; likewise also of the fishes as much as they would.
+Jesus took the loaves; and having given thanks, he distributed to the disciples, and the disciples to those who were sitting down; likewise also of the fish as much as they desired.

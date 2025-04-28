@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they forsook Jehovah, and served Baal and the Ashtaroth.
+They forsook Yahweh, and served Baal and the Ashtaroth.

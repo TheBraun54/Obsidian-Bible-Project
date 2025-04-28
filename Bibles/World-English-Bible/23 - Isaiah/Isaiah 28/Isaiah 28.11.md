@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, but by [men of] strange lips and with another tongue will he speak to this people;
+But he will speak to this nation with stammering lips and in another language;

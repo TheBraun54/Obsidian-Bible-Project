@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that walketh uprightly walketh surely; But he that perverteth his ways shall be known.
+He who walks blamelessly walks surely, but he who perverts his ways will be found out.

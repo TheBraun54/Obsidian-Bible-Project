@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he must needs pass through Samaria.
+He needed to pass through Samaria.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel and Judah, that dwelt in the cities of Judah, they also brought in the tithe of oxen and sheep, and the tithe of dedicated things which were consecrated unto Jehovah their God, and laid them by heaps.
+The children of Israel and Judah, who lived in the cities of Judah, they also brought in the tithe of cattle and sheep, and the tithe of dedicated things which were consecrated to Yahweh their God, and laid them by heaps.

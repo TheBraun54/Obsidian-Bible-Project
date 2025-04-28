@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is therefore now no condemnation to them that are in Christ Jesus.
+There is therefore now no condemnation to those who are in Christ Jesus, who don't walk according to the flesh, but according to the Spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
+Take my yoke upon you, and learn from me, for I am gentle and lowly in heart; and you will find rest for your souls.

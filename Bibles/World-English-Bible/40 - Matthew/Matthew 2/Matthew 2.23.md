@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and came and dwelt in a city called Nazareth; that it might be fulfilled which was spoken through the prophets, that he should be called a Nazarene.
+and came and lived in a city called Nazareth; that it might be fulfilled which was spoken through the prophets: "He will be called a Nazarene."

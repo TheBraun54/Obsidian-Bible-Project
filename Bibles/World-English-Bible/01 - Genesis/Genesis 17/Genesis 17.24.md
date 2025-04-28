@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham was ninety years old and nine, when he was circumcised in the flesh of his foreskin.
+Abraham was ninety-nine years old, when he was circumcised in the flesh of his foreskin.

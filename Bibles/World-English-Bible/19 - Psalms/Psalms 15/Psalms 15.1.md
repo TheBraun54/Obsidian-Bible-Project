@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. Jehovah, who shall sojourn in thy tabernacle? Who shall dwell in thy holy hill?
+Yahweh, who shall dwell in your sanctuary? Who shall live on your holy hill?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the captain of fifty, and the honorable man, and the counsellor, and the expert artificer, and the skilful enchanter.
+the captain of fifty, the honorable man, the counselor, the skilled craftsman, and the clever enchanter.

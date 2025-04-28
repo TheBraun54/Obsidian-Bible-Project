@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am not come to call the righteous but sinners to repentance.
+I have not come to call the righteous, but sinners to repentance."

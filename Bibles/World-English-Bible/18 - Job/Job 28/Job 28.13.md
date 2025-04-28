@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Man knoweth not the price thereof; Neither is it found in the land of the living.
+Man doesn't know its price; Neither is it found in the land of the living.

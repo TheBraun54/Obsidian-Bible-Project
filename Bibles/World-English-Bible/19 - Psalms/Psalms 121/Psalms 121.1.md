@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. I will lift up mine eyes unto the mountains: From whence shall my help come?
+I will lift up my eyes to the hills. Where does my help come from?

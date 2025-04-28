@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall kindle no fire throughout your habitations upon the sabbath day.
+You shall kindle no fire throughout your habitations on the Sabbath day.'"

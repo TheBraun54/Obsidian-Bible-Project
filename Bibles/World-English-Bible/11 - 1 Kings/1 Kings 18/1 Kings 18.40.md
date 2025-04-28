@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Elijah said unto them, Take the prophets of Baal; let not one of them escape. And they took them; and Elijah brought them down to the brook Kishon, and slew them there.
+Elijah said to them, "Seize the prophets of Baal! Don't let one of them escape!" They seized them. Elijah brought them down to the brook Kishon, and killed them there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they may walk in my statutes, and keep mine ordinances, and do them: and they shall be my people, and I will be their God.
+that they may walk in my statutes, and keep my ordinances, and do them: and they shall be my people, and I will be their God.

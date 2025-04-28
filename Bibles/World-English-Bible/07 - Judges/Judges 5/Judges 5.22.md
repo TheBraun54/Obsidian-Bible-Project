@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then did the horsehoofs stamp By reason of the prancings, the prancings of their strong ones.
+Then the horse hoofs stamped because of the prancings, the prancings of their strong ones.

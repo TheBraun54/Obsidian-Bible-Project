@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Joshua had sent the people away, the children of Israel went every man unto his inheritance to possess the land.
+Now when Joshua had sent the people away, the children of Israel went every man to his inheritance to possess the land.

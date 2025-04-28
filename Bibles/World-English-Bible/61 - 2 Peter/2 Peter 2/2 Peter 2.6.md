@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and turning the cities of Sodom and Gomorrah into ashes condemned them with an overthrow, having made them an example unto those that should live ungodly;
+and turning the cities of Sodom and Gomorrah into ashes, condemned them to destruction, having made them an example to those who would live ungodly;

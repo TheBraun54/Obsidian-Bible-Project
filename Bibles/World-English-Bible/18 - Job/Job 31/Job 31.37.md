@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I would declare unto him the number of my steps; As a prince would I go near unto him.
+I would declare to him the number of my steps. as a prince would I go near to him.

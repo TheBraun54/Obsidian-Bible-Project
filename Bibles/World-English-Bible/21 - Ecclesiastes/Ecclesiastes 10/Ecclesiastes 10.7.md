@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have seen servants upon horses, and princes walking like servants upon the earth.
+I have seen servants on horses, and princes walking like servants on the earth.

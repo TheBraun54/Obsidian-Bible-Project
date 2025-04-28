@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saying, Sirs, why do ye these things? We also are men of like passions with you, and bring you good tidings, that ye should turn from these vain things unto a living God, who made the heaven and the earth and the sea, and all that in them is:
+"Men, why are you doing these things? We also are men of like passions with you, and bring you good news, that you should turn from these vain things to the living God, who made the sky and the earth and the sea, and all that is in them;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they led him away, they laid hold upon one Simon of Cyrene, coming from the country, and laid on him the cross, to bear it after Jesus.
+When they led him away, they grabbed one Simon of Cyrene, coming from the country, and laid on him the cross, to carry it after Jesus.

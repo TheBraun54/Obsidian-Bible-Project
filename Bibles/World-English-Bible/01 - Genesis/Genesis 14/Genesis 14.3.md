@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All these joined together in the vale of Siddim (the same is the Salt Sea).
+All these joined together in the valley of Siddim (the same is the Salt Sea).

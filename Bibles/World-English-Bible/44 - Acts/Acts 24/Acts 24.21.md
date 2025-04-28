@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-except it be for this one voice, that I cried standing among them, Touching the resurrection of the dead I am called in question before you this day.
+unless it is for this one thing that I cried standing among them, 'Concerning the resurrection of the dead I am being judged before you today!'"

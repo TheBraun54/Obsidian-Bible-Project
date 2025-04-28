@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and her husband hear it, and hold his peace at her in the day that he heareth it; then her vows shall stand, and her bonds wherewith she hath bound her soul shall stand.
+and her husband hear it, and hold his peace at her in the day that he hears it; then her vows shall stand, and her bonds with which she has bound her soul shall stand.

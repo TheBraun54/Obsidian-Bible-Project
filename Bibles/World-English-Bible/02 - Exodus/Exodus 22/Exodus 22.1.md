@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man shall steal an ox, or a sheep, and kill it, or sell it; he shall pay five oxen for an ox, and four sheep for a sheep.
+"If a man steals an ox or a sheep, and kills it, or sells it; he shall pay five oxen for an ox, and four sheep for a sheep.

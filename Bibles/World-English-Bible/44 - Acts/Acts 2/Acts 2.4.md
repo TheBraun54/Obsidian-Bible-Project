@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were all filled with the Holy Spirit, and began to speak with other tongues, as the Spirit gave them utterance.
+They were all filled with the Holy Spirit, and began to speak with other languages, as the Spirit gave them the ability to speak.

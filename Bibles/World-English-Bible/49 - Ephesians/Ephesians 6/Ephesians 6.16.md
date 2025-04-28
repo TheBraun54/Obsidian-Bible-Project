@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-withal taking up the shield of faith, wherewith ye shall be able to quench all the fiery darts of the evil [one] .
+above all, taking up the shield of faith, with which you will be able to quench all the fiery darts of the evil one.

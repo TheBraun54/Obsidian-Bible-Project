@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall flocks and herds be slain for them, to suffice them? or shall all the fish of the sea be gathered together for them, to suffice them?
+Shall flocks and herds be slaughtered for them, to be sufficient for them? Shall all the fish of the sea be gathered together for them, to be sufficient for them?"

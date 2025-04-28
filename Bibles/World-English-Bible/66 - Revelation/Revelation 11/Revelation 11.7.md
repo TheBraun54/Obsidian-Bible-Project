@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they shall have finished their testimony, the beast that cometh up out of the abyss shall make war with them, and overcome them, and kill them.
+When they have finished their testimony, the beast that comes up out of the abyss will make war with them, and overcome them, and kill them.

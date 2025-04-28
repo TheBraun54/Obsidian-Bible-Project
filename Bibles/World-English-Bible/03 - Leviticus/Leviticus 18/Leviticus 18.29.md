@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever shall do any of these abominations, even the souls that do them shall be cut off from among their people.
+"'For whoever shall do any of these abominations, even the souls that do them shall be cut off from among their people.

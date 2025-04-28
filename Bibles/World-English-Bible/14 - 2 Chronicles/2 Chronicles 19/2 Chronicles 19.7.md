@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore let the fear of Jehovah be upon you; take heed and do it: for there is no iniquity with Jehovah our God, nor respect of persons, nor taking of bribes.
+Now therefore let the fear of Yahweh be on you. Take heed and do it: for there is no iniquity with Yahweh our God, nor respect of persons, nor taking of bribes."

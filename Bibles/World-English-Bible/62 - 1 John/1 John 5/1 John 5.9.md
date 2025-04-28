@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we receive the witness of men, the witness of God is greater: for the witness of God is this, that he hath borne witness concerning his Son.
+If we receive the witness of men, the witness of God is greater; for this is God's testimony which he has testified concerning his Son.

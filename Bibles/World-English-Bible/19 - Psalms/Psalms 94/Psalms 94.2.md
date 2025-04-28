@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up thyself, thou judge of the earth: Render to the proud [their] desert.
+Rise up, you judge of the earth. Pay back the proud what they deserve.

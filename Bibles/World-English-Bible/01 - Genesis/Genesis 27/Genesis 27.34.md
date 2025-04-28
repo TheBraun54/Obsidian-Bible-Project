@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Esau heard the words of his father, he cried with an exceeding great and bitter cry, and said unto his father, Bless me, even me also, O my father.
+When Esau heard the words of his father, he cried with an exceeding great and bitter cry, and said to his father, "Bless me, even me also, my father."

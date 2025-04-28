@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let Israel now say, That his lovingkindness [endureth] for ever.
+Let Israel now say that his loving kindness endures forever.

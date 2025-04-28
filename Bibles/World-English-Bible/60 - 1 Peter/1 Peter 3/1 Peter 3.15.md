@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but sanctify in your hearts Christ as Lord: [being] ready always to give answer to every man that asketh you a reason concerning the hope that is in you, yet with meekness and fear:
+But sanctify the Lord God in your hearts; and always be ready to give an answer to everyone who asks you a reason concerning the hope that is in you, with humility and fear:

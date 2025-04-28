@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will remove far off from you the northern [army], and will drive it into a land barren and desolate, its forepart into the eastern sea, and its hinder part [ into the western sea; and its stench shall come up, and its ill savor shall come up, because it hath done great things.
+But I will remove the northern army far away from you, and will drive it into a barren and desolate land, its front into the eastern sea, and its back into the western sea; and its stench will come up, and its bad smell will rise." Surely he has done great things.

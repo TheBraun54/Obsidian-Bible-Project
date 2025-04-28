@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but unto the damsel thou shalt do nothing; there is in the damsel no sin worthy of death: for as when a man riseth against his neighbor, and slayeth him, even so is this matter;
+but to the lady you shall do nothing; there is in the lady no sin worthy of death: for as when a man rises against his neighbor, and kills him, even so is this matter;

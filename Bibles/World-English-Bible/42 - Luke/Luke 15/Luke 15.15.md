@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went and joined himself to one of the citizens of that country; and he sent him into his fields to feed swine.
+He went and joined himself to one of the citizens of that country, and he sent him into his fields to feed pigs.

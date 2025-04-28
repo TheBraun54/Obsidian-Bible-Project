@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the commandment of Jehovah they encamped, and at the commandment of Jehovah they journeyed: they kept the charge of Jehovah, at the commandment of Jehovah by Moses.
+At the commandment of Yahweh they encamped, and at the commandment of Yahweh they traveled. They kept Yahweh's command, at the commandment of Yahweh by Moses.

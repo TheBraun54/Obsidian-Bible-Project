@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, O Jehovah our God, save us from his hand, that all the kingdoms of the earth may know that thou art Jehovah, even thou only.
+Now therefore, Yahweh our God, save us from his hand, that all the kingdoms of the earth may know that you are Yahweh, even you only."

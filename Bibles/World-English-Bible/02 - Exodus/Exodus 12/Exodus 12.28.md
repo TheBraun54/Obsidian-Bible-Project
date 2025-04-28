@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel went and did so; as Jehovah had commanded Moses and Aaron, so did they.
+The children of Israel went and did so; as Yahweh had commanded Moses and Aaron, so they did.

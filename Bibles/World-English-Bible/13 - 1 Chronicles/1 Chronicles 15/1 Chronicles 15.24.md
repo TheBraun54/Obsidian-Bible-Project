@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shebaniah, and Joshaphat, and Nethanel, and Amasai, and Zechariah, and Benaiah, and Eliezer, the priests, did blow the trumpets before the ark of God: and Obed-edom and Jehiah were doorkeepers for the ark.
+Shebaniah, and Joshaphat, and Nethanel, and Amasai, and Zechariah, and Benaiah, and Eliezer, the priests, did blow the trumpets before the ark of God: and Obed-Edom and Jehiah were doorkeepers for the ark.

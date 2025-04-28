@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, when it was whole, it was meet for no work: how much less, when the fire hath devoured it, and it is burned, shall it yet be meet for any work!
+Behold, when it was whole, it was meet for no work: how much less, when the fire has devoured it, and it is burned, shall it yet be meet for any work!

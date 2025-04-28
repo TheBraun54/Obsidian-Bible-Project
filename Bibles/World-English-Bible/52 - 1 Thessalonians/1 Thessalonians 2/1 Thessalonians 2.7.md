@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we were gentle in the midst of you, as when a nurse cherisheth her own children:
+But we were gentle among you, like a nursing mother cherishes her own children.

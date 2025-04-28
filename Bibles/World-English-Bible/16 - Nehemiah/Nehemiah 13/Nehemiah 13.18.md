@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did not your fathers thus, and did not our God bring all this evil upon us, and upon this city? yet ye bring more wrath upon Israel by profaning the sabbath.
+Didn't your fathers do thus, and didn't our God bring all this evil on us, and on this city? Yet you bring more wrath on Israel by profaning the Sabbath."

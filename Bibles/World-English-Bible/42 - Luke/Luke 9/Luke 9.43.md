@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were all astonished at the majesty of God. But while all were marvelling at all the things which he did, he said unto his disciples,
+They were all astonished at the majesty of God. But while all were marveling at all the things which Jesus did, he said to his disciples,

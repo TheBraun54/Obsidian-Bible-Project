@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts: After glory hath he sent me unto the nations which plundered you; for he that toucheth you toucheth the apple of his eye.
+For thus says Yahweh of Armies: 'For honor he has sent me to the nations which plundered you; for he who touches you touches the apple of his eye.

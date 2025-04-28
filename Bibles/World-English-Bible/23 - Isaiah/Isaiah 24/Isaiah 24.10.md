@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The waste city is broken down; every house is shut up, that no man may come in.
+The confused city is broken down. Every house is shut up, that no man may come in.

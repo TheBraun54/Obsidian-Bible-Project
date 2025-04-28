@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his mother answered and said, Not so; but he shall be called John.
+His mother answered, "Not so; but he will be called John."

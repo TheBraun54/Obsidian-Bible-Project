@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, and go down to the potter's house, and there I will cause thee to hear my words.
+Arise, and go down to the potter's house, and there I will cause you to hear my words.

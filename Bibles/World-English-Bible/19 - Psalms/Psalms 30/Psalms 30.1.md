@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm; a Song at the Dedication of the House. [A Psalm] of David]. I will extol thee, O Jehovah; For thou hast raised me up, And hast not made my foes to rejoice over me.
+I will extol you, Yahweh, for you have raised me up, and have not made my foes to rejoice over me.

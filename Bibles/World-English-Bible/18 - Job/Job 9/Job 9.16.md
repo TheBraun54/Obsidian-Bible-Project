@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I had called, and he had answered me, Yet would I not believe that he hearkened unto my voice.
+If I had called, and he had answered me, yet I wouldn't believe that he listened to my voice.

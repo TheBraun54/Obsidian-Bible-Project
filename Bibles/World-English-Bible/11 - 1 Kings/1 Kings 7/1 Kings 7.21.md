@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set up the pillars at the porch of the temple: and he set up the right pillar, and called the name thereof Jachin; and he set up the left pillar, and called the name thereof Boaz.
+He set up the pillars at the porch of the temple: and he set up the right pillar, and called its name Jachin; and he set up the left pillar, and called its name Boaz.

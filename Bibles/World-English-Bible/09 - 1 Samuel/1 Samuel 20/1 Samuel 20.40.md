@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan gave his weapons unto his lad, and said unto him, Go, carry them to the city.
+Jonathan gave his weapons to his boy, and said to him, "Go, carry them to the city."

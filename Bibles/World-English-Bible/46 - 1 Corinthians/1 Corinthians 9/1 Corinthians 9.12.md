@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If others partake of [this] right over you, do not we yet more? Nevertheless we did not use this right; but we bear all things, that we may cause no hindrance to the gospel of Christ.
+If others partake of this right over you, don't we yet more? Nevertheless we did not use this right, but we bear all things, that we may cause no hindrance to the Good News of Christ.

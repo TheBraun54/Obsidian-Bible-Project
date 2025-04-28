@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, he that receiveth whomsoever I send receiveth me; and he that receiveth me receiveth him that sent me.
+Most certainly I tell you, he who receives whomever I send, receives me; and he who receives me, receives him who sent me."

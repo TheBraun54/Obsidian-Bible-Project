@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His pails are full of milk, And the marrow of his bones is moistened.
+His pails are full of milk. The marrow of his bones is moistened.

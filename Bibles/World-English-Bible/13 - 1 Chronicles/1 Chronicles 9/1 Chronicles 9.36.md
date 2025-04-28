@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and his first-born son Abdon, and Zur, and Kish, and Baal, and Ner, and Nadab,
+and his firstborn son Abdon, and Zur, and Kish, and Baal, and Ner, and Nadab,

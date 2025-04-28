@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jacob said unto his household, and to all that were with him, Put away the foreign gods that are among you, and purify yourselves, and change your garments:
+Then Jacob said to his household, and to all who were with him, "Put away the foreign gods that are among you, purify yourselves, change your garments.

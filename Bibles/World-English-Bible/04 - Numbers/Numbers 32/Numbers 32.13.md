@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah's anger was kindled against Israel, and he made them wander to and fro in the wilderness forty years, until all the generation, that had done evil in the sight of Jehovah, was consumed.
+Yahweh's anger was kindled against Israel, and he made them wander back and forth in the wilderness forty years, until all the generation, who had done evil in the sight of Yahweh, was consumed.

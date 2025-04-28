@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though they dig into Sheol, thence shall my hand take them; and though they climb up to heaven, thence will I bring them down.
+Though they dig into Sheol, there my hand will take them; and though they climb up to heaven, there I will bring them down.

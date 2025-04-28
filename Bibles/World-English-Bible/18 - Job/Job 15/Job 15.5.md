@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thine iniquity teacheth thy mouth, And thou choosest the tongue of the crafty.
+For your iniquity teaches your mouth, and you choose the language of the crafty.

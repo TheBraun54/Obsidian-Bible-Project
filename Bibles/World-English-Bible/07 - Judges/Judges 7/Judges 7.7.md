@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Gideon, By the three hundred men that lapped will I save you, and deliver the Midianites into thy hand; and let all the people go every man unto his place.
+Yahweh said to Gideon, "By the three hundred men who lapped will I save you, and deliver the Midianites into your hand. Let all the other people go, each to his own place."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in one Spirit were we all baptized into one body, whether Jews or Greeks, whether bond or free; and were all made to drink of one Spirit.
+For in one Spirit we were all baptized into one body, whether Jews or Greeks, whether bond or free; and were all given to drink into one Spirit.

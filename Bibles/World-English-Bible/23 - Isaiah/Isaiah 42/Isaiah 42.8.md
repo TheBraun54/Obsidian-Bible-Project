@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am Jehovah, that is my name; and my glory will I not give to another, neither my praise unto graven images.
+"I am Yahweh. That is my name. I will not give my glory to another, nor my praise to engraved images.

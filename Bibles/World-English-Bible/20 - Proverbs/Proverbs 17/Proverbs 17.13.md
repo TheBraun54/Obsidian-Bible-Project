@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso rewardeth evil for good, Evil shall not depart from his house.
+Whoever rewards evil for good, evil shall not depart from his house.

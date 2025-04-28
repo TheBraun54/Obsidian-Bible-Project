@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all the house of Israel therefore know assuredly, that God hath made him both Lord and Christ, this Jesus whom ye crucified.
+"Let all the house of Israel therefore know certainly that God has made him both Lord and Christ, this Jesus whom you crucified."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Benjamin gathered themselves together after Abner, and became one band, and stood on the top of a hill.
+The children of Benjamin gathered themselves together after Abner, and became one band, and stood on the top of a hill.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is Israel a servant? is he a home-born [slave] ? why is he become a prey?
+Is Israel a servant? Is he a native-born [slave]? Why has he become a prey?

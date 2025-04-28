@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the hole of the robe in the midst thereof, as the hole of a coat of mail, with a binding round about the hole of it, that it should not be rent.
+The opening of the robe in its midst was like the opening of a coat of mail, with a binding around its opening, that it should not be torn.

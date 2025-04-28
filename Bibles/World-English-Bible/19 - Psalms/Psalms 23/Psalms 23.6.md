@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely goodness and lovingkindness shall follow me all the days of my life; And I shall dwell in the house of Jehovah for ever.
+Surely goodness and loving kindness shall follow me all the days of my life, and I will dwell in Yahweh's house forever. A Psalm by David.

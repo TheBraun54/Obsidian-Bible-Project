@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seers shall be put to shame, and the diviners confounded; yea, they shall all cover their lips; for there is no answer of God.
+The seers shall be disappointed, and the diviners confounded. Yes, they shall all cover their lips; for there is no answer from God."

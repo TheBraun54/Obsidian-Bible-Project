@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say unto the people of the land, Thus saith the Lord Jehovah concerning the inhabitants of Jerusalem, and the land of Israel: They shall eat their bread with fearfulness, and drink their water in dismay, that her land may be desolate, [and despoiled] of all that is therein, because of the violence of all them that dwell therein.
+and tell the people of the land, Thus says the Lord Yahweh concerning the inhabitants of Jerusalem, and the land of Israel: They shall eat their bread with fearfulness, and drink their water in dismay, that her land may be desolate, [and despoiled] of all that is therein, because of the violence of all those who dwell therein.

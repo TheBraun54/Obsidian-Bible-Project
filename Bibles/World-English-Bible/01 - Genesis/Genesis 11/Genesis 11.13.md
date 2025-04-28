@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Arpachshad lived after he begat Shelah four hundred and three years, and begat sons and daughters.
+Arpachshad lived four hundred three years after he became the father of Shelah, and became the father of sons and daughters.

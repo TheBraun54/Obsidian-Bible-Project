@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made haste, and came down, and received him joyfully.
+He hurried, came down, and received him joyfully.

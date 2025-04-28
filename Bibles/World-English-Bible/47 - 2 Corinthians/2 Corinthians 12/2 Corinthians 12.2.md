@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know a man in Christ, fourteen years ago (whether in the body, I know not; or whether out of the body, I know not; God knoweth), such a one caught up even to the third heaven.
+I know a man in Christ, fourteen years ago (whether in the body, I don't know, or whether out of the body, I don't know; God knows), such a one caught up into the third heaven.

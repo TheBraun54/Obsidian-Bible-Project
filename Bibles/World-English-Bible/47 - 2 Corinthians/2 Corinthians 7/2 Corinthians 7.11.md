@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For behold, this selfsame thing, that ye were made sorry after a godly sort, what earnest care it wrought in you, yea what clearing of yourselves, yea what indignation, yea what fear, yea what longing, yea what zeal, yea what avenging! In everything ye approved yourselves to be pure in the matter.
+For behold, this same thing, that you were made sorry in a godly way, what earnest care it worked in you. Yes, what defense, indignation, fear, longing, zeal, and vengeance! In everything you demonstrated yourselves to be pure in the matter.

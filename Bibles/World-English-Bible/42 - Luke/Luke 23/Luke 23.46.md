@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus, crying with a loud voice, said, Father, into thy hands I commend my spirit: and having said this, he gave up the ghost.
+Jesus, crying with a loud voice, said, "Father, into your hands I commit my spirit!" Having said this, he breathed his last.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Manoah said unto the angel of Jehovah, I pray thee, let us detain thee, that we may make ready a kid for thee.
+Manoah said to the angel of Yahweh, "Please, let us detain you, that we may make a young goat ready for you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the Jews ordained, and took upon them, and upon their seed, and upon all such as joined themselves unto them, so that it should not fail, that they would keep these two days according to the writing thereof, and according to the appointed time thereof, every year;
+the Jews established, and imposed on themselves, and on their descendants, and on all those who joined themselves to them, so that it should not fail, that they would keep these two days according to what was written, and according to its appointed time, every year;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus the children of Israel were brought under at that time, and the children of Judah prevailed, because they relied upon Jehovah, the God of their fathers.
+Thus the children of Israel were brought under at that time, and the children of Judah prevailed, because they relied on Yahweh, the God of their fathers.

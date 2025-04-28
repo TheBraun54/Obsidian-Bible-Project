@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but also thou shalt not cut off thy kindness from my house for ever; no, not when Jehovah hath cut off the enemies of David every one from the face of the earth.
+but also you shall not cut off your kindness from my house forever; no, not when Yahweh has cut off the enemies of David everyone from the surface of the earth."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Ye shall not bring in the captives hither: for ye purpose that which will bring upon us a trespass against Jehovah, to add unto our sins and to our trespass; for our trespass is great, and there is fierce wrath against Israel.
+and said to them, "You shall not bring in the captives here: for you purpose that which will bring on us a trespass against Yahweh, to add to our sins and to our trespass; for our trespass is great, and there is fierce wrath against Israel."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Beth-azmaveth, forty and two.
+The men of Beth Azmaveth, forty-two.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then sent Sanballat his servant unto me in like manner the fifth time with an open letter in his hand,
+Then Sanballat sent his servant to me the same way the fifth time with an open letter in his hand,

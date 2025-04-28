@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him arose Jair, the Gileadite; and he judged Israel twenty and two years.
+After him arose Jair, the Gileadite; and he judged Israel twenty-two years.

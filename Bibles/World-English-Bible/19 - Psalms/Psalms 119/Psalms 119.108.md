@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Accept, I beseech thee, the freewill-offerings of my mouth, O Jehovah, And teach me thine ordinances.
+Accept, I beg you, the willing offerings of my mouth. Yahweh, teach me your ordinances.

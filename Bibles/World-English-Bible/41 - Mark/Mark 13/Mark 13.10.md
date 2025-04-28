@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the gospel must first be preached unto all the nations.
+The Good News must first be preached to all the nations.

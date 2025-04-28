@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the tent of meeting shall set forward, with the camp of the Levites in the midst of the camps: as they encamp, so shall they set forward, every man in his place, by their standards.
+"Then the Tent of Meeting shall set out, with the camp of the Levites in the midst of the camps. As they encamp, so shall they set out, every man in his place, by their standards.

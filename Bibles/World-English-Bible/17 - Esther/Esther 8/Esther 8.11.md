@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherein the king granted the Jews that were in every city to gather themselves together, and to stand for their life, to destroy, to slay, and to cause to perish, all the power of the people and province that would assault them, [their] little ones and women, and to take the spoil of them for a prey,
+In those letters, the king granted the Jews who were in every city to gather themselves together, and to defend their life, to destroy, to kill, and to cause to perish, all the power of the people and province that would assault them, their little ones and women, and to plunder their possessions,

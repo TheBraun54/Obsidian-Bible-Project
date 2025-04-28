@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have sent unto John, and he hath borne witness unto the truth.
+You have sent to John, and he has testified to the truth.

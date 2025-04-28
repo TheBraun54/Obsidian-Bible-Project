@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he opened the fourth seal, I heard the voice of the fourth living creature saying, Come.
+When he opened the fourth seal, I heard the fourth living creature saying, "Come and see!"

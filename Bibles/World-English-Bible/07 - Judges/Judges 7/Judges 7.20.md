@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the three companies blew the trumpets, and brake the pitchers, and held the torches in their left hands, and the trumpets in their right hands wherewith to blow; and they cried, The sword of Jehovah and of Gideon.
+The three companies blew the trumpets, and broke the pitchers, and held the torches in their left hands, and the trumpets in their right hands with which to blow; and they shouted, "The sword of Yahweh and of Gideon!"

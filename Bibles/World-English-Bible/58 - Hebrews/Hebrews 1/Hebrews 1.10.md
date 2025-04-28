@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, Thou, Lord, in the beginning didst lay the foundation of the earth, And the heavens are the works of thy hands:
+And, "You, Lord, in the beginning, laid the foundation of the earth. The heavens are the works of your hands.

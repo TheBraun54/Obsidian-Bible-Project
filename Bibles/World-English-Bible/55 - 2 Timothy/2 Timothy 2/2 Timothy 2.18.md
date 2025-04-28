@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-men who concerning the truth have erred, saying that the resurrection is past already, and overthrow the faith of some.
+men who have erred concerning the truth, saying that the resurrection is already past, and overthrowing the faith of some.

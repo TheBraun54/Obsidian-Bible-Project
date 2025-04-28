@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As God liveth, who hath taken away my right, And the Almighty, who hath vexed my soul:
+"As God lives, who has taken away my right, the Almighty, who has made my soul bitter.

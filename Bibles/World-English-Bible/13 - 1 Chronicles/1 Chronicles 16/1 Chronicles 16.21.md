@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He suffered no man to do them wrong; Yea, he reproved kings for their sakes,
+He allowed no man to do them wrong. Yes, he reproved kings for their sakes,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoiada appointed the officers of the house of Jehovah under the hand of the priests the Levites, whom David had distributed in the house of Jehovah, to offer the burnt-offerings of Jehovah, as it is written in the law of Moses, with rejoicing and with singing, according to the order of David.
+Jehoiada appointed the officers of the house of Yahweh under the hand of the priests the Levites, whom David had distributed in the house of Yahweh, to offer the burnt offerings of Yahweh, as it is written in the law of Moses, with rejoicing and with singing, according to the order of David.

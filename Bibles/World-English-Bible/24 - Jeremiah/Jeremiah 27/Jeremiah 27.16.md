@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also I spake to the priests and to all this people, saying, Thus saith Jehovah: Hearken not to the words of your prophets that prophesy unto you, saying, Behold, the vessels of Jehovah's house shall now shortly be brought again from Babylon; for they prophesy a lie unto you.
+Also I spoke to the priests and to all this people, saying, Thus says Yahweh: Don't listen to the words of your prophets who prophesy to you, saying, Behold, the vessels of Yahweh's house shall now shortly be brought again from Babylon; for they prophesy a lie to you.

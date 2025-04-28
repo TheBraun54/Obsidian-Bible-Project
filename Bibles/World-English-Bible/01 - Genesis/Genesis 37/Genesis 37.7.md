@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for, behold, we were binding sheaves in the field, and, lo, my sheaf arose, and also stood upright; and, behold, your sheaves came round about, and made obeisance to my sheaf.
+for behold, we were binding sheaves in the field, and behold, my sheaf arose and also stood upright; and behold, your sheaves came around, and bowed down to my sheaf."

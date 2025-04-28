@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come near, ye nations, to hear; and hearken, ye peoples: let the earth hear, and the fulness thereof; the world, and all things that come forth from it.
+Come near, you nations, to hear! Listen, you peoples. Let the earth and all it contains hear; the world, and everything that comes from it.

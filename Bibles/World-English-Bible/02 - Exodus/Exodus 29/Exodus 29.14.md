@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the flesh of the bullock, and its skin, and its dung, shalt thou burn with fire without the camp: it is a sin-offering.
+But the flesh of the bull, and its skin, and its dung, you shall burn with fire outside of the camp: it is a sin offering.

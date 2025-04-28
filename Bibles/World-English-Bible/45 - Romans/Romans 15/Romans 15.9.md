@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that the Gentiles might glorify God for his mercy; as it is written, Therefore will I give praise unto thee among the Gentiles, And sing unto thy name.
+and that the Gentiles might glorify God for his mercy. As it is written, "Therefore will I give praise to you among the Gentiles, and sing to your name."

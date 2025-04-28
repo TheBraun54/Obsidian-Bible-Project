@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, if a river overflow, he trembleth not; He is confident, though a Jordan swell even to his mouth.
+Behold, if a river overflows, he doesn't tremble. He is confident, though the Jordan swells even to his mouth.

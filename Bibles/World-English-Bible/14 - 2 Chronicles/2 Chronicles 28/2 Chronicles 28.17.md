@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For again the Edomites had come and smitten Judah, and carried away captives.
+For again the Edomites had come and struck Judah, and carried away captives.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But by the grace of God I am what I am: and his grace which was bestowed upon me was not found vain; but I labored more abundantly than they all: yet not I, but the grace of God which was with me.
+But by the grace of God I am what I am. His grace which was bestowed on me was not futile, but I worked more than all of them; yet not I, but the grace of God which was with me.

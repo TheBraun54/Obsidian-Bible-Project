@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Solomon thrust out Abiathar from being priest unto Jehovah, that he might fulfil the word of Jehovah, which he spake concerning the house of Eli in Shiloh.
+So Solomon thrust out Abiathar from being priest to Yahweh, that he might fulfill the word of Yahweh, which he spoke concerning the house of Eli in Shiloh.

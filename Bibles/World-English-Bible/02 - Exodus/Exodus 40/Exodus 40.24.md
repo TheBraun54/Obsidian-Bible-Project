@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the candlestick in the tent of meeting, over against the table, on the side of the tabernacle southward.
+He put the lampstand in the Tent of Meeting, opposite the table, on the side of the tabernacle southward.

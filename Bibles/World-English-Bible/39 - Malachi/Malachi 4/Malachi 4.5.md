@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will send you Elijah the prophet before the great and terrible day of Jehovah come.
+Behold, I will send you Elijah the prophet before the great and terrible day of Yahweh comes.

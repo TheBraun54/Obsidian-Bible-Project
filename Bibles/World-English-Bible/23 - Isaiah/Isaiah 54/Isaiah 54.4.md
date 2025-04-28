@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not; for thou shalt not be ashamed: neither be thou confounded; for thou shalt not be put to shame: for thou shalt forget the shame of thy youth; and the reproach of thy widowhood shalt thou remember no more.
+"Don't be afraid; for you shall not be ashamed: neither be confounded; for you shall not be disappointed: for you shall forget the shame of your youth; and the reproach of your widowhood you shall remember no more.

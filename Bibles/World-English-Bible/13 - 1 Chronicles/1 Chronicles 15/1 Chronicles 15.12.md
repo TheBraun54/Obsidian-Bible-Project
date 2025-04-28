@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Ye are the heads of the fathers' [houses] of the Levites: sanctify yourselves, both ye and your brethren, that ye may bring up the ark of Jehovah, the God of Israel, unto [the place] that I have prepared for it.
+and said to them, "You are the heads of the fathers' [houses] of the Levites. Sanctify yourselves, both you and your brothers, that you may bring up the ark of Yahweh, the God of Israel, to the place that I have prepared for it.

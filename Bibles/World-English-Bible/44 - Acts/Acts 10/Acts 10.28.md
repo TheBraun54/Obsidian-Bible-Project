@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto them, Ye yourselves know how it is an unlawful thing for a man that is a Jew to join himself or come unto one of another nation; and [yet] unto me hath God showed that I should not call any man common or unclean:
+He said to them, "You yourselves know how it is an unlawful thing for a man who is a Jew to join himself or come to one of another nation, but God has shown me that I shouldn't call any man unholy or unclean.

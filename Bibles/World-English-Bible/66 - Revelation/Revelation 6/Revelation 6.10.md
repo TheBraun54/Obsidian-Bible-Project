@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they cried with a great voice, saying, How long, O Master, the holy and true, dost thou not judge and avenge our blood on them that dwell on the earth?
+They cried with a loud voice, saying, "How long, Master, the holy and true, until you judge and avenge our blood on those who dwell on the earth?"

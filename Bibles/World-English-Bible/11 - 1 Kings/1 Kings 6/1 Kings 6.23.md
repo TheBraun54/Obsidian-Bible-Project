@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the oracle he made two cherubim of olive-wood, each ten cubits high.
+In the oracle he made two cherubim of olive wood, each ten cubits high.

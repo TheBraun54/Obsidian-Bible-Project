@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O house of Jacob, come ye, and let us walk in the light of Jehovah.
+House of Jacob, come, and let us walk in the light of Yahweh.

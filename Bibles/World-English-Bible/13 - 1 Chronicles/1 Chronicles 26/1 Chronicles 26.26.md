@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This Shelomoth and his brethren were over all the treasures of the dedicated things, which David the king, and the heads of the fathers' [houses], the captains over thousands and hundreds, and the captains of the host, had dedicated.
+This Shelomoth and his brothers were over all the treasures of the dedicated things, which David the king, and the heads of the fathers' [houses], the captains over thousands and hundreds, and the captains of the army, had dedicated.

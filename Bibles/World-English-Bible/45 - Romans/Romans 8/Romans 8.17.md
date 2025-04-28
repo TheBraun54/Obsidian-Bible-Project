@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if children, then heirs; heirs of God, and joint-heirs with Christ; if so be that we suffer with [him], that we may be also glorified with [him] .
+and if children, then heirs; heirs of God, and joint heirs with Christ; if indeed we suffer with him, that we may also be glorified with him.

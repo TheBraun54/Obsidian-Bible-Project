@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their brethren, mighty men of valor, a hundred twenty and eight; and their overseer was Zabdiel, the son of Haggedolim.
+and their brothers, mighty men of valor, one hundred twenty-eight; and their overseer was Zabdiel, the son of Haggedolim.

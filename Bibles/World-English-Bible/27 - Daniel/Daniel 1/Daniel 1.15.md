@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the end of ten days their countenances appeared fairer, and they were fatter in flesh, than all the youths that did eat of the king's dainties.
+At the end of ten days their faces appeared fairer, and they were fatter in flesh, than all the youths who ate of the king's dainties.

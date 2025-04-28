@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thou sayest, I am rich, and have gotten riches, and have need of nothing; and knowest not that thou art the wretched one and miserable and poor and blind and naked:
+Because you say, 'I am rich, and have gotten riches, and have need of nothing;' and don't know that you are the wretched one, miserable, poor, blind, and naked;

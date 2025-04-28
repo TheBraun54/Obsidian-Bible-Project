@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can stand before his indignation? and who can abide in the fierceness of his anger? his wrath is poured out like fire, and the rocks are broken asunder by him.
+Who can stand before his indignation? Who can endure the fierceness of his anger? His wrath is poured out like fire, and the rocks are broken apart by him.

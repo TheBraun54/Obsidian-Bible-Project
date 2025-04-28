@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and we toil, working with our own hands: being reviled, we bless; being persecuted, we endure;
+We toil, working with our own hands. When people curse us, we bless. Being persecuted, we endure.

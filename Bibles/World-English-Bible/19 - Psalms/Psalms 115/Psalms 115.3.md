@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But our God is in the heavens: He hath done whatsoever he pleased.
+But our God is in the heavens. He does whatever he pleases.

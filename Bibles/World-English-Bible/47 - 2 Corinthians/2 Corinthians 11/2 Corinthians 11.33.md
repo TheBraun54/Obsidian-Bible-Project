@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and through a window was I let down in a basket by the wall, and escaped his hands.
+Through a window I was let down in a basket by the wall, and escaped his hands.

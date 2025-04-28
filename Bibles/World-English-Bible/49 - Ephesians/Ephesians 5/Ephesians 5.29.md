@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for no man ever hated his own flesh; but nourisheth and cherisheth it, even as Christ also the church;
+For no man ever hated his own flesh; but nourishes and cherishes it, even as the Lord also does the assembly;

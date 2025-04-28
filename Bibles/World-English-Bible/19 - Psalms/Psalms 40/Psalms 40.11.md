@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Withhold not thou thy tender mercies from me, O Jehovah; Let thy lovingkindness and thy truth continually preserve me.
+Don't withhold your tender mercies from me, Yahweh. Let your loving kindness and your truth continually preserve me.

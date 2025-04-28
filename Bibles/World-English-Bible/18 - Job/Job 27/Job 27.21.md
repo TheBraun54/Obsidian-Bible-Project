@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The east wind carrieth him away, and he departeth; And it sweepeth him out of his place.
+The east wind carries him away, and he departs. It sweeps him out of his place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham called the name of his son that was born unto him, whom Sarah bare to him, Isaac.
+Abraham called his son who was born to him, whom Sarah bore to him, Isaac.

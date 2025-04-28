@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked this way and that way, and when he saw that there was no man, he smote the Egyptian, and hid him in the sand.
+He looked this way and that way, and when he saw that there was no one, he killed the Egyptian, and hid him in the sand.

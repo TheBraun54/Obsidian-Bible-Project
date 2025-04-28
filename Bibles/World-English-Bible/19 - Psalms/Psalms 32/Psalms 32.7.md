@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art my hiding-place; Thou wilt preserve me from trouble; Thou wilt compass me about with songs of deliverance. {{Selah
+You are my hiding place. You will preserve me from trouble. You will surround me with songs of deliverance. Selah.

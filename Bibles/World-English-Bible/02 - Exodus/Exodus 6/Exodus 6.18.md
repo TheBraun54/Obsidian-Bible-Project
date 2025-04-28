@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Kohath: Amram, and Izhar, and Hebron, and Uzziel; and the years of the life of Kohath were a hundred thirty and three years.
+The sons of Kohath: Amram, and Izhar, and Hebron, and Uzziel; and the years of the life of Kohath were one hundred thirty-three years.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before destruction the heart of man is haughty; And before honor [goeth] humility.
+Before destruction the heart of man is proud, but before honor is humility.

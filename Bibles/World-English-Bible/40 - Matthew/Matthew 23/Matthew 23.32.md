@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fill ye up then the measure of your fathers.
+Fill up, then, the measure of your fathers.

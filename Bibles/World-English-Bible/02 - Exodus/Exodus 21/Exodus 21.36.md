@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if it be known that the ox was wont to gore in time past, and its owner hath not kept it in; he shall surely pay ox for ox, and the dead [beast] shall be his own.
+Or if it is known that the bull was in the habit of goring in the past, and its owner has not kept it in, he shall surely pay bull for bull, and the dead animal shall be his own.

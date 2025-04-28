@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall take of the blood, and put it on the two side-posts and on the lintel, upon the houses wherein they shall eat it.
+They shall take some of the blood, and put it on the two doorposts and on the lintel, on the houses in which they shall eat it.

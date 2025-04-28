@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but all these worketh the one and the same Spirit, dividing to each one severally even as he will.
+But the one and the same Spirit works all of these, distributing to each one separately as he desires.

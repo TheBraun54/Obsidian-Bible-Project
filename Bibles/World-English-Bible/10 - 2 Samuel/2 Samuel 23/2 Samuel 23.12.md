@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he stood in the midst of the plot, and defended it, and slew the Philistines; and Jehovah wrought a great victory.
+But he stood in the midst of the plot, and defended it, and killed the Philistines; and Yahweh worked a great victory.

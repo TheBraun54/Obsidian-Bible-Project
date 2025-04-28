@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will arise and go to my father, and will say unto him, Father, I have sinned against heaven, and in thy sight:
+I will get up and go to my father, and will tell him, "Father, I have sinned against heaven, and in your sight.

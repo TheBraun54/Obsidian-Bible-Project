@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took up his parable, and said, From Aram hath Balak brought me, The king of Moab from the mountains of the East: Come, curse me Jacob, And come, defy Israel.
+He took up his parable, and said, "From Aram has Balak brought me, the king of Moab from the mountains of the East. Come, curse Jacob for me. Come, defy Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Shall I hide from Abraham that which I do;
+Yahweh said, "Will I hide from Abraham what I do,

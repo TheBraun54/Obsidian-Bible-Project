@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ When thou saidst], Seek ye my face; My heart said unto thee, Thy face, Jehovah, will I seek.
+When you said, "Seek my face," my heart said to you, "I will seek your face, Yahweh."

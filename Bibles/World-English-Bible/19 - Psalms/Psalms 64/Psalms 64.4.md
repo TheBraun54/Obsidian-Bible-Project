@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That they may shoot in secret places at the perfect: Suddenly do they shoot at him, and fear not.
+to shoot innocent men from ambushes. They shoot at him suddenly and fearlessly.

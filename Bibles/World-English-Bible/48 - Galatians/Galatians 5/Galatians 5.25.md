@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we live by the Spirit, by the Spirit let us also walk.
+If we live by the Spirit, let's also walk by the Spirit.

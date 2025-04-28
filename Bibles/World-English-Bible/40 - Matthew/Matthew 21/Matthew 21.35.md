@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the husbandmen took his servants, and beat one, and killed another, and stoned another.
+The farmers took his servants, beat one, killed another, and stoned another.

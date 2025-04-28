@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and David said unto the Gibeonites, What shall I do for you? and wherewith shall I make atonement, that ye may bless the inheritance of Jehovah?
+and David said to the Gibeonites, "What shall I do for you? And with what shall I make atonement, that you may bless the inheritance of Yahweh?"

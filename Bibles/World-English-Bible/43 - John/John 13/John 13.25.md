@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He leaning back, as he was, on Jesus' breast saith unto him, Lord, who is it?
+He, leaning back, as he was, on Jesus' breast, asked him, "Lord, who is it?"

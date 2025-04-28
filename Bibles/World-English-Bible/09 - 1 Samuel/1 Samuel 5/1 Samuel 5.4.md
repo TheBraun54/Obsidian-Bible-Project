@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they arose early on the morrow morning, behold, Dagon was fallen upon his face to the ground before the ark of Jehovah; and the head of Dagon and both the palms of his hands [lay] cut off upon the threshold; only [the stump of] Dagon was left to him.
+When they arose early on the next day morning, behold, Dagon was fallen on his face to the ground before the ark of Yahweh; and the head of Dagon and both the palms of his hands [lay] cut off on the threshold; only [the stump of] Dagon was left to him.

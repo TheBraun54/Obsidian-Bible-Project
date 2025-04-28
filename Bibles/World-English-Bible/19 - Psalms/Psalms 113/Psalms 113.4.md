@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is high above all nations, And his glory above the heavens.
+Yahweh is high above all nations, his glory above the heavens.

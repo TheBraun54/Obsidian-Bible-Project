@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the strong went forth, and sought to go that they might walk to and fro through the earth: and he said, Get you hence, walk to and fro through the earth. So they walked to and fro through the earth.
+The strong went out, and sought to go that they might walk back and forth through the earth: and he said, "Go around and through the earth!" So they walked back and forth through the earth.

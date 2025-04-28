@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set a sign among them, and I will send such as escape of them unto the nations, to Tarshish, Pul, and Lud, that draw the bow, to Tubal and Javan, to the isles afar off, that have not heard my fame, neither have seen my glory; and they shall declare my glory among the nations.
+"I will set a sign among them, and I will send such as escape of them to the nations, to Tarshish, Pul, and Lud, who draw the bow, to Tubal and Javan, to the islands afar off, who have not heard my fame, neither have seen my glory; and they shall declare my glory among the nations.

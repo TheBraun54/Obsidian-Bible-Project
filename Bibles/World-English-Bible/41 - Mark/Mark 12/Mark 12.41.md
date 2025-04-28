@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sat down over against the treasury, and beheld how the multitude cast money into the treasury: and many that were rich cast in much.
+Jesus sat down opposite the treasury, and saw how the multitude cast money into the treasury. Many who were rich cast in much.

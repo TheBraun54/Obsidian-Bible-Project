@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto Pharaoh, The dream of Pharaoh is one: what God is about to do he hath declared unto Pharaoh.
+Joseph said to Pharaoh, "The dream of Pharaoh is one. What God is about to do he has declared to Pharaoh.

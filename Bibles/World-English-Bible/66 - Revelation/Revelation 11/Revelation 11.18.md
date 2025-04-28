@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the nations were wroth, and thy wrath came, and the time of the dead to be judged, and [the time] to give their reward to thy servants the prophets, and to the saints, and to them that fear thy name, the small and the great; and to destroy them that destroy the earth.
+The nations were angry, and your wrath came, as did the time for the dead to be judged, and to give your bondservants the prophets, their reward, as well as to the saints, and those who fear your name, to the small and the great; and to destroy those who destroy the earth."

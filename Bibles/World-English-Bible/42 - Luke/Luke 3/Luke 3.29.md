@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Jesus, the [son] of Eliezer, the son of Jorim, the [son] of Matthat, the [son] of Levi,
+the son of Jose, the son of Eliezer, the son of Jorim, the son of Matthat, the son of Levi,

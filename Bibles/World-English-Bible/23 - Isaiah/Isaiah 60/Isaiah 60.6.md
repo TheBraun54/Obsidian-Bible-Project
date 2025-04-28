@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The multitude of camels shall cover thee, the dromedaries of Midian and Ephah; all they from Sheba shall come; they shall bring gold and frankincense, and shall proclaim the praises of Jehovah.
+The multitude of camels shall cover you, the dromedaries of Midian and Ephah; all they from Sheba shall come; they shall bring gold and frankincense, and shall proclaim the praises of Yahweh.

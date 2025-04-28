@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king sat upon his seat, as at other times, even upon the seat by the wall; and Jonathan stood up, and Abner sat by Saul's side: but David's place was empty.
+The king sat on his seat, as at other times, even on the seat by the wall; and Jonathan stood up, and Abner sat by Saul's side: but David's place was empty.

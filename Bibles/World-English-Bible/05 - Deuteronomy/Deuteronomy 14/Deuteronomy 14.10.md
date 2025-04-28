@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and whatsoever hath not fins and scales ye shall not eat; it is unclean unto you.
+and whatever doesn't have fins and scales you shall not eat; it is unclean to you.

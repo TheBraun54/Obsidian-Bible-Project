@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they also did work wilily, and went and made as if they had been ambassadors, and took old sacks upon their asses, and wine-skins, old and rent and bound up,
+they also resorted to a ruse, and went and made as if they had been ambassadors, and took old sacks on their donkeys, and wineskins, old and torn and bound up,

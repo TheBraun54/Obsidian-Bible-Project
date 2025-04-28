@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Behold, a people cometh from the north country; and a great nation shall be stirred up from the uttermost parts of the earth.
+Thus says Yahweh, "Behold, a people comes from the north country. A great nation shall be stirred up from the uttermost parts of the earth.

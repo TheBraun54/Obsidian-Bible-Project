@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate answered, Am I a Jew? Thine own nation and the chief priests delivered thee unto me: what hast thou done?
+Pilate answered, "I'm not a Jew, am I? Your own nation and the chief priests delivered you to me. What have you done?"

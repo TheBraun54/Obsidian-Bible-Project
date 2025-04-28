@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who remembered us in our low estate; For his lovingkindness [endureth] for ever;
+Who remembered us in our low estate; for his loving kindness endures forever;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he will stand at the right hand of the needy, To save him from them that judge his soul.
+For he will stand at the right hand of the needy, to save him from those who judge his soul. A Psalm by David.

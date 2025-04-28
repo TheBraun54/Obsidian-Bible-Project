@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A brother offended [is harder to be won] than a strong city; And [such] contentions are like the bars of a castle.
+A brother offended is more difficult than a fortified city; and disputes are like the bars of a castle.

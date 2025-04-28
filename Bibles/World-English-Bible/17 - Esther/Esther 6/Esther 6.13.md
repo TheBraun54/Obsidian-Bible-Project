@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Haman recounted unto Zeresh his wife and all his friends everything that had befallen him. Then said his wise men and Zeresh his wife unto him, If Mordecai, before whom thou hast begun to fall, be of the seed of the Jews, thou shalt not prevail against him, but shalt surely fall before him.
+Haman recounted to Zeresh his wife and all his friends everything that had happened to him. Then his wise men and Zeresh his wife said to him, "If Mordecai, before whom you have begun to fall, is of Jewish descent, you will not prevail against him, but you will surely fall before him."

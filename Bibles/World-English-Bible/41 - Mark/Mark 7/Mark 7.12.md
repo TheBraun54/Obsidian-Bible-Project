@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye no longer suffer him to do aught for his father or his mother;
+then you no longer allow him to do anything for his father or his mother,

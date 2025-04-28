@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto him, Wherefore askest thou after my name, seeing it is wonderful?
+The angel of Yahweh said to him, "Why do you ask about my name, since it is wonderful?"

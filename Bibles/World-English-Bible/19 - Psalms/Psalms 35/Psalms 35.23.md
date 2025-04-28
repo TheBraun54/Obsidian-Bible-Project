@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stir up thyself, and awake to the justice [due] unto me, [Even] unto my cause, my God and my Lord.
+Wake up! Rise up to defend me, my God! My Lord, contend for me!

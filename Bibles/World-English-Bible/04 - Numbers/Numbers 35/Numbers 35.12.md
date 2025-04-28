@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cities shall be unto you for refuge from the avenger, that the manslayer die not, until he stand before the congregation for judgment.
+The cities shall be to you for refuge from the avenger, that the manslayer not die, until he stands before the congregation for judgment.

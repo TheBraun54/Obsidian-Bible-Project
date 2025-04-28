@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have spread out my hands all the day unto a rebellious people, that walk in a way that is not good, after their own thoughts;
+I have spread out my hands all the day to a rebellious people, who walk in a way that is not good, after their own thoughts;

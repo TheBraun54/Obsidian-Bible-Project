@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus stood still, and said, Call ye him. And they call the blind man, saying unto him, Be of good cheer: rise, he calleth thee.
+Jesus stood still, and said, "Call him." They called the blind man, saying to him, "Cheer up! Get up. He is calling you!"

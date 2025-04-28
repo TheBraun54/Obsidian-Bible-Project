@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua went up from Eglon, and all Israel with him, unto Hebron; and they fought against it:
+Joshua went up from Eglon, and all Israel with him, to Hebron; and they fought against it.

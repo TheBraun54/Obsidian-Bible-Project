@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I therefore so run, as not uncertainly; so fight I, as not beating the air:
+I therefore run like that, as not uncertainly. I fight like that, as not beating the air,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he held Peter and John, all the people ran together unto them in the porch that is called Solomon's, greatly wondering.
+As the lame man who was healed held on to Peter and John, all the people ran together to them in the porch that is called Solomon's, greatly wondering.

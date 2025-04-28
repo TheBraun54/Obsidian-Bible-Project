@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not do so unto Jehovah your God.
+You shall not do so to Yahweh your God.

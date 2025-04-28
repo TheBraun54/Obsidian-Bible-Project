@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall evil come upon thee; thou shalt not know the dawning thereof: and mischief shall fall upon thee; thou shalt not be able to put it away: and desolation shall come upon thee suddenly, which thou knowest not.
+Therefore evil will come on you; you won't know when it dawns: and mischief will fall on you; you will not be able to put it away: and desolation shall come on you suddenly, which you don't know.

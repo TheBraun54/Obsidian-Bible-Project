@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Like as a father pitieth his children, So Jehovah pitieth them that fear him.
+Like a father has compassion on his children, so Yahweh has compassion on those who fear him.

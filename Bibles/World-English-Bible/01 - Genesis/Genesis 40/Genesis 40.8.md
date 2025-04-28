@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, We have dreamed a dream, and there is none that can interpret it. And Joseph said unto them, Do not interpretations belong to God? tell it me, I pray you.
+They said to him, "We have dreamed a dream, and there is no one who can interpret it." Joseph said to them, "Don't interpretations belong to God? Please tell it to me."

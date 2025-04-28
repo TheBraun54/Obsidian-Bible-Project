@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph made ready his chariot, and went up to meet Israel his father, to Goshen; and he presented himself unto him, and fell on his neck, and wept on his neck a good while.
+Joseph prepared his chariot, and went up to meet Israel, his father, in Goshen. He presented himself to him, and fell on his neck, and wept on his neck a good while.

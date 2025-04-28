@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were ninety and six pomegranates on the sides; all the pomegranates were a hundred upon the network round about.
+There were ninety-six pomegranates on the sides; all the pomegranates were one hundred on the network all around.

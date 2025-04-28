@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now while the bridegroom tarried, they all slumbered and slept.
+Now while the bridegroom delayed, they all slumbered and slept.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore hear now this, thou afflicted, and drunken, but now with wine:
+Therefore hear now this, you afflicted, and drunken, but not with wine:

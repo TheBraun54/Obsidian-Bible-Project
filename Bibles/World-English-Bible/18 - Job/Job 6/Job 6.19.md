@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The caravans of Tema looked, The companies of Sheba waited for them.
+The caravans of Tema looked. The companies of Sheba waited for them.

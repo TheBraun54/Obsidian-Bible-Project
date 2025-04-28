@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Behold, I am against Pharaoh king of Egypt, and will break his arms, the strong [arm], and that which was broken; and I will cause the sword to fall out of his hand.
+Therefore thus says the Lord Yahweh: Behold, I am against Pharaoh king of Egypt, and will break his arms, the strong [arm], and that which was broken; and I will cause the sword to fall out of his hand.

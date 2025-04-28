@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They search out iniquities; We have accomplished, [say they], a diligent search: And the inward thought and the heart of every one is deep.
+They plot injustice, saying, "We have made a perfect plan!" Surely man's mind and heart are cunning.

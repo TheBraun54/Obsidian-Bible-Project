@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What? was it from you that the word of God went forth? or came it unto you alone?
+What? Was it from you that the word of God went out? Or did it come to you alone?

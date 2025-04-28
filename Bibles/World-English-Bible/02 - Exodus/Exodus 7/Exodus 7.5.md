@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Egyptians shall know that I am Jehovah, when I stretch forth my hand upon Egypt, and bring out the children of Israel from among them.
+The Egyptians shall know that I am Yahweh, when I stretch forth my hand on Egypt, and bring out the children of Israel from among them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast despised my holy things, and hast profaned my sabbaths.
+You have despised my holy things, and have profaned my Sabbaths.

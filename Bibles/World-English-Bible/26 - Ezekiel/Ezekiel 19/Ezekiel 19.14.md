@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fire is gone out of the rods of its branches, it hath devoured its fruit, so that there is in it no strong rod to be a sceptre to rule. This is a lamentation, and shall be for a lamentation.
+Fire is gone out of the rods of its branches, it has devoured its fruit, so that there is in it no strong rod to be a scepter to rule. This is a lamentation, and shall be for a lamentation.

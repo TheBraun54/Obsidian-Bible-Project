@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall he therefore empty his net, and spare not to slay the nations continually?
+Will he therefore continually empty his net, and kill the nations without mercy?

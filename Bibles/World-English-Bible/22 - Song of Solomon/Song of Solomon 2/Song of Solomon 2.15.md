@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take us the foxes, the little foxes, That spoil the vineyards; For our vineyards are in blossom.
+Catch for us the foxes, the little foxes that spoil the vineyards; for our vineyards are in blossom. Beloved

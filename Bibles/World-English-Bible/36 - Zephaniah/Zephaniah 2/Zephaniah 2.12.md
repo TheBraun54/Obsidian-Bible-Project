@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye Ethiopians also, ye shall be slain by my sword.
+You Cushites also, you will be killed by my sword.

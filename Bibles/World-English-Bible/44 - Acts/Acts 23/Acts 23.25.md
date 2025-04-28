@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he wrote a letter after this form:
+He wrote a letter like this:

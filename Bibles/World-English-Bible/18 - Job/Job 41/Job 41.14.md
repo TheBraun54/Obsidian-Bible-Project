@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can open the doors of his face? Round about his teeth is terror.
+Who can open the doors of his face? Around his teeth is terror.

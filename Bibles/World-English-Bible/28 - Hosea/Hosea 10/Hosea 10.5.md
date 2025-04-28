@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The inhabitants of Samaria shall be in terror for the calves of Beth-aven; for the people thereof shall mourn over it, and the priests thereof that rejoiced over it, for the glory thereof, because it is departed from it.
+The inhabitants of Samaria will be in terror for the calves of Beth Aven; for its people will mourn over it, Along with its priests who rejoiced over it, for its glory, because it has departed from it.

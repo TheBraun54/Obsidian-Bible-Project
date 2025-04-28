@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that ye would altogether hold your peace! And it would be your wisdom.
+Oh that you would be completely silent! Then you would be wise.

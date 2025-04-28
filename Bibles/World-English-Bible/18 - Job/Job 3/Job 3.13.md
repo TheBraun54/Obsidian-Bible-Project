@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For now should I have lain down and been quiet; I should have slept; then had I been at rest,
+For now should I have lain down and been quiet. I should have slept, then I would have been at rest,

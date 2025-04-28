@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many also of them that had believed came, confessing, and declaring their deeds.
+Many also of those who had believed came, confessing, and declaring their deeds.

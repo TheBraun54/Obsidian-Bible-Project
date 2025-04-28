@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron shall present the bullock of the sin-offering, which is for himself, and make atonement for himself, and for his house.
+"Aaron shall offer the bull of the sin offering, which is for himself, and make atonement for himself and for his house.

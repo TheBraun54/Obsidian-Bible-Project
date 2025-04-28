@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the Holy Spirit shall teach you in that very hour what ye ought to say.
+for the Holy Spirit will teach you in that same hour what you must say."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Hezekiah unto Isaiah, Good is the word of Jehovah which thou hast spoken. He said moreover, For there shall be peace and truth in my days.
+Then Hezekiah said to Isaiah, "Yahweh's word which you have spoken is good." He said moreover, "For there will be peace and truth in my days."

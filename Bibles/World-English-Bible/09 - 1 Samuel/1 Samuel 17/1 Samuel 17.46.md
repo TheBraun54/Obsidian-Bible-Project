@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This day will Jehovah deliver thee into my hand; and I will smite thee, and take thy head from off thee; and I will give the dead bodies of the host of the Philistines this day unto the birds of the heavens, and to the wild beasts of the earth; that all the earth may know that there is a God in Israel,
+Today, Yahweh will deliver you into my hand. I will strike you, and take your head from off you. I will give the dead bodies of the army of the Philistines this day to the birds of the sky, and to the wild animals of the earth; that all the earth may know that there is a God in Israel,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, in trouble have they visited thee; they poured out a prayer [when] thy chastening was upon them.
+Yahweh, in trouble they have visited you. They poured out a prayer when your chastening was on them.

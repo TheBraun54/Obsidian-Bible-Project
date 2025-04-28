@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even all the nations shall say, Wherefore hath Jehovah done thus unto this land? what meaneth the heat of this great anger?
+even all the nations shall say, "Why has Yahweh done thus to this land? What does the heat of this great anger mean?"

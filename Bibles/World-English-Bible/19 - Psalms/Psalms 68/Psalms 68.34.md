@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ascribe ye strength unto God: His excellency is over Israel, And his strength is in the skies.
+Ascribe strength to God! His excellency is over Israel, his strength is in the skies.

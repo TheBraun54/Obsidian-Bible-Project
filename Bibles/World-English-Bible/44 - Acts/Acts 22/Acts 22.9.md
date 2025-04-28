@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that were with me beheld indeed the light, but they heard not the voice of him that spake to me.
+"Those who were with me indeed saw the light and were afraid, but they didn't understand the voice of him who spoke to me.

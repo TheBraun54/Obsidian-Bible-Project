@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the tribe of Simeon twelve thousand; Of the tribe of Levi twelve thousand; Of the tribe of Issachar twelve thousand;
+of the tribe of Simeon twelve thousand, of the tribe of Levi twelve thousand, of the tribe of Issachar twelve thousand,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham rose up early in the morning, and took bread and a bottle of water, and gave it unto Hagar, putting it on her shoulder, and [gave her] the child, and sent her away: and she departed, and wandered in the wilderness of Beer-sheba.
+Abraham rose up early in the morning, and took bread and a bottle of water, and gave it to Hagar, putting it on her shoulder; and gave her the child, and sent her away. She departed, and wandered in the wilderness of Beersheba.

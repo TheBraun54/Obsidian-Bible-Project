@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also Hosah, of the children of Merari, had sons: Shimri the chief, (for though he was not the first-born, yet his father made him chief),
+Also Hosah, of the children of Merari, had sons: Shimri the chief, (for though he was not the firstborn, yet his father made him chief),

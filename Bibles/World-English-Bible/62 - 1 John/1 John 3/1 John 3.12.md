@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not as Cain was of the evil one, and slew his brother. And wherefore slew he him? Because his works were evil, and his brother's righteous.
+unlike Cain, who was of the evil one, and killed his brother. Why did he kill him? Because his works were evil, and his brother's righteous.

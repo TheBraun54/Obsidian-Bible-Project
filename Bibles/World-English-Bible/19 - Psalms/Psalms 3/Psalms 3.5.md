@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I laid me down and slept; I awaked; For Jehovah sustaineth me.
+I laid myself down and slept. I awakened; for Yahweh sustains me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he brought near the family of Judah; and he took the family of the Zerahites: and he brought near the family of the Zerahites man by man; and Zabdi was taken:
+He brought near the family of Judah; and he selected the family of the Zerahites. He brought near the family of the Zerahites man by man, and Zabdi was selected.

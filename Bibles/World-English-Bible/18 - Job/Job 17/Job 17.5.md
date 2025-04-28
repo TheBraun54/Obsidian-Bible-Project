@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that denounceth his friends for a prey, Even the eyes of his children shall fail.
+He who denounces his friends for a prey, Even the eyes of his children shall fail.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Curse ye Meroz, said the angel of Jehovah. Curse ye bitterly the inhabitants thereof, Because they came not to the help of Jehovah, To the help of Jehovah against the mighty.
+'Curse Meroz,' said the angel of Yahweh. 'Curse bitterly its inhabitants, because they didn't come to help Yahweh, to help Yahweh against the mighty.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah thy God will deliver them up before thee, and will discomfit them with a great discomfiture, until they be destroyed.
+But Yahweh your God will deliver them up before you, and will confuse them with a great confusion, until they be destroyed.

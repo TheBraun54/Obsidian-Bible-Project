@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Observe the sabbath day, to keep it holy, as Jehovah thy God commanded thee.
+"Observe the Sabbath day, to keep it holy, as Yahweh your God commanded you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they delivered it into the hand of the workmen that had the oversight of the house of Jehovah; and the workmen that wrought in the house of Jehovah gave it to mend and repair the house:
+They delivered it into the hand of the workmen who had the oversight of the house of Yahweh; and the workmen who labored in the house of Yahweh gave it to mend and repair the house;

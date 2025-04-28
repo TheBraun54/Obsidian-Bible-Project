@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jesus had finished these words, the multitudes were astonished at his teaching:
+It happened, when Jesus had finished saying these things, that the multitudes were astonished at his teaching,

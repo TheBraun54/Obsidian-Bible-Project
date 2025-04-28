@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people answered together, and said, All that Jehovah hath spoken we will do. And Moses reported the words of the people unto Jehovah.
+All the people answered together, and said, "All that Yahweh has spoken we will do." Moses reported the words of the people to Yahweh.

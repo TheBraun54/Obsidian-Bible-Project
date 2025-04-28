@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye, brethren, be not weary in well-doing.
+But you, brothers, don't be weary in doing well.

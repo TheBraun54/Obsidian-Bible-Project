@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord Jehovah hath opened mine ear, and I was not rebellious, neither turned away backward.
+The Lord Yahweh has opened my ear, and I was not rebellious, neither turned away backward.

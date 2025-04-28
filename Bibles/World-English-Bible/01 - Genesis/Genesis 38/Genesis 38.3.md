@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she conceived, and bare a son; and he called his name Er.
+She conceived, and bore a son; and he named him Er.

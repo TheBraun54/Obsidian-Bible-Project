@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she took the pan, and poured them out before him; but he refused to eat. And Amnon said, Have out all men from me. And they went out every man from him.
+She took the pan, and poured them out before him; but he refused to eat. Amnon said, "Have all men leave me." Every man went out from him.

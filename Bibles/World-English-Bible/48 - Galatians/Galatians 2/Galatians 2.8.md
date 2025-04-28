@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for he that wrought for Peter unto the apostleship of the circumcision wrought for me also unto the Gentiles);
+(for he who appointed Peter to the apostleship of the circumcision appointed me also to the Gentiles);

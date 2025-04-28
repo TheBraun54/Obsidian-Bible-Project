@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the time past may suffice to have wrought the desire of the Gentiles, and to have walked in lasciviousness, lusts, winebibbings, revellings, carousings, and abominable idolatries:
+For we have spent enough of our past time doing the desire of the Gentiles, and having walked in lewdness, lusts, drunken binges, orgies, carousings, and abominable idolatries.

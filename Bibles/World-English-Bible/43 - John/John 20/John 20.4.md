@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they ran both together: and the other disciple outran Peter, and came first to the tomb;
+They both ran together. The other disciple outran Peter, and came to the tomb first.

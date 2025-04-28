@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I make known to you, brethren, as touching the gospel which was preached by me, that it is not after man.
+But I make known to you, brothers, concerning the Good News which was preached by me, that it is not according to man.

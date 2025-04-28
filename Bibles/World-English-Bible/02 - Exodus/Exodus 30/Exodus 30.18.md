@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt also make a laver of brass, and the base thereof of brass, whereat to wash. And thou shalt put it between the tent of meeting and the altar, and thou shalt put water therein.
+"You shall also make a basin of brass, and its base of brass, in which to wash. You shall put it between the Tent of Meeting and the altar, and you shall put water in it.

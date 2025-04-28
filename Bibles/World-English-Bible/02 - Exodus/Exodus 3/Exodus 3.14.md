@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto Moses, I AM THAT I AM: and he said, Thus shalt thou say unto the children of Israel, I AM hath sent me unto you.
+God said to Moses, "I AM WHO I AM," and he said, "You shall tell the children of Israel this: 'I AM has sent me to you.'"

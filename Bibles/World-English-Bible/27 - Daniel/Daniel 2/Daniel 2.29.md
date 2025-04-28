@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as for thee, O king, thy thoughts came [into thy mind] upon thy bed, what should come to pass hereafter; and he that revealeth secrets hath made known to thee what shall come to pass.
+as for you, O king, your thoughts came [into your mind] on your bed, what should happen hereafter; and he who reveals secrets has made known to you what shall happen.

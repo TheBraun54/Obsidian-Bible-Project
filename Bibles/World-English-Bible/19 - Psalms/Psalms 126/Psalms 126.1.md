@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. When Jehovah brought back those that returned to Zion, We were like unto them that dream.
+When Yahweh brought back those who returned to Zion, we were like those who dream.

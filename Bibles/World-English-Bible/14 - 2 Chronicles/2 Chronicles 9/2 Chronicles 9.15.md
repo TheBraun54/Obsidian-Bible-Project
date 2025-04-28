@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon made two hundred bucklers of beaten gold; six hundred [shekels] of beaten gold went to one buckler.
+King Solomon made two hundred bucklers of beaten gold; six hundred [shekels] of beaten gold went to one buckler.

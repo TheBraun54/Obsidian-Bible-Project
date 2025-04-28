@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Jehovah thy God is a merciful God; he will not fail thee, neither destroy thee, nor forget the covenant of thy fathers which he sware unto them.
+for Yahweh your God is a merciful God; he will not fail you, neither destroy you, nor forget the covenant of your fathers which he swore to them.

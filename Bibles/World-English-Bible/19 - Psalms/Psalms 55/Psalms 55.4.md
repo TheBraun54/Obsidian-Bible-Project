@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart is sore pained within me: And the terrors of death are fallen upon me.
+My heart is severely pained within me. The terrors of death have fallen on me.

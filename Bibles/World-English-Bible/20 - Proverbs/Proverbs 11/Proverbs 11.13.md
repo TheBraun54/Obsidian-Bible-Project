@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that goeth about as a tale-bearer revealeth secrets; But he that is of a faithful spirit concealeth a matter.
+One who brings gossip betrays a confidence, but one who is of a trustworthy spirit is one who keeps a secret.

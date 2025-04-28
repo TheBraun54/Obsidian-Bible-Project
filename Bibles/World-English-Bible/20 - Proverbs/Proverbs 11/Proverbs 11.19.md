@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is stedfast in righteousness [shall attain] unto life; And he that pursueth evil [doeth it] to his own death.
+He who is truly righteous gets life. He who pursues evil gets death.

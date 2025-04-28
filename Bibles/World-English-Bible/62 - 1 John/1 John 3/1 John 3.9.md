@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever is begotten of God doeth no sin, because his seed abideth in him: and he cannot sin, because he is begotten of God.
+Whoever is born of God doesn't commit sin, because his seed remains in him; and he can't sin, because he is born of God.

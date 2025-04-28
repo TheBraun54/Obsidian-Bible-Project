@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I hate, I despise your feasts, and I will take no delight in your solemn assemblies.
+I hate, I despise your feasts, and I can't stand your solemn assemblies.

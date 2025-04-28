@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let your loins be girded about, and your lamps burning;
+"Let your waist be dressed and your lamps burning.

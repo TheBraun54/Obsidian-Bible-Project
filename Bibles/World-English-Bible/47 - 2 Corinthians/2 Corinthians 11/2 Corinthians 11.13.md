@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For such men are false apostles, deceitful workers, fashioning themselves into apostles of Christ.
+For such men are false apostles, deceitful workers, masquerading as Christ's apostles.

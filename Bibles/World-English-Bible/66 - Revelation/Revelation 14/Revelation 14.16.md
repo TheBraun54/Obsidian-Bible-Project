@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that sat on the cloud cast his sickle upon the earth; and the earth was reaped.
+He who sat on the cloud thrust his sickle on the earth, and the earth was reaped.

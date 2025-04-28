@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall the fair virgins and the young men faint for thirst.
+In that day the beautiful virgins and the young men will faint for thirst.

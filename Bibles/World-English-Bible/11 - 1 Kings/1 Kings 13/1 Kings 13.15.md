@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he said unto him, Come home with me, and eat bread.
+Then he said to him, "Come home with me, and eat bread."

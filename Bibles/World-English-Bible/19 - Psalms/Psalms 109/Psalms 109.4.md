@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my love they are my adversaries: But I [give myself unto] prayer.
+In return for my love, they are my adversaries; but I am in prayer.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Philistines heard that David was anointed king over all Israel, all the Philistines went up to seek David: and David heard of it, and went out against them.
+When the Philistines heard that David was anointed king over all Israel, all the Philistines went up to seek David: and David heard of it, and went out against them.

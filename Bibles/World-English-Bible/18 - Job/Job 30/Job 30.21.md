@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art turned to be cruel to me; With the might of thy hand thou persecutest me.
+You have turned to be cruel to me. With the might of your hand you persecute me.

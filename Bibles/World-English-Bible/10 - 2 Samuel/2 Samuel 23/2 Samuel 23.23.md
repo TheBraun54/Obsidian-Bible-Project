@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He was more honorable than the thirty, but he attained not to the [first] three. And David set him over his guard.
+He was more honorable than the thirty, but he didn't attain to the [first] three. David set him over his guard.

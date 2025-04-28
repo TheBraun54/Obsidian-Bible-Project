@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have compassed this mountain long enough: turn you northward.
+"You have encircled this mountain long enough. Turn northward.

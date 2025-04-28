@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or who hath first given to him, and it shall be recompensed unto him again?
+"Or who has first given to him, and it will be repaid to him again?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they seized him, and led him [away], and brought him into the high priest's house. But Peter followed afar off.
+They seized him, and led him away, and brought him into the high priest's house. But Peter followed from a distance.

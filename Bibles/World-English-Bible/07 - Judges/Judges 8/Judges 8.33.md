@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as soon as Gideon was dead, that the children of Israel turned again, and played the harlot after the Baalim, and made Baal-berith their god.
+It happened, as soon as Gideon was dead, that the children of Israel turned again, and played the prostitute after the Baals, and made Baal Berith their god.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the sons of Kohath, Uriel the chief, and his brethren a hundred and twenty;
+of the sons of Kohath, Uriel the chief, and his brothers one hundred twenty;

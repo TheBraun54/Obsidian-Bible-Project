@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Wherein have I sinned, that thou wouldest deliver thy servant into the hand of Ahab, to slay me?
+He said, "Wherein have I sinned, that you would deliver your servant into the hand of Ahab, to kill me?

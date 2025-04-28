@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he prayed unto him; and he was entreated of him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that Jehovah he was God.
+He prayed to him; and he was entreated by him, and heard his supplication, and brought him again to Jerusalem into his kingdom. Then Manasseh knew that Yahweh was God.

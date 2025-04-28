@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be eaten at all on the third day, it is an abomination; it shall not be accepted:
+If it is eaten at all on the third day, it is an abomination. It will not be accepted;

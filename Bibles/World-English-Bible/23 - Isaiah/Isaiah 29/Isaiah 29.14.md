@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I will proceed to do a marvellous work among this people, even a marvellous work and a wonder; and the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.
+therefore, behold, I will proceed to do a marvelous work among this people, even a marvelous work and a wonder; and the wisdom of their wise men will perish, and the understanding of their prudent men will be hidden."

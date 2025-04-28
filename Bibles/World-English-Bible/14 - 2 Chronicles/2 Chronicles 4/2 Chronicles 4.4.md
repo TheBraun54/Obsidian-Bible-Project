@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It stood upon twelve oxen, three looking toward the north, and three looking toward the west, and three looking toward the south, and three looking toward the east: and the sea was set upon them above, and all their hinder parts were inward.
+It stood on twelve oxen, three looking toward the north, and three looking toward the west, and three looking toward the south, and three looking toward the east: and the sea was set on them above, and all their hinder parts were inward.

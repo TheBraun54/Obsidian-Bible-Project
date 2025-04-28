@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O Jehovah, knowest me; thou seest me, and triest my heart toward thee: pull them out like sheep for the slaughter, and prepare them for the day of slaughter.
+But you, Yahweh, know me; you see me, and try my heart toward you: pull them out like sheep for the slaughter, and prepare them for the day of slaughter.

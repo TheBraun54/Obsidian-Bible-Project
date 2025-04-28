@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ He is] wise in heart, and mighty in strength: Who hath hardened himself against him, and prospered?--
+God who is wise in heart, and mighty in strength: who has hardened himself against him, and prospered?

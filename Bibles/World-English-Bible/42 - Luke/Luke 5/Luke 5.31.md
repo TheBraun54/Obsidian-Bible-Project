@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answering said unto them, They that are in health have no need of a physician; but they that are sick.
+Jesus answered them, "Those who are healthy have no need for a physician, but those who are sick do.

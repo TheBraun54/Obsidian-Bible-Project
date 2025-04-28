@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God also bearing witness with them, both by signs and wonders, and by manifold powers, and by gifts of the Holy Spirit, according to his own will.
+God also testifying with them, both by signs and wonders, by various works of power, and by gifts of the Holy Spirit, according to his own will?

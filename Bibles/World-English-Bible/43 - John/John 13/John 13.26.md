@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore answereth, He it is, for whom I shall dip the sop, and give it him. So when he had dipped the sop, he taketh and giveth it to Judas, [the son] of Simon Iscariot.
+Jesus therefore answered, "It is he to whom I will give this piece of bread when I have dipped it." So when he had dipped the piece of bread, he gave it to Judas, the son of Simon Iscariot.

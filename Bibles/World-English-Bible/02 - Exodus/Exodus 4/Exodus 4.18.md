@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went and returned to Jethro his father-in-law, and said unto him, Let me go, I pray thee, and return unto my brethren that are in Egypt, and see whether they be yet alive. And Jethro said to Moses, Go in peace.
+Moses went and returned to Jethro his father-in-law, and said to him, "Please let me go and return to my brothers who are in Egypt, and see whether they are still alive." Jethro said to Moses, "Go in peace."

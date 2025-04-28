@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the young men arose and wrapped him round, and they carried him out and buried him.
+The young men arose and wrapped him up, and they carried him out and buried him.

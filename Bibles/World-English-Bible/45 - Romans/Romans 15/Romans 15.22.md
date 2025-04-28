@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore also I was hindered these many times from coming to you:
+Therefore also I was hindered these many times from coming to you,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that he forsook the tabernacle of Shiloh, The tent which he placed among men;
+So that he forsook the tent of Shiloh, the tent which he placed among men;

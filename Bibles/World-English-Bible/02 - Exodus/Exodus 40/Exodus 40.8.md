@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set up the court round about, and hang up the screen of the gate of the court.
+You shall set up the court around it, and hang up the screen of the gate of the court.

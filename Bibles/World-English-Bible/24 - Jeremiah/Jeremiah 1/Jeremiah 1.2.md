@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to whom the word of Jehovah came in the days of Josiah the son of Amon, king of Judah, in the thirteenth year of his reign.
+to whom the word of Yahweh came in the days of Josiah the son of Amon, king of Judah, in the thirteenth year of his reign.

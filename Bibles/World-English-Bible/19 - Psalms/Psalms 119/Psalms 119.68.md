@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art good, and doest good; Teach me thy statutes.
+You are good, and do good. Teach me your statutes.

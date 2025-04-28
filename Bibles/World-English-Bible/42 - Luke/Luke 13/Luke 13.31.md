@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that very hour there came certain Pharisees, saying to him, Get thee out, and go hence: for Herod would fain kill thee.
+On that same day, some Pharisees came, saying to him, "Get out of here, and go away, for Herod wants to kill you."

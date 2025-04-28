@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that in those days, when the king Ahasuerus sat on the throne of his kingdom, which was in Shushan the palace,
+that in those days, when the King Ahasuerus sat on the throne of his kingdom, which was in Shushan the palace,

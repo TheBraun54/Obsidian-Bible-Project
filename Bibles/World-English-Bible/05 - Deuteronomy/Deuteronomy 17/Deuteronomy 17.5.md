@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shalt thou bring forth that man or that woman, who hath done this evil thing, unto thy gates, even the man or the woman; and thou shalt stone them to death with stones.
+then you shall bring forth that man or that woman, who has done this evil thing, to your gates, even the man or the woman; and you shall stone them to death with stones.

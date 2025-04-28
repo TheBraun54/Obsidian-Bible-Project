@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Pathrusim, and Casluhim (from whence came the Philistines), and Caphtorim.
+and Pathrusim, and Casluhim (where the Philistines came from), and Caphtorim.

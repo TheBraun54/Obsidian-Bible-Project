@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that all this assembly may know that Jehovah saveth not with sword and spear: for the battle is Jehovah's, and he will give you into our hand.
+and that all this assembly may know that Yahweh doesn't save with sword and spear: for the battle is Yahweh's, and he will give you into our hand."

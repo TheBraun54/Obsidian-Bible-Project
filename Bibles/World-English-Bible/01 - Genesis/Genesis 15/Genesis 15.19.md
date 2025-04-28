@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the Kenite, and the Kenizzite, and the Kadmonite,
+the Kenites, the Kenizzites, the Kadmonites,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the beast that was, and is not, is himself also an eighth, and is of the seven; and he goeth into perdition.
+The beast that was, and is not, is himself also an eighth, and is of the seven; and he goes to destruction.

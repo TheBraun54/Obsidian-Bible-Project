@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when we are judged, we are chastened of the Lord, that we may not be condemned with the world.
+But when we are judged, we are punished by the Lord, that we may not be condemned with the world.

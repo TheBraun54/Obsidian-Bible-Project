@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will come and destroy these husbandmen, and will give the vineyard unto others. And when they heard it, they said, God forbid.
+He will come and destroy these farmers, and will give the vineyard to others." When they heard it, they said, "May it never be!"

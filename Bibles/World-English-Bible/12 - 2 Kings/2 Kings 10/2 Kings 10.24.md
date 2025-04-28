@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went in to offer sacrifices and burnt-offerings. Now Jehu had appointed him fourscore men without, and said, If any of the men whom I bring into your hands escape, [he that letteth him go], his life shall be for the life of him.
+They went in to offer sacrifices and burnt offerings. Now Jehu had appointed him eighty men outside, and said, "If any of the men whom I bring into your hands escape, [he who lets him go], his life shall be for the life of him."

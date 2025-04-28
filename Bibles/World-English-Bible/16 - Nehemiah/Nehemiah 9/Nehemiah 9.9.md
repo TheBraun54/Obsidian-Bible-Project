@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou sawest the affliction of our fathers in Egypt, and heardest their cry by the Red Sea,
+"You saw the affliction of our fathers in Egypt, and heard their cry by the Red Sea,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they told David, saying, Behold, the Philistines are fighting against Keilah, and are robbing the threshing-floors.
+David was told, "Behold, the Philistines are fighting against Keilah, and are robbing the threshing floors."

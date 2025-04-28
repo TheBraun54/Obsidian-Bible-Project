@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, Who art thou? Jesus said unto them, Even that which I have also spoken unto you from the beginning.
+They said therefore to him, "Who are you?" Jesus said to them, "Just what I have been saying to you from the beginning.

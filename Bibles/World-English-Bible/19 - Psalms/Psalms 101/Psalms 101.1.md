@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. I will sing of lovingkindness and justice: Unto thee, O Jehovah, will I sing praises.
+I will sing of loving kindness and justice. To you, Yahweh, I will sing praises.

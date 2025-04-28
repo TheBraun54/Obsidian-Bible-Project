@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then it is not of him that willeth, nor of him that runneth, but of God that hath mercy.
+So then it is not of him who wills, nor of him who runs, but of God who has mercy.

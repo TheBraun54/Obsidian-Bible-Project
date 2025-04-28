@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as often as ye eat this bread, and drink the cup, ye proclaim the Lord's death till he come.
+For as often as you eat this bread and drink this cup, you proclaim the Lord's death until he comes.

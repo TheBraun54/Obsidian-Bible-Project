@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for [the children] being not yet born, neither having done anything good or bad, that the purpose of God according to election might stand, not of works, but of him that calleth,
+For being not yet born, neither having done anything good or bad, that the purpose of God according to election might stand, not of works, but of him who calls,

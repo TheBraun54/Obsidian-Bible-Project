@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say unto them, Thus saith Jehovah of hosts, the God of Israel: Behold, I will send and take Nebuchadrezzar the king of Babylon, my servant, and will set his throne upon these stones that I have hid; and he shall spread his royal pavilion over them.
+and tell them, Thus says Yahweh of Armies, the God of Israel: Behold, I will send and take Nebuchadnezzar the king of Babylon, my servant, and will set his throne on these stones that I have hidden; and he shall spread his royal pavilion over them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The priests: The children of Jedaiah, of the house of Jeshua, nine hundred seventy and three.
+The priests: The children of Jedaiah, of the house of Jeshua, nine hundred seventy-three.

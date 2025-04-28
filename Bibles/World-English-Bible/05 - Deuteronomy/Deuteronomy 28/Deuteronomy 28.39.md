@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt plant vineyards and dress them, but thou shalt neither drink of the wine, nor gather [the grapes] ; for the worm shall eat them.
+You shall plant vineyards and dress them, but you shall neither drink of the wine, nor gather [the grapes]; for the worm shall eat them.

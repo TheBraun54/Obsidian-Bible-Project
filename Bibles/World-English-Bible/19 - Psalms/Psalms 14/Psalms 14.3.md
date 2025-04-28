@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are all gone aside; They are together become filthy; There is none that doeth good, no, not one.
+They have all gone aside. They have together become corrupt. There is none who does good, no, not one.

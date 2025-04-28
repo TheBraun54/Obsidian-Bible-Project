@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But take heed to yourselves, lest haply your hearts be overcharged with surfeiting, and drunkenness, and cares of this life, and that day come on you suddenly as a snare:
+"So be careful, or your hearts will be loaded down with carousing, drunkenness, and cares of this life, and that day will come on you suddenly.

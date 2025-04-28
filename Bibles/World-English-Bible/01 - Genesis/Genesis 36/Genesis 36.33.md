@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bela died, and Jobab the son of Zerah of Bozrah reigned in his stead.
+Bela died, and Jobab, the son of Zerah of Bozrah, reigned in his place.

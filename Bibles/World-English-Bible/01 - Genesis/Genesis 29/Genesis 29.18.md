@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob loved Rachel; and he said, I will serve thee seven years for Rachel thy younger daughter.
+Jacob loved Rachel. He said, "I will serve you seven years for Rachel, your younger daughter."

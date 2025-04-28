@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they departed quickly from the tomb with fear and great joy, and ran to bring his disciples word.
+They departed quickly from the tomb with fear and great joy, and ran to bring his disciples word.

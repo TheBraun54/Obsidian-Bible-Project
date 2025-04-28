@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And men shall go into the caves of the rocks, and into the holes of the earth, from before the terror of Jehovah, and from the glory of his majesty, when he ariseth to shake mightily the earth. [
+Men shall go into the caves of the rocks, and into the holes of the earth, from before the terror of Yahweh, and from the glory of his majesty, when he arises to shake the earth mightily.

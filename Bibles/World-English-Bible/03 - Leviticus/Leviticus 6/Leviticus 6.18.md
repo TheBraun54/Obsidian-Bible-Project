@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every male among the children of Aaron shall eat of it, as [his] portion for ever throughout your generations, from the offerings of Jehovah made by fire: whosoever toucheth them shall be holy.
+Every male among the children of Aaron shall eat of it, as their portion forever throughout your generations, from the offerings of Yahweh made by fire. Whoever touches them shall be holy.'"

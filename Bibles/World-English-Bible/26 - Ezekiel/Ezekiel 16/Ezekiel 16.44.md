@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, every one that useth proverbs shall use [this] proverb against thee, saying, As is the mother, so is her daughter.
+Behold, everyone who uses proverbs shall use [this] proverb against you, saying, As is the mother, so is her daughter.

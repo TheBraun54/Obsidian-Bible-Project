@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob said unto them, My brethren, whence are ye? And they said, Of Haran are we.
+Jacob said to them, "My relatives, where are you from?" They said, "We are from Haran."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto the children of Israel, [Did] not [I save you] from the Egyptians, and from the Amorites, from the children of Ammon, and from the Philistines?
+Yahweh said to the children of Israel, "Didn't I save you from the Egyptians, and from the Amorites, from the children of Ammon, and from the Philistines?

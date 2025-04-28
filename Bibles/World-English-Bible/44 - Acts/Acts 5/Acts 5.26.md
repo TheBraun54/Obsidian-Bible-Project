@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then went the captain with the officers, and brought them, [but] without violence; for they feared the people, lest they should be stoned.
+Then the captain went with the officers, and brought them without violence, for they were afraid that the people might stone them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Beerothites fled to Gittaim, and have been sojourners there until this day).
+and the Beerothites fled to Gittaim, and have lived as foreigners there until this day).

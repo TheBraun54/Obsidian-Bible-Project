@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban answered and said unto Jacob, The daughters are my daughters, and the children are my children, and the flocks are my flocks, and all that thou seest is mine: and what can I do this day unto these my daughters, or unto their children whom they have borne?
+Laban answered Jacob, "The daughters are my daughters, the children are my children, the flocks are my flocks, and all that you see is mine: and what can I do this day to these my daughters, or to their children whom they have borne?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king answered and said to the Chaldeans, The thing is gone from me: if ye make not known unto me the dream and the interpretation thereof, ye shall be cut in pieces, and your houses shall be made a dunghill.
+The king answered the Chaldeans, The thing is gone from me: if you don't make known to me the dream and its interpretation, you shall be cut in pieces, and your houses shall be made a dunghill.

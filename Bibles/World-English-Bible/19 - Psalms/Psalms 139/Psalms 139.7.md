@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whither shall I go from thy Spirit? Or whither shall I flee from thy presence?
+Where could I go from your Spirit? Or where could I flee from your presence?

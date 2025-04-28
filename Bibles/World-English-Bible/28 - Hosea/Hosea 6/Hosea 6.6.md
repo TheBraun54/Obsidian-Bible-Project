@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I desire goodness, and not sacrifice; and the knowledge of God more than burnt-offerings.
+For I desire mercy, and not sacrifice; and the knowledge of God more than burnt offerings.

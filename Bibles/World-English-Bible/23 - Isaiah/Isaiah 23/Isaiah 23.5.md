@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the report cometh to Egypt, they shall be sorely pained at the report of Tyre.
+When the report comes to Egypt, they will be in anguish at the report of Tyre.

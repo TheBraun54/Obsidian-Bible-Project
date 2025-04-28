@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put them upon Aaron thy brother, and upon his sons with him, and shalt anoint them, and consecrate them, and sanctify them, that they may minister unto me in the priest's office. [
+You shall put them on Aaron your brother, and on his sons with him, and shall anoint them, and consecrate them, and sanctify them, that they may minister to me in the priest's office.

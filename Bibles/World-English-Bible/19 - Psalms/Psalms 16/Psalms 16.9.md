@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore my heart is glad, and my glory rejoiceth; My flesh also shall dwell in safety.
+Therefore my heart is glad, and my tongue rejoices. My body shall also dwell in safety.

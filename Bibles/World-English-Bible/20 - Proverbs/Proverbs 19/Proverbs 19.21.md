@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are many devices in a man's heart; But the counsel of Jehovah, that shall stand.
+There are many plans in a man's heart, but Yahweh's counsel will prevail.

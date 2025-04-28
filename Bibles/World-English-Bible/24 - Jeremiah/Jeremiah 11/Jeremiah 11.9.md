@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, A conspiracy is found among the men of Judah, and among the inhabitants of Jerusalem.
+Yahweh said to me, A conspiracy is found among the men of Judah, and among the inhabitants of Jerusalem.

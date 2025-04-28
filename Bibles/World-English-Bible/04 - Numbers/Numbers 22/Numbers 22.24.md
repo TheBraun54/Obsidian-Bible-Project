@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the angel of Jehovah stood in a narrow path between the vineyards, a wall being on this side, and a wall on that side.
+Then the angel of Yahweh stood in a narrow path between the vineyards, a wall being on this side, and a wall on that side.

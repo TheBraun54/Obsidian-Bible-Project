@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O righteous Father, the world knew thee not, but I knew thee; and these knew that thou didst send me;
+Righteous Father, the world hasn't known you, but I knew you; and these knew that you sent me.

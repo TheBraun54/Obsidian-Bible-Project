@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and God both raised the Lord, and will raise up as through his power.
+Now God raised up the Lord, and will also raise us up by his power.

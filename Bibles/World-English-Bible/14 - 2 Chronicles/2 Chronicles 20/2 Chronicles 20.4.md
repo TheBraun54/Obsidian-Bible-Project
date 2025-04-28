@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah gathered themselves together, to seek [help] of Jehovah: even out of all the cities of Judah they came to seek Jehovah.
+Judah gathered themselves together, to seek help from Yahweh. They came out of all the cities of Judah to seek Yahweh.

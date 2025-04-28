@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The punishment of thine iniquity is accomplished, O daughter of Zion; He will no more carry thee away into captivity: He will visit thine iniquity, O daughter of Edom; he will uncover thy sins. [
+The punishment of your iniquity is accomplished, daughter of Zion; he will no more carry you away into captivity: He will visit your iniquity, daughter of Edom; he will uncover your sins.

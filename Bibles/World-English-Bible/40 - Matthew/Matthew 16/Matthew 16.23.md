@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he turned, and said unto Peter, Get thee behind me, Satan: thou art a stumbling-block unto me: for thou mindest not the things of God, but the things of men.
+But he turned, and said to Peter, "Get behind me, Satan! You are a stumbling block to me, for you are not setting your mind on the things of God, but on the things of men."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Break forth into joy, sing together, ye waste places of Jerusalem; for Jehovah hath comforted his people, he hath redeemed Jerusalem.
+Break forth into joy, sing together, you waste places of Jerusalem; for Yahweh has comforted his people, he has redeemed Jerusalem.

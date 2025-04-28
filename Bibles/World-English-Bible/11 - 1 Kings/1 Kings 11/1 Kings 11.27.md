@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this was the reason why he lifted up his hand against the king: Solomon built Millo, and repaired the breach of the city of David his father.
+This was the reason why he lifted up his hand against the king: Solomon built Millo, and repaired the breach of the city of David his father.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Whosoever shall put away his wife, and marry another, committeth adultery against her:
+He said to them, "Whoever divorces his wife, and marries another, commits adultery against her.

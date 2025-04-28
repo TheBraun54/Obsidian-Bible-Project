@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the pillars of the court round about, and their sockets, and their pins, and their cords.
+the pillars of the court around it, their sockets, their pins, and their cords.

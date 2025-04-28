@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For which is greater, he that sitteth at meat, or he that serveth? is not he that sitteth at meat? but I am in the midst of you as he that serveth.
+For who is greater, one who sits at the table, or one who serves? Isn't it he who sits at the table? But I am in the midst of you as one who serves.

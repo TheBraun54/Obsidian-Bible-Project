@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy lovingkindness, O Jehovah, be upon us, According as we have hoped in thee.
+Let your loving kindness be on us, Yahweh, since we have hoped in you. By David; when he pretended to be insane before Abimelech, who drove him away, and he departed.

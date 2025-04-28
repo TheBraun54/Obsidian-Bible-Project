@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when by reason of the time ye ought to be teachers, ye have need again that some one teach you the rudiments of the first principles of the oracles of God; and are become such as have need of milk, and not of solid food.
+For although by this time you should be teachers, you again need to have someone teach you the rudiments of the first principles of the oracles of God. You have come to need milk, and not solid food.

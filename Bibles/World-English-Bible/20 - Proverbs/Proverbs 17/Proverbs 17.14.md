@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The beginning of strife is [as] when one letteth out water: Therefore leave off contention, before there is quarrelling.
+The beginning of strife is like breaching a dam, therefore stop contention before quarreling breaks out.

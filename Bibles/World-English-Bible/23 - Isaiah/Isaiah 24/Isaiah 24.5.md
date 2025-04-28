@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth also is polluted under the inhabitants thereof; because they have transgressed the laws, violated the statutes, broken the everlasting covenant.
+The earth also is polluted under its inhabitants, because they have transgressed the laws, violated the statutes, and broken the everlasting covenant.

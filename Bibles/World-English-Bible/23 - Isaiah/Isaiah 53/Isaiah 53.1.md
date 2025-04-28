@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath believed our message? and to whom hath the arm of Jehovah been revealed?
+Who has believed our message? To whom has the arm of Yahweh been revealed?

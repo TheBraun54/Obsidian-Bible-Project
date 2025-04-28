@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mercy unto you and peace and love be multiplied.
+Mercy to you and peace and love be multiplied.

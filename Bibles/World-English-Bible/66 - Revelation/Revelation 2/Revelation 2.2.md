@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know thy works, and thy toil and patience, and that thou canst not bear evil men, and didst try them that call themselves apostles, and they are not, and didst find them false;
+"I know your works, and your toil and perseverance, and that you can't tolerate evil men, and have tested those who call themselves apostles, and they are not, and found them false.

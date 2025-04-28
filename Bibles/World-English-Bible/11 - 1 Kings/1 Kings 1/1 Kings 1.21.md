@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Otherwise it will come to pass, when my lord the king shall sleep with his fathers, that I and my son Solomon shall be counted offenders.
+Otherwise it will happen, when my lord the king shall sleep with his fathers, that I and my son Solomon shall be counted offenders."

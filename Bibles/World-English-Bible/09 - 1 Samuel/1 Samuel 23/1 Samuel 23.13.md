@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David and his men, who were about six hundred, arose and departed out of Keilah, and went whithersoever they could go. And it was told Saul that David was escaped from Keilah; and he forbare to go forth.
+Then David and his men, who were about six hundred, arose and departed out of Keilah, and went wherever they could go. It was told Saul that David was escaped from Keilah; and he gave up going there.

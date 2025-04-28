@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their throat is an open sepulchre; With their tongues they have used deceit: The poison of asps is under their lips:
+"Their throat is an open tomb. With their tongues they have used deceit." "The poison of vipers is under their lips;"

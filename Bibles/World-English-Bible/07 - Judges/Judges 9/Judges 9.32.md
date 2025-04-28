@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, up by night, thou and the people that are with thee, and lie in wait in the field:
+Now therefore, go up by night, you and the people who are with you, and lie in wait in the field:

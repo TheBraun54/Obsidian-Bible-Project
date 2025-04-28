@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I also will laugh in [the day of] your calamity; I will mock when your fear cometh;
+I also will laugh at your disaster. I will mock when calamity overtakes you;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that the root of Jesse, that standeth for an ensign of the peoples, unto him shall the nations seek; and his resting-place shall be glorious.
+It will happen in that day that the nations will seek the root of Jesse, who stands as a banner of the peoples; and his resting place will be glorious.

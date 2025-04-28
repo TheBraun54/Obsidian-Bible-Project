@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of the congregation shall lay their hands upon the head of the bullock before Jehovah; and the bullock shall be killed before Jehovah.
+The elders of the congregation shall lay their hands on the head of the bull before Yahweh; and the bull shall be killed before Yahweh.

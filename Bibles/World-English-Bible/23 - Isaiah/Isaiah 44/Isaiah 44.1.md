@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet now hear, O Jacob my servant, and Israel, who I have chosen:
+Yet listen now, Jacob my servant, and Israel, whom I have chosen.

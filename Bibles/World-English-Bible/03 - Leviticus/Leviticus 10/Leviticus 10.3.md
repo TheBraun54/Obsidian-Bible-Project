@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Moses said unto Aaron, This is it that Jehovah spake, saying, I will be sanctified in them that come nigh me, and before all the people I will be glorified. And Aaron held his peace.
+Then Moses said to Aaron, "This is what Yahweh spoke of, saying, 'I will show myself holy to those who come near me, and before all the people I will be glorified.'" Aaron held his peace.

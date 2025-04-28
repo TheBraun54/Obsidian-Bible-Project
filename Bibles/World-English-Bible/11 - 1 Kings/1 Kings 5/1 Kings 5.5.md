@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, I purpose to build a house for the name of Jehovah my God, as Jehovah spake unto David my father, saying, Thy son, whom I will set upon thy throne in thy room, he shall build the house for my name.
+Behold, I purpose to build a house for the name of Yahweh my God, as Yahweh spoke to David my father, saying, 'Your son, whom I will set on your throne in your place, he shall build the house for my name.'

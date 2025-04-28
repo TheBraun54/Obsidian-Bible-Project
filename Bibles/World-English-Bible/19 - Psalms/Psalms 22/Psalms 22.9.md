@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou art he that took me out of the womb; Thou didst make me trust [when I was] upon my mother's breasts.
+But you brought me out of the womb. You made me trust at my mother's breasts.

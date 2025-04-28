@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel arose, and gat him up from Gilgal unto Gibeah of Benjamin. And Saul numbered the people that were present with him, about six hundred men.
+Samuel arose, and went from Gilgal to Gibeah of Benjamin. Saul numbered the people who were present with him, about six hundred men.

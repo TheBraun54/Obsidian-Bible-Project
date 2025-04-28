@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the sighing of the prisoner come before thee: According to the greatness of thy power preserve thou those that are appointed to death;
+Let the sighing of the prisoner come before you. According to the greatness of your power, preserve those who are sentenced to death.

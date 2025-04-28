@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The liberal soul shall be made fat; And he that watereth shall be watered also himself.
+The liberal soul shall be made fat. He who waters shall be watered also himself.

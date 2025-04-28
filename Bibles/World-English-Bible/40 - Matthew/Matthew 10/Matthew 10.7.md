@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as ye go, preach, saying, The kingdom of heaven is at hand.
+As you go, preach, saying, 'The Kingdom of Heaven is at hand!'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered him, It is I: go, tell thy lord, Behold, Elijah [is here] .
+He answered him, "It is I. Go, tell your lord, 'Behold, Elijah is here!'"

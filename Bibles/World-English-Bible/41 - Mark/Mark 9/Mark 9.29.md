@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, This kind can come out by nothing, save by prayer .
+He said to them, "This kind can come out by nothing, except by prayer and fasting."

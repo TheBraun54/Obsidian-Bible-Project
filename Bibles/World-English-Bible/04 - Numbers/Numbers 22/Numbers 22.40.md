@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak sacrificed oxen and sheep, and sent to Balaam, and to the princes that were with him.
+Balak sacrificed cattle and sheep, and sent to Balaam, and to the princes who were with him.

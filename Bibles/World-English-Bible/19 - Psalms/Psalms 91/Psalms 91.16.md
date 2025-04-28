@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With long life will I satisfy him, And show him my salvation.
+I will satisfy him with long life, and show him my salvation." A Psalm. A song for the Sabbath day.

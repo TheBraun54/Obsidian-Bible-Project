@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Hezekiah rendered not again according to the benefit done unto him; for his heart was lifted up: therefore there was wrath upon him, and upon Judah and Jerusalem.
+But Hezekiah didn't render again according to the benefit done to him; for his heart was lifted up: therefore there was wrath on him, and on Judah and Jerusalem.

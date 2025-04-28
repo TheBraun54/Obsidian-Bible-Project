@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah unto these bones: Behold, I will cause breath to enter into you, and ye shall live.
+Thus says the Lord Yahweh to these bones: Behold, I will cause breath to enter into you, and you shall live.

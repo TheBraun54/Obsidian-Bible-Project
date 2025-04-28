@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I knew him not: but he that sent me to baptize in water, he said unto me, Upon whomsoever thou shalt see the Spirit descending, and abiding upon him, the same is he that baptizeth in the Holy Spirit.
+I didn't recognize him, but he who sent me to baptize in water, he said to me, 'On whomever you will see the Spirit descending, and remaining on him, the same is he who baptizes in the Holy Spirit.'

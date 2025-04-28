@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye do the works of your father. They said unto him, We were not born of fornication; we have one Father, [even] God.
+You do the works of your father." They said to him, "We were not born of sexual immorality. We have one Father, God."

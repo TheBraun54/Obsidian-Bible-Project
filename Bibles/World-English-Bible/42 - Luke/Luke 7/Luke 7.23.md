@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And blessed is he, whosoever shall find no occasion of stumbling in me.
+Blessed is he who is not offended by me."

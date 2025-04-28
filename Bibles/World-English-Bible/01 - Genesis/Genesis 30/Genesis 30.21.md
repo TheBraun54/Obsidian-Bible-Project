@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterwards she bare a daughter, and called her name Dinah.
+Afterwards, she bore a daughter, and named her Dinah.

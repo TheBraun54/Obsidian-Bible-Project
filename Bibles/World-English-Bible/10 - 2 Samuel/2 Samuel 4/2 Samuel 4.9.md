@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David answered Rechab and Baanah his brother, the sons of Rimmon the Beerothite, and said unto them, As Jehovah liveth, who hath redeemed my soul out of all adversity,
+David answered Rechab and Baanah his brother, the sons of Rimmon the Beerothite, and said to them, "As Yahweh lives, who has redeemed my soul out of all adversity,

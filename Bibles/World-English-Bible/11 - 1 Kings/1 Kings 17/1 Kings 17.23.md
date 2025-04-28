@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah took the child, and brought him down out of the chamber into the house, and delivered him unto his mother; and Elijah said, See, thy son liveth.
+Elijah took the child, and brought him down out of the room into the house, and delivered him to his mother; and Elijah said, "Behold, your son lives."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh remember that my life is a breath: Mine eye shall no more see good.
+Oh remember that my life is a breath. My eye shall no more see good.

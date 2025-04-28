@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou whom I have taken hold of from the ends of the earth, and called from the corners thereof, and said unto thee, Thou art my servant, I have chosen thee and not cast thee away;
+You whom I have taken hold of from the ends of the earth, and called from its corners, and said to you, 'You are my servant, I have chosen you and not cast you away;'

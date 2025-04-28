@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy sister Sodom was not mentioned by thy mouth in the day of thy pride,
+For your sister Sodom was not mentioned by your mouth in the day of your pride,

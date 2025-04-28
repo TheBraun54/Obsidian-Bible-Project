@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was a voice above the firmament that was over their heads: when they stood, they let down their wings.
+There was a voice above the expanse that was over their heads: when they stood, they let down their wings.

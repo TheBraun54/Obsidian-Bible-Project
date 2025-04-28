@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was given unto her that she should array herself in fine linen, bright [and] pure: for the fine linen is the righteous acts of the saints.
+It was given to her that she would array herself in bright, pure, fine linen: for the fine linen is the righteous acts of the saints.

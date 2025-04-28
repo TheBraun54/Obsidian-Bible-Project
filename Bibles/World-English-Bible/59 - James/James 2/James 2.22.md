@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou seest that faith wrought with his works, and by works was faith made perfect;
+You see that faith worked with his works, and by works faith was perfected;

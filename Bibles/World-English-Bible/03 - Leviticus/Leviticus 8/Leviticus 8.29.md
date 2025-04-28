@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took the breast, and waved it for a wave-offering before Jehovah: it was Moses' portion of the ram of consecration; as Jehovah commanded Moses.
+Moses took the breast, and waved it for a wave offering before Yahweh. It was Moses' portion of the ram of consecration, as Yahweh commanded Moses.

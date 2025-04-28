@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They give drink to every beast of the field; The wild asses quench their thirst.
+They give drink to every animal of the field. The wild donkeys quench their thirst.

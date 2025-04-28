@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye sacrifice a sacrifice of thanksgiving unto Jehovah, ye shall sacrifice it that ye may be accepted.
+"When you sacrifice a sacrifice of thanksgiving to Yahweh, you shall sacrifice it so that you may be accepted.

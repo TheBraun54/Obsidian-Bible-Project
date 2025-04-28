@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the hand of Jehovah was there upon me; and he said unto me, Arise, go forth into the plain, and I will there talk with thee.
+The hand of Yahweh was there on me; and he said to me, Arise, go forth into the plain, and I will there talk with you.

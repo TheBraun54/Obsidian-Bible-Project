@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which he promised afore through his prophets in the holy scriptures,
+which he promised before through his prophets in the holy Scriptures,

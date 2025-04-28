@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them the third time, Why, what evil hath this man done? I have found no cause of death in him: I will therefore chastise him and release him.
+He said to them the third time, "Why? What evil has this man done? I have found no capital crime in him. I will therefore chastise him and release him."

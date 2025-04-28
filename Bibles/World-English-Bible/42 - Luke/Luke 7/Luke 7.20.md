@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the men were come unto him, they said, John the Baptist hath sent us unto thee, saying, Art thou he that cometh, or look we for another?
+When the men had come to him, they said, "John the Baptizer has sent us to you, saying, 'Are you he who comes, or should we look for another?'"

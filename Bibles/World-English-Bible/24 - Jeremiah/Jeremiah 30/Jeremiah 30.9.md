@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but they shall serve Jehovah their God, and David their king, whom I will raise up unto them.
+but they shall serve Yahweh their God, and David their king, whom I will raise up to them.

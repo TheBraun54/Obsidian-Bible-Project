@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have not turned aside from thine ordinances; For thou hast taught me.
+I have not turned aside from your ordinances, for you have taught me.

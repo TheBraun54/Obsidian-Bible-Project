@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah sent fiery serpents among the people, and they bit the people; and much people of Israel died.
+Yahweh sent fiery serpents among the people, and they bit the people; and many people of Israel died.

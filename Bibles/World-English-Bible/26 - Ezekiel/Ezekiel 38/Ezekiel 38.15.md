@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt come from thy place out of the uttermost parts of the north, thou, and many peoples with thee, all of them riding upon horses, a great company and a mighty army;
+You shall come from your place out of the uttermost parts of the north, you, and many peoples with you, all of them riding on horses, a great company and a mighty army;

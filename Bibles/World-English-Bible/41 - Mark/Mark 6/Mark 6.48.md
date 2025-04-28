@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seeing them distressed in rowing, for the wind was contrary unto them, about the fourth watch of the night he cometh unto them, walking on the sea; and he would have passed by them:
+Seeing them distressed in rowing, for the wind was contrary to them, about the fourth watch of the night he came to them, walking on the sea, and he would have passed by them,

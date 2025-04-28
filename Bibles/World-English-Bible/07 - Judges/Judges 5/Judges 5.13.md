@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came down a remnant of the nobles [and] the people; Jehovah came down for me against the mighty.
+"Then a remnant of the nobles [and] the people came down. Yahweh came down for me against the mighty.

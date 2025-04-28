@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and spared not the ancient world, but preserved Noah with seven others, a preacher of righteousness, when he brought a flood upon the world of the ungodly;
+and didn't spare the ancient world, but preserved Noah with seven others, a preacher of righteousness, when he brought a flood on the world of the ungodly;

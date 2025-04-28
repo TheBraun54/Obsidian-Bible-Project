@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of these again shalt thou take, and cast them into the midst of the fire, and burn them in the fire; therefrom shall a fire come forth into all the house of Israel.
+Of these again you shall take, and cast them into the midst of the fire, and burn them in the fire; from it shall a fire come forth into all the house of Israel.

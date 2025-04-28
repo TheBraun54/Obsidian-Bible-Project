@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that lieth with his father's wife, because he hath uncovered his father's skirt. And all the people shall say, Amen.
+'Cursed is he who lies with his father's wife, because he has uncovered his father's skirt.' All the people shall say, 'Amen.'

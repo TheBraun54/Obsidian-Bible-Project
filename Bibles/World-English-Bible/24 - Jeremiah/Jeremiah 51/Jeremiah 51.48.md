@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the heavens and the earth, and all that is therein, shall sing for joy over Babylon; for the destroyers shall come unto her from the north, saith Jehovah.
+Then the heavens and the earth, and all that is therein, shall sing for joy over Babylon; for the destroyers shall come to her from the north, says Yahweh.

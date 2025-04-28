@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she had brought them near unto him to eat, he took hold of her, and said unto her, Come, lie with me, my sister.
+When she had brought them near to him to eat, he took hold of her, and said to her, "Come, lie with me, my sister!"

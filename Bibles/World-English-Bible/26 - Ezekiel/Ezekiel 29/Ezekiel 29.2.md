@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face against Pharaoh king of Egypt, and prophesy against him, and against all Egypt;
+"Son of man, set your face against Pharaoh king of Egypt, and prophesy against him and against all Egypt.

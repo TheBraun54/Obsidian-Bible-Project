@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answering said unto him, Simon, I have somewhat to say unto thee. And he saith, Teacher, say on.
+Jesus answered him, "Simon, I have something to tell you." He said, "Teacher, say on."

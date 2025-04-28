@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not in the passion of lust, even as the Gentiles who know not God;
+not in the passion of lust, even as the Gentiles who don't know God;

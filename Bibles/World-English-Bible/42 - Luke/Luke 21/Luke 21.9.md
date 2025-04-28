@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye shall hear of wars and tumults, be not terrified: for these things must needs come to pass first; but the end is not immediately.
+When you hear of wars and disturbances, don't be terrified, for these things must happen first, but the end won't come immediately."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he burnt the bones of the priests upon their altars, and purged Judah and Jerusalem.
+He burnt the bones of the priests on their altars, and purged Judah and Jerusalem.

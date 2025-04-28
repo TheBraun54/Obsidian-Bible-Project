@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then understood they that he bade them not beware of the leaven of bread, but of the teaching of the Pharisees and Sadducees.
+Then they understood that he didn't tell them to beware of the yeast of bread, but of the teaching of the Pharisees and Sadducees.

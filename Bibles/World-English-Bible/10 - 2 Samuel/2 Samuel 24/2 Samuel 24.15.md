@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah sent a pestilence upon Israel from the morning even to the time appointed; and there died of the people from Dan even to Beer-sheba seventy thousand men.
+So Yahweh sent a pestilence on Israel from the morning even to the appointed time; and there died of the people from Dan even to Beersheba seventy thousand men.

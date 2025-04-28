@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then shall I do when God riseth up? And when he visiteth, what shall I answer him?
+What then shall I do when God rises up? When he visits, what shall I answer him?

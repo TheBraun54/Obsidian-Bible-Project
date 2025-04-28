@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have perfumed my bed With myrrh, aloes, and cinnamon.
+I have perfumed my bed with myrrh, aloes, and cinnamon.

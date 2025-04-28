@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after this, that Benhadad king of Syria gathered all his host, and went up, and besieged Samaria.
+It happened after this, that Benhadad king of Syria gathered all his army, and went up and besieged Samaria.

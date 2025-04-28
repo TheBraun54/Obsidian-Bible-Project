@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the magicians did in like manner with their enchantments, and brought up frogs upon the land of Egypt.
+The magicians did the same thing with their enchantments, and brought up frogs on the land of Egypt.

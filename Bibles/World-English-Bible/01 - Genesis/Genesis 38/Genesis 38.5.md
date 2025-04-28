@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she yet again bare a son, and called his name Shelah: and he was at Chezib, when she bare him.
+She yet again bore a son, and named him Shelah: and he was at Chezib, when she bore him.

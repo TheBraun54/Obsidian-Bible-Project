@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that tilleth his land shall have plenty of bread; But he that followeth after vain [persons] is void of understanding.
+He who tills his land shall have plenty of bread, but he who chases fantasies is void of understanding.

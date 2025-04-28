@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the earth was corrupt before God, and the earth was filled with violence.
+The earth was corrupt before God, and the earth was filled with violence.

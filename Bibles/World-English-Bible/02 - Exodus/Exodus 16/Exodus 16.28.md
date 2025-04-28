@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, How long refuse ye to keep my commandments and my laws?
+Yahweh said to Moses, "How long do you refuse to keep my commandments and my laws?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore exhort one another, and build each other up, even as also ye do.
+Therefore exhort one another, and build each other up, even as you also do.

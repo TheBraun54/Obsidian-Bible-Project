@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy silver is become dross, thy wine mixed with water.
+Your silver has become dross, your wine mixed with water.

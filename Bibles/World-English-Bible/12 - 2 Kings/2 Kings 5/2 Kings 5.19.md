@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Go in peace. So he departed from him a little way.
+He said to him, "Go in peace." So he departed from him a little way.

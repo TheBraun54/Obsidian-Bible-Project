@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let us not be weary in well-doing: for in due season we shall reap, if we faint not.
+Let us not be weary in doing good, for we will reap in due season, if we don't give up.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What unto me is the multitude of your sacrifices? saith Jehovah: I have had enough of the burnt-offerings of rams, and the fat of fed beasts; and I delight not in the blood of bullocks, or of lambs, or of he-goats.
+"What are the multitude of your sacrifices to me?," says Yahweh. "I have had enough of the burnt offerings of rams, and the fat of fed animals. I don't delight in the blood of bulls, or of lambs, or of male goats.

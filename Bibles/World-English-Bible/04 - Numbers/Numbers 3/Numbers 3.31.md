@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their charge shall be the ark, and the table, and the candlestick, and the altars, and the vessels of the sanctuary wherewith they minister, and the screen, and all the service thereof.
+Their duty shall be the ark, the table, the lamp stand, the altars, the vessels of the sanctuary with which they minister, and the screen, and all its service.

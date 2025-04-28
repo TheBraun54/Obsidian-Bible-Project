@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for bodily exercise is profitable for a little; but godliness is profitable for all things, having promise of the life which now is, and of that which is to come.
+For bodily exercise has some value, but godliness has value in all things, having the promise of the life which is now, and of that which is to come.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And three of the thirty chief men went down, and came to David in the harvest time unto the cave of Adullam; and the troop of the Philistines was encamped in the valley of Rephaim.
+Three of the thirty chief men went down, and came to David in the harvest time to the cave of Adullam; and the troop of the Philistines was encamped in the valley of Rephaim.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the wilderness and the cities thereof lift up [their voice], the villages that Kedar doth inhabit; let the inhabitants of Sela sing, let them shout from the top of the mountains.
+Let the wilderness and its cities raise their voices, with the villages that Kedar inhabits. Let the inhabitants of Sela sing. Let them shout from the top of the mountains!

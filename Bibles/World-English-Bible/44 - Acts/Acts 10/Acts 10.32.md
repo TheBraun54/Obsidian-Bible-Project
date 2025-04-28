@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Send therefore to Joppa, and call unto thee Simon, who is surnamed Peter; he lodgeth in the house of Simon a tanner, by the sea side.
+Send therefore to Joppa, and summon Simon, who is surnamed Peter. He lodges in the house of Simon a tanner, by the seaside. When he comes, he will speak to you.'

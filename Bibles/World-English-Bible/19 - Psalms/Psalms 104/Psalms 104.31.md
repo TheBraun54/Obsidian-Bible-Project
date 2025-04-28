@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the glory of Jehovah endure for ever; Let Jehovah rejoice in his works:
+Let the glory of Yahweh endure forever. Let Yahweh rejoice in his works.

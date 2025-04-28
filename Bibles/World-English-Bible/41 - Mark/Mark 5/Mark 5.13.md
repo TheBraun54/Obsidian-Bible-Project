@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave them leave. And the unclean spirits came out, and entered into the swine: and the herd rushed down the steep into the sea, [in number] about two thousand; and they were drowned in the sea.
+At once Jesus gave them permission. The unclean spirits came out and entered into the pigs. The herd of about two thousand rushed down the steep bank into the sea, and they were drowned in the sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye go to war in your land against the adversary that oppresseth you, then ye shall sound an alarm with the trumpets; and ye shall be remembered before Jehovah your God, and ye shall be saved from your enemies.
+When you go to war in your land against the adversary who oppresses you, then you shall sound an alarm with the trumpets. Then you will be remembered before Yahweh your God, and you will be saved from your enemies.

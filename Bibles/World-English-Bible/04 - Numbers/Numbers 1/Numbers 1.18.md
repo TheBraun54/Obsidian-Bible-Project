@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they assembled all the congregation together on the first day of the second month; and they declared their pedigrees after their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, by their polls.
+They assembled all the congregation together on the first day of the second month; and they declared their ancestry by their families, by their fathers' houses, according to the number of the names, from twenty years old and upward, one by one.

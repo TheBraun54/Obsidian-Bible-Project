@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the girdle of fine twined linen, and blue, and purple, and scarlet, the work of the embroiderer; as Jehovah commanded Moses.
+and the sash of fine twined linen, and blue, and purple, and scarlet, the work of the embroiderer, as Yahweh commanded Moses.

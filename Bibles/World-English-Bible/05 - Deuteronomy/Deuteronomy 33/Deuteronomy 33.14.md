@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the precious things of the fruits of the sun, And for the precious things of the growth of the moons,
+for the precious things of the fruits of the sun, for the precious things of the growth of the moons,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man also or a woman that hath a familiar spirit, or that is a wizard, shall surely be put to death: they shall stone them with stones; their blood shall be upon them.
+"'A man or a woman that is a medium, or is a wizard, shall surely be put to death: they shall stone them with stones; their blood shall be upon them.'"

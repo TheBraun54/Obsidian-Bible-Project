@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, I have not a demon; but I honor my Father, and ye dishonor me.
+Jesus answered, "I don't have a demon, but I honor my Father, and you dishonor me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Inquire, I pray thee, of Jehovah for us; for Nebuchadrezzar king of Babylon maketh war against us: peradventure Jehovah will deal with us according to all his wondrous works, that he may go up from us.
+Please inquire of Yahweh for us; for Nebuchadnezzar king of Babylon makes war against us: perhaps Yahweh will deal with us according to all his wondrous works, that he may go up from us.

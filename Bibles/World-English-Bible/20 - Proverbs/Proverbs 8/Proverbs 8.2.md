@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the top of high places by the way, Where the paths meet, she standeth;
+On the top of high places by the way, where the paths meet, she stands.

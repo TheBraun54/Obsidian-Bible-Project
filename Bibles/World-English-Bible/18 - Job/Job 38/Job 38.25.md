@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath cleft a channel for the waterflood, Or the way for the lightning of the thunder;
+Who has cut a channel for the flood water, or the path for the thunderstorm;

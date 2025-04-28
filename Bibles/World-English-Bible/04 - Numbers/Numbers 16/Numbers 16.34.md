@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Israel that were round about them fled at the cry of them; for they said, Lest the earth swallow us up.
+All Israel that were around them fled at the cry of them; for they said, "Lest the earth swallow us up!"

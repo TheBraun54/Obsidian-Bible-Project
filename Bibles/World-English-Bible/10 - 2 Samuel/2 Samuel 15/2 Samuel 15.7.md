@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of forty years, that Absalom said unto the king, I pray thee, let me go and pay my vow, which I have vowed unto Jehovah, in Hebron.
+It happened at the end of forty years, that Absalom said to the king, "Please let me go and pay my vow, which I have vowed to Yahweh, in Hebron.

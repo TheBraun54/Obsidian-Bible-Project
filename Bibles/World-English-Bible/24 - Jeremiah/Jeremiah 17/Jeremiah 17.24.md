@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, if ye diligently hearken unto me, saith Jehovah, to bring in no burden through the gates of this city on the sabbath day, but to hallow the sabbath day, to do no work therein;
+It shall happen, if you diligently listen to me, says Yahweh, to bring in no burden through the gates of this city on the Sabbath day, but to make the Sabbath day holy, to do no work therein;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they sing as it were a new song before the throne, and before the four living creatures and the elders: and no man could learn the song save the hundred and forty and four thousand, [even] they that had been purchased out of the earth.
+They sing a new song before the throne, and before the four living creatures and the elders. No one could learn the song except the one hundred forty-four thousand, those who had been redeemed out of the earth.

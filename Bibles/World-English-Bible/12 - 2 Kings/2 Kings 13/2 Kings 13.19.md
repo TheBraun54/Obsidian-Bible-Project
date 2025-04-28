@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man of God was wroth with him, and said, Thou shouldest have smitten five or six times: then hadst thou smitten Syria till thou hadst consumed it, whereas now thou shalt smite Syria but thrice.
+The man of God was angry with him, and said, "You should have struck five or six times. Then you would have struck Syria until you had consumed it, whereas now you shall strike Syria just three times."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as it is right for me to be thus minded on behalf of you all, because I have you in my heart, inasmuch as, both in my bonds and in the defence and confirmation of the gospel, ye all are partakers with me of grace.
+It is even right for me to think this way on behalf of all of you, because I have you in my heart, because, both in my bonds and in the defense and confirmation of the Good News, you all are partakers with me of grace.

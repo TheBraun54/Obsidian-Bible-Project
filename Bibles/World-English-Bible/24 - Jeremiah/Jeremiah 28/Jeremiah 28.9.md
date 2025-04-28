@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The prophet that prophesieth of peace, when the word of the prophet shall come to pass, then shall the prophet be known, that Jehovah hath truly sent him.
+The prophet who prophesies of peace, when the word of the prophet shall happen, then shall the prophet be known, that Yahweh has truly sent him.

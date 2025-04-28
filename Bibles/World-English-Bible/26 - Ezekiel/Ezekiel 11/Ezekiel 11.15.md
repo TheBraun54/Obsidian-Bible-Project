@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, thy brethren, even thy brethren, the men of thy kindred, and all the house of Israel, all of them, [are they] unto whom the inhabitants of Jerusalem have said, Get you far from Jehovah; unto us is this land given for a possession.
+Son of man, your brothers, even your brothers, the men of your relatives, and all the house of Israel, all of them, [are they] to whom the inhabitants of Jerusalem have said, Go far away from Yahweh. This land has been given to us for a possession.

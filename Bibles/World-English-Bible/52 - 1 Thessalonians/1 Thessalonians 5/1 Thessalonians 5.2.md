@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For yourselves know perfectly that the day of the Lord so cometh as a thief in the night.
+For you yourselves know well that the day of the Lord comes like a thief in the night.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto the congregation, This is the thing which Jehovah hath commanded to be done.
+Moses said to the congregation, "This is the thing which Yahweh has commanded to be done."

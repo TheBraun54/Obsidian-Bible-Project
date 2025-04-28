@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the pride of Israel doth testify to his face: yet they have not returned unto Jehovah their God, nor sought him, for all this.
+The pride of Israel testifies to his face; yet they haven't returned to Yahweh their God, nor sought him, for all this.

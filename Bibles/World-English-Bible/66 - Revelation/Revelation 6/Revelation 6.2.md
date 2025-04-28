@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw, and behold, a white horse, and he that sat thereon had a bow; and there was given unto him a crown: and he came forth conquering, and to conquer.
+And behold, a white horse, and he who sat on it had a bow. A crown was given to him, and he came forth conquering, and to conquer.

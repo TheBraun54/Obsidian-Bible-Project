@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they said unto Moses, Thy servants have taken the sum of the men of war that are under our charge, and there lacketh not one man of us.
+and they said to Moses, "Your servants have taken the sum of the men of war who are under our command, and there lacks not one man of us.

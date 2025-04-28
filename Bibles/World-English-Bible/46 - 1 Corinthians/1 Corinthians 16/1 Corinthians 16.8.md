@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will tarry at Ephesus until Pentecost;
+But I will stay at Ephesus until Pentecost,

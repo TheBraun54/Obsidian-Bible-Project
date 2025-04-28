@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How precious also are thy thoughts unto me, O God! How great is the sum of them!
+How precious to me are your thoughts, God! How vast is the sum of them!

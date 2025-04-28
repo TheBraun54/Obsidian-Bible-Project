@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now on the last day, the great [day] of the feast, Jesus stood and cried, saying, If any man thirst, let him come unto me and drink.
+Now on the last and greatest day of the feast, Jesus stood and cried out, "If anyone is thirsty, let him come to me and drink!

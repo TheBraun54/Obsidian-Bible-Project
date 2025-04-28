@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will leave thee upon the land, I will cast thee forth upon the open field, and will cause all the birds of the heavens to settle upon thee, and I will satisfy the beasts of the whole earth with thee.
+I will leave you on the land, I will cast you forth on the open field, and will cause all the birds of the sky to settle on you, and I will satisfy the animals of the whole earth with you.

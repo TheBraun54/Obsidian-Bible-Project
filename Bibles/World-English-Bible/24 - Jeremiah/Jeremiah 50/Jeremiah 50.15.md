@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shout against her round about: she hath submitted herself; her bulwarks are fallen, her walls are thrown down; for it is the vengeance of Jehovah: take vengeance upon her; as she hath done, do unto her.
+Shout against her all around: she has submitted herself; her bulwarks are fallen, her walls are thrown down; for it is the vengeance of Yahweh: take vengeance on her; as she has done, do to her.

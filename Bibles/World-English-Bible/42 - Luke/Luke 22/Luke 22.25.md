@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, The kings of the Gentiles have lordship over them; and they that have authority over them are called Benefactors.
+He said to them, "The kings of the nations lord it over them, and those who have authority over them are called 'benefactors.'

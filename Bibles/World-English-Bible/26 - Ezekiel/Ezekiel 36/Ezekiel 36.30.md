@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will multiply the fruit of the tree, and the increase of the field, that ye may receive no more the reproach of famine among the nations.
+I will multiply the fruit of the tree, and the increase of the field, that you may receive no more the reproach of famine among the nations.

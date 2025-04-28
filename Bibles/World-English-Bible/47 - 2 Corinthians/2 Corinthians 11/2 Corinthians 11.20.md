@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye bear with a man, if he bringeth you into bondage, if he devoureth you, if he taketh you [captive], if he exalteth himself, if he smiteth you on the face.
+For you bear with a man, if he brings you into bondage, if he devours you, if he takes you captive, if he exalts himself, if he strikes you on the face.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus perceiving it said, O ye of little faith, why reason ye among yourselves, because ye have no bread?
+Jesus, perceiving it, said, "Why do you reason among yourselves, you of little faith, 'because you have brought no bread?'

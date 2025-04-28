@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon counted out threescore and ten thousand men to bear burdens, and fourscore thousand men that were hewers in the mountains, and three thousand and six hundred to oversee them.
+Solomon counted out seventy thousand men to bear burdens, and eighty thousand men who were stone cutters in the mountains, and three thousand and six hundred to oversee them.

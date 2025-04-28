@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith he unto them, My soul is exceeding sorrowful, even unto death: abide ye here, and watch with me.
+Then he said to them, "My soul is exceedingly sorrowful, even to death. Stay here, and watch with me."

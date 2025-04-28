@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where no wise guidance is, the people falleth; But in the multitude of counsellors there is safety.
+Where there is no wise guidance, the nation falls, but in the multitude of counselors there is victory.

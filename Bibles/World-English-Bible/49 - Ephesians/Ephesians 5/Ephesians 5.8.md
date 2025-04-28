@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye were once darkness, but are now light in the Lord: walk as children of light
+For you were once darkness, but are now light in the Lord. Walk as children of light,

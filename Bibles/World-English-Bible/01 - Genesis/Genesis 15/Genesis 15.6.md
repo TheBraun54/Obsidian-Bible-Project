@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he believed in Jehovah; and he reckoned it to him for righteousness.
+He believed in Yahweh; and he reckoned it to him for righteousness.

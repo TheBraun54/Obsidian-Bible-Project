@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus said Shimei when he cursed, Begone, begone, thou man of blood, and base fellow:
+Shimei said when he cursed, "Be gone, be gone, you man of blood, and base fellow!

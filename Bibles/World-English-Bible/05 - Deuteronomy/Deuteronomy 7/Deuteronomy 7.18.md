@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt not be afraid of them: thou shalt well remember what Jehovah thy God did unto Pharaoh, and unto all Egypt;
+you shall not be afraid of them: you shall well remember what Yahweh your God did to Pharaoh, and to all Egypt;

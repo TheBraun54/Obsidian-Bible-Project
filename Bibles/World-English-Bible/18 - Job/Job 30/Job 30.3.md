@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are gaunt with want and famine; They gnaw the dry ground, in the gloom of wasteness and desolation.
+They are gaunt from lack and famine. They gnaw the dry ground, in the gloom of waste and desolation.

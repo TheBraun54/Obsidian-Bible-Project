@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the men of Jabesh said, To-morrow we will come out unto you, and ye shall do with us all that seemeth good unto you.
+Therefore the men of Jabesh said, "Tomorrow we will come out to you, and you shall do with us all that seems good to you."

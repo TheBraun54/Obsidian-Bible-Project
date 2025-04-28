@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What will ye do in the day of solemn assembly, and in the day of the feast of Jehovah?
+What will you do in the day of solemn assembly, and in the day of the feast of Yahweh?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The birds of the heavens, and the fish of the sea, Whatsoever passeth through the paths of the seas.
+The birds of the sky, the fish of the sea, and whatever passes through the paths of the seas.

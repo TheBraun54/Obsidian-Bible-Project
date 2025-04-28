@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall they deliver you up unto tribulation, and shall kill you: and ye shall be hated of all the nations for my name's sake.
+Then they will deliver you up to oppression, and will kill you. You will be hated by all of the nations for my name's sake.

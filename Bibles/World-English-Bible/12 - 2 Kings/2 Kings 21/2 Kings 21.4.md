@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built altars in the house of Jehovah, whereof Jehovah said, In Jerusalem will I put my name.
+He built altars in the house of Yahweh, of which Yahweh said, "I will put my name in Jerusalem."

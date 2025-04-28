@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ephron answered Abraham, saying unto him,
+Ephron answered Abraham, saying to him,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Jebusite, and the Amorite, and the Girgashite,
+the Jebusite, the Amorite, the Girgashite,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the visions of God brought he me into the land of Israel, and set me down upon a very high mountain, whereon was as it were the frame of a city on the south.
+In the visions of God brought he me into the land of Israel, and set me down on a very high mountain, whereon was as it were the frame of a city on the south.

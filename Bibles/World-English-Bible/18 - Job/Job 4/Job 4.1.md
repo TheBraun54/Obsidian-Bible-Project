@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Eliphaz the Temanite, and said,
+Then Eliphaz the Temanite answered,

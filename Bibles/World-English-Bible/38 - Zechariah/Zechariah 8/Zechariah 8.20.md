@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: [It shall] yet [come to pass], that there shall come peoples, and the inhabitants of many cities;
+Thus says Yahweh of Armies: "Many peoples, and the inhabitants of many cities will yet come;

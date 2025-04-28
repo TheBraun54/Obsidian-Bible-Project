@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let there be none to extend kindness unto him; Neither let there be any to have pity on his fatherless children.
+Let there be none to extend kindness to him, neither let there be any to have pity on his fatherless children.

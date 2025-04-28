@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have lived delicately on the earth, and taken your pleasure; ye have nourished your hearts in a day of slaughter.
+You have lived delicately on the earth, and taken your pleasure. You have nourished your hearts as in a day of slaughter.

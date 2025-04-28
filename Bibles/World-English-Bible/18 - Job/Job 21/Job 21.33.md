@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The clods of the valley shall be sweet unto him, And all men shall draw after him, As there were innumerable before him.
+The clods of the valley shall be sweet to him. All men shall draw after him, as there were innumerable before him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he fell upon his brother Benjamin's neck, and wept; and Benjamin wept upon his neck.
+He fell on his brother Benjamin's neck, and wept, and Benjamin wept on his neck.

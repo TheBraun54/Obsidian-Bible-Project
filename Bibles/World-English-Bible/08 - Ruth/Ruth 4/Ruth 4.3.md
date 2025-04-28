@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto the near kinsman, Naomi, that is come again out of the country of Moab, selleth the parcel of land, which was our brother Elimelech's:
+He said to the near kinsman, "Naomi, who has come back out of the country of Moab, is selling the parcel of land, which was our brother Elimelech's.

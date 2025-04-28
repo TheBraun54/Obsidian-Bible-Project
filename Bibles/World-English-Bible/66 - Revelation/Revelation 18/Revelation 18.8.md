@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore in one day shall her plagues come, death, and mourning, and famine; and she shall be utterly burned with fire; for strong is the Lord God who judged her.
+Therefore in one day her plagues will come: death, mourning, and famine; and she will be utterly burned with fire; for the Lord God who has judged her is strong.

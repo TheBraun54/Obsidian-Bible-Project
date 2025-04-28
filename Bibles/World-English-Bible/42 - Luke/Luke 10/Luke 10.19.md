@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have given you authority to tread upon serpents and scorpions, and over all the power of the enemy: and nothing shall in any wise hurt you.
+Behold, I give you authority to tread on serpents and scorpions, and over all the power of the enemy. Nothing will in any way hurt you.

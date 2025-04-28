@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in vain is the net spread In the sight of any bird:
+For in vain is the net spread in the sight of any bird:

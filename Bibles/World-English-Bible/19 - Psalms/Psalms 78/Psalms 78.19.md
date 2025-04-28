@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they spake against God; They said, Can God prepare a table in the wilderness?
+Yes, they spoke against God. They said, "Can God prepare a table in the wilderness?

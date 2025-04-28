@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made two settings of gold, and two gold rings, and put the two rings on the two ends of the breastplate.
+They made two settings of gold, and two gold rings, and put the two rings on the two ends of the breastplate.

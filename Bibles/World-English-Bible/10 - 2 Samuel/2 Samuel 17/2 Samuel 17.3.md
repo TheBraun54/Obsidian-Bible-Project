@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will bring back all the people unto thee: the man whom thou seekest is as if all returned: [so] all the people shall be in peace.
+and I will bring back all the people to you. The man whom you seek is as if all returned. All the people shall be in peace."

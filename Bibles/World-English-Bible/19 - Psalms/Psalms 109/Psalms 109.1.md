@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. Hold not thy peace, O God of my praise;
+God of my praise, don't remain silent,

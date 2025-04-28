@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter went down to the men, and said, Behold, I am he whom ye seek: what is the cause wherefore ye are come?
+Peter went down to the men, and said, "Behold, I am he whom you seek. Why have you come?"

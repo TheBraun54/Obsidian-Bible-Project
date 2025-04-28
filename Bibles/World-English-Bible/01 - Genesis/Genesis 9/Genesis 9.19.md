@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These three were the sons of Noah: and of these was the whole earth overspread.
+These three were the sons of Noah, and from these, the whole earth was populated.

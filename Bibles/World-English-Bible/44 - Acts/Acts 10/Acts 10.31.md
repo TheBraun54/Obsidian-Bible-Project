@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saith, Cornelius, thy prayer is heard, and thine alms are had in remembrance in the sight of God.
+and said, 'Cornelius, your prayer is heard, and your gifts to the needy are remembered in the sight of God.

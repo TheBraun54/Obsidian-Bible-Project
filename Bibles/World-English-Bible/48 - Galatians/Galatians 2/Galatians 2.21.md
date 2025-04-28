@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I do not make void the grace of God: for if righteousness is through the law, then Christ died for nought.
+I don't make void the grace of God. For if righteousness is through the law, then Christ died for nothing!"

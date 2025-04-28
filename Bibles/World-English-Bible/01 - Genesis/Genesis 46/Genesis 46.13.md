@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Issachar: Tola, and Puvah, and Iob, and Shimron.
+The sons of Issachar: Tola, Puvah, Iob, and Shimron.

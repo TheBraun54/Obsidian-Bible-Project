@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every beast which parteth the hoof, and is not clovenfooted, nor cheweth the cud, is unclean unto you: every one that toucheth them shall be unclean.
+"'Every animal which parts the hoof, and is not cloven-footed, nor chews the cud, is unclean to you. Everyone who touches them shall be unclean.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God remembered Rachel, and God hearkened to her, and opened her womb.
+God remembered Rachel, and God listened to her, and opened her womb.

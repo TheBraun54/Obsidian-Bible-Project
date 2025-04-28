@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of whom we have many things to say, and hard of interpretation, seeing ye are become dull of hearing.
+About him we have many words to say, and hard to interpret, seeing you have become dull of hearing.

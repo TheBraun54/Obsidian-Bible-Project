@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Let us go elsewhere into the next towns, that I may preach there also; for to this end came I forth.
+He said to them, "Let's go elsewhere into the next towns, that I may preach there also, because I came out for this reason."

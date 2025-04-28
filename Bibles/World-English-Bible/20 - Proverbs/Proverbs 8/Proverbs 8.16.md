@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By me princes rule, And nobles, [even] all the judges of the earth.
+By me princes rule; nobles, and all the righteous rulers of the earth.

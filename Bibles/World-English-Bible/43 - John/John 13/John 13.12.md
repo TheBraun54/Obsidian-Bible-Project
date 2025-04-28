@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So when he had washed their feet, and taken his garments, and sat down again, he said unto them, Know ye what I have done to you?
+So when he had washed their feet, put his outer garment back on, and sat down again, he said to them, "Do you know what I have done to you?

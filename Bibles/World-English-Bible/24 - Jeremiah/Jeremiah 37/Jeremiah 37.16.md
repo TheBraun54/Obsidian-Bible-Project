@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jeremiah was come into the dungeon-house, and into the cells, and Jeremiah had remained there many days;
+When Jeremiah was come into the dungeon house, and into the cells, and Jeremiah had remained there many days;

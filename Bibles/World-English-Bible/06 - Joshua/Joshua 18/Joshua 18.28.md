@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zelah, Eleph, and the Jebusite (the same is Jerusalem), Gibeath, [and] Kiriath; fourteen cities with their villages. This is the inheritance of the children of Benjamin according to their families.
+Zelah, Eleph, the Jebusite (the same is Jerusalem), Gibeath, and Kiriath; fourteen cities with their villages. This is the inheritance of the children of Benjamin according to their families.

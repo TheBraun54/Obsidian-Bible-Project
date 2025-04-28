@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At their presence the peoples are in anguish; all faces are waxed pale.
+At their presence the peoples are in anguish. All faces have grown pale.

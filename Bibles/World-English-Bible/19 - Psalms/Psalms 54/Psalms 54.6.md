@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With a freewill-offering will I sacrifice unto thee: I will give thanks unto thy name, O Jehovah, for it is good.
+With a free will offering, I will sacrifice to you. I will give thanks to your name, Yahweh, for it is good.

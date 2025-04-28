@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mephibosheth had a young son, whose name was Mica. And all that dwelt in the house of Ziba were servants unto Mephibosheth.
+Mephibosheth had a young son, whose name was Mica. All that lived in the house of Ziba were servants to Mephibosheth.

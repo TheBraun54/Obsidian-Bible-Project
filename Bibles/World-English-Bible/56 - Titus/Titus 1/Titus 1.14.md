@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not giving heed to Jewish fables, and commandments of men who turn away from the truth.
+not paying attention to Jewish fables and commandments of men who turn away from the truth.

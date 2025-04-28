@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one out of the multitude said unto him, Teacher, bid my brother divide the inheritance with me.
+One of the multitude said to him, "Teacher, tell my brother to divide the inheritance with me."

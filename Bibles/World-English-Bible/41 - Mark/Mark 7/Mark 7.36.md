@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged them that they should tell no man: but the more he charged them, so much the more a great deal they published it.
+He commanded them that they should tell no one, but the more he commanded them, so much the more widely they proclaimed it.

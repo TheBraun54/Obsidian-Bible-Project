@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest of the people, the priests, the Levites, the porters, the singers, the Nethinim, and all they that had separated themselves from the peoples of the lands unto the law of God, their wives, their sons, and their daughters, every one that had knowledge, and understanding;
+The rest of the people, the priests, the Levites, the porters, the singers, the Nethinim, and all those who had separated themselves from the peoples of the lands to the law of God, their wives, their sons, and their daughters, everyone who had knowledge, and understanding--

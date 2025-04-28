@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set me as a seal upon thy heart, As a seal upon thine arm: For love is strong as death; Jealousy is cruel as Sheol; The flashes thereof are flashes of fire, A very flame of Jehovah.
+Set me as a seal on your heart, as a seal on your arm; for love is strong as death. Jealousy is as cruel as Sheol. Its flashes are flashes of fire, a very flame of Yahweh.

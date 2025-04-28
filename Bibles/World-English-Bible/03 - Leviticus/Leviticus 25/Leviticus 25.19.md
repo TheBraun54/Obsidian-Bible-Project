@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the land shall yield its fruit, and ye shall eat your fill, and dwell therein in safety.
+The land shall yield its fruit, and you shall eat your fill, and dwell therein in safety.

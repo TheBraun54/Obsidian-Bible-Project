@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From men by thy hand, O Jehovah, From men of the world, whose portion is in [this] life, And whose belly thou fillest with thy treasure: They are satisfied with children, And leave the rest of their substance to their babes.
+from men by your hand, Yahweh, from men of the world, whose portion is in this life. You fill the belly of your cherished ones. Your sons have plenty, and they store up wealth for their children.

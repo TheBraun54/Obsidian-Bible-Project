@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seeing a fig tree afar off having leaves, he came, if haply he might find anything thereon: and when he came to it, he found nothing but leaves; for it was not the season of figs.
+Seeing a fig tree afar off having leaves, he came to see if perhaps he might find anything on it. When he came to it, he found nothing but leaves, for it was not the season for figs.

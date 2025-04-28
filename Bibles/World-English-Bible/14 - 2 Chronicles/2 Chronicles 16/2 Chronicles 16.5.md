@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Baasha heard thereof, that he left off building Ramah, and let his work cease.
+It happened, when Baasha heard of it, that he left off building Ramah, and let his work cease.

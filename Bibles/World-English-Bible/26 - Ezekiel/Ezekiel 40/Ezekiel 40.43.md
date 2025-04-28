@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the hooks, a handbreadth long, were fastened within round about: and upon the tables was the flesh of the oblation.
+The hooks, a handbreadth long, were fastened within all around: and on the tables was the flesh of the offering.

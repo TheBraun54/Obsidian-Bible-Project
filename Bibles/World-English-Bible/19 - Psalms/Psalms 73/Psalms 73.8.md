@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They scoff, and in wickedness utter oppression: They speak loftily.
+They scoff and speak with malice. In arrogance, they threaten oppression.

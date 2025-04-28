@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A bribe is [as] a precious stone in the eyes of him that hath it; Whithersoever it turneth, it prospereth.
+A bribe is a precious stone in the eyes of him who gives it; wherever he turns, he prospers.

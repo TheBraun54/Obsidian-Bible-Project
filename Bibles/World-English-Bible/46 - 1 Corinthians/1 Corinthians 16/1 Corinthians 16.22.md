@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man loveth not the Lord, let him be anathema. Maranatha.
+If any man doesn't love the Lord Jesus Christ, let him be accursed. Come, Lord!

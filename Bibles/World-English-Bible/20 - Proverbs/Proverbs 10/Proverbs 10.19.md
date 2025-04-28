@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the multitude of words there wanteth not transgression; But he that refraineth his lips doeth wisely.
+In the multitude of words there is no lack of disobedience, but he who restrains his lips does wisely.

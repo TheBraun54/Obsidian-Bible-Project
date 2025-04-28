@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-onyx stones, and stones to be set, for the ephod, and for the breastplate.
+onyx stones, and stones to be set for the ephod and for the breastplate.

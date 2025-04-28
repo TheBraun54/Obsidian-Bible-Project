@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and be ready against the third day; for the third day Jehovah will come down in the sight of all the people upon mount Sinai.
+and be ready against the third day; for on the third day Yahweh will come down in the sight of all the people on Mount Sinai.

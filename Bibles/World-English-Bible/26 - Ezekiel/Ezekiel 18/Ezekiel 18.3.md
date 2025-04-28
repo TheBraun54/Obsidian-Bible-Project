@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I live, saith the Lord Jehovah, ye shall not have [occasion] any more to use this proverb in Israel.
+As I live, says the Lord Yahweh, you shall not have [occasion] any more to use this proverb in Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lifted up his eyes, and saw the women and the children; and said, Who are these with thee? And he said, The children whom God hath graciously given thy servant.
+He lifted up his eyes, and saw the women and the children; and said, "Who are these with you?" He said, "The children whom God has graciously given your servant."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How then comfort ye me in vain, Seeing in your answers there remaineth [only] falsehood?
+So how can you comfort me with nonsense, because in your answers there remains only falsehood?"

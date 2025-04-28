@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who hath despised the day of small things? for these seven shall rejoice, and shall see the plummet in the hand of Zerubbabel; [these are] the eyes of Jehovah, which run to and fro through the whole earth.
+Indeed, who despises the day of small things? For these seven shall rejoice, and shall see the plumb line in the hand of Zerubbabel. These are the eyes of Yahweh, which run back and forth through the whole earth."

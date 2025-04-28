@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he set it before them, and they did eat, and left thereof, according to the word of Jehovah.
+So he set it before them, and they ate, and left some of it, according to the word of Yahweh.

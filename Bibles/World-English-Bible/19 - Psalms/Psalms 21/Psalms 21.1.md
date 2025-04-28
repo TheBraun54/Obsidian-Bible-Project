@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. The king shall joy in thy strength, O Jehovah; And in thy salvation how greatly shall he rejoice!
+The king rejoices in your strength, Yahweh! How greatly he rejoices in your salvation!

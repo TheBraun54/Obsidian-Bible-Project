@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and called and asked whether Simon, who was surnamed Peter, were lodging there.
+and called and asked whether Simon, who was surnamed Peter, was lodging there.

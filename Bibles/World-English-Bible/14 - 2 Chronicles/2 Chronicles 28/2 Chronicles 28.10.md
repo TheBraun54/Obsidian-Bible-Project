@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now ye purpose to keep under the children of Judah and Jerusalem for bondmen and bondwomen unto you: [but] are there not even with you trespasses of your own against Jehovah your God? [
+Now you purpose to keep under the children of Judah and Jerusalem for bondservants and bondmaids for yourselves. Aren't there even with you trespasses of your own against Yahweh your God?

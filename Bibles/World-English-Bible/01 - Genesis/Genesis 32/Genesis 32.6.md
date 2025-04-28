@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the messengers returned to Jacob, saying, We came to thy brother Esau, and moreover he cometh to meet thee, and four hundred men with him.
+The messengers returned to Jacob, saying, "We came to your brother Esau. Not only that, but he comes to meet you, and four hundred men with him."

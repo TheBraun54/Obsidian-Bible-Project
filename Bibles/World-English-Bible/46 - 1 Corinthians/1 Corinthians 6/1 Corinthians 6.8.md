@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, but ye yourselves do wrong, and defraud, and that [your] brethren.
+No, but you yourselves do wrong, and defraud, and that against your brothers.

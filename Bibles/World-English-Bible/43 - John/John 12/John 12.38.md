@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the word of Isaiah the prophet might be fulfilled, which he spake, Lord, who hath believed our report? And to whom hath the arm of the Lord been revealed?
+that the word of Isaiah the prophet might be fulfilled, which he spoke, "Lord, who has believed our report? To whom has the arm of the Lord been revealed?"

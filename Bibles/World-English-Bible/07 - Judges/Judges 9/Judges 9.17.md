@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for my father fought for you, and adventured his life, and delivered you out of the hand of Midian:
+(for my father fought for you, and risked his life, and delivered you out of the hand of Midian:

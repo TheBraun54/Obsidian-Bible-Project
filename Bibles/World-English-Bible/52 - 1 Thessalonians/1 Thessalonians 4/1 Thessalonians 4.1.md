@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Finally then, brethren, we beseech and exhort you in the Lord Jesus, that, as ye received of us how ye ought to walk and to please God, even as ye do walk,--that ye abound more and more.
+Finally then, brothers, we beg and exhort you in the Lord Jesus, that as you received from us how you ought to walk and to please God, that you abound more and more.

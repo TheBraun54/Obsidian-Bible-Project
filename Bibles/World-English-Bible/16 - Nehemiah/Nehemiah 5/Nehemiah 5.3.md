@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Some also there were that said, We are mortgaging our fields, and our vineyards, and our houses: let us get grain, because of the dearth.
+Some also there were that said, "We are mortgaging our fields, and our vineyards, and our houses. Let us get grain, because of the famine."

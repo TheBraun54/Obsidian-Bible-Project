@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this let every one that is godly pray unto thee in a time when thou mayest be found: Surely when the great waters overflow they shall not reach unto him.
+For this, let everyone who is godly pray to you in a time when you may be found. Surely when the great waters overflow, they shall not reach to him.

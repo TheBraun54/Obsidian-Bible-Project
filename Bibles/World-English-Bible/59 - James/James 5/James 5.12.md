@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But above all things, my brethren, swear not, neither by the heaven, nor by the earth, nor by any other oath: but let your yea be yea, and your nay, nay; that ye fall not under judgment.
+But above all things, my brothers, don't swear, neither by heaven, nor by the earth, nor by any other oath; but let your "yes" be "yes," and your "no," "no;" so that you don't fall into hypocrisy.

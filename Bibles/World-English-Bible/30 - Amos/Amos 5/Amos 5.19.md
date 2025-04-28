@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As if a man did flee from a lion, and a bear met him; or went into the house and leaned his hand on the wall, and a serpent bit him.
+As if a man fled from a lion, and a bear met him; Or he went into the house and leaned his hand on the wall, and a snake bit him.

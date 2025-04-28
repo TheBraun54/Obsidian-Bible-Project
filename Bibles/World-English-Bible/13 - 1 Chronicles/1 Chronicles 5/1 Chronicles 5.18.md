@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Reuben, and the Gadites, and the half-tribe of Manasseh, of valiant men, men able to bear buckler and sword, and to shoot with bow, and skilful in war, were forty and four thousand seven hundred and threescore, that were able to go forth to war.
+The sons of Reuben, and the Gadites, and the half-tribe of Manasseh, of valiant men, men able to bear buckler and sword, and to shoot with bow, and skillful in war, were forty-four thousand seven hundred and sixty, that were able to go forth to war.

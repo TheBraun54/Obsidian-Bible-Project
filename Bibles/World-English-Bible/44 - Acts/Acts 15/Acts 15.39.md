@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there arose a sharp contention, so that they parted asunder one from the other, and Barnabas took Mark with him, and sailed away unto Cyprus;
+Then the contention grew so sharp that they separated from each other. Barnabas took Mark with him, and sailed away to Cyprus,

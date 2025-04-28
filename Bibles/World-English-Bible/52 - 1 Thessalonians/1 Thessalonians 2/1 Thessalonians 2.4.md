@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but even as we have been approved of God to be intrusted with the gospel, so we speak; not as pleasing men, but God who proveth our hearts.
+But even as we have been approved by God to be entrusted with the Good News, so we speak; not as pleasing men, but God, who tests our hearts.

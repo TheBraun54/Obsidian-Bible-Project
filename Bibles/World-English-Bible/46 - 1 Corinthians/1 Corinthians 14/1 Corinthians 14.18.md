@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank God, I speak with tongues more than you all:
+I thank my God, I speak with other languages more than you all.

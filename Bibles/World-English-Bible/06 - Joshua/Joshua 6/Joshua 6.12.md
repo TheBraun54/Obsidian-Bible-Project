@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua rose early in the morning, and the priests took up the ark of Jehovah.
+Joshua rose early in the morning, and the priests took up the ark of Yahweh.

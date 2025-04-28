@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king's favor is toward a servant that dealeth wisely; But his wrath will be [against] him that causeth shame.
+The king's favor is toward a servant who deals wisely, but his wrath is toward one who causes shame.

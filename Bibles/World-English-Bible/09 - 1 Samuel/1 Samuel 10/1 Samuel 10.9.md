@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, when he had turned his back to go from Samuel, God gave him another heart: and all those signs came to pass that day.
+It was so, that when he had turned his back to go from Samuel, God gave him another heart: and all those signs happened that day.

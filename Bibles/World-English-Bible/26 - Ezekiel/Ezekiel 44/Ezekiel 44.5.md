@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Son of man, mark well, and behold with thine eyes, and hear with thine ears all that I say unto thee concerning all the ordinances of the house of Jehovah, and all the laws thereof; and mark well the entrance of the house, with every egress of the sanctuary.
+Yahweh said to me, Son of man, mark well, and see with your eyes, and hear with your ears all that I tell you concerning all the ordinances of the house of Yahweh, and all its laws; and mark well the entrance of the house, with every exit of the sanctuary.

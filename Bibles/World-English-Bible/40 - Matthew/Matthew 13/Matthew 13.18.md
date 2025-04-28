@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear then ye the parable of the sower.
+"Hear, then, the parable of the farmer.

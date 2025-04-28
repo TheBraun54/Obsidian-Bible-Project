@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-except for his kin, that is near unto him, for his mother, and for his father, and for his son, and for his daughter, and for his brother,
+except for his relatives that are near to him: for his mother, for his father, for his son, for his daughter, for his brother,

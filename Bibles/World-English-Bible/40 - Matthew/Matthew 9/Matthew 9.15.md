@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, Can the sons of the bridechamber mourn, as long as the bridegroom is with them? but the days will come, when the bridegroom shall be taken away from them, and then will they fast.
+Jesus said to them, "Can the friends of the bridegroom mourn, as long as the bridegroom is with them? But the days will come when the bridegroom will be taken away from them, and then they will fast.

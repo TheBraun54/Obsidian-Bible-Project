@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that observeth the wind shall not sow; and he that regardeth the clouds shall not reap.
+He who observes the wind won't sow; and he who regards the clouds won't reap.

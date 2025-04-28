@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not overcome of evil, but overcome evil with good.
+Don't be overcome by evil, but overcome evil with good.

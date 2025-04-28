@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the season he sent unto the husbandmen a servant, that they should give him of the fruit of the vineyard: but the husbandmen beat him, and sent him away empty.
+At the proper season, he sent a servant to the farmers to collect his share of the fruit of the vineyard. But the farmers beat him, and sent him away empty.

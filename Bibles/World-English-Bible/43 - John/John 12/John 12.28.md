@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Father, glorify thy name. There came therefore a voice out of heaven, [saying], I have both glorified it, and will glorify it again.
+Father, glorify your name!" Then there came a voice out of the sky, saying, "I have both glorified it, and will glorify it again."

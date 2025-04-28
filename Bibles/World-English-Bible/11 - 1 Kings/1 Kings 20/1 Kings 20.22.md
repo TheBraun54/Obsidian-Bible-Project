@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prophet came near to the king of Israel, and said unto him, Go, strengthen thyself, and mark, and see what thou doest; for at the return of the year the king of Syria will come up against thee.
+The prophet came near to the king of Israel, and said to him, "Go, strengthen yourself, and mark, and see what you do; for at the return of the year the king of Syria will come up against you."

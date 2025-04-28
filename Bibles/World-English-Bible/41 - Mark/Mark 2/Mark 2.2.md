@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many were gathered together, so that there was no longer room [for them], no, not even about the door: and he spake the word unto them.
+Immediately many were gathered together, so that there was no more room, not even around the door; and he spoke the word to them.

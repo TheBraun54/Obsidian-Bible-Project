@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again, I will put my trust in him. And again, Behold, I and the children whom God hath given me.
+Again, "I will put my trust in him." Again, "Behold, here I am with the children whom God has given me."

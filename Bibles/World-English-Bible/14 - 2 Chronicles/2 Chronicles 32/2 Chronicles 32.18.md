@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cried with a loud voice in the Jews' language unto the people of Jerusalem that were on the wall, to affright them, and to trouble them; that they might take the city.
+They cried with a loud voice in the Jews' language to the people of Jerusalem who were on the wall, to frighten them, and to trouble them; that they might take the city.

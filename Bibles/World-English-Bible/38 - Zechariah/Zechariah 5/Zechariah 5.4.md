@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will cause it to go forth, saith Jehovah of hosts, and it shall enter into the house of the thief, and into the house of him that sweareth falsely by my name; and it shall abide in the midst of his house, and shall consume it with the timber thereof and the stones thereof.
+I will cause it to go out," says Yahweh of Armies, "and it will enter into the house of the thief, and into the house of him who swears falsely by my name; and it will remain in the midst of his house, and will destroy it with its timber and its stones."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the whole congregation sent and spake to the children of Benjamin that were in the rock of Rimmon, and proclaimed peace unto them.
+The whole congregation sent and spoke to the children of Benjamin who were in the rock of Rimmon, and proclaimed peace to them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I cause evil beasts to pass through the land, and they ravage it, and it be made desolate, so that no man may pass through because of the beasts;
+If I cause evil animals to pass through the land, and they ravage it, and it be made desolate, so that no man may pass through because of the animals;

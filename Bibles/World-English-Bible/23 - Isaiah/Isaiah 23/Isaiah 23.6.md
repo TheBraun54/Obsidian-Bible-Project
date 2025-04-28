@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pass ye over to Tarshish; wail, ye inhabitants of the coast.
+Pass over to Tarshish! Wail, you inhabitants of the coast!

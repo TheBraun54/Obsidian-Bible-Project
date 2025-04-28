@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scribes and the chief priests sought to lay hands on him in that very hour; and they feared the people: for they perceived that he spake this parable against them.
+The chief priests and the scribes sought to lay hands on him that very hour, but they feared the people--for they knew he had spoken this parable against them.

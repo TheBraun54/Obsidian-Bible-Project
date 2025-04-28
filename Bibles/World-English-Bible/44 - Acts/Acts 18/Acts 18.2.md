@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he found a certain Jew named Aquila, a man of Pontus by race, lately come from Italy, with his wife Priscilla, because Claudius had commanded all the Jews to depart from Rome: and he came unto them;
+He found a certain Jew named Aquila, a man of Pontus by race, who had recently come from Italy, with his wife Priscilla, because Claudius had commanded all the Jews to depart from Rome. He came to them,

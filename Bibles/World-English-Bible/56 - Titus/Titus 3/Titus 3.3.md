@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we also once were foolish, disobedient, deceived, serving divers lusts and pleasures, living in malice and envy, hateful, hating one another.
+For we were also once foolish, disobedient, deceived, serving various lusts and pleasures, living in malice and envy, hateful, and hating one another.

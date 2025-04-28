@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mountains shall bring peace to the people, And the hills, in righteousness.
+The mountains shall bring prosperity to the people. The hills bring the fruit of righteousness.

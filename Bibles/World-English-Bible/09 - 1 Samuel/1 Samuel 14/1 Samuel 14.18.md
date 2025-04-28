@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said unto Ahijah, Bring hither the ark of God. For the ark of God was [there] at that time with the children of Israel.
+Saul said to Ahijah, "Bring the ark of God here." For the ark of God was [there] at that time with the children of Israel.

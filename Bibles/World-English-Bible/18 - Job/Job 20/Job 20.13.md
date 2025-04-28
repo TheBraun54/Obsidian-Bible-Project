@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though he spare it, and will not let it go, But keep it still within his mouth;
+though he spare it, and will not let it go, but keep it still within his mouth;

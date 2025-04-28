@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy righteousness also, O God, is very high; Thou who hast done great things, O God, who is like unto thee?
+Your righteousness also, God, reaches to the heavens; you have done great things. God, who is like you?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Heshbon crieth out, and Elealeh; their voice is heard even unto Jahaz: therefore the armed men of Moab cry aloud; his soul trembleth within him.
+Heshbon cries out with Elealeh. Their voice is heard even to Jahaz. Therefore the armed men of Moab cry aloud. Their souls tremble within them.

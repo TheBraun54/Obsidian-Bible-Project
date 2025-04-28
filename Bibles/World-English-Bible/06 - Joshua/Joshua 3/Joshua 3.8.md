@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt command the priests that bear the ark of the covenant, saying, When ye are come to the brink of the waters of the Jordan, ye shall stand still in the Jordan.
+You shall command the priests who bear the ark of the covenant, saying, 'When you come to the brink of the waters of the Jordan, you shall stand still in the Jordan.'"

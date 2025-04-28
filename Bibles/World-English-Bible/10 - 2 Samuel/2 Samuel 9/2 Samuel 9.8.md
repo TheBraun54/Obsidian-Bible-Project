@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did obeisance, and said, What is thy servant, that thou shouldest look upon such a dead dog as I am?
+He did obeisance, and said, "What is your servant, that you should look on such a dead dog as I am?"

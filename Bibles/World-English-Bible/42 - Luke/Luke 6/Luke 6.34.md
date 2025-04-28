@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye lend to them of whom ye hope to receive, what thank have ye? even sinners lend to sinners, to receive again as much.
+If you lend to those from whom you hope to receive, what credit is that to you? Even sinners lend to sinners, to receive back as much.

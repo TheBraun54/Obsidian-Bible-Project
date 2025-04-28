@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if Christ hath not been raised, then is our preaching vain, your faith also is vain.
+If Christ has not been raised, then our preaching is in vain, and your faith also is in vain.

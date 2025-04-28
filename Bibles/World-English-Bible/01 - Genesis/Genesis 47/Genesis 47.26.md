@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph made it a statute concerning the land of Egypt unto this day, that Pharaoh should have the fifth; only the land of the priests alone became not Pharaoh's.
+Joseph made it a statute concerning the land of Egypt to this day, that Pharaoh should have the fifth. Only the land of the priests alone didn't become Pharaoh's.

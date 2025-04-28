@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Saul sent messengers unto Jesse, and said, Send me David thy son, who is with the sheep.
+Therefore Saul sent messengers to Jesse, and said, "Send me David your son, who is with the sheep."

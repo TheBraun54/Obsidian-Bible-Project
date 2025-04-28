@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have hands, but they handle not; Feet have they, but they walk not; Neither speak they through their throat.
+They have hands, but they don't feel. They have feet, but they don't walk, neither do they speak through their throat.

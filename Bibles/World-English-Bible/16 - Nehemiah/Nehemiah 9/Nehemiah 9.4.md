@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then stood up upon the stairs of the Levites, Jeshua, and Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, [and] Chenani, and cried with a loud voice unto Jehovah their God.
+Then stood up on the stairs of the Levites, Jeshua, and Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, [and] Chenani, and cried with a loud voice to Yahweh their God.

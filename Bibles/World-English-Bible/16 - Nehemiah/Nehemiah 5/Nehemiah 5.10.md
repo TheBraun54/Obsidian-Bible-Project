@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I likewise, my brethren and my servants, do lend them money and grain. I pray you, let us leave off this usury.
+I likewise, my brothers and my servants, lend them money and grain. Please let us stop this usury.

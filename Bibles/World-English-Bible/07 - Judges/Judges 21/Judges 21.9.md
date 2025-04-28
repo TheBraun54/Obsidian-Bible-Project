@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when the people were numbered, behold, there were none of the inhabitants of Jabesh-gilead there.
+For when the people were numbered, behold, there were none of the inhabitants of Jabesh Gilead there.

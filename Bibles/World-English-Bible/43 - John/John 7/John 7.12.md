@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was much murmuring among the multitudes concerning him: some said, He is a good man; others said, Not so, but he leadeth the multitude astray.
+There was much murmuring among the multitudes concerning him. Some said, "He is a good man." Others said, "Not so, but he leads the multitude astray."

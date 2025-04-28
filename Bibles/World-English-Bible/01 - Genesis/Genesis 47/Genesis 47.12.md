@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph nourished his father, and his brethren, and all his father's household, with bread, according to their families.
+Joseph nourished his father, his brothers, and all of his father's household, with bread, according to their families.

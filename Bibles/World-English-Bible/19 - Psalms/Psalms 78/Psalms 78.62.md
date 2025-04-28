@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He gave his people over also unto the sword, And was wroth with his inheritance.
+He also gave his people over to the sword, and was angry with his inheritance.

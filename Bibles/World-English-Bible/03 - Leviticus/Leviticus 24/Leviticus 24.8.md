@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every sabbath day he shall set it in order before Jehovah continually; it is on the behalf of the children of Israel, an everlasting covenant.
+Every Sabbath day he shall set it in order before Yahweh continually. It is on the behalf of the children of Israel an everlasting covenant.

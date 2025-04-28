@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Neariah: Elioenai, and Hizkiah, and Azrikam, three.
+The sons of Neariah: Elioenai, and Hizkiah, and Azrikam, three.

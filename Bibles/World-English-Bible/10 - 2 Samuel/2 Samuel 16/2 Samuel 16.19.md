@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again, whom should I serve? [should I] not [serve] in the presence of his son? as I have served in thy father's presence, so will I be in thy presence.
+Again, whom should I serve? Shouldn't I serve in the presence of his son? As I have served in your father's presence, so will I be in your presence."

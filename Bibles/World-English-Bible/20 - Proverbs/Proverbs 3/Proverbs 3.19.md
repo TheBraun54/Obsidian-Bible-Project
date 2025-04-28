@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah by wisdom founded the earth; By understanding he established the heavens.
+By wisdom Yahweh founded the earth. By understanding, he established the heavens.

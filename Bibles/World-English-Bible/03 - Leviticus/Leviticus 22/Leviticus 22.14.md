@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man eat of the holy thing unwittingly, then he shall put the fifth part thereof unto it, and shall give unto the priest the holy thing.
+"'If a man eats something holy unwittingly, then he shall add the fifth part of its value to it, and shall give the holy thing to the priest.

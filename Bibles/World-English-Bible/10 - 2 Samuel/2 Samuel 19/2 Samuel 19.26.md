@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered, My lord, O king, my servant deceived me: for thy servant said, I will saddle me an ass, that I may ride thereon, and go with the king; because thy servant is lame.
+He answered, "My lord, O king, my servant deceived me. For your servant said, I will saddle me a donkey, that I may ride thereon, and go with the king; because your servant is lame.

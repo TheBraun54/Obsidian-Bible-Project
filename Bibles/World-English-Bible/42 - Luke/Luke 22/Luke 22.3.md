@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Satan entered into Judas who was called Iscariot, being of the number of the twelve.
+Satan entered into Judas, who was surnamed Iscariot, who was numbered with the twelve.

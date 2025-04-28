@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath received his witness hath set his seal to [this], that God is true.
+He who has received his witness has set his seal to this, that God is true.

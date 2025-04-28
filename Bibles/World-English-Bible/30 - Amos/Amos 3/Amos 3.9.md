@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Publish ye in the palaces at Ashdod, and in the palaces in the land of Egypt, and say, Assemble yourselves upon the mountains of Samaria, and behold what great tumults are therein, and what oppressions in the midst thereof.
+Proclaim in the palaces at Ashdod, and in the palaces in the land of Egypt, and say, "Assemble yourselves on the mountains of Samaria, and see what unrest is in her, and what oppression is among them."

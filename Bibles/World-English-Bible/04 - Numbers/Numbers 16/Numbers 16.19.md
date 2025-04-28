@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Korah assembled all the congregation against them unto the door of the tent of meeting: and the glory of Jehovah appeared unto all the congregation.
+Korah assembled all the congregation against them to the door of the Tent of Meeting: and the glory of Yahweh appeared to all the congregation.

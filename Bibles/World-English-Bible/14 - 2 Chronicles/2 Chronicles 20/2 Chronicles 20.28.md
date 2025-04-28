@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to Jerusalem with psalteries and harps and trumpets unto the house of Jehovah.
+They came to Jerusalem with stringed instruments and harps and trumpets to the house of Yahweh.

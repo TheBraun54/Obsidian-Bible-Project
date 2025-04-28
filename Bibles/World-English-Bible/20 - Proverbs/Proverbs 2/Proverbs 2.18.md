@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For her house inclineth unto death, And her paths unto the dead;
+for her house leads down to death, her paths to the dead.

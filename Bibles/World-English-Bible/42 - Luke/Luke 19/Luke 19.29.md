@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he drew nigh unto Bethphage and Bethany, at the mount that is called Olivet, he sent two of the disciples,
+It happened, when he drew near to Bethsphage and Bethany, at the mountain that is called Olivet, he sent two of his disciples,

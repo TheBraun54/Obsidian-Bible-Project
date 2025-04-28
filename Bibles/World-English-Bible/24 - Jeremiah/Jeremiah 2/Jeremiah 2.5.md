@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thus saith Jehovah, What unrighteousness have your fathers found in me, that they are gone far from me, and have walked after vanity, and are become vain?
+Thus says Yahweh, "What unrighteousness have your fathers found in me, that they have gone far from me, and have walked after vanity, and are become vain?

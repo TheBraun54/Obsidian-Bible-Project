@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that spareth his words hath knowledge; And he that is of a cool spirit is a man of understanding.
+He who spares his words has knowledge. He who is even tempered is a man of understanding.

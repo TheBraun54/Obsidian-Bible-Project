@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fame hereof went forth into all that land.
+The report of this went out into all that land.

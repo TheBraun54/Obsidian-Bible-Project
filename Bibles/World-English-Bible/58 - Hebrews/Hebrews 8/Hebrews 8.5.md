@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who serve [that which is] a copy and shadow of the heavenly things, even as Moses is warned [of God] when he is about to make the tabernacle: for, See, saith he, that thou make all things according to the pattern that was showed thee in the mount.
+who serve a copy and shadow of the heavenly things, even as Moses was warned by God when he was about to make the tabernacle, for he said, "See, you shall make everything according to the pattern that was shown to you on the mountain."

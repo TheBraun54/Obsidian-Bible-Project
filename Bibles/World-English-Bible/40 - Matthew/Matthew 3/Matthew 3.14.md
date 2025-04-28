@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But John would have hindered him, saying, I have need to be baptized of thee, and comest thou to me?
+But John would have hindered him, saying, "I need to be baptized by you, and you come to me?"

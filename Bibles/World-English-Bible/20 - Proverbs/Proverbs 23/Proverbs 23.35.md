@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have stricken me, [shalt thou say], and I was not hurt; They have beaten me, and I felt it not: When shall I awake? I will seek it yet again.
+"They hit me, and I was not hurt! They beat me, and I don't feel it! When will I wake up? I can do it again. I can find another."

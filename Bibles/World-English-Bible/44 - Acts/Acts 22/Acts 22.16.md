@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now why tarriest thou? arise, and be baptized, and wash away thy sins, calling on his name.
+Now why do you wait? Arise, be baptized, and wash away your sins, calling on the name of the Lord.'

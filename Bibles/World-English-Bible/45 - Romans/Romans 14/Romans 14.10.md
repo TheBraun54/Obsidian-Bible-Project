@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, why dost thou judge thy brother? or thou again, why dost thou set at nought thy brother? for we shall all stand before the judgment-seat of God.
+But you, why do you judge your brother? Or you again, why do you despise your brother? For we will all stand before the judgment seat of Christ.

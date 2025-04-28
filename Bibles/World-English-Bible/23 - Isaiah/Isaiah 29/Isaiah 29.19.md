@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The meek also shall increase their joy in Jehovah, and the poor among men shall rejoice in the Holy One of Israel.
+The humble also will increase their joy in Yahweh, and the poor among men will rejoice in the Holy One of Israel.

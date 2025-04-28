@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-rooted and builded up in him, and established in your faith, even as ye were taught, abounding in thanksgiving.
+rooted and built up in him, and established in the faith, even as you were taught, abounding in it in thanksgiving.

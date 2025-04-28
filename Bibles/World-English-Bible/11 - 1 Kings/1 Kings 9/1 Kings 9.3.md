@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, I have heard thy prayer and thy supplication, that thou hast made before me: I have hallowed this house, which thou hast built, to put my name there for ever; and mine eyes and my heart shall be there perpetually.
+Yahweh said to him, "I have heard your prayer and your supplication, that you have made before me. I have made this house holy, which you have built, to put my name there forever; and my eyes and my heart shall be there perpetually.

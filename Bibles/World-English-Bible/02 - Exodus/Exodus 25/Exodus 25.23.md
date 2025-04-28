@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a table of acacia wood: two cubits [shall be] the length thereof, and a cubit the breadth thereof, and a cubit and a half the height thereof.
+"You shall make a table of acacia wood. Two cubits shall be its length, and a cubit its breadth, and one and a half cubits its height.

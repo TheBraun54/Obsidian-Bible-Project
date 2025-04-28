@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests consented that they should take no [more] money from the people, neither repair the breaches of the house.
+The priests consented that they should take no [more] money from the people, neither repair the breaches of the house.

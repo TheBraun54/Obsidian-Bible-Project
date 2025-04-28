@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye know that when ye were Gentiles [ye were] led away unto those dumb idols, howsoever ye might led.
+You know that when you were heathen, you were led away to those mute idols, however you might be led.

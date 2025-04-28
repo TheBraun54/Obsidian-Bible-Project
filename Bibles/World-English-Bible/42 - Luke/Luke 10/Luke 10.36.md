@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which of these three, thinkest thou, proved neighbor unto him that fell among the robbers?
+Now which of these three do you think seemed to be a neighbor to him who fell among the robbers?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt fall upon the open field; for I have spoken it, saith the Lord Jehovah.
+You shall fall on the open field; for I have spoken it, says the Lord Yahweh.

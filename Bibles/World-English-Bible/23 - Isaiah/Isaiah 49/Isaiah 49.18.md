@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up thine eyes round about, and behold: all these gather themselves together, and come to thee. As I live, saith Jehovah, thou shalt surely clothe thee with them all as with an ornament, and gird thyself with them, like a bride.
+Lift up your eyes all around, and see: all these gather themselves together, and come to you. As I live," says Yahweh, "you shall surely clothe yourself with them all as with an ornament, and dress yourself with them, like a bride.

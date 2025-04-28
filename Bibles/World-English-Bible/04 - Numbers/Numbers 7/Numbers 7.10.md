@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the princes offered for the dedication of the altar in the day that it was anointed, even the princes offered their oblation before the altar.
+The princes gave offerings for the dedication of the altar in the day that it was anointed, even the princes gave their offerings before the altar.

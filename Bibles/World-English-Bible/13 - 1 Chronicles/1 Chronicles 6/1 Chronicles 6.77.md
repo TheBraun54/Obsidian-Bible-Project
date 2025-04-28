@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto the rest of [the Levites], the sons of Merari, [were given], out of the tribe of Zebulun, Rimmono with its suburbs, Tabor with its suburbs;
+To the rest of [the Levites], the sons of Merari, [were given], out of the tribe of Zebulun, Rimmono with its suburbs, Tabor with its suburbs;

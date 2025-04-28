@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the other lamb shalt thou offer at even: as the meal-offering of the morning, and as the drink-offering thereof, thou shalt offer it, an offering made by fire, of a sweet savor unto Jehovah.
+The other lamb you shall offer at evening: as the meal offering of the morning, and as the drink offering of it, you shall offer it, an offering made by fire, of a pleasant aroma to Yahweh.

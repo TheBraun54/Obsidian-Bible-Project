@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Judah, from the east side unto the west side, shall be the oblation which ye shall offer, five and twenty thousand [reeds] in breadth, and in length as one of the portions, from the east side unto the west side: and the sanctuary shall be in the midst of it.
+By the border of Judah, from the east side to the west side, shall be the offering which you shall offer, twenty-five thousand [reeds] in breadth, and in length as one of the portions, from the east side to the west side: and the sanctuary shall be in its midst.

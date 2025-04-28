@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also, that the soul be without knowledge is not good; And he that hasteth with his feet sinneth.
+It isn't good to have zeal without knowledge; nor being hasty with one's feet and missing the way.

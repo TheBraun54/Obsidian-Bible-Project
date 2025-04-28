@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the earth helped the woman, and the earth opened her mouth and swallowed up the river which the dragon cast out of his mouth.
+The earth helped the woman, and the earth opened its mouth and swallowed up the river which the dragon spewed out of his mouth.

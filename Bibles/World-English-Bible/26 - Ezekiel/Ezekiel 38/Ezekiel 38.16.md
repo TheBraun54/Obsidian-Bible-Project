@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt come up against my people Israel, as a cloud to cover the land: it shall come to pass in the latter days, that I will bring thee against my land, that the nations may know me, when I shall be sanctified in thee, O Gog, before their eyes.
+and you shall come up against my people Israel, as a cloud to cover the land: it shall happen in the latter days, that I will bring you against my land, that the nations may know me, when I shall be sanctified in you, Gog, before their eyes.

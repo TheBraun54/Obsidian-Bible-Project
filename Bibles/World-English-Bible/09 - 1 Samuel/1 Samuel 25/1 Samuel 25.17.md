@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore know and consider what thou wilt do; for evil is determined against our master, and against all his house: for he is such a worthless fellow, that one cannot speak to him.
+Now therefore know and consider what you will do; for evil is determined against our master, and against all his house; for he is such a worthless fellow that one can't speak to him."

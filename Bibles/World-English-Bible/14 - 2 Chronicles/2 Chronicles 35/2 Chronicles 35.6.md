@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And kill the passover, and sanctify yourselves, and prepare for your brethren, to do according to the word of Jehovah by Moses.
+Kill the Passover, and sanctify yourselves, and prepare for your brothers, to do according to the word of Yahweh by Moses."

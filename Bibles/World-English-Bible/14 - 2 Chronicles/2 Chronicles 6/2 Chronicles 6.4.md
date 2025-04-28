@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Blessed be Jehovah, the God of Israel, who spake with his mouth unto David my father, and hath with his hands fulfilled it, saying,
+He said, "Blessed be Yahweh, the God of Israel, who spoke with his mouth to David my father, and has with his hands fulfilled it, saying,

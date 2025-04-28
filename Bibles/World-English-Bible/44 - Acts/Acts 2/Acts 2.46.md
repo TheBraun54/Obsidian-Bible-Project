@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And day by day, continuing stedfastly with one accord in the temple, and breaking bread at home, they took their food with gladness and singleness of heart,
+Day by day, continuing steadfastly with one accord in the temple, and breaking bread at home, they took their food with gladness and singleness of heart,

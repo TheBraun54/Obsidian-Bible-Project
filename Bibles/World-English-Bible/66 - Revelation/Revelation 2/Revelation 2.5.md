@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember therefore whence thou art fallen, and repent and do the first works; or else I come to thee, and will move thy candlestick out of its place, except thou repent.
+Remember therefore from where you have fallen, and repent and do the first works; or else I am coming to you swiftly, and will move your lampstand out of its place, unless you repent.

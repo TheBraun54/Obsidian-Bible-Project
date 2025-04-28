@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Ye say], God layeth up his iniquity for his children. Let him recompense it unto himself, that he may know it:
+You say, 'God lays up his iniquity for his children.' Let him recompense it to himself, that he may know it.

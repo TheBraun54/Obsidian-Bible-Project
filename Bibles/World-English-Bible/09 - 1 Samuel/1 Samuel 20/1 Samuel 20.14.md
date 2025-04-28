@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not only while yet I live show me the lovingkindness of Jehovah, that I die not;
+You shall not only while yet I live show me the loving kindness of Yahweh, that I not die;

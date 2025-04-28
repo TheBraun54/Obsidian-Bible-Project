@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye are an elect race, a royal priesthood, a holy nation, a people for [God's] own possession, that ye may show forth the excellencies of him who called you out of darkness into his marvellous light:
+But you are a chosen race, a royal priesthood, a holy nation, a people for God's own possession, that you may proclaim the excellence of him who called you out of darkness into his marvelous light:

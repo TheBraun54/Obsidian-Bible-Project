@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, What did he to thee? How opened he thine eyes?
+They said to him again, "What did he do to you? How did he open your eyes?"

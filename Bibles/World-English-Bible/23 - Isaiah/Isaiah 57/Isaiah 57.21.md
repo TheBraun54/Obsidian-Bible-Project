@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no peace, saith my God, to the wicked.
+"There is no peace," says my God, "for the wicked."

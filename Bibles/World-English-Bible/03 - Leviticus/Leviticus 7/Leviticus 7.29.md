@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, He that offereth the sacrifice of his peace-offerings unto Jehovah shall bring his oblation unto Jehovah out of the sacrifice of his peace-offerings:
+"Speak to the children of Israel, saying, 'He who offers the sacrifice of his peace offerings to Yahweh shall bring his offering to Yahweh out of the sacrifice of his peace offerings.

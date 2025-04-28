@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ransom of a man's life is his riches; But the poor heareth no threatening.
+The ransom of a man's life is his riches, but the poor hear no threats.

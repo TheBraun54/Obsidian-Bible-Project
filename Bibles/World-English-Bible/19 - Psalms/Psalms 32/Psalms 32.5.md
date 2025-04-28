@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I acknowledged my sin unto thee, And mine iniquity did I not hide: I said, I will confess my transgressions unto Jehovah; And thou forgavest the iniquity of my sin. {{Selah
+I acknowledged my sin to you. I didn't hide my iniquity. I said, I will confess my transgressions to Yahweh, and you forgave the iniquity of my sin. Selah.

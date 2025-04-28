@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do not I hate them, O Jehovah, that hate thee? And am not I grieved with those that rise up against thee?
+Yahweh, don't I hate those who hate you? Am I not grieved with those who rise up against you?

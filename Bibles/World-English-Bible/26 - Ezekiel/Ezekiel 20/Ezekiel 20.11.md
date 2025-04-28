@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I gave them my statutes, and showed them mine ordinances, which if a man do, he shall live in them.
+I gave them my statutes, and showed them my ordinances, which if a man does, he shall live in them.

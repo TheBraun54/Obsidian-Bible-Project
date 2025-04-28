@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, the children of Ammon and Moab and mount Seir, whom thou wouldest not let Israel invade, when they came out of the land of Egypt, but they turned aside from them, and destroyed them not;
+Now, behold, the children of Ammon and Moab and Mount Seir, whom you would not let Israel invade, when they came out of the land of Egypt, but they turned aside from them, and didn't destroy them;

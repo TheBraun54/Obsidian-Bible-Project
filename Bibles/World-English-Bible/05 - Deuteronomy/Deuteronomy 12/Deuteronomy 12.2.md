@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall surely destroy all the places wherein the nations that ye shall dispossess served their gods, upon the high mountains, and upon the hills, and under every green tree:
+You shall surely destroy all the places in which the nations that you shall dispossess served their gods, on the high mountains, and on the hills, and under every green tree:

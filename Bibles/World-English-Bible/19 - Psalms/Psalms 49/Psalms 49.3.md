@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My mouth shall speak wisdom; And the meditation of my heart shall be of understanding.
+My mouth will speak words of wisdom. My heart shall utter understanding.

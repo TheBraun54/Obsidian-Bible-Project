@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham said unto his young men, Abide ye here with the ass, and I and the lad will go yonder; and we will worship, and come again to you.
+Abraham said to his young men, "Stay here with the donkey. The boy and I will go yonder. We will worship, and come back to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they smote the remnant of the Amalekites that escaped, and have dwelt there unto this day.
+They struck the remnant of the Amalekites who escaped, and have lived there to this day.

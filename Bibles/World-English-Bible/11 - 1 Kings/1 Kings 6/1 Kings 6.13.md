@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will dwell among the children of Israel, and will not forsake my people Israel.
+I will dwell among the children of Israel, and will not forsake my people Israel."

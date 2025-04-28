@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shalt thou find favor and good understanding In the sight of God and man.
+So you will find favor, and good understanding in the sight of God and man.

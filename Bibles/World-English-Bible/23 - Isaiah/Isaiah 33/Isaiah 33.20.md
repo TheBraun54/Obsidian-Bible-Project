@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look upon Zion, the city of our solemnities: thine eyes shall see Jerusalem a quiet habitation, a tent that shall not be removed, the stakes whereof shall never be plucked up, neither shall any of the cords thereof be broken.
+Look at Zion, the city of our appointed festivals. Your eyes will see Jerusalem, a quiet habitation, a tent that won't be removed. Its stakes will never be plucked up, nor will any of its cords be broken.

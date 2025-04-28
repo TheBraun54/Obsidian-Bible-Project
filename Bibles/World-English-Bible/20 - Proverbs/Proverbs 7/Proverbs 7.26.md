@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For she hath cast down many wounded: Yea, all her slain are a mighty host.
+for she has thrown down many wounded. Yes, all her slain are a mighty army.

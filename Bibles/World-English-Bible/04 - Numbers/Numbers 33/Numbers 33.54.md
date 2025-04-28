@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall inherit the land by lot according to your families; to the more ye shall give the more inheritance, and to the fewer thou shalt give the less inheritance: wheresoever the lot falleth to any man, that shall be his; according to the tribes of your fathers shall ye inherit.
+You shall inherit the land by lot according to your families; to the more you shall give the more inheritance, and to the fewer you shall give the less inheritance: wherever the lot falls to any man, that shall be his. You shall inherit according to the tribes of your fathers.

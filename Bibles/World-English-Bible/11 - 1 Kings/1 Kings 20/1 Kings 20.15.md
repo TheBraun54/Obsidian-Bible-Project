@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he mustered the young men of the princes of the provinces, and they were two hundred and thirty-two: and after them he mustered all the people, even all the children of Israel, being seven thousand.
+Then he mustered the young men of the princes of the provinces, and they were two hundred and thirty-two. After them, he mustered all the people, even all the children of Israel, being seven thousand.

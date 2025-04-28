@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we bring you good tidings of the promise made unto the fathers,
+We bring you good news of the promise made to the fathers,

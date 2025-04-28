@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Thus and thus hath Micah dealt with me, and he hath hired me, and I am become his priest.
+He said to them, "Thus and thus has Micah dealt with me, and he has hired me, and I am become his priest."

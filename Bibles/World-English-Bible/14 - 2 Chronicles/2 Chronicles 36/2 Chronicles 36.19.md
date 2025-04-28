@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they burnt the house of God, and brake down the wall of Jerusalem, and burnt all the palaces thereof with fire, and destroyed all the goodly vessels thereof.
+They burnt the house of God, and broke down the wall of Jerusalem, and burnt all its palaces with fire, and destroyed all the goodly vessels of it.

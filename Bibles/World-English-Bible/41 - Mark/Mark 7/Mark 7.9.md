@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Full well do ye reject the commandment of God, that ye may keep your tradition.
+He said to them, "Full well do you reject the commandment of God, that you may keep your tradition.

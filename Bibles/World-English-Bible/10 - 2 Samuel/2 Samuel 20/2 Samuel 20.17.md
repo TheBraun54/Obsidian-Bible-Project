@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came near unto her; and the woman said, Art thou Joab? And he answered, I am. Then she said unto him, Hear the words of thy handmaid. And he answered, I do hear.
+He came near to her; and the woman said, "Are you Joab?" He answered, "I am." Then she said to him, "Hear the words of your handmaid." He answered, "I do hear."

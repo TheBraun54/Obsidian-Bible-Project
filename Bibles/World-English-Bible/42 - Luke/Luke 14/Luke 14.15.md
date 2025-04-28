@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when one of them that sat at meat with him heard these things, he said unto him, Blessed is he that shall eat bread in the kingdom of God.
+When one of those who sat at the table with him heard these things, he said to him, "Blessed is he who will feast in the Kingdom of God!"

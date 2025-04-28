@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the mean man is bowed down, and the great man is humbled, and the eyes of the lofty are humbled:
+So man is brought low, mankind is humbled, and the eyes of the arrogant ones are humbled;

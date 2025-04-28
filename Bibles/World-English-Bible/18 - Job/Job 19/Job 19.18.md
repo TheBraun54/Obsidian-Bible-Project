@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even young children despise me; If I arise, they speak against me.
+Even young children despise me. If I arise, they speak against me.

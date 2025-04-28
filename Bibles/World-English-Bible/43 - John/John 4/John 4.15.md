@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The woman saith unto him, Sir, give me this water, that I thirst not, neither come all the way hither to draw.
+The woman said to him, "Sir, give me this water, so that I don't get thirsty, neither come all the way here to draw."

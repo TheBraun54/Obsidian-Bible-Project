@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The right hand of Jehovah is exalted: The right hand of Jehovah doeth valiantly.
+The right hand of Yahweh is exalted! The right hand of Yahweh does valiantly!"

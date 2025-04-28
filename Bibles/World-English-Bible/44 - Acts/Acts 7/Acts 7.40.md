@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying unto Aaron, Make us gods that shall go before us: for as for this Moses, who led us forth out of the land of Egypt, we know not what is become of him.
+saying to Aaron, 'Make us gods that will go before us, for as for this Moses, who led us out of the land of Egypt, we don't know what has become of him.'

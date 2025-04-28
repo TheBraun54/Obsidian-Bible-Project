@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he shall not honor his father. And ye have made void the word of God because of your tradition.
+he shall not honor his father or mother.' You have made the commandment of God void because of your tradition.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto him, Man, who made me a judge or a divider over you?
+But he said to him, "Man, who made me a judge or an arbitrator over you?"

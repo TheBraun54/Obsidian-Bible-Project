@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He looseth the bond of kings, And he bindeth their loins with a girdle.
+He loosens the bond of kings. He binds their waist with a belt.

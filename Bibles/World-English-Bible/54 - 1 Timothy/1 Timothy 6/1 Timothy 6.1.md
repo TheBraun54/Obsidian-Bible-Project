@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let as many as are servants under the yoke count their own masters worthy of all honor, that the name of God and the doctrine be not blasphemed.
+Let as many as are bondservants under the yoke count their own masters worthy of all honor, that the name of God and the doctrine not be blasphemed.

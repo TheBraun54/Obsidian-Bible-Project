@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is his lovingkindness clean gone for ever? Doth his promise fail for evermore?
+Has his loving kindness vanished forever? Does his promise fail for generations?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they found among the inhabitants of Jabesh-gilead four hundred young virgins, that had not known man by lying with him; and they brought them unto the camp to Shiloh, which is in the land of Canaan.
+They found among the inhabitants of Jabesh Gilead four hundred young virgins, who had not known man by lying with him; and they brought them to the camp to Shiloh, which is in the land of Canaan.

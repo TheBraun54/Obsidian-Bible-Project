@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron shall cast lots upon the two goats; one lot for Jehovah, and the other lot for Azazel.
+Aaron shall cast lots for the two goats; one lot for Yahweh, and the other lot for the scapegoat.

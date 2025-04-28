@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts: Yet once, it is a little while, and I will shake the heavens, and the earth, and the sea, and the dry land;
+For this is what Yahweh of Armies says: 'Yet once, it is a little while, and I will shake the heavens, the earth, the sea, and the dry land;

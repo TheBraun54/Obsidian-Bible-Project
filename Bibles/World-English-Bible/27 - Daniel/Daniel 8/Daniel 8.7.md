@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw him come close unto the ram, and he was moved with anger against him, and smote the ram, and brake his two horns; and there was no power in the ram to stand before him; but he cast him down to the ground, and trampled upon him; and there was none that could deliver the ram out of his hand.
+I saw him come close to the ram, and he was moved with anger against him, and struck the ram, and broke his two horns; and there was no power in the ram to stand before him; but he cast him down to the ground, and trampled on him; and there was none who could deliver the ram out of his hand.

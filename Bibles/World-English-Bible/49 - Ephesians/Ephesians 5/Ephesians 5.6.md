@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let no man deceive you with empty words: for because of these things cometh the wrath of God upon the sons of disobedience.
+Let no one deceive you with empty words. For because of these things, the wrath of God comes on the children of disobedience.

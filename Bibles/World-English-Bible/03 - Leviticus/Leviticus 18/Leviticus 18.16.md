@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not uncover the nakedness of thy brother's wife: it is thy brother's nakedness.
+"'You shall not uncover the nakedness of your brother's wife: it is your brother's nakedness.

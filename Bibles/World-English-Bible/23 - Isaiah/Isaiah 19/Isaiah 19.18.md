@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day there shall be five cities in the land of Egypt that speak the language of Canaan, and swear to Jehovah of hosts; one shall be called The city of destruction.
+In that day, there will be five cities in the land of Egypt that speak the language of Canaan, and swear to Yahweh of Armies. One will be called "The city of destruction."

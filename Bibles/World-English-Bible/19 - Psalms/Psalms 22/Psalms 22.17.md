@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I may count all my bones; They look and stare upon me.
+I can count all of my bones. They look and stare at me.

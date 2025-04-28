@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they may all be one; even as thou, Father, [art] in me, and I in thee, that they also may be in us: that the world may believe that thou didst send me.
+that they may all be one; even as you, Father, are in me, and I in you, that they also may be one in us; that the world may believe that you sent me.

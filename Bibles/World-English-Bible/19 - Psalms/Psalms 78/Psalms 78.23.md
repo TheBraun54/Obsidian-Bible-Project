@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet he commanded the skies above, And opened the doors of heaven;
+Yet he commanded the skies above, and opened the doors of heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt put the whole upon the hands of Aaron, and upon the hands of his sons, and shalt wave them for a wave-offering before Jehovah.
+You shall put all of this in Aaron's hands, and in his sons' hands, and shall wave them for a wave offering before Yahweh.

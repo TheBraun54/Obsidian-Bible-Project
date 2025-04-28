@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and bringeth it not unto the door of the tent of meeting, to sacrifice it unto Jehovah; that man shall be cut off from his people.
+and doesn't bring it to the door of the Tent of Meeting, to sacrifice it to Yahweh; that man shall be cut off from his people.

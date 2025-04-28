@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she arose at midnight, and took my son from beside me, while thy handmaid slept, and laid it in her bosom, and laid her dead child in my bosom.
+She arose at midnight, and took my son from beside me, while your handmaid slept, and laid it in her bosom, and laid her dead child in my bosom.

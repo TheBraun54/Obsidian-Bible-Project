@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also I said, The thing that ye do is not good: ought ye not to walk in the fear of our God, because of the reproach of the nations our enemies?
+Also I said, "The thing that you do is not good. Ought you not to walk in the fear of our God, because of the reproach of the nations our enemies?

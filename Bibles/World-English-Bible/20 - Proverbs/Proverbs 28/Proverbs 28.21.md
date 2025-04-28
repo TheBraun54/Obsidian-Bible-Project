@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To have respect of persons is not good; Neither that a man should transgress for a piece of bread.
+To show partiality is not good; yet a man will do wrong for a piece of bread.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the last it biteth like a serpent, And stingeth like an adder.
+In the end, it bites like a snake, and poisons like a viper.

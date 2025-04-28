@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David and all the house of Israel brought up the ark of Jehovah with shouting, and with the sound of the trumpet.
+So David and all the house of Israel brought up the ark of Yahweh with shouting, and with the sound of the trumpet.

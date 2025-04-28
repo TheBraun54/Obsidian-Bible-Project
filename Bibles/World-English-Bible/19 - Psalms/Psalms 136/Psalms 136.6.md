@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that spread forth the earth above the waters; For his lovingkindness [endureth] for ever:
+To him who spread out the earth above the waters; for his loving kindness endures forever:

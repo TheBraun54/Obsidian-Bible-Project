@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw, when, for this very cause that backsliding Israel had committed adultery, I had put her away and given her a bill of divorcement, yet treacherous Judah her sister feared not; but she also went and played the harlot.
+I saw, when, for this very cause that backsliding Israel had committed adultery, I had put her away and given her a bill of divorce, yet treacherous Judah, her sister, didn't fear; but she also went and played the prostitute.

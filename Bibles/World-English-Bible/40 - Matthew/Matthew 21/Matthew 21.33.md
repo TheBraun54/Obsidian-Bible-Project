@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear another parable: There was a man that was a householder, who planted a vineyard, and set a hedge about it, and digged a winepress in it, and built a tower, and let it out to husbandmen, and went into another country.
+"Hear another parable. There was a man who was a master of a household, who planted a vineyard, set a hedge about it, dug a winepress in it, built a tower, leased it out to farmers, and went into another country.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that encamp on the east side toward the sunrising shall be they of the standard of the camp of Judah, according to their hosts: and the prince of the children of Judah shall be Nahshon the son of Amminadab.
+Those who encamp on the east side toward the sunrise shall be of the standard of the camp of Judah, according to their divisions: and the prince of the children of Judah shall be Nahshon the son of Amminadab.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, My strength is perished, and mine expectation from Jehovah.
+I said, My strength is perished, and my expectation from Yahweh.

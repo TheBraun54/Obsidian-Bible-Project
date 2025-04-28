@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest of the Jews dissembled likewise with him; insomuch that even Barnabas was carried away with their dissimulation.
+And the rest of the Jews joined him in his hypocrisy; so that even Barnabas was carried away with their hypocrisy.

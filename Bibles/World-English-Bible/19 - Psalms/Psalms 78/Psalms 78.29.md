@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they did eat, and were well filled; And he gave them their own desire.
+So they ate, and were well filled. He gave them their own desire.

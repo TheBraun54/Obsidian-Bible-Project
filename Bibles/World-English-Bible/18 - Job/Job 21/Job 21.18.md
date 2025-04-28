@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That they are as stubble before the wind, And as chaff that the storm carrieth away?
+How often is it that they are as stubble before the wind, as chaff that the storm carries away?

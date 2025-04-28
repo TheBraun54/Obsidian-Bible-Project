@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are exalted; yet a little while, and they are gone; Yea, they are brought low, they are taken out of the way as all others, And are cut off as the tops of the ears of grain.
+They are exalted; yet a little while, and they are gone. Yes, they are brought low, they are taken out of the way as all others, and are cut off as the tops of the ears of grain.

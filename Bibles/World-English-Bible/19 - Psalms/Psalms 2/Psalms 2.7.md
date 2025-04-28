@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will tell of the decree: Jehovah said unto me, Thou art my son; This day have I begotten thee.
+I will tell of the decree. Yahweh said to me, "You are my son. Today I have become your father.

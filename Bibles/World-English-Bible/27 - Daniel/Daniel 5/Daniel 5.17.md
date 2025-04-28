@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Daniel answered and said before the king, Let thy gifts be to thyself, and give thy rewards to another; nevertheless I will read the writing unto the king, and make known to him the interpretation.
+Then Daniel answered before the king, Let your gifts be to yourself, and give your rewards to another; nevertheless I will read the writing to the king, and make known to him the interpretation.

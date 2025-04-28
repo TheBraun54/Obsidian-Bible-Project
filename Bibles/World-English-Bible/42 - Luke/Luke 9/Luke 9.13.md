@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto them, Give ye them to eat. And they said, We have no more than five loaves and two fishes; except we should go and buy food for all this people.
+But he said to them, "You give them something to eat." They said, "We have no more than five loaves and two fish, unless we should go and buy food for all these people."

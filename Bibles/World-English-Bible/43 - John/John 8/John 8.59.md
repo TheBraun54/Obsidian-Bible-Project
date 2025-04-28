@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They took up stones therefore to cast at him: but Jesus hid himself, and went out of the temple.
+Therefore they took up stones to throw at him, but Jesus was hidden, and went out of the temple, having gone through the midst of them, and so passed by.

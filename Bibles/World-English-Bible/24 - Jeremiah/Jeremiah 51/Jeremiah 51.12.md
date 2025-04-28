@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set up a standard against the walls of Babylon, make the watch strong, set the watchmen, prepare the ambushes; for Jehovah hath both purposed and done that which he spake concerning the inhabitants of Babylon.
+Set up a standard against the walls of Babylon, make the watch strong, set the watchmen, prepare the ambushes; for Yahweh has both purposed and done that which he spoke concerning the inhabitants of Babylon.

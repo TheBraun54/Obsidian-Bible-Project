@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And reckonest thou this, O man, who judgest them that practise such things, and doest the same, that thou shalt escape the judgment of God?
+Do you think this, O man who judges those who practice such things, and do the same, that you will escape the judgment of God?

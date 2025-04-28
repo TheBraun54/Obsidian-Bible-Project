@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, We are come down to bind thee, that we may deliver thee into the hand of the Philistines. And Samson said unto them, Swear unto me, that ye will not fall upon me yourselves.
+They said to him, "We have come down to bind you, that we may deliver you into the hand of the Philistines." Samson said to them, "Swear to me that you will not fall on me yourselves."

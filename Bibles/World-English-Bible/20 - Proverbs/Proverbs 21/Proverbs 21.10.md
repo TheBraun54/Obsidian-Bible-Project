@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The soul of the wicked desireth evil: His neighbor findeth no favor in his eyes.
+The soul of the wicked desires evil; his neighbor finds no mercy in his eyes.

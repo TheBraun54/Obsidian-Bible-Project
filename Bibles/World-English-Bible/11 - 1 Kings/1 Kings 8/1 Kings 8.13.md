@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have surely built thee a house of habitation, a place for thee to dwell in for ever.
+I have surely built you a house of habitation, a place for you to dwell in forever."

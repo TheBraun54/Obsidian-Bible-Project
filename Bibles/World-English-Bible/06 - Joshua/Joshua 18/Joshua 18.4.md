@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Appoint for you three men of each tribe: and I will send them, and they shall arise, and walk through the land, and describe it according to their inheritance; and they shall come unto me.
+Appoint for yourselves three men from each tribe. I will send them, and they shall arise, walk through the land, and describe it according to their inheritance; and they shall come to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember not the sins of my youth, nor my transgressions: According to thy lovingkindness remember thou me, For thy goodness' sake, O Jehovah.
+Don't remember the sins of my youth, nor my transgressions. Remember me according to your loving kindness, for your goodness' sake, Yahweh.

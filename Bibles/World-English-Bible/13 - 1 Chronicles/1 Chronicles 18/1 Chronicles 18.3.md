@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David smote Hadarezer king of Zobah unto Hamath, as he went to establish his dominion by the river Euphrates.
+David struck Hadadezer king of Zobah to Hamath, as he went to establish his dominion by the river Euphrates.

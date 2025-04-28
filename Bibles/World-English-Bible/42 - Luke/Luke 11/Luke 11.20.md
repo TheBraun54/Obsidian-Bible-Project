@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if I by the finger of God cast out demons, then is the kingdom of God come upon you.
+But if I by the finger of God cast out demons, then the Kingdom of God has come to you.

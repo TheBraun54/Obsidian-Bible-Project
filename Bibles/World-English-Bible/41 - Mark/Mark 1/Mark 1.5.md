@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went out unto him all the country of Judaea, and all they of Jerusalem; And they were baptized of him in the river Jordan, confessing their sins.
+All the country of Judea and all those of Jerusalem went out to him. They were baptized by him in the Jordan river, confessing their sins.

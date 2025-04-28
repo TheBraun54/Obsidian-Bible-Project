@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who both killed the Lord Jesus and the prophets, and drove out us, and pleased not God, and are contrary to all men;
+who killed both the Lord Jesus and their own prophets, and drove us out, and didn't please God, and are contrary to all men;

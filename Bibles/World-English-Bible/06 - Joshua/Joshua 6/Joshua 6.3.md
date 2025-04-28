@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall compass the city, all the men of war, going about the city once. Thus shalt thou do six days.
+All your men of war shall march around the city, going around the city once. You shall do this six days.

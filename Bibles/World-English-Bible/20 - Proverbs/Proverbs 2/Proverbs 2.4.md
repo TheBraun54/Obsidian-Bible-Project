@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou seek her as silver, And search for her as for hid treasures:
+If you seek her as silver, and search for her as for hidden treasures:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall be unto you a sabbath of solemn rest, and ye shall afflict your souls: in the ninth day of the month at even, from even unto even, shall ye keep your sabbath.
+It shall be a Sabbath of solemn rest for you, and you shall deny yourselves. In the ninth day of the month at evening, from evening to evening, you shall keep your Sabbath."

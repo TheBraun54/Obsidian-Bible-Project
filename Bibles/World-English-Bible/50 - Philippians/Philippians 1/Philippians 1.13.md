@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that my bonds became manifest in Christ throughout the whole praetorian guard, and to all the rest;
+so that it became evident to the whole palace guard, and to all the rest, that my bonds are in Christ;

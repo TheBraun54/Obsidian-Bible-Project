@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man of God sent unto the king of Israel, saying, Beware that thou pass not such a place; for thither the Syrians are coming down.
+The man of God sent to the king of Israel, saying, "Beware that you not pass such a place; for the Syrians are coming down there."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when thou makest a feast, bid the poor, the maimed, the lame, the blind:
+But when you make a feast, ask the poor, the maimed, the lame, or the blind;

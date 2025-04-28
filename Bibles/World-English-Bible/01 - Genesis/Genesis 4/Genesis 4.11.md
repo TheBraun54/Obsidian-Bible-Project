@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now cursed art thou from the ground, which hath opened its mouth to receive thy brother's blood from thy hand;
+Now you are cursed because of the ground, which has opened its mouth to receive your brother's blood from your hand.

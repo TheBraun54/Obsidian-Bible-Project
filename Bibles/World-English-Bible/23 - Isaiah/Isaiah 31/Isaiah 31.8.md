@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Assyrian shall fall by the sword, not of man; and the sword, not of men, shall devour him; and he shall flee from the sword, and his young men shall become subject to taskwork.
+"The Assyrian will fall by the sword, not of man; and the sword, not of mankind, shall devour him. He will flee from the sword, and his young men will become subject to forced labor.

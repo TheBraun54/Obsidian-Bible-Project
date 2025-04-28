@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jonathan unto David, Whatsoever thy soul desireth, I will even do it for thee.
+Then Jonathan said to David, "Whatever your soul desires, I will even do it for you."

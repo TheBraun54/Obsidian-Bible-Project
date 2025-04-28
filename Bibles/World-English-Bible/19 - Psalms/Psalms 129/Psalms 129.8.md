@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither do they that go by say, The blessing of Jehovah be upon you; We bless you in the name of Jehovah.
+Neither do those who go by say, "The blessing of Yahweh be on you. We bless you in the name of Yahweh." A Song of Ascents.

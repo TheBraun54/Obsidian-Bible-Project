@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whose home I have made the wilderness, And the salt land his dwelling-place?
+Whose home I have made the wilderness, and the salt land his dwelling place?

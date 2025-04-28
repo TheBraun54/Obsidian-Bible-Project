@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the prophets, Haggai the prophet, and Zechariah the son of Iddo, prophesied unto the Jews that were in Judah and Jerusalem; in the name of the God of Israel [prophesied they] unto them.
+Now the prophets, Haggai the prophet, and Zechariah the son of Iddo, prophesied to the Jews who were in Judah and Jerusalem; in the name of the God of Israel [prophesied they] to them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As therefore ye received Christ Jesus the Lord, [so] walk in him,
+As therefore you received Christ Jesus, the Lord, walk in him,

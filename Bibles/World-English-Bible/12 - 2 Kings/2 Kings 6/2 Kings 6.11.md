@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the heart of the king of Syria was sore troubled for this thing; and he called his servants, and said unto them, Will ye not show me which of us is for the king of Israel?
+The heart of the king of Syria was very troubled about this. He called his servants, and said to them, "Won't you show me which of us is for the king of Israel?"

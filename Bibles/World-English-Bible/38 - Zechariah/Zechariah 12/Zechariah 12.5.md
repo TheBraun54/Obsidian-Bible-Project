@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chieftains of Judah shall say in their heart, The inhabitants of Jerusalem are my strength in Jehovah of hosts their God.
+The chieftains of Judah will say in their heart, 'The inhabitants of Jerusalem are my strength in Yahweh of Armies their God.'

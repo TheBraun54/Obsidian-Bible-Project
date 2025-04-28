@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The merchants among the peoples hiss at thee; thou art become a terror, and thou shalt nevermore have any being.
+The merchants among the peoples hiss at you; you are become a terror, and you shall nevermore have any being.

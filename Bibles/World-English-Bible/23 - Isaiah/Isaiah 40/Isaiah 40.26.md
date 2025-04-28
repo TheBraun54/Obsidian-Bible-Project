@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up your eyes on high, and see who hath created these, that bringeth out their host by number; he calleth them all by name; by the greatness of his might, and for that he is strong in power, not one is lacking.
+Lift up your eyes on high, and see who has created these, who brings out their army by number. He calls them all by name. by the greatness of his might, and because he is strong in power, Not one is lacking.

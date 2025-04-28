@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when they had brought them forth abroad, that he said, Escape for thy life; look not behind thee, neither stay thou in all the Plain; escape to the mountain, lest thou be consumed.
+It came to pass, when they had taken them out, that he said, "Escape for your life! Don't look behind you, and don't stay anywhere in the plain. Escape to the mountains, lest you be consumed!"

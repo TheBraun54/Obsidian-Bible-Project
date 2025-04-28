@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, Blessed be ye of Jehovah; for ye have had compassion on me.
+Saul said, "You are blessed by Yahweh; for you have had compassion on me.

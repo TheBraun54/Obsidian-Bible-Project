@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But many shall be last [that are] first; and first [that are] last.
+But many will be last who are first; and first who are last.

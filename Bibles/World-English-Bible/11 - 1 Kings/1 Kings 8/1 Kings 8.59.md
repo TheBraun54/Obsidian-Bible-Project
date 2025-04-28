@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let these my words, wherewith I have made supplication before Jehovah, be nigh unto Jehovah our God day and night, that he maintain the cause of his servant, and the cause of his people Israel, as every day shall require;
+Let these my words, with which I have made supplication before Yahweh, be near to Yahweh our God day and night, that he may maintain the cause of his servant, and the cause of his people Israel, as every day shall require;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the eighth day Gamaliel the son of Pedahzur, prince of the children of Manasseh:
+On the eighth day Gamaliel the son of Pedahzur, prince of the children of Manasseh

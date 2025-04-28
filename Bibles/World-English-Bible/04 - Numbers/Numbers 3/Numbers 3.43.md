@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the first-born males according to the number of names, from a month old and upward, of those that were numbered of them, were twenty and two thousand two hundred and threescore and thirteen.
+All the firstborn males according to the number of names, from a month old and upward, of those who were numbered of them, were twenty-two thousand two hundred seventy-three.

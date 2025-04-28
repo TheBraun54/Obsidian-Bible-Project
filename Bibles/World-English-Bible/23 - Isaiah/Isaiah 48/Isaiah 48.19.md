@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thy seed also had been as the sand, and the offspring of thy bowels like the grains thereof: his name would not be cut off nor destroyed from before me.
+your seed also had been as the sand, and the offspring of your body like its grains: his name would not be cut off nor destroyed from before me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who also sealed us, and gave [us] the earnest of the Spirit in our hearts.
+who also sealed us, and gave us the down payment of the Spirit in our hearts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou broughtest a vine out of Egypt: Thou didst drive out the nations, and plantedst it.
+You brought a vine out of Egypt. You drove out the nations, and planted it.

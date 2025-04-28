@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath an ear, let him hear what the Spirit saith to the churches.
+He who has an ear, let him hear what the Spirit says to the assemblies."

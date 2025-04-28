@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For neither from the east, nor from the west, Nor yet from the south, [cometh] lifting up.
+For neither from the east, nor from the west, nor yet from the south, comes exaltation.

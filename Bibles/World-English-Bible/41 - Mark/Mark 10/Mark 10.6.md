@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But from the beginning of the creation, Male and female made he them.
+But from the beginning of the creation, God made them male and female.

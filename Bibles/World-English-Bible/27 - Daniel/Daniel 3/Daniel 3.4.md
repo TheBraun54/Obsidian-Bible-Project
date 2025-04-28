@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the herald cried aloud, To you it is commanded, O peoples, nations, and languages,
+Then the herald cried aloud, To you it is commanded, peoples, nations, and languages,

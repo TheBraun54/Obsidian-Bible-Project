@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom I would fain have kept with me, that in thy behalf he might minister unto me in the bonds of the gospel:
+whom I desired to keep with me, that on your behalf he might serve me in my chains for the Good News.

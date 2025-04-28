@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man shall lie with his uncle's wife, he hath uncovered his uncle's nakedness: they shall bear their sin; they shall die childless.
+If a man lies with his uncle's wife, he has uncovered his uncle's nakedness: they shall bear their sin; they shall die childless.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Epaphras, who is one of you, a servant of Christ Jesus, saluteth you, always striving for you in his prayers, that ye may stand perfect and fully assured in all the will of God.
+Epaphras, who is one of you, a servant of Christ, salutes you, always striving for you in his prayers, that you may stand perfect and complete in all the will of God.

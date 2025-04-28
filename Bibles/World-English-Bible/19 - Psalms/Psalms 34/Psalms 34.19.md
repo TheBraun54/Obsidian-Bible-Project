@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many are the afflictions of the righteous; But Jehovah delivereth him out of them all.
+Many are the afflictions of the righteous, but Yahweh delivers him out of them all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sheol and Abaddon are before Jehovah: How much more then the hearts of the children of men!
+Sheol and Abaddon are before Yahweh-- how much more then the hearts of the children of men!

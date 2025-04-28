@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then began he to upbraid the cities wherein most of his mighty works were done, because they repented not.
+Then he began to denounce the cities in which most of his mighty works had been done, because they didn't repent.

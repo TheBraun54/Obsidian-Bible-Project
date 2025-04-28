@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every one that hath left houses, or brethren, or sisters, or father, or mother, or children, or lands, for my name's sake, shall receive a hundredfold, and shall inherit eternal life.
+Everyone who has left houses, or brothers, or sisters, or father, or mother, or wife, or children, or lands, for my name's sake, will receive one hundred times, and will inherit eternal life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then after the space of fourteen years I went up again to Jerusalem with Barnabas, taking Titus also with me.
+Then after a period of fourteen years I went up again to Jerusalem with Barnabas, taking Titus also with me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for all the sins of Baasha, and the sins of Elah his son, which they sinned, and wherewith they made Israel to sin, to provoke Jehovah, the God of Israel, to anger with their vanities.
+for all the sins of Baasha, and the sins of Elah his son, which they sinned, and with which they made Israel to sin, to provoke Yahweh, the God of Israel, to anger with their vanities.

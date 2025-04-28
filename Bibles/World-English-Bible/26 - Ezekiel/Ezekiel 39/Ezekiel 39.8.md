@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, it cometh, and it shall be done, saith the Lord Jehovah; this is the day whereof I have spoken.
+Behold, it comes, and it shall be done, says the Lord Yahweh; this is the day about which I have spoken.

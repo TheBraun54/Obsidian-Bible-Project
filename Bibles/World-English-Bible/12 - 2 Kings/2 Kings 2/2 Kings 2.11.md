@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as they still went on, and talked, that, behold, [there appeared] a chariot of fire, and horses of fire, which parted them both asunder; and Elijah went up by a whirlwind into heaven.
+It happened, as they still went on, and talked, that behold, a chariot of fire and horses of fire separated them; and Elijah went up by a whirlwind into heaven.

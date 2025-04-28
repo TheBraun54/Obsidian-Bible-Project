@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that lieth with his sister, the daughter of his father, or the daughter of his mother. And all the people shall say, Amen.
+'Cursed is he who lies with his sister, the daughter of his father, or the daughter of his mother.' All the people shall say, 'Amen.'

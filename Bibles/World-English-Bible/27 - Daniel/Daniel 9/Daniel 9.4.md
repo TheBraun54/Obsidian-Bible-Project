@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I prayed unto Jehovah my God, and made confession, and said, Oh, Lord, the great and dreadful God, who keepeth covenant and lovingkindness with them that love him and keep his commandments,
+I prayed to Yahweh my God, and made confession, and said, Oh, Lord, the great and dreadful God, who keeps covenant and loving kindness with those who love him and keep his commandments,

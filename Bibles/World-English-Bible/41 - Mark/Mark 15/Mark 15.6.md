@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now at the feast he used to release unto them one prisoner, whom they asked of him.
+Now at the feast he used to release to them one prisoner, whom they asked of him.

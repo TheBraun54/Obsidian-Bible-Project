@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, give me thy heart; And let thine eyes delight in my ways.
+My son, give me your heart; and let your eyes keep in my ways.

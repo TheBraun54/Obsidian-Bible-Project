@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The peoples have heard, they tremble: Pangs have taken hold on the inhabitants of Philistia.
+The peoples have heard. They tremble. Pangs have taken hold on the inhabitants of Philistia.

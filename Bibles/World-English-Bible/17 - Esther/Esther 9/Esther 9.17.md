@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ This was done] on the thirteenth day of the month Adar; and on the fourteenth day of the same they rested, and made it a day of feasting and gladness.
+This was done on the thirteenth day of the month Adar; and on the fourteenth day of that month they rested and made it a day of feasting and gladness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king put Benaiah the son of Jehoiada in his room over the host; and Zadok the priest did the king put in the room of Abiathar.
+The king put Benaiah the son of Jehoiada in his place over the army; and Zadok the priest did the king put in the place of Abiathar.

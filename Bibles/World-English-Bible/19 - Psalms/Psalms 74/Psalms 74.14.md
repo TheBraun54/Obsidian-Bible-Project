@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou brakest the heads of leviathan in pieces; Thou gavest him to be food to the people inhabiting the wilderness.
+You broke the heads of Leviathan in pieces. You gave him as food to people and desert creatures.

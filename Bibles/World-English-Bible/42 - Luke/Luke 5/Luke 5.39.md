@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no man having drunk old [wine] desireth new; for he saith, The old is good.
+No man having drunk old wine immediately desires new, for he says, 'The old is better.'"

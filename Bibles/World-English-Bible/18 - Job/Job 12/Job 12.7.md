@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ask now the beasts, and they shall teach thee; And the birds of the heavens, and they shall tell thee:
+"But ask the animals, now, and they shall teach you; the birds of the sky, and they shall tell you.

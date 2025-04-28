@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Judah said, Why are ye come up against us? And they said, To bind Samson are we come up, to do to him as he hath done to us.
+The men of Judah said, "Why have you come up against us?" They said, "We have come up to bind Samson, to do to him as he has done to us."

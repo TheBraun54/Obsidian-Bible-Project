@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus heard that they had cast him out; and finding him, he said, Dost thou believe on the Son of God?
+Jesus heard that they had thrown him out, and finding him, he said, "Do you believe in the Son of God?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for if ye live after the flesh, ye must die; but if by the Spirit ye put to death the deeds of the body, ye shall live.
+For if you live after the flesh, you must die; but if by the Spirit you put to death the deeds of the body, you will live.

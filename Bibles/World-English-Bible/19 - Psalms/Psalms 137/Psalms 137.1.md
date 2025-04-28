@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the rivers of Babylon, There we sat down, yea, we wept, When we remembered Zion.
+By the rivers of Babylon, there we sat down. Yes, we wept, when we remembered Zion.

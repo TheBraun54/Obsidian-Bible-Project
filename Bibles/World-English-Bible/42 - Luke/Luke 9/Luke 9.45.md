@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they understood not this saying, and it was concealed from them, that they should not perceive it; and they were afraid to ask him about this saying.
+But they didn't understand this saying. It was concealed from them, that they should not perceive it, and they were afraid to ask him about this saying.

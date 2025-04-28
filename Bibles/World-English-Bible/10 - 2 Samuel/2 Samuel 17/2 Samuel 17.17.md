@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jonathan and Ahimaaz were staying by En-rogel; and a maid-servant used to go and tell them; and they went and told king David: for they might not be seen to come into the city.
+Now Jonathan and Ahimaaz were staying by En Rogel; and a female servant used to go and tell them; and they went and told king David. For they might not be seen to come into the city.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built altars for all the host of heaven in the two courts of the house of Jehovah.
+He built altars for all the army of the sky in the two courts of the house of Yahweh.

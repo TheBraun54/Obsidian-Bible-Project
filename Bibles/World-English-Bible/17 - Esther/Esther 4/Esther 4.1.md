@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Mordecai knew all that was done, Mordecai rent his clothes, and put on sackcloth with ashes, and went out into the midst of the city, and cried with a loud and a bitter cry;
+Now when Mordecai found out all that was done, Mordecai tore his clothes, and put on sackcloth with ashes, and went out into the midst of the city, and wailed loudly and a bitterly.

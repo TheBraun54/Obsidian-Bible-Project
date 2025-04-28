@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every city fleeth for the noise of the horsemen and bowmen; they go into the thickets, and climb up upon the rocks: every city is forsaken, and not a man dwelleth therein.
+Every city flees for the noise of the horsemen and archers; they go into the thickets, and climb up on the rocks: every city is forsaken, and not a man dwells therein.

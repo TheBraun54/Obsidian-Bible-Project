@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Asher, were forty and one thousand and five hundred.
+those who were numbered of them, of the tribe of Asher, were forty-one thousand five hundred.

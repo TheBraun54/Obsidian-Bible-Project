@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Strive to enter in by the narrow door: for many, I say unto you, shall seek to enter in, and shall not be able.
+"Strive to enter in by the narrow door, for many, I tell you, will seek to enter in, and will not be able.

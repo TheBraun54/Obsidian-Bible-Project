@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ziklag, and Madmannah, and Sansannah,
+Ziklag, Madmannah, Sansannah,

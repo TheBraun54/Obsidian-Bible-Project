@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of the children whom he had in Jerusalem: Shammua, and Shobab, Nathan, and Solomon,
+These are the names of the children whom he had in Jerusalem: Shammua, and Shobab, Nathan, and Solomon,

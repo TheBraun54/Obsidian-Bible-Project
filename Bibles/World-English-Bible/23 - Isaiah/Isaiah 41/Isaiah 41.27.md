@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ I am the] first [that saith] unto Zion, Behold, behold them; and I will give to Jerusalem one that bringeth good tidings.
+I am the first to say to Zion, 'Behold, look at them;' and I will give one who brings good news to Jerusalem.

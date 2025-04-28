@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Simon answered and said, Master, we toiled all night, and took nothing: but at thy word I will let down the nets.
+Simon answered him, "Master, we worked all night, and took nothing; but at your word I will let down the net."

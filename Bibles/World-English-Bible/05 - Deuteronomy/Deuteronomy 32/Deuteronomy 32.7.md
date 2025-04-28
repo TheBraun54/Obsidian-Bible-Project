@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember the days of old, Consider the years of many generations: Ask thy father, and he will show thee; Thine elders, and they will tell thee.
+Remember the days of old. Consider the years of many generations. Ask your father, and he will show you; your elders, and they will tell you.

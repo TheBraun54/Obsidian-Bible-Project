@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Everything that openeth the womb, of all flesh which they offer unto Jehovah, both of man and beast shall be thine: nevertheless the first-born of man shalt thou surely redeem, and the firstling of unclean beasts shalt thou redeem.
+Everything that opens the womb, of all flesh which they offer to Yahweh, both of man and animal shall be yours: nevertheless you shall surely redeem the firstborn of man, and you shall redeem the firstborn of unclean animals.

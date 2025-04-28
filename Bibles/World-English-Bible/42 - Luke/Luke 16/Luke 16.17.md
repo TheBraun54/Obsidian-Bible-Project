@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it is easier for heaven and earth to pass away, than for one tittle of the law to fall.
+But it is easier for heaven and earth to pass away, than for one tiny stroke of a pen in the law to fall.

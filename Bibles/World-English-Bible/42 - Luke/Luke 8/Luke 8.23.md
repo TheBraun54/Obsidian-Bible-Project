@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as they sailed he fell asleep: and there came down a storm of wind on the lake; and they were filling [with water], and were in jeopardy.
+But as they sailed, he fell asleep. A wind storm came down on the lake, and they were taking on dangerous amounts of water.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in every province, and in every city, whithersoever the king's commandment and his decree came, the Jews had gladness and joy, a feast and a good day. And many from among the peoples of the land became Jews; for the fear of the Jews was fallen upon them.
+In every province, and in every city, wherever the king's commandment and his decree came, the Jews had gladness, joy, a feast, and a good day. Many from among the peoples of the land became Jews; for the fear of the Jews was fallen on them.

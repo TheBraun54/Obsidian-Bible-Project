@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the men of the army whom Amaziah sent back, that they should not go with him to battle, fell upon the cities of Judah, from Samaria even unto Beth-horon, and smote of them three thousand, and took much spoil.
+But the men of the army whom Amaziah sent back, that they should not go with him to battle, fell on the cities of Judah, from Samaria even to Beth Horon, and struck of them three thousand, and took much spoil.

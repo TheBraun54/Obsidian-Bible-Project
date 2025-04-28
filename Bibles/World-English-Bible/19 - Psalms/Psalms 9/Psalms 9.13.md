@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have mercy upon me, O Jehovah; Behold my affliction [which I suffer] of them that hate me, Thou that liftest me up from the gates of death;
+Have mercy on me, Yahweh. See my affliction by those who hate me, and lift me up from the gates of death;

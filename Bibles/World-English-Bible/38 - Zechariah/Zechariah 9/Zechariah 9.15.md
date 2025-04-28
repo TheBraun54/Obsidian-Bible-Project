@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts will defend them; and they shall devour, and shall tread down the sling-stones; and they shall drink, and make a noise as through wine; and they shall be filled like bowls, like the corners of the altar.
+Yahweh of Armies will defend them; and they will destroy and overcome with sling stones; and they will drink, and roar as through wine; and they will be filled like bowls, like the corners of the altar.

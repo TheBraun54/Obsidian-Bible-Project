@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the house of Israel rebelled against me in the wilderness: they walked not in my statutes, and they rejected mine ordinances, which if a man keep, he shall live in them; and my sabbaths they greatly profaned. Then I said I would pour out my wrath upon them in the wilderness, to consume them.
+But the house of Israel rebelled against me in the wilderness: they didn't walk in my statutes, and they rejected my ordinances, which if a man keep, he shall live in them; and my Sabbaths they greatly profaned. Then I said I would pour out my wrath on them in the wilderness, to consume them.

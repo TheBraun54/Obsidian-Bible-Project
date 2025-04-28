@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I discerned, and, lo, God had not sent him; but he pronounced this prophecy against me: and Tobiah and Sanballat had hired him.
+I discerned, and behold, God had not sent him; but he pronounced this prophecy against me. Tobiah and Sanballat had hired him.

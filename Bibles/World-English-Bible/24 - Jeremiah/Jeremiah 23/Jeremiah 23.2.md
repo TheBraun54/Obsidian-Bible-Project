@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah, the God of Israel, against the shepherds that feed my people: Ye have scattered my flock, and driven them away, and have not visited them; behold, I will visit upon you the evil of your doings, saith Jehovah.
+Therefore thus says Yahweh, the God of Israel, against the shepherds who feed my people: You have scattered my flock, and driven them away, and have not visited them; behold, I will visit on you the evil of your doings, says Yahweh.

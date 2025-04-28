@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The spirit of man is the lamp of Jehovah, Searching all his innermost parts.
+The spirit of man is Yahweh's lamp, searching all his innermost parts.

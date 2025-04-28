@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which in its own times he shall show, who is the blessed and only Potentate, the King of kings, and Lord of lords;
+which in its own times he will show, who is the blessed and only Ruler, the King of kings, and Lord of lords;

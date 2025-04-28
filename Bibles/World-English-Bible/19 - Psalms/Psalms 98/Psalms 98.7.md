@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the sea roar, and the fulness thereof; The world, and they that dwell therein;
+Let the sea roar with its fullness; the world, and those who dwell therein.

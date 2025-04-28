@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's elect, and the knowledge of the truth which is according to godliness,
+Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's chosen ones, and the knowledge of the truth which is according to godliness,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, he that believeth on me, the works that I do shall he do also; and greater [works] than these shall he do; because I go unto the Father.
+Most certainly I tell you, he who believes in me, the works that I do, he will do also; and he will do greater works than these, because I am going to my Father.

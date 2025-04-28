@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway the man was made whole, and took up his bed and walked. Now it was the sabbath on that day.
+Immediately, the man was made well, and took up his mat and walked. Now it was the Sabbath on that day.

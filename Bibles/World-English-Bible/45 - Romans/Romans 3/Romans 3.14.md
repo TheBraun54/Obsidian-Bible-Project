@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whose mouth is full of cursing and bitterness:
+"whose mouth is full of cursing and bitterness."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he that is courageous among the mighty shall flee away naked in that day, saith Jehovah.
+and he who is courageous among the mighty will flee away naked on that day," says Yahweh.

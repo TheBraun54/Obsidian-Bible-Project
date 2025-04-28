@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that encamp before the tabernacle eastward, before the tent of meeting toward the sunrising, shall be Moses, and Aaron and his sons, keeping the charge of the sanctuary for the charge of the children of Israel; and the stranger that cometh nigh shall be put to death.
+Those who encamp before the tabernacle eastward, in front of the Tent of Meeting toward the sunrise, shall be Moses, and Aaron and his sons, keeping the requirements of the sanctuary for the duty of the children of Israel. The stranger who comes near shall be put to death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came to the hill, he took them from their hand, and bestowed them in the house; and he let the men go, and they departed.
+When he came to the hill, he took them from their hand, and stored them in the house. Then he let the men go, and they departed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The deeps cover them: They went down into the depths like a stone.
+The deeps cover them. They went down into the depths like a stone.

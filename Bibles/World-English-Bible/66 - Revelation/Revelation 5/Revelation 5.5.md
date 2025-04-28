@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and one of the elders saith unto me, Weep not; behold, the Lion that is of the tribe of Judah, the Root of David, hath overcome to open the book and the seven seals thereof.
+One of the elders said to me, "Don't weep. Behold, the Lion who is of the tribe of Judah, the Root of David, has overcome; he who opens the book and its seven seals."

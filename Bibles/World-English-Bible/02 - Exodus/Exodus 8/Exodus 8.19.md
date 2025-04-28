@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the magicians said unto Pharaoh, This is the finger of God: and Pharaoh's heart was hardened, and he hearkened not unto them; as Jehovah had spoken.
+Then the magicians said to Pharaoh, "This is the finger of God:" and Pharaoh's heart was hardened, and he didn't listen to them; as Yahweh had spoken.

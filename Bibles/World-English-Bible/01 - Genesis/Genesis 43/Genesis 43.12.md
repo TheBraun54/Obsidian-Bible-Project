@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and take double money in your hand; and the money that was returned in the mouth of your sacks carry again in your hand; peradventure it was an oversight:
+and take double money in your hand, and take back the money that was returned in the mouth of your sacks. Perhaps it was an oversight.

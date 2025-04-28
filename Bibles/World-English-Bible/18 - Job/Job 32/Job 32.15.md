@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are amazed, they answer no more: They have not a word to say.
+"They are amazed. They answer no more. They don't have a word to say.

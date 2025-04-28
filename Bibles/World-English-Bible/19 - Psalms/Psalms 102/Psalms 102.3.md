@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my days consume away like smoke, And my bones are burned as a firebrand.
+For my days consume away like smoke. My bones are burned as a torch.

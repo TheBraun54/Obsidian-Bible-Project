@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear thou, my son, and be wise, And guide thy heart in the way.
+Listen, my son, and be wise, and keep your heart on the right path!

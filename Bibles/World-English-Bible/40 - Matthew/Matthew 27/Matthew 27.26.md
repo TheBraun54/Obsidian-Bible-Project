@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then released he unto them Barabbas; but Jesus he scourged and delivered to be crucified.
+Then he released to them Barabbas, but Jesus he flogged and delivered to be crucified.

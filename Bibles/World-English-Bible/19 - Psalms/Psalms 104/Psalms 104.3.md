@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who layeth the beams of his chambers in the waters; Who maketh the clouds his chariot; Who walketh upon the wings of the wind;
+He lays the beams of his rooms in the waters. He makes the clouds his chariot. He walks on the wings of the wind.

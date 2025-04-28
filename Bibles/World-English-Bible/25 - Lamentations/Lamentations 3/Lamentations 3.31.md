@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Lord will not cast off for ever.
+For the Lord will not cast off forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They gather themselves together, they hide themselves, They mark my steps, Even as they have waited for my soul.
+They conspire and lurk, watching my steps, they are eager to take my life.

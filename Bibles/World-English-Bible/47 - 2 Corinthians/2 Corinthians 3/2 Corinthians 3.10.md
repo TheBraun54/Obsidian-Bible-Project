@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For verily that which hath been made glorious hath not been made glorious in this respect, by reason of the glory that surpasseth.
+For most certainly that which has been made glorious has not been made glorious in this respect, by reason of the glory that surpasses.

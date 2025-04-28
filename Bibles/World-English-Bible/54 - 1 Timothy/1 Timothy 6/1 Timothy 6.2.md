@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that have believing masters, let them not despise them, because they are brethren; but let them serve them the rather, because they that partake of the benefit are believing and beloved. These things teach and exhort.
+Those who have believing masters, let them not despise them, because they are brothers, but rather let them serve them, because those who partake of the benefit are believing and beloved. Teach and exhort these things.

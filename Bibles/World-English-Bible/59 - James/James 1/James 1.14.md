@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but each man is tempted, when he is drawn away by his own lust, and enticed.
+But each one is tempted, when he is drawn away by his own lust, and enticed.

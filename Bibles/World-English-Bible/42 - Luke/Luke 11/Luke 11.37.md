@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now as he spake, a Pharisee asketh him to dine with him: and he went in, and sat down to meat.
+Now as he spoke, a certain Pharisee asked him to dine with him. He went in, and sat at the table.

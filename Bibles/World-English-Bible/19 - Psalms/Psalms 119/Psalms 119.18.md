@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Open thou mine eyes, that I may behold Wondrous things out of thy law.
+Open my eyes, that I may see wondrous things out of your law.

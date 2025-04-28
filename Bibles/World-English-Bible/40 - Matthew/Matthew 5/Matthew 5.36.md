@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shalt thou swear by thy head, for thou canst not make one hair white or black.
+Neither shall you swear by your head, for you can't make one hair white or black.

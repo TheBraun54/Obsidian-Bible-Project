@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were beams in three rows, and window was over against window in three ranks.
+There were beams in three rows, and window was over against window in three ranks.

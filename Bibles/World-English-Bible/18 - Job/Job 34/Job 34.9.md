@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath said, It profiteth a man nothing That he should delight himself with God.
+For he has said, 'It profits a man nothing that he should delight himself with God.'

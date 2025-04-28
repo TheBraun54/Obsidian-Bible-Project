@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there set forth from thence of the family of the Danites, out of Zorah and out of Eshtaol, six hundred men girt with weapons of war.
+There set forth from there of the family of the Danites, out of Zorah and out of Eshtaol, six hundred men girt with weapons of war.

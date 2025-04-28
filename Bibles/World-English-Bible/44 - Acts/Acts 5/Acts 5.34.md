@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there stood up one in the council, a Pharisee, named Gamaliel, a doctor of the law, had in honor of all the people, and commanded to put the men forth a little while.
+But one stood up in the council, a Pharisee named Gamaliel, a teacher of the law, honored by all the people, and commanded to put the apostles out for a little while.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is none holy as Jehovah; For there is none besides thee, Neither is there any rock like our God.
+There is no one as holy as Yahweh, For there is no one besides you, nor is there any rock like our God.

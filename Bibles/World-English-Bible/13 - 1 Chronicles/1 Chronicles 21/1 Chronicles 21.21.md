@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as David came to Ornan, Ornan looked and saw David, and went out of the threshing-floor, and bowed himself to David with his face to the ground.
+As David came to Ornan, Ornan looked and saw David, and went out of the threshing floor, and bowed himself to David with his face to the ground.

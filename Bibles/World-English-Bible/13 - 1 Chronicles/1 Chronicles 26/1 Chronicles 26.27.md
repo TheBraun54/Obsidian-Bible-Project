@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of the spoil won in battles did they dedicate to repair the house of Jehovah.
+Out of the spoil won in battles did they dedicate to repair the house of Yahweh.

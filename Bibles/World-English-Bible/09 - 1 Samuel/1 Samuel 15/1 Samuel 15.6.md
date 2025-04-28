@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said unto the Kenites, Go, depart, get you down from among the Amalekites, lest I destroy you with them; for ye showed kindness to all the children of Israel, when they came up out of Egypt. So the Kenites departed from among the Amalekites.
+Saul said to the Kenites, "Go, depart, go down from among the Amalekites, lest I destroy you with them; for you showed kindness to all the children of Israel, when they came up out of Egypt." So the Kenites departed from among the Amalekites.

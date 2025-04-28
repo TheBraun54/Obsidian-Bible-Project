@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My words [shall utter] the uprightness of my heart; And that which my lips know they shall speak sincerely.
+My words shall utter the uprightness of my heart. That which my lips know they shall speak sincerely.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am a Jew, born in Tarsus of Cilicia, but brought up in this city, at the feet of Gamaliel, instructed according to the strict manner of the law of our fathers, being zealous for God, even as ye all are this day:
+"I am indeed a Jew, born in Tarsus of Cilicia, but brought up in this city at the feet of Gamaliel, instructed according to the strict tradition of the law of our fathers, being zealous for God, even as you all are this day.

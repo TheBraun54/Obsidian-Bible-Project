@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judah is gone into captivity because of affliction, and because of great servitude; She dwelleth among the nations, she findeth no rest: All her persecutors overtook her within the straits.
+Judah is gone into captivity because of affliction, and because of great servitude; she dwells among the nations, she finds no rest: all her persecutors overtook her within the straits.

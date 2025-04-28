@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but of the Son [he saith], Thy throne, O God, is for ever and ever; And the sceptre of uprightness is the sceptre of thy kingdom.
+But of the Son he says, "Your throne, O God, is forever and ever. The scepter of uprightness is the scepter of your Kingdom.

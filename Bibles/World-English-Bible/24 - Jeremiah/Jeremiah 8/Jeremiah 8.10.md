@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will I give their wives unto others, and their fields to them that shall possess them: for every one from the least even unto the greatest is given to covetousness; from the prophet even unto the priest every one dealeth falsely.
+Therefore will I give their wives to others, and their fields to those who shall possess them: for everyone from the least even to the greatest is given to covetousness; from the prophet even to the priest every one deals falsely.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the sea roar, and the fulness thereof; Let the field exult, and all that is therein;
+Let the sea roar, and its fullness! Let the field exult, and all that is therein!

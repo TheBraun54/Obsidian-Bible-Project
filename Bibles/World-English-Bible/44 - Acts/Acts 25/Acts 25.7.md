@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come, the Jews that had come down from Jerusalem stood round about him, bringing against him many and grievous charges which they could not prove;
+When he had come, the Jews who had come down from Jerusalem stood around him, bringing against him many and grievous charges which they could not prove,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The breaker is gone up before them: they have broken forth and passed on to the gate, and are gone out thereat; and their king is passed on before them, and Jehovah at the head of them.
+He who breaks open the way goes up before them. They break through the gate, and go out. And their king passes on before them, with Yahweh at their head.

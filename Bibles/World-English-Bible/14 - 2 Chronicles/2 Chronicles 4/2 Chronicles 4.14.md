@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made also the bases, and the lavers made he upon the bases;
+He made also the bases, and the basins made he on the bases;

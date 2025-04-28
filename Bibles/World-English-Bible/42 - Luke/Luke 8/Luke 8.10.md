@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Unto you it is given to know the mysteries of the kingdom of God: but to the rest in parables; that seeing they may not see, and hearing they may not understand.
+He said, "To you it is given to know the mysteries of the Kingdom of God, but to the rest in parables; that 'seeing they may not see, and hearing they may not understand.'

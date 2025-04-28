@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man shall cause a field or vineyard to be eaten, and shall let his beast loose, and it feed in another man's field; of the best of his own field, and of the best of his own vineyard, shall he make restitution.
+"If a man causes a field or vineyard to be eaten, and lets his animal loose, and it grazes in another man's field, he shall make restitution from the best of his own field, and from the best of his own vineyard.

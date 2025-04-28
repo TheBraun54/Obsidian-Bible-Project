@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tables were the work of God, and the writing was the writing of God, graven upon the tables.
+The tablets were the work of God, and the writing was the writing of God, engraved on the tables.

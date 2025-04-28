@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will open rivers on the bare heights, and fountains in the midst of the valleys; I will make the wilderness a pool of water, and the dry land springs of water.
+I will open rivers on the bare heights, and springs in the midst of the valleys. I will make the wilderness a pool of water, and the dry land springs of water.

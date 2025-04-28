@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God sent an angel unto Jerusalem to destroy it: and as he was about to destroy, Jehovah beheld, and he repented him of the evil, and said to the destroying angel, It is enough; now stay thy hand. And the angel of Jehovah was standing by the threshing-floor of Ornan the Jebusite.
+God sent an angel to Jerusalem to destroy it. As he was about to destroy, Yahweh saw, and he relented of the disaster, and said to the destroying angel, "It is enough; now stay your hand." The angel of Yahweh was standing by the threshing floor of Ornan the Jebusite.

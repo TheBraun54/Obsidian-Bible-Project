@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the food shall be for a store to the land against the seven years of famine, which shall be in the land of Egypt; that the land perish not through the famine.
+The food will be for a store to the land against the seven years of famine, which will be in the land of Egypt; that the land not perish through the famine."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O earth, earth, earth, hear the word of Jehovah.
+O earth, earth, earth, hear the word of Yahweh.

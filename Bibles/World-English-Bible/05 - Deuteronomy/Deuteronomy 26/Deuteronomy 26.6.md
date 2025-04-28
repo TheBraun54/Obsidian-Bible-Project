@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Egyptians dealt ill with us, and afflicted us, and laid upon us hard bondage:
+The Egyptians dealt ill with us, and afflicted us, and laid on us hard bondage:

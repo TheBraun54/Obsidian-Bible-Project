@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they besought him that they might only touch the border of his garment: and as many as touched were made whole.
+and they begged him that they might just touch the fringe of his garment. As many as touched it were made whole.

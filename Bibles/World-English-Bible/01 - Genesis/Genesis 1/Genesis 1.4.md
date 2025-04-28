@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God saw the light, that it was good: and God divided the light from the darkness.
+God saw the light, and saw that it was good. God divided the light from the darkness.

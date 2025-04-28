@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-after that he is sold he may be redeemed: one of his brethren may redeem him;
+after he is sold he may be redeemed. One of his brothers may redeem him;

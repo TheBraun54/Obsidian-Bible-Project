@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if these things are yours and abound, they make you to be not idle nor unfruitful unto the knowledge of our Lord Jesus Christ.
+For if these things are yours and abound, they make you to be not idle nor unfruitful to the knowledge of our Lord Jesus Christ.

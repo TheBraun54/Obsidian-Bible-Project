@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah said, God hath given me my hire, because I gave my handmaid to my husband: and she called his name Issachar.
+Leah said, "God has given me my hire, because I gave my handmaid to my husband." She named him Issachar.

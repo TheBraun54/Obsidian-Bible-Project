@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever would save his life shall lose it; and whosoever shall lose his life for my sake and the gospel's shall save it.
+For whoever wants to save his life will lose it; and whoever will lose his life for my sake and the sake of the Good News will save it.

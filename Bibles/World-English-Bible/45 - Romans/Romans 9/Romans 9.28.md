@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the Lord will execute [his] word upon the earth, finishing it and cutting it short.
+for He will finish the work and cut it short in righteousness, because the LORD will make a short work upon the earth."

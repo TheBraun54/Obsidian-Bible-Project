@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I call to remembrance my song in the night: I commune with mine own heart; And my spirit maketh diligent search.
+I remember my song in the night. I consider in my own heart; my spirit diligently inquires:

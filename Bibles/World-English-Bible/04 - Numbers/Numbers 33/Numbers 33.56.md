@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that, as I thought to do unto them, so will I do unto you.
+It shall happen that as I thought to do to them, so will I do to you."

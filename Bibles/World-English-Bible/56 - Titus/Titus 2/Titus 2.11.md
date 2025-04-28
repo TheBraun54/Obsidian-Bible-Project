@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the grace of God hath appeared, bringing salvation to all men,
+For the grace of God has appeared, bringing salvation to all men,

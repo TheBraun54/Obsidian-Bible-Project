@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the steward said within himself, What shall I do, seeing that my lord taketh away the stewardship from me? I have not strength to dig; to beg I am ashamed.
+"The manager said within himself, 'What will I do, seeing that my lord is taking away the management position from me? I don't have strength to dig. I am ashamed to beg.

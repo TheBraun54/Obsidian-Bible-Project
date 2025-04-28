@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All they shall answer and say unto thee, Art thou also become weak as we? art thou become like unto us?
+They all will answer and ask you, "Have you also become as weak as we are? Have you become like us?"

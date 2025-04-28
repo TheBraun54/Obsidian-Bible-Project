@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the Father hath life in himself, even so gave he to the Son also to have life in himself:
+For as the Father has life in himself, even so he gave to the Son also to have life in himself.

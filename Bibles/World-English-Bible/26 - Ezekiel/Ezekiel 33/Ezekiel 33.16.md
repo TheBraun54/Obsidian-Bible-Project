@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None of his sins that he hath committed shall be remembered against him: he hath done that which is lawful and right; he shall surely live.
+None of his sins that he has committed shall be remembered against him: he has done that which is lawful and right; he shall surely live.

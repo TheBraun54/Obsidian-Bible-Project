@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I understand more than the aged, Because I have kept thy precepts.
+I understand more than the aged, because I have kept your precepts.

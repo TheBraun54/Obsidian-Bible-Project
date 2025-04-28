@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A stone is heavy, and the sand weighty; But a fool's vexation is heavier than they both.
+A stone is heavy, and sand is a burden; but a fool's provocation is heavier than both.

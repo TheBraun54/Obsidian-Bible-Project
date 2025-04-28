@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, I will cause men to walk upon you, even my people Israel; and they shall possess thee, and thou shalt be their inheritance, and thou shalt no more henceforth bereave them of children.
+Yes, I will cause men to walk on you, even my people Israel; and they shall possess you, and you shall be their inheritance, and you shall no more henceforth bereave them of children.

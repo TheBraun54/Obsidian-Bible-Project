@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [I saw] one of his heads as though it had been smitten unto death; and his death-stroke was healed: and the whole earth wondered after the beast;
+One of his heads looked like it had been wounded fatally. His fatal wound was healed, and the whole earth marveled at the beast.

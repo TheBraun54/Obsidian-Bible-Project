@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have set watchmen upon thy walls, O Jerusalem; they shall never hold their peace day nor night: ye that are Jehovah's remembrancers, take ye no rest,
+I have set watchmen on your walls, Jerusalem; they shall never hold their peace day nor night: you who call on Yahweh, take no rest,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they were a wall unto us both by night and by day, all the while we were with them keeping the sheep.
+They were a wall to us both by night and by day, all the while we were with them keeping the sheep.

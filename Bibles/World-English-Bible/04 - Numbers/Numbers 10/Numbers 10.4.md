@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if they blow but one, then the princes, the heads of the thousands of Israel, shall gather themselves unto thee.
+If they blow just one, then the princes, the heads of the thousands of Israel, shall gather themselves to you.

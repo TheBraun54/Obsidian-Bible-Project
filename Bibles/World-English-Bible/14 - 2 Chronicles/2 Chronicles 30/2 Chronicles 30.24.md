@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Hezekiah king of Judah did give to the assembly for offerings a thousand bullocks and seven thousand sheep; and the princes gave to the assembly a thousand bullocks and ten thousand sheep: and a great number of priests sanctified themselves.
+For Hezekiah king of Judah did give to the assembly for offerings one thousand bulls and seven thousand sheep; and the princes gave to the assembly a thousand bulls and ten thousand sheep: and a great number of priests sanctified themselves.

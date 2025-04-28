@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Were there none found that returned to give glory to God, save this stranger?
+Were there none found who returned to give glory to God, except this stranger?"

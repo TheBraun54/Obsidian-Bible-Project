@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is like the precious oil upon the head, That ran down upon the beard, Even Aaron's beard; That came down upon the skirt of his garments;
+It is like the precious oil on the head, that ran down on the beard, even Aaron's beard; that came down on the edge of his robes;

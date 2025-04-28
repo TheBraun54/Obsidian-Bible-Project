@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and those riches perish by evil adventure; and if he hath begotten a son, there is nothing in his hand.
+Those riches perish by misfortune, and if he has fathered a son, there is nothing in his hand.

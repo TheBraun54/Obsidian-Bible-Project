@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rachel said, God hath judged me, and hath also heard my voice, and hath given me a son: therefore called she his name Dan.
+Rachel said, "God has judged me, and has also heard my voice, and has given me a son." Therefore called she his name Dan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there they that led us captive required of us songs, And they that wasted us [required of us] mirth, [saying], Sing us one of the songs of Zion.
+For there, those who led us captive asked us for songs. Those who tormented us demanded songs of joy: "Sing us one of the songs of Zion!"

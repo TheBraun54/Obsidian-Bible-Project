@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called him, and said unto him, What is this that I hear of thee? render the account of thy stewardship; for thou canst be no longer steward.
+He called him, and said to him, 'What is this that I hear about you? Give an accounting of your management, for you can no longer be manager.'

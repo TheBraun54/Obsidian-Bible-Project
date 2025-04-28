@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to Mahalath. Maschil of David]. The fool hath said in his heart, There is no God. Corrupt are they, and have done abominable iniquity; There is none that doeth good.
+The fool has said in his heart, "There is no God." They are corrupt, and have done abominable iniquity. There is no one who does good.

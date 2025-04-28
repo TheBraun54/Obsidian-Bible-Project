@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the head of Syria is Damascus, and the head of Damascus is Rezin; and within threescore and five years shall Ephraim be broken in pieces, so that it shall not be a people:
+For the head of Syria is Damascus, and the head of Damascus is Rezin; and within sixty-five years Ephraim shall be broken in pieces, so that it shall not be a people;

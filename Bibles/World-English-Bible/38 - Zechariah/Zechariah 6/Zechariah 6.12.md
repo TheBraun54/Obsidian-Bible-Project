@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and speak unto him, saying, Thus speaketh Jehovah of hosts, saying, Behold, the man whose name is the Branch: and he shall grow up out of his place; and he shall build the temple of Jehovah;
+and speak to him, saying, 'Thus says Yahweh of Armies, "Behold, the man whose name is the Branch: and he shall grow up out of his place; and he shall build the temple of Yahweh;

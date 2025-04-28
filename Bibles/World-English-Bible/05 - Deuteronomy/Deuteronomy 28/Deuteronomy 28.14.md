@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shalt not turn aside from any of the words which I command you this day, to the right hand, or to the left, to go after other gods to serve them.
+and shall not turn aside from any of the words which I command you this day, to the right hand, or to the left, to go after other gods to serve them.

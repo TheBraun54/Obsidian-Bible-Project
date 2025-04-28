@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many will say to me in that day, Lord, Lord, did we not prophesy by thy name, and by thy name cast out demons, and by thy name do many mighty works?
+Many will tell me in that day, 'Lord, Lord, didn't we prophesy in your name, in your name cast out demons, and in your name do many mighty works?'

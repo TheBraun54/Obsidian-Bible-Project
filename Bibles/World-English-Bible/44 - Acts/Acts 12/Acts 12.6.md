@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Herod was about to bring him forth, the same night Peter was sleeping between two soldiers, bound with two chains: and guards before the door kept the prison.
+The same night when Herod was about to bring him out, Peter was sleeping between two soldiers, bound with two chains. Guards in front of the door kept the prison.

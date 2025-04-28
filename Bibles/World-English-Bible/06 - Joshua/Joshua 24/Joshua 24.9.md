@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Balak the son of Zippor, king of Moab, arose and fought against Israel: and he sent and called Balaam the son of Beor to curse you;
+Then Balak the son of Zippor, king of Moab, arose and fought against Israel. He sent and called Balaam the son of Beor to curse you;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only acknowledge thine iniquity, that thou hast transgressed against Jehovah thy God, and hast scattered thy ways to the strangers under every green tree, and ye have not obeyed my voice, saith Jehovah.
+Only acknowledge your iniquity, that you have transgressed against Yahweh your God, and have scattered your ways to the strangers under every green tree, and you have not obeyed my voice,' says Yahweh."

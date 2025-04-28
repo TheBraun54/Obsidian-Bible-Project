@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This Moses whom they refused, saying, Who made thee a ruler and a judge? him hath God sent [to be] both a ruler and a deliverer with the hand of the angel that appeared to him in the bush.
+"This Moses, whom they refused, saying, 'Who made you a ruler and a judge?'--God has sent him as both a ruler and a deliverer by the hand of the angel who appeared to him in the bush.

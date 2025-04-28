@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto Saul, Jehovah sent me to anoint thee to be king over his people, over Israel: now therefore hearken thou unto the voice of the words of Jehovah.
+Samuel said to Saul, "Yahweh sent me to anoint you to be king over his people, over Israel. Now therefore listen to the voice of the words of Yahweh.

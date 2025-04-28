@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we are his workmanship, created in Christ Jesus for good works, which God afore prepared that we should walk in them.
+For we are his workmanship, created in Christ Jesus for good works, which God prepared before that we would walk in them.

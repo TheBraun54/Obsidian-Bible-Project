@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, and if I am offered upon the sacrifice and service of your faith, I joy, and rejoice with you all:
+Yes, and if I am poured out on the sacrifice and service of your faith, I rejoice, and rejoice with you all.

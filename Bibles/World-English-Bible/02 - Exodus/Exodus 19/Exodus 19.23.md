@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Jehovah, The people cannot come up to mount Sinai: for thou didst charge us, saying, Set bounds about the mount, and sanctify it.
+Moses said to Yahweh, "The people can't come up to Mount Sinai, for you warned us, saying, 'Set bounds around the mountain, and sanctify it.'"

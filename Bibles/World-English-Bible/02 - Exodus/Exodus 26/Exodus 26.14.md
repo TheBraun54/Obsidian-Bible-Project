@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a covering for the tent of rams' skins dyed red, and a covering of sealskins above.
+You shall make a covering for the tent of rams' skins dyed red, and a covering of sea cow hides above.

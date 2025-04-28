@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will cry unto God Most High, Unto God that performeth [all things] for me.
+I cry out to God Most High, to God who accomplishes my requests for me.

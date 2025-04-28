@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that augmenteth his substance by interest and increase, Gathereth it for him that hath pity on the poor.
+He who increases his wealth by excessive interest gathers it for one who has pity on the poor.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the tribe of Naphtali, Kedesh in Galilee with its suburbs, the city of refuge for the manslayer, and Hammoth-dor with its suburbs, and Kartan with its suburbs; three cities.
+Out of the tribe of Naphtali, Kedesh in Galilee with its suburbs, the city of refuge for the manslayer, Hammothdor with its suburbs, and Kartan with its suburbs; three cities.

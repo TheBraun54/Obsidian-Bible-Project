@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ashan with its suburbs, and Beth-shemesh with its suburbs;
+and Ashan with its suburbs, and Beth Shemesh with its suburbs;

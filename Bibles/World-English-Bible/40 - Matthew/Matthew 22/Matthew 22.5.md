@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they made light of it, and went their ways, one to his own farm, another to his merchandise;
+But they made light of it, and went their ways, one to his own farm, another to his merchandise,

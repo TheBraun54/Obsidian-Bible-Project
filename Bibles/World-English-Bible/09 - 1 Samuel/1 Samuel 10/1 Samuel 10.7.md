@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let it be, when these signs are come unto thee, that thou do as occasion shall serve thee; for God is with thee.
+Let it be, when these signs have come to you, that you do as occasion shall serve you; for God is with you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then? that which Israel seeketh for, that he obtained not; but the election obtained it, and the rest were hardened:
+What then? That which Israel seeks for, that he didn't obtain, but the chosen ones obtained it, and the rest were hardened.

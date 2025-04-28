@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaiah said unto them, Thus shall ye say to your master, Thus saith Jehovah, Be not afraid of the words that thou hast heard, wherewith the servants of the king of Assyria have blasphemed me.
+Isaiah said to them, "Thus you shall tell your master, 'Thus says Yahweh, "Don't be afraid of the words that you have heard, with which the servants of the king of Assyria have blasphemed me.

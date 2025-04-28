@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was Daniel brought in before the king. The king spake and said unto Daniel, Art thou that Daniel, who art of the children of the captivity of Judah, whom the king my father brought out of Judah?
+Then was Daniel brought in before the king. The king spoke and said to Daniel, Are you that Daniel, who are of the children of the captivity of Judah, whom the king my father brought out of Judah?

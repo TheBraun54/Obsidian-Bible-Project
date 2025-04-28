@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Ahaz took away a portion out of the house of Jehovah, and out of the house of the king and of the princes, and gave it unto the king of Assyria: but it helped him not.
+For Ahaz took away a portion out of the house of Yahweh, and out of the house of the king and of the princes, and gave it to the king of Assyria: but it didn't help him.

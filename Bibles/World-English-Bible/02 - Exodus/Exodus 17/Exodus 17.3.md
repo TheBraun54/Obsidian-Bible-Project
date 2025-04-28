@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people thirsted there for water; and the people murmured against Moses, and said, Wherefore hast thou brought us up out of Egypt, to kill us and our children and our cattle with thirst?
+The people were thirsty for water there; and the people murmured against Moses, and said, "Why have you brought us up out of Egypt, to kill us, our children, and our livestock with thirst?"

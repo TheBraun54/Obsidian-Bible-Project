@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the people said, Thou shalt not go forth: for if we flee away, they will not care for us; neither if half of us die, will they care for us: but thou art worth ten thousand of us; therefore now it is better that thou be ready to succor us out of the city.
+But the people said, "You shall not go forth; for if we flee away, they will not care for us; neither if half of us die, will they care for us. But you are worth ten thousand of us. Therefore now it is better that you are ready to help us out of the city."

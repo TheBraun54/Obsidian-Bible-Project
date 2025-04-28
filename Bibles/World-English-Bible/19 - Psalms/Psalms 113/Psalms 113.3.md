@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the rising of the sun unto the going down of the same Jehovah's name is to be praised.
+From the rising of the sun to the going down of the same, Yahweh's name is to be praised.

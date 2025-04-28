@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What thing soever I command you, that shall ye observe to do: thou shalt not add thereto, nor diminish from it.
+Whatever thing I command you, that you shall observe to do: you shall not add thereto, nor diminish from it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Amos, what seest thou? And I said, A plumb-line. Then said the Lord, Behold, I will set a plumb-line in the midst of my people Israel; I will not again pass by them any more;
+Yahweh said to me, "Amos, what do you see?" I said, "A plumb line." Then the Lord said, "Behold, I will set a plumb line in the midst of my people Israel. I will not again pass by them any more.

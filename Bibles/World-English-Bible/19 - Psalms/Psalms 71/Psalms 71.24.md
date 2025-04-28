@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My tongue also shall talk of thy righteousness all the day long; For they are put to shame, for they are confounded, that seek my hurt.
+My tongue will also talk about your righteousness all day long, for they are disappointed, and they are confounded, who want to harm me. By Solomon.

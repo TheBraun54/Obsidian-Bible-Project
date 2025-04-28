@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when even was come, the boat was in the midst of the sea, and he alone on the land.
+When evening had come, the boat was in the midst of the sea, and he was alone on the land.

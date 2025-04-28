@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman was arrayed in purple and scarlet, and decked with gold and precious stone and pearls, having in her hand a golden cup full of abominations, even the unclean things of her fornication,
+The woman was dressed in purple and scarlet, and decked with gold and precious stones and pearls, having in her hand a golden cup full of abominations and the impurities of the sexual immorality of the earth.

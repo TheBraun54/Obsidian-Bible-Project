@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoicing in his habitable earth; And my delight was with the sons of men.
+Rejoicing in his whole world. My delight was with the sons of men.

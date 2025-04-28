@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord Jehovah hath sworn by himself, saith Jehovah, the God of hosts: I abhor the excellency of Jacob, and hate his palaces; therefore will I deliver up the city with all that is therein. [
+"The Lord Yahweh has sworn by himself," says Yahweh, the God of Armies: "I abhor the pride of Jacob, and detest his fortresses. Therefore I will deliver up the city with all that is in it.

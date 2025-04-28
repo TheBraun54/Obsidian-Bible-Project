@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now ye seek to kill me, a man that hath told you the truth, which I heard from God: this did not Abraham.
+But now you seek to kill me, a man who has told you the truth, which I heard from God. Abraham didn't do this.

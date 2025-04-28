@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made a mercy-seat of pure gold: two cubits and a half [was] the length thereof, and a cubit and a half the breadth thereof.
+He made a mercy seat of pure gold. Its length was two and a half cubits, and a cubit and a half its breadth.

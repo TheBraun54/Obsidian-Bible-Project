@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he buried him in the valley in the land of Moab over against Beth-peor: but no man knoweth of his sepulchre unto this day.
+He buried him in the valley in the land of Moab over against Beth Peor: but no man knows of his tomb to this day.

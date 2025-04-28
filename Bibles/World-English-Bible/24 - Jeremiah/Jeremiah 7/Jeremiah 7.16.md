@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore pray not thou for this people, neither lift up cry nor prayer for them, neither make intercession to me; for I will not hear thee.
+Therefore don't pray for this people, neither lift up a cry nor prayer for them, neither make intercession to me; for I will not hear you.

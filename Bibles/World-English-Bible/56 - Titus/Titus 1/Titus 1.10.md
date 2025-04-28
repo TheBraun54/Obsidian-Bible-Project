@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there are many unruly men, vain talkers and deceivers, specially they of the circumcision,
+For there are also many unruly men, vain talkers and deceivers, especially those of the circumcision,

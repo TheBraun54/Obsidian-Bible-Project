@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate, wishing to content the multitude, released unto them Barabbas, and delivered Jesus, when he had scourged him, to be crucified.
+Pilate, wishing to please the multitude, released Barabbas to them, and handed over Jesus, when he had flogged him, to be crucified.

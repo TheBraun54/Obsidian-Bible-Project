@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now [there was] a certain man in Caesarea, Cornelius by name, a centurion of the band called the Italian [band] ,
+Now there was a certain man in Caesarea, Cornelius by name, a centurion of what was called the Italian Regiment,

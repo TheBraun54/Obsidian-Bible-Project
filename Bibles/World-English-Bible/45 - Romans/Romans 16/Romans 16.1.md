@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I commend unto you Phoebe our sister, who is a servant of the church that is at Cenchreae:
+I commend to you Phoebe, our sister, who is a servant of the assembly that is at Cenchreae,

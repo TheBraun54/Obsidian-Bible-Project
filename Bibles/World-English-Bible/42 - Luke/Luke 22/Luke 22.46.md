@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Why sleep ye? rise and pray, that ye enter not into temptation.
+and said to them, "Why do you sleep? Rise and pray that you may not enter into temptation."

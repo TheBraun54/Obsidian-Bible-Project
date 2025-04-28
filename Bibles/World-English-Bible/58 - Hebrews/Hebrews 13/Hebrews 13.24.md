@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute all them that have the rule over you, and all the saints. They of Italy salute you.
+Greet all of your leaders and all the saints. The Italians greet you.

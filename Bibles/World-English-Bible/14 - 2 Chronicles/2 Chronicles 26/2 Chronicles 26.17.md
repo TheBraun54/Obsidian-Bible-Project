@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Azariah the priest went in after him, and with him fourscore priests of Jehovah, that were valiant men:
+Azariah the priest went in after him, and with him eighty priests of Yahweh, who were valiant men:

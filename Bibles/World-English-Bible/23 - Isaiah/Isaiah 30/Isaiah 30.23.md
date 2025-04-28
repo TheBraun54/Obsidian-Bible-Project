@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will give the rain for thy seed, wherewith thou shalt sow the ground; and bread of the increase of the ground, and it shall be fat and plenteous. In that day shall thy cattle feed in large pastures;
+He will give the rain for your seed, with which you will sow the ground; and bread of the increase of the ground will be rich and plentiful. In that day, your livestock will feed in large pastures.

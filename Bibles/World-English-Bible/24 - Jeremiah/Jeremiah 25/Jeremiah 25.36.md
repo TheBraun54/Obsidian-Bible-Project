@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A voice of the cry of the shepherds, and the wailing of the principal of the flock! for Jehovah layeth waste their pasture.
+A voice of the cry of the shepherds, and the wailing of the principal of the flock! for Yahweh lays waste their pasture.

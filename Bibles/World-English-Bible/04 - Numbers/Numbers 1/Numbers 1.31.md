@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Zebulun, were fifty and seven thousand and four hundred.
+those who were numbered of them, of the tribe of Zebulun, were fifty-seven thousand four hundred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the first of your dough ye shall give unto Jehovah a heave-offering throughout your generations.
+Of the first of your dough you shall give to Yahweh a wave offering throughout your generations.

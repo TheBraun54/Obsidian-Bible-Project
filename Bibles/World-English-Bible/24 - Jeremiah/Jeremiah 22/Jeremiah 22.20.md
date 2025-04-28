@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go up to Lebanon, and cry; and lift up thy voice in Bashan, and cry from Abarim; for all thy lovers are destroyed.
+Go up to Lebanon, and cry; and lift up your voice in Bashan, and cry from Abarim; for all your lovers are destroyed.

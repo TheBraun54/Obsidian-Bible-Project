@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when [ye see] a south wind blowing, ye say, There will be a scorching heat; and it cometh to pass.
+When a south wind blows, you say, 'There will be a scorching heat,' and it happens.

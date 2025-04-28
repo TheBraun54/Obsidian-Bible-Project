@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I endure all things for the elect's sake, that they also may obtain the salvation which is in Christ Jesus with eternal glory.
+Therefore I endure all things for the chosen ones' sake, that they also may obtain the salvation which is in Christ Jesus with eternal glory.

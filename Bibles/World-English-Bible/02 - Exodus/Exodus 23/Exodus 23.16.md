@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the feast of harvest, the first-fruits of thy labors, which thou sowest in the field: and the feast of ingathering, at the end of the year, when thou gatherest in thy labors out of the field.
+And the feast of harvest, the first fruits of your labors, which you sow in the field: and the feast of harvest, at the end of the year, when you gather in your labors out of the field.

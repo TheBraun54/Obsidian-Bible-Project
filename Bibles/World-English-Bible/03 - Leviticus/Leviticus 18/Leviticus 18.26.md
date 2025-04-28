@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye therefore shall keep my statutes and mine ordinances, and shall not do any of these abominations; neither the home-born, nor the stranger that sojourneth among you;
+You therefore shall keep my statutes and my ordinances, and shall not do any of these abominations; neither the native-born, nor the stranger who lives as a foreigner among you;

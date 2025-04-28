@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel cried unto Jehovah: for he had nine hundred chariots of iron; and twenty years he mightily oppressed the children of Israel.
+The children of Israel cried to Yahweh: for he had nine hundred chariots of iron; and twenty years he mightily oppressed the children of Israel.

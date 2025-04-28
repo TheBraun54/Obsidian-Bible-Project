@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [this] was the lot for the tribe of Manasseh; for he was the first-born of Joseph. As for Machir the first-born of Manasseh, the father of Gilead, because he was a man of war, therefore he had Gilead and Bashan.
+This was the lot for the tribe of Manasseh, for he was the firstborn of Joseph. As for Machir the firstborn of Manasseh, the father of Gilead, because he was a man of war, therefore he had Gilead and Bashan.

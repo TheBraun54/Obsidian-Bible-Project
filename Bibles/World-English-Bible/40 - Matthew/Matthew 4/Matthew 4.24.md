@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the report of him went forth into all Syria: and they brought unto him all that were sick, holden with divers diseases and torments, possessed with demons, and epileptic, and palsied; and he healed them.
+The report about him went out into all Syria. They brought to him all who were sick, afflicted with various diseases and torments, possessed with demons, epileptics, and paralytics; and he healed them.

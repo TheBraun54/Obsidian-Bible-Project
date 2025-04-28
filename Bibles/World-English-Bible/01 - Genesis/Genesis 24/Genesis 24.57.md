@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, We will call the damsel, and inquire at her mouth.
+They said, "We will call the young lady, and ask her."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the righteous answer him, saying, Lord, when saw we thee hungry, and fed thee? or athirst, and gave thee drink?
+"Then the righteous will answer him, saying, 'Lord, when did we see you hungry, and feed you; or thirsty, and give you a drink?

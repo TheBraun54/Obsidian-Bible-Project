@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the lawyers answering saith unto him, Teacher, in saying this thou reproachest us also.
+One of the lawyers answered him, "Teacher, in saying this you insult us also."

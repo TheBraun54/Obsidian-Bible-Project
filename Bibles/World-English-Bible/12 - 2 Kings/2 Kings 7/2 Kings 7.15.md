@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went after them unto the Jordan: and, lo, all the way was full of garments and vessels, which the Syrians had cast away in their haste. And the messengers returned, and told the king.
+They went after them to the Jordan; and behold, all the way was full of garments and vessels, which the Syrians had cast away in their haste. The messengers returned, and told the king.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made upon the breastplate chains like cords, of wreathen work of pure gold.
+They made on the breastplate chains like cords, of braided work of pure gold.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy kingdom is an everlasting kingdom, And thy dominion [endureth] throughout all generations.
+Your kingdom is an everlasting kingdom. Your dominion endures throughout all generations. Yahweh is faithful in all his words, and loving in all his deeds.

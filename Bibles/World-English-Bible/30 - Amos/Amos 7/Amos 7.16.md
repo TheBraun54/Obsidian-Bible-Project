@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore hear thou the word of Jehovah: Thou sayest, Prophesy not against Israel, and drop not [thy word] against the house of Isaac;
+Now therefore listen to the word of Yahweh: 'You say, Don't prophesy against Israel, and don't preach against the house of Isaac.'

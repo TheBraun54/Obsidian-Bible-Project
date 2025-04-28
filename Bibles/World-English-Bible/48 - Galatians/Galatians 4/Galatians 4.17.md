@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They zealously seek you in no good way; nay, they desire to shut you out, that ye may seek them.
+They zealously seek you in no good way. No, they desire to alienate you, that you may seek them.

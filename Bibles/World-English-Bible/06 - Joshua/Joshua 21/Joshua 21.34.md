@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto the families of the children of Merari, the rest of the Levites, out of the tribe of Zebulun, Jokneam with its suburbs, and Kartah with its suburbs,
+To the families of the children of Merari, the rest of the Levites, out of the tribe of Zebulun, Jokneam with its suburbs, Kartah with its suburbs,

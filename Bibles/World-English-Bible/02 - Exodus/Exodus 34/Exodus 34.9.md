@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, If now I have found favor in thy sight, O Lord, let the Lord, I pray thee, go in the midst of us; for it is a stiffnecked people; and pardon our iniquity and our sin, and take us for thine inheritance.
+He said, "If now I have found favor in your sight, Lord, please let the Lord go in the midst of us; although this is a stiff-necked people; pardon our iniquity and our sin, and take us for your inheritance."

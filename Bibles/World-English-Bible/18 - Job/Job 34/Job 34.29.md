@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he giveth quietness, who then can condemn? And when he hideth his face, who then can behold him? Alike whether [it be done] unto a nation, or unto a man:
+When he gives quietness, who then can condemn? When he hides his face, who then can see him? Alike whether to a nation, or to a man,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make Jerusalem heaps, a dwelling-place of jackals; and I will make the cities of Judah a desolation, without inhabitant.
+I will make Jerusalem heaps, a dwelling place of jackals; and I will make the cities of Judah a desolation, without inhabitant.

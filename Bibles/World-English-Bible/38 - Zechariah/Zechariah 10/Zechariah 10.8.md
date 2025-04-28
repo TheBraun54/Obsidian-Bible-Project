@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will hiss for them, and gather them; for I have redeemed them; and they shall increase as they have increased.
+I will signal for them, and gather them; for I have redeemed them; and they will increase as they have increased.

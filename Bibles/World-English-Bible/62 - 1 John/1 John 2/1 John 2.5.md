@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but whoso keepeth his word, in him verily hath the love of God been perfected. Hereby we know that we are in him:
+But whoever keeps his word, God's love has most certainly been perfected in him. This is how we know that we are in him:

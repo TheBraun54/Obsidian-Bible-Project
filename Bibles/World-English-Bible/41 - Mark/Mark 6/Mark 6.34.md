@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came forth and saw a great multitude, and he had compassion on them, because they were as sheep not having a shepherd: and he began to teach them many things.
+Jesus came out, saw a great multitude, and he had compassion on them, because they were like sheep without a shepherd, and he began to teach them many things.

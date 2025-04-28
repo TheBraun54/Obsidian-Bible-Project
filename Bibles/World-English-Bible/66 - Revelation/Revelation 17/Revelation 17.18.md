@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman whom thou sawest is the great city, which reigneth over the kings of the earth.
+The woman whom you saw is the great city, which reigns over the kings of the earth."

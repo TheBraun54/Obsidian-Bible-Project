@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore send quickly, and tell David, saying, Lodge not this night at the fords of the wilderness, but by all means pass over; lest the king be swallowed up, and all the people that are with him.
+Now therefore send quickly, and tell David, saying, 'Don't lodge this night at the fords of the wilderness, but by all means pass over; lest the king be swallowed up, and all the people who are with him.'"

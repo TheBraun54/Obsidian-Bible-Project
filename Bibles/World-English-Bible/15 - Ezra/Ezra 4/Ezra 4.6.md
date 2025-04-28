@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the reign of Ahasuerus, in the beginning of his reign, wrote they an accusation against the inhabitants of Judah and Jerusalem.
+In the reign of Ahasuerus, in the beginning of his reign, wrote they an accusation against the inhabitants of Judah and Jerusalem.

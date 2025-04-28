@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Precious in the sight of Jehovah Is the death of his saints.
+Precious in the sight of Yahweh is the death of his saints.

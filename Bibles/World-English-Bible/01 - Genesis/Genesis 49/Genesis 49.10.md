@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sceptre shall not depart from Judah, Nor the ruler's staff from between his feet, Until Shiloh come; And unto him shall the obedience of the peoples be.
+The scepter will not depart from Judah, nor the ruler's staff from between his feet, until he comes to whom it belongs. To him will the obedience of the peoples be.

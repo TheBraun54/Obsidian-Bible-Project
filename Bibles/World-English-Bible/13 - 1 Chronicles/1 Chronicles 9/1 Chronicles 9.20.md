@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Phinehas the son of Eleazar was ruler over them in time past, [and] Jehovah was with him.
+Phinehas the son of Eleazar was ruler over them in time past, [and] Yahweh was with him.

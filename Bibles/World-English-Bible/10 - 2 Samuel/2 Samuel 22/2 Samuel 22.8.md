@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the earth shook and trembled, The foundations of heaven quaked And were shaken, because he was wroth.
+Then the earth shook and trembled. The foundations of heaven quaked and were shaken, because he was angry.

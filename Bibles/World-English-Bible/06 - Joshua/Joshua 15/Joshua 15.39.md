@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lachish, and Bozkath, and Eglon,
+Lachish, Bozkath, Eglon,

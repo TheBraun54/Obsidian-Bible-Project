@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And henceforth the children of Israel shall not come nigh the tent of meeting, lest they bear sin, and die.
+Henceforth the children of Israel shall not come near the Tent of Meeting, lest they bear sin, and die.

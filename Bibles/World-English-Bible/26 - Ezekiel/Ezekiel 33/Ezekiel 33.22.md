@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the hand of Jehovah had been upon me in the evening, before he that was escaped came; and he had opened my mouth, until he came to me in the morning; and my mouth was opened, and I was no more dumb.
+Now the hand of Yahweh had been on me in the evening, before he who was escaped came; and he had opened my mouth, until he came to me in the morning; and my mouth was opened, and I was no more mute.

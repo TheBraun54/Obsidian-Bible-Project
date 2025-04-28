@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The remnant of Israel shall not do iniquity, nor speak lies; neither shall a deceitful tongue be found in their mouth; for they shall feed and lie down, and none shall make them afraid.
+The remnant of Israel will not do iniquity, nor speak lies, neither will a deceitful tongue be found in their mouth, for they will feed and lie down, and no one will make them afraid."

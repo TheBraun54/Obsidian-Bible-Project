@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in the eighteenth year of king Josiah was this passover kept to Jehovah in Jerusalem.
+but in the eighteenth year of king Josiah was this Passover kept to Yahweh in Jerusalem.

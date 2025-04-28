@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My beloved is unto me [as] a bundle of myrrh, That lieth betwixt my breasts.
+My beloved is to me a sachet of myrrh, that lies between my breasts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thou wilt walk in my ways, to keep my statutes and my commandments, as thy father David did walk, then I will lengthen thy days.
+If you will walk in my ways, to keep my statutes and my commandments, as your father David walked, then I will lengthen your days."

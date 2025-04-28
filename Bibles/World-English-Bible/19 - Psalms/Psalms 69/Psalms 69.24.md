@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pour out thine indignation upon them, And let the fierceness of thine anger overtake them.
+Pour out your indignation on them. Let the fierceness of your anger overtake them.

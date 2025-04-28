@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Write ye this man childless, a man that shall not prosper in his days; for no more shall a man of his seed prosper, sitting upon the throne of David, and ruling in Judah.
+Thus says Yahweh, Write you this man childless, a man who shall not prosper in his days; for no more shall a man of his seed prosper, sitting on the throne of David, and ruling in Judah.

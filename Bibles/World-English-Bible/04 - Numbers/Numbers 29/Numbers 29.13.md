@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall offer a burnt-offering, an offering made by fire, of a sweet savor unto Jehovah; thirteen young bullocks, two rams, fourteen he-lambs a year old; they shall be without blemish;
+and you shall offer a burnt offering, an offering made by fire, of a pleasant aroma to Yahweh; thirteen young bulls, two rams, fourteen male lambs a year old; they shall be without blemish;

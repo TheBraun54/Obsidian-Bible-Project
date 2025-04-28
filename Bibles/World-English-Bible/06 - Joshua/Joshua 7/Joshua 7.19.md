@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto Achan, My son, give, I pray thee, glory to Jehovah, the God of Israel, and make confession unto him; and tell me now what thou hast done; hide it not from me.
+Joshua said to Achan, "My son, please give glory to Yahweh, the God of Israel, and make confession to him. Tell me now what you have done! Don't hide it from me!"

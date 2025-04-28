@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy meditation be sweet unto him: I will rejoice in Jehovah.
+Let your meditation be sweet to him. I will rejoice in Yahweh.

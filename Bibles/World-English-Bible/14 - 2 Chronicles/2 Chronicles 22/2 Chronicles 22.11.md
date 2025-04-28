@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehoshabeath, the daughter of the king, took Joash the son of Ahaziah, and stole him away from among the king's sons that were slain, and put him and his nurse in the bedchamber. So Jehoshabeath, the daughter of king Jehoram, the wife of Jehoiada the priest (for she was the sister of Ahaziah), hid him from Athaliah, so that she slew him not.
+But Jehoshabeath, the daughter of the king, took Joash the son of Ahaziah, and stole him away from among the king's sons who were slain, and put him and his nurse in the bedroom. So Jehoshabeath, the daughter of king Jehoram, the wife of Jehoiada the priest (for she was the sister of Ahaziah), hid him from Athaliah, so that she didn't kill him.

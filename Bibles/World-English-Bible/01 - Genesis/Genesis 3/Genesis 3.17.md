@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Adam he said, Because thou hast hearkened unto the voice of thy wife, and hast eaten of the tree, of which I commanded thee, saying, Thou shalt not eat of it: cursed is the ground for thy sake; in toil shalt thou eat of it all the days of thy life;
+To Adam he said, "Because you have listened to your wife's voice, and have eaten of the tree, of which I commanded you, saying, 'You shall not eat of it,' cursed is the ground for your sake. In toil you will eat of it all the days of your life.

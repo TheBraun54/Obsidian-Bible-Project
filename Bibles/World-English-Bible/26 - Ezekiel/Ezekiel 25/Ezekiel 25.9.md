@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I will open the side of Moab from the cities, from his cities which are on his frontiers, the glory of the country, Beth-jeshimoth, Baal-meon, and Kiriathaim,
+therefore, behold, I will open the side of Moab from the cities, from his cities which are on his frontiers, the glory of the country, Beth Jeshimoth, Baal Meon, and Kiriathaim,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore arise, go forth, and speak comfortably unto thy servants; for I swear by Jehovah, if thou go not forth, there will not tarry a man with thee this night: and that will be worse unto thee than all the evil that hath befallen thee from thy youth until now.
+Now therefore arise, go out, and speak to comfort your servants; for I swear by Yahweh, if you don't go out, not a man will stay with you this night. That would be worse to you than all the evil that has happened to you from your youth until now."

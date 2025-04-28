@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in hope of eternal life, which God, who cannot lie, promised before times eternal;
+in hope of eternal life, which God, who can't lie, promised before time began;

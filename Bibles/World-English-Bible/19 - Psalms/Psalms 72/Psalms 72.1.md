@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of Solomon]. Give the king thy judgments, O God, And thy righteousness unto the king's son.
+God, give the king your justice; your righteousness to the royal son.

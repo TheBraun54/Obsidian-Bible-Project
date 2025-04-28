@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The disciples therefore said unto him, Lord, if he is fallen asleep, he will recover.
+The disciples therefore said, "Lord, if he has fallen asleep, he will recover."

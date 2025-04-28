@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For many deceivers are gone forth into the world, [even] they that confess not that Jesus Christ cometh in the flesh. This is the deceiver and the antichrist.
+For many deceivers have gone out into the world, those who don't confess that Jesus Christ came in the flesh. This is the deceiver and the Antichrist.

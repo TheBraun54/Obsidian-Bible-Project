@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the wall of the city had twelve foundations, and on them twelve names of the twelve apostles of the Lamb.
+The wall of the city had twelve foundations, and on them twelve names of the twelve Apostles of the Lamb.

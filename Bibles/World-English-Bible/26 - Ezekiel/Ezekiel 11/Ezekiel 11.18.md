@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall come thither, and they shall take away all the detestable things thereof and all the abominations thereof from thence.
+They shall come there, and they shall take away all the detestable things of it and all its abominations from there.

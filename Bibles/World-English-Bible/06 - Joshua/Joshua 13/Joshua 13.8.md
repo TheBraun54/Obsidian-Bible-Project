@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With him the Reubenites and the Gadites received their inheritance, which Moses gave them, beyond the Jordan eastward, even as Moses the servant of Jehovah gave them:
+With him the Reubenites and the Gadites received their inheritance, which Moses gave them, beyond the Jordan eastward, even as Moses the servant of Yahweh gave them:

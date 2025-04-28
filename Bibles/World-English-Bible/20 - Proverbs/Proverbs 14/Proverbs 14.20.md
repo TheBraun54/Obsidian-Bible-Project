@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The poor is hated even of his own neighbor; But the rich hath many friends.
+The poor person is shunned even by his own neighbor, but the rich person has many friends.

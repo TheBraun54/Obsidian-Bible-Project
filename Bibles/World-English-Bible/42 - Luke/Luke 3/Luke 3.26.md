@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Maath, the [son] of Mattathias, the [son] of Semein, the [son] of Josech, the [son] of Joda,
+the son of Maath, the son of Mattathias, the son of Semein, the son of Joseph, the son of Judah,

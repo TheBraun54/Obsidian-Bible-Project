@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Persia and Lud and Put were in thine army, thy men of war: they hanged the shield and helmet in thee; they set forth thy comeliness.
+Persia and Lud and Put were in your army, your men of war: they hanged the shield and helmet in you; they set forth your comeliness.

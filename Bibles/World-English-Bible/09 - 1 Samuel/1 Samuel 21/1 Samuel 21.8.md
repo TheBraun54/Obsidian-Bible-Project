@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Ahimelech, And is there not here under thy hand spear or sword? for I have neither brought my sword nor my weapons with me, because the king's business required haste.
+David said to Ahimelech, "Isn't there here under your hand spear or sword? For I have neither brought my sword nor my weapons with me, because the king's business required haste."

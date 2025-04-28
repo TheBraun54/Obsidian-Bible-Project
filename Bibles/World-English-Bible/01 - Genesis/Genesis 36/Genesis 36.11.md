@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Eliphaz were Teman, Omar, Zepho, and Gatam, and Kenaz.
+The sons of Eliphaz were Teman, Omar, Zepho, and Gatam, and Kenaz.

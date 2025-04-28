@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember me, O my God, concerning this, and wipe not out my good deeds that I have done for the house of my God, and for the observances thereof.
+Remember me, my God, concerning this, and don't wipe out my good deeds that I have done for the house of my God, and for its observances.

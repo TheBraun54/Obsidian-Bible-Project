@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Why do ye such things? for I hear of your evil dealings from all this people.
+He said to them, "Why do you do such things? for I hear of your evil dealings from all this people.

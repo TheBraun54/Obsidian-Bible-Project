@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, an angel of the Lord stood by him, and a light shined in the cell: and he smote Peter on the side, and awoke him, saying, Rise up quickly. And his chains fell off from his hands.
+And behold, an angel of the Lord stood by him, and a light shone in the cell. He struck Peter on the side, and woke him up, saying, "Stand up quickly!" His chains fell off from his hands.

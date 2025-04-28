@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will scatter them also among the nations, whom neither they nor their fathers have known; and I will send the sword after them, till I have consumed them.
+I will scatter them also among the nations, whom neither they nor their fathers have known; and I will send the sword after them, until I have consumed them.

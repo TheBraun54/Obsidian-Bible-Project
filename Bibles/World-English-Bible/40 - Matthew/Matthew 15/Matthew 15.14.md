@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them alone: they are blind guides. And if the blind guide the blind, both shall fall into a pit.
+Leave them alone. They are blind guides of the blind. If the blind guide the blind, both will fall into a pit."

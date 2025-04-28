@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [as] he did so year by year, when she went up to the house of Jehovah, so she provoked her; therefore she wept, and did not eat.
+[as] he did so year by year, when she went up to the house of Yahweh, so she provoked her; therefore she wept, and did not eat.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are they that keep justice, And he that doeth righteousness at all times.
+Blessed are those who keep justice. Blessed is one who does what is right at all times.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they prophesy falsely unto you in my name: I have not sent them, saith Jehovah.
+For they prophesy falsely to you in my name: I have not sent them, says Yahweh.

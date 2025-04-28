@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Little children, it is the last hour: and as ye heard that antichrist cometh, even now have there arisen many antichrists; whereby we know that it is the last hour.
+Little children, these are the end times, and as you heard that the Antichrist is coming, even now many antichrists have arisen. By this we know that it is the final hour.

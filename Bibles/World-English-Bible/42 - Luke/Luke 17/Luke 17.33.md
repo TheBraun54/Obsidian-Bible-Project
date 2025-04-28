@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever shall seek to gain his life shall lose it: but whosoever shall lose [his life] shall preserve it.
+Whoever seeks to save his life loses it, but whoever loses his life preserves it.

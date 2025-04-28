@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he left the oxen, and ran after Elijah, and said, Let me, I pray thee, kiss my father and my mother, and then I will follow thee. And he said unto him, Go back again; for what have I done to thee?
+He left the oxen, and ran after Elijah, and said, "Let me please kiss my father and my mother, and then I will follow you." He said to him, "Go back again; for what have I done to you?"

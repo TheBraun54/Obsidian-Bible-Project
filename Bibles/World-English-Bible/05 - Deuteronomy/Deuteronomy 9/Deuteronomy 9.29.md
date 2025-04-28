@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet they are thy people and thine inheritance, which thou broughtest out by thy great power and by thine outstretched arm.
+Yet they are your people and your inheritance, which you brought out by your great power and by your outstretched arm."

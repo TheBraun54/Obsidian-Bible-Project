@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahaz begat Jarah; and Jarah begat Alemeth, and Azmaveth, and Zimri; and Zimri begat Moza;
+Ahaz became the father of Jarah; and Jarah became the father of Alemeth, and Azmaveth, and Zimri; and Zimri became the father of Moza;

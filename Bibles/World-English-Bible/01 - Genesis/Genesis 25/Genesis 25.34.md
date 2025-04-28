@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob gave Esau bread and pottage of lentils; and he did eat and drink, and rose up, and went his way: so Esau despised his birthright.
+Jacob gave Esau bread and stew of lentils. He ate and drank, rose up, and went his way. So Esau despised his birthright.

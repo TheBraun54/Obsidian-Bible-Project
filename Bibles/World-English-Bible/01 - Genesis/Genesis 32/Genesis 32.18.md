@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then thou shalt say, [They are] thy servant Jacob's; it is a present sent unto my lord Esau: and, behold, he also is behind us.
+Then you shall say, 'They are your servant, Jacob's. It is a present sent to my lord, Esau. Behold, he also is behind us.'"

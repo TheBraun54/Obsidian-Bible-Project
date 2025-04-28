@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Dibon-gad, and encamped in Almon-diblathaim.
+They traveled from Dibon Gad, and encamped in Almon Diblathaim.

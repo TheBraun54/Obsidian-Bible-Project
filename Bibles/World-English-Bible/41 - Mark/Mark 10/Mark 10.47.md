@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he heard that it was Jesus the Nazarene, he began to cry out, and say, Jesus, thou son of David, have mercy on me.
+When he heard that it was Jesus the Nazarene, he began to cry out, and say, "Jesus, you son of David, have mercy on me!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stolen waters are sweet, And bread [eaten] in secret is pleasant.
+"Stolen water is sweet. Food eaten in secret is pleasant."

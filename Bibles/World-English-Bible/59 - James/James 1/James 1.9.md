@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let the brother of low degree glory in his high estate:
+But let the brother in humble circumstances glory in his high position;

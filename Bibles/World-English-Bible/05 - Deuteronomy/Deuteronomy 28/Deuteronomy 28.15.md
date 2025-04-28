@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it shall come to pass, if thou wilt not hearken unto the voice of Jehovah thy God, to observe to do all his commandments and his statutes which I command thee this day, that all these curses shall come upon thee, and overtake thee.
+But it shall come to pass, if you will not listen to the voice of Yahweh your God, to observe to do all his commandments and his statutes which I command you this day, that all these curses shall come on you, and overtake you.

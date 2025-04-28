@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The bishop therefore must be without reproach, the husband of one wife, temperate, sober-minded, orderly, given to hospitality, apt to teach;
+The overseer therefore must be without reproach, the husband of one wife, temperate, sensible, modest, hospitable, good at teaching;

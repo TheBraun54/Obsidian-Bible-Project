@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Gideon built an altar there unto Jehovah, and called it Jehovah-shalom: unto this day it is yet in Ophrah of the Abiezrites.
+Then Gideon built an altar there to Yahweh, and called it "Yahweh is Peace." To this day it is still in Ophrah of the Abiezrites.

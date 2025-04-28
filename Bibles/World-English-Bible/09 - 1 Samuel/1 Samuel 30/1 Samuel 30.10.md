@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But David pursued, he and four hundred men; for two hundred stayed behind, who were so faint that they could not go over the brook Besor.
+But David pursued, he and four hundred men; for two hundred stayed behind, who were so faint that they couldn't go over the brook Besor.

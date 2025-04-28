@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Bigvai, two thousand fifty and six.
+The children of Bigvai, two thousand fifty-six.

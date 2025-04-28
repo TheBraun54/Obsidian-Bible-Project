@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Prayer of the afflicted, when he is overwhelmed, and poureth out his complaint before Jehovah]. Hear my prayer, O Jehovah, And let my cry come unto thee.
+Hear my prayer, Yahweh! Let my cry come to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wrathful man stirreth up contention; But he that is slow to anger appeaseth strife.
+A wrathful man stirs up contention, but one who is slow to anger appeases strife.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they turned and fled toward the wilderness unto the rock of Rimmon: and they gleaned of them in the highways five thousand men, and followed hard after them unto Gidom, and smote of them two thousand men.
+They turned and fled toward the wilderness to the rock of Rimmon: and they gleaned of them in the highways five thousand men, and followed hard after them to Gidom, and struck of them two thousand men.

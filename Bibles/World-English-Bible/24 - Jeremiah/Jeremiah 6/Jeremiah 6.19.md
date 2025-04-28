@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O earth: behold, I will bring evil upon this people, even the fruit of their thoughts, because they have not hearkened unto my words; and as for my law, they have rejected it.
+Hear, earth! Behold, I will bring evil on this people, even the fruit of their thoughts, because they have not listened to my words; and as for my law, they have rejected it.

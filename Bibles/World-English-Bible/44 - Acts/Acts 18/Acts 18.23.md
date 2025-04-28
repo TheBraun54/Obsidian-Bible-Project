@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And having spent some time [there], he departed, and went through the region of Galatia, and Phrygia, in order, establishing all the disciples.
+Having spent some time there, he departed, and went through the region of Galatia, and Phrygia, in order, establishing all the disciples.

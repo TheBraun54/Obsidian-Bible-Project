@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, all the women that are left in the king of Judah's house shall be brought forth to the king of Babylon's princes, and those women shall say, Thy familiar friends have set thee on, and have prevailed over thee: [now that] thy feet are sunk in the mire, they are turned away back.
+behold, all the women who are left in the king of Judah's house shall be brought forth to the king of Babylon's princes, and those women shall say, Your familiar friends have set you on, and have prevailed over you: [now that] your feet are sunk in the mire, they are turned away back.

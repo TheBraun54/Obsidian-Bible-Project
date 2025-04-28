@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to the land whereunto their soul longeth to return, thither shall they not return.
+But to the land whereunto their soul longs to return, there shall they not return.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But be not thou far off, O Jehovah: O thou my succor, haste thee to help me.
+But don't be far off, Yahweh. You are my help: hurry to help me.

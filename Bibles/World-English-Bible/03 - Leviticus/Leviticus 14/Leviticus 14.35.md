@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then he that owneth the house shall come and tell the priest, saying, There seemeth to me to be as it were a plague in the house.
+then he who owns the house shall come and tell the priest, saying, 'There seems to me to be some sort of plague in the house.'

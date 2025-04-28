@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I brought him to thy disciples, and they could not cure him.
+So I brought him to your disciples, and they could not cure him."

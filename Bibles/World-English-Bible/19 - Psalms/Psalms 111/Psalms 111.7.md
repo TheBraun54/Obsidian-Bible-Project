@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The works of his hands are truth and justice; All his precepts are sure.
+The works of his hands are truth and justice. All his precepts are sure.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the scripture saith unto Pharaoh, For this very purpose did I raise thee up, that I might show in thee my power, and that my name might be published abroad in all the earth.
+For the Scripture says to Pharaoh, "For this very purpose I caused you to be raised up, that I might show in you my power, and that my name might be proclaimed in all the earth."

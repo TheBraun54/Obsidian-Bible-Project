@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou not from this time cry unto me, My Father, thou art the guide of my youth?
+Will you not from this time cry to me, 'My Father, you are the guide of my youth?'

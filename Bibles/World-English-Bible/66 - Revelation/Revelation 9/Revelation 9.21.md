@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they repented not of their murders, nor of their sorceries, nor of their fornication, nor of their thefts.
+They didn't repent of their murders, nor of their sorceries, nor of their sexual immorality, nor of their thefts.

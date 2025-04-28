@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Go, return on thy way to the wilderness of Damascus: and when thou comest, thou shalt anoint Hazael to be king over Syria;
+Yahweh said to him, "Go, return on your way to the wilderness of Damascus. When you arrive, you shall anoint Hazael to be king over Syria.

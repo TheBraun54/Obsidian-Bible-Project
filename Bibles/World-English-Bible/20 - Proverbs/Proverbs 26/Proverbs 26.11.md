@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a dog that returneth to his vomit, [So is] a fool that repeateth his folly.
+As a dog that returns to his vomit, so is a fool who repeats his folly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore deal kindly with thy servant; for thou hast brought thy servant into a covenant of Jehovah with thee: but if there be in me iniquity, slay me thyself; for why shouldest thou bring me to thy father?
+Therefore deal kindly with your servant; for you have brought your servant into a covenant of Yahweh with you: but if there be in me iniquity, kill me yourself; for why should you bring me to your father?"

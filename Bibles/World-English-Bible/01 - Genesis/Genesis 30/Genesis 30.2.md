@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob's anger was kindled against Rachel: and he said, Am I in God's stead, who hath withheld from thee the fruit of the womb?
+Jacob's anger was kindled against Rachel, and he said, "Am I in God's place, who has withheld from you the fruit of the womb?"

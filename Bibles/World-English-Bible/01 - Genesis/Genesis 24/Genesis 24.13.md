@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am standing by the fountain of water; and the daughters of the men of the city are coming out to draw water:
+Behold, I am standing by the spring of water. The daughters of the men of the city are coming out to draw water.

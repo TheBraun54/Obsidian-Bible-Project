@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy habitation is in the midst of deceit; through deceit they refuse to know me, saith Jehovah.
+Your habitation is in the midst of deceit; through deceit they refuse to know me, says Yahweh.

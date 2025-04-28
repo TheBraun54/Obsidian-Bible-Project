@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which things contain an allegory: for these [women] are two covenants; one from mount Sinai, bearing children unto bondage, which is Hagar.
+These things contain an allegory, for these are two covenants. One is from Mount Sinai, bearing children to bondage, which is Hagar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come in, he did eat and drink; and he said, See now to this cursed woman, and bury her; for she is a king's daughter.
+When he was come in, he ate and drink; and he said, "See now to this cursed woman, and bury her; for she is a king's daughter."

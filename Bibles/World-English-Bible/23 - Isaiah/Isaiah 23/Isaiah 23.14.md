@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howl, ye ships of Tarshish; for your stronghold is laid waste.
+Howl, you ships of Tarshish, for your stronghold is laid waste!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Art thou the first man that was born? Or wast thou brought forth before the hills?
+"Are you the first man who was born? Or were you brought forth before the hills?

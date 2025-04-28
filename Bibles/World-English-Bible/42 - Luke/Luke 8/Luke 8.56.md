@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her parents were amazed: but he charged them to tell no man what had been done.
+Her parents were amazed, but he commanded them to tell no one what had been done.

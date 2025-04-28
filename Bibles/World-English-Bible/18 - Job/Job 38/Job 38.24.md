@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By what way is the light parted, Or the east wind scattered upon the earth?
+By what way is the lightning distributed, or the east wind scattered on the earth?

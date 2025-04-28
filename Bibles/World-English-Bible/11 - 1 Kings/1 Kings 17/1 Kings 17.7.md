@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after a while, that the brook dried up, because there was no rain in the land.
+It happened after a while, that the brook dried up, because there was no rain in the land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His hands are [as] rings of gold set with beryl: His body is [as] ivory work overlaid [with] sapphires.
+His hands are like rings of gold set with beryl. His body is like ivory work overlaid with sapphires.

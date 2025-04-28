@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the goat, on which the lot fell for Azazel, shall be set alive before Jehovah, to make atonement for him, to send him away for Azazel into the wilderness.
+But the goat, on which the lot fell for the scapegoat, shall be presented alive before Yahweh, to make atonement for him, to send him away for the scapegoat into the wilderness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto one he gave five talents, to another two, to another one; to each according to his several ability; and he went on his journey.
+To one he gave five talents, to another two, to another one; to each according to his own ability. Then he went on his journey.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and from Heshbon unto Ramath-mizpeh, and Betonim; and from Mahanaim unto the border of Debir;
+and from Heshbon to Ramath Mizpeh, and Betonim; and from Mahanaim to the border of Debir;

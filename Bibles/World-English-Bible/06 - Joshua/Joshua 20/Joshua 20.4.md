@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall flee unto one of those cities, and shall stand at the entrance of the gate of the city, and declare his cause in the ears of the elders of that city; and they shall take him into the city unto them, and give him a place, that he may dwell among them.
+He shall flee to one of those cities, and shall stand at the entrance of the gate of the city, and declare his cause in the ears of the elders of that city. They shall take him into the city with them, and give him a place, that he may live among them.

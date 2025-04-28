@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth is utterly broken, the earth is rent asunder, the earth is shaken violently.
+The earth is utterly broken. The earth is torn apart. The earth is shaken violently.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou preparedst [room] before it, And it took deep root, and filled the land.
+You cleared the ground for it. It took deep root, and filled the land.

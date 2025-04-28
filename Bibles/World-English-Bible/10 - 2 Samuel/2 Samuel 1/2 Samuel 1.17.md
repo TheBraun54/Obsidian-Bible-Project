@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David lamented with this lamentation over Saul and over Jonathan his son
+David lamented with this lamentation over Saul and over Jonathan his son

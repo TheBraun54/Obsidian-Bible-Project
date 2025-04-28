@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat dwelt at Jerusalem: and he went out again among the people from Beer-sheba to the hill-country of Ephraim, and brought them back unto Jehovah, the God of their fathers.
+Jehoshaphat lived at Jerusalem: and he went out again among the people from Beersheba to the hill country of Ephraim, and brought them back to Yahweh, the God of their fathers.

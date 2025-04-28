@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Distress and anguish make him afraid; They prevail against him, as a king ready to the battle.
+Distress and anguish make him afraid. They prevail against him, as a king ready to the battle.

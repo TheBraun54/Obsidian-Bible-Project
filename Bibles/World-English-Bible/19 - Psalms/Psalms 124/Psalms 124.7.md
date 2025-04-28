@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our soul is escaped as a bird out of the snare of the fowlers: The snare is broken, and we are escaped.
+Our soul has escaped like a bird out of the fowler's snare. The snare is broken, and we have escaped.

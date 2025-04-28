@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Hannah went not up; for she said unto her husband, [I will not go up] until the child be weaned; and then I will bring him, that he may appear before Jehovah, and there abide for ever.
+But Hannah didn't go up; for she said to her husband, "Not until the child is weaned; then I will bring him, that he may appear before Yahweh, and stay there forever."

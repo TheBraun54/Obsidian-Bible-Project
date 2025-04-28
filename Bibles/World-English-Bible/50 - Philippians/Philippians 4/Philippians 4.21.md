@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute every saint in Christ Jesus. The brethren that are with me salute you.
+Greet every saint in Christ Jesus. The brothers who are with me greet you.

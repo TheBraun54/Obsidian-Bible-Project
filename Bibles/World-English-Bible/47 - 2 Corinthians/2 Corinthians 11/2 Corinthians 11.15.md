@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is no great thing therefore if his ministers also fashion themselves as ministers of righteousness, whose end shall be according to their works.
+It is no great thing therefore if his servants also masquerade as servants of righteousness, whose end will be according to their works.

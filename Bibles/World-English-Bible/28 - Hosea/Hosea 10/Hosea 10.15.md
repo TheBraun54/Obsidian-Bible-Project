@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall Beth-el do unto you because of your great wickedness: at daybreak shall the king of Israel be utterly cut off.
+So Bethel will do to you because of your great wickedness. At daybreak the king of Israel will be destroyed.

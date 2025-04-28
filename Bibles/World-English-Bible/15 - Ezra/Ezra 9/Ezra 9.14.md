@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-shall we again break thy commandments, and join in affinity with the peoples that do these abominations? wouldest not thou be angry with us till thou hadst consumed us, so that there should be no remnant, nor any to escape?
+shall we again break your commandments, and join in affinity with the peoples that do these abominations? Wouldn't you be angry with us until you had consumed us, so that there should be no remnant, nor any to escape?

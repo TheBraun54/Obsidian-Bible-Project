@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One is so near to another, That no air can come between them.
+One is so near to another, that no air can come between them.

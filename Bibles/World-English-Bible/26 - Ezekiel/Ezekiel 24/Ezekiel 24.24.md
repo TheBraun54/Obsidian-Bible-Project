@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shall Ezekiel be unto you a sign; according to all that he hath done shall ye do: when this cometh, then shall ye know that I am the Lord Jehovah.
+Thus Ezekiel shall be a sign to you; according to all that he has done, you will do. When this comes, then you will know that I am the Lord Yahweh.

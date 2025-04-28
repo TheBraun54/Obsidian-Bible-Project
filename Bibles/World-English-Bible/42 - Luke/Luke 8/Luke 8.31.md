@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they entreated him that he would not command them to depart into the abyss.
+They begged him that he would not command them to go into the abyss.

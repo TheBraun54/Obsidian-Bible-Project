@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the brethren of the poor do hate him: How much more do his friends go far from him! He pursueth [them with] words, [but] they are gone.
+All the relatives of the poor shun him: how much more do his friends avoid him! He pursues them with pleas, but they are gone.

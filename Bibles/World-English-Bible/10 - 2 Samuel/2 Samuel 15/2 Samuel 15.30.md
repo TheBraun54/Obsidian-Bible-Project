@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went up by the ascent of the [mount of] Olives, and wept as he went up; and he had his head covered, and went barefoot: and all the people that were with him covered every man his head, and they went up, weeping as they went up.
+David went up by the ascent of the [Mount of] Olives, and wept as he went up; and he had his head covered, and went barefoot: and all the people who were with him covered every man his head, and they went up, weeping as they went up.

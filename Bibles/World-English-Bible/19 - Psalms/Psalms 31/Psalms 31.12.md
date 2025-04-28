@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am forgotten as a dead man out of mind: I am like a broken vessel.
+I am forgotten from their hearts like a dead man. I am like broken pottery.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine anger is kindled against the shepherds, and I will punish the he-goats; for Jehovah of hosts hath visited his flock, the house of Judah, and will make them as his goodly horse in the battle.
+My anger is kindled against the shepherds, and I will punish the male goats; For Yahweh of Armies has visited his flock, the house of Judah, and will make them as his majestic horse in the battle.

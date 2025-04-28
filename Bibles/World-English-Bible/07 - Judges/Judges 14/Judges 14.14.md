@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Out of the eater came forth food, And out of the strong came forth sweetness. And they could not in three days declare the riddle.
+He said to them, "Out of the eater came forth food. Out of the strong came forth sweetness." They couldn't in three days declare the riddle.

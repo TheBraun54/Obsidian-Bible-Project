@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is written, that Abraham had two sons, one by the handmaid, and one by the freewoman.
+For it is written that Abraham had two sons, one by the handmaid, and one by the free woman.

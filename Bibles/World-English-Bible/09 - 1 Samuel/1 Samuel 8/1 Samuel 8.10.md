@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel told all the words of Jehovah unto the people that asked of him a king.
+Samuel told all the words of Yahweh to the people who asked of him a king.

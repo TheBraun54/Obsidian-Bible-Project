@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David sent ten young men, and David said unto the young men, Get you up to Carmel, and go to Nabal, and greet him in my name:
+David sent ten young men, and David said to the young men, "Go up to Carmel, and go to Nabal, and greet him in my name.

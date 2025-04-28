@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the children of Ammon. Thus saith Jehovah: Hath Israel no sons? hath he no heir? why then doth Malcam possess Gad, and his people dwell in the cities thereof?
+Of the children of Ammon. Thus says Yahweh: Has Israel no sons? has he no heir? why then does Malcam possess Gad, and his people well in its cities?

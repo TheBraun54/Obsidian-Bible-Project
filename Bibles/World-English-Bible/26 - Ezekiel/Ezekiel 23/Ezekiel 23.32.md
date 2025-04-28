@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Thou shalt drink of thy sister's cup, which is deep and large; thou shalt be laughed to scorn and had in derision; it containeth much.
+Thus says the Lord Yahweh: You will drink of your sister's cup, which is deep and large; you will be ridiculed and held in derision; it contains much.

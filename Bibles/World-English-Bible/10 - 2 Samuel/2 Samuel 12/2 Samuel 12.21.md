@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said his servants unto him, What thing is this that thou hast done? thou didst fast and weep for the child, while it was alive; but when the child was dead, thou didst rise and eat bread.
+Then his servants said to him, "What is this that you have done? You fasted and wept for the child while he was alive; but when the child was dead, you rose up and ate bread."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man serve me, let him follow me; and where I am, there shall also my servant be: if any man serve me, him will the Father honor.
+If anyone serves me, let him follow me. Where I am, there will my servant also be. If anyone serves me, the Father will honor him.

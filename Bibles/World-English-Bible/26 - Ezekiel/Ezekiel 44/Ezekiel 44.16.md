@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they shall enter into my sanctuary, and they shall come near to my table, to minister unto me, and they shall keep my charge.
+they shall enter into my sanctuary, and they shall come near to my table, to minister to me, and they shall keep my instruction.

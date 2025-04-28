@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron went in unto Pharaoh, and they did so, as Jehovah had commanded: and Aaron cast down his rod before Pharaoh and before his servants, and it became a serpent.
+Moses and Aaron went in to Pharaoh, and they did so, as Yahweh had commanded: and Aaron cast down his rod before Pharaoh and before his servants, and it became a serpent.

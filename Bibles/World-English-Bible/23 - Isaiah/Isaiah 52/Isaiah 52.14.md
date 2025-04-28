@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Like as many were astonished at thee (his visage was so marred more than any man, and his form more than the sons of men),
+Like as many were astonished at you (his appearance was marred more than any man, and his form more than the sons of men),

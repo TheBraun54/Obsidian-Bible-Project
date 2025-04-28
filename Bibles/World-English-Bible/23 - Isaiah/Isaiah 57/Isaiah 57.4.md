@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Against whom do ye sport yourselves? against whom make ye a wide mouth, and put out the tongue? are ye not children of transgression, a seed of falsehood,
+Against whom do you sport yourselves? Against whom do you make a wide mouth, and stick out your tongue? Aren't you children of disobedience, a seed of falsehood,

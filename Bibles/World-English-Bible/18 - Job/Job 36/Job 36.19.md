@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will thy cry avail, [that thou be] not in distress, Or all the forces of [thy] strength?
+Would your wealth sustain you in distress, or all the might of your strength?

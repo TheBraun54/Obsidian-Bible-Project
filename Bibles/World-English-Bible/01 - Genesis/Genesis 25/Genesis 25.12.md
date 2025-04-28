@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the generations of Ishmael, Abraham's son, whom Hagar the Egyptian, Sarah's handmaid, bare unto Abraham:
+Now this is the history of the generations of Ishmael, Abraham's son, whom Hagar the Egyptian, Sarah's handmaid, bore to Abraham.

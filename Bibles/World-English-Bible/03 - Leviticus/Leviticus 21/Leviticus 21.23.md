@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-only he shall not go in unto the veil, nor come nigh unto the altar, because he hath a blemish; that he profane not my sanctuaries: for I am Jehovah who sanctifieth them.
+He shall not come near to the veil, nor come near to the altar, because he has a blemish; that he may not profane my sanctuaries, for I am Yahweh who sanctifies them.'"

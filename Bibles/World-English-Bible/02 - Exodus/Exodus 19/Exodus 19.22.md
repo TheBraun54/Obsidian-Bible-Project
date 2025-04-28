@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let the priests also, that come near to Jehovah, sanctify themselves, lest Jehovah break forth upon them.
+Let the priests also, who come near to Yahweh, sanctify themselves, lest Yahweh break forth on them."

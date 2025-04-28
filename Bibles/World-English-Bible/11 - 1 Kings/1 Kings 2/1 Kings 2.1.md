@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the days of David drew nigh that he should die; and he charged Solomon his son, saying,
+Now the days of David drew near that he should die; and he commanded Solomon his son, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all the peoples walk every one in the name of his god; and we will walk in the name of Jehovah our God for ever and ever.
+Indeed all the nations may walk in the name of their gods; but we will walk in the name of Yahweh our God forever and ever.

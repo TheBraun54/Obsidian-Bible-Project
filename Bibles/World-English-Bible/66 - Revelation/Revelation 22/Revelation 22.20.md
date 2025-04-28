@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He who testifieth these things saith, Yea: I come quickly. Amen: come, Lord Jesus.
+He who testifies these things says, "Yes, I come quickly." Amen! Yes, come, Lord Jesus.

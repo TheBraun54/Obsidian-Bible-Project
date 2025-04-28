@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they delivered the burnt-offering unto him, piece by piece, and the head: and he burnt them upon the altar.
+They delivered the burnt offering to him, piece by piece, and the head: and he burned them upon the altar.

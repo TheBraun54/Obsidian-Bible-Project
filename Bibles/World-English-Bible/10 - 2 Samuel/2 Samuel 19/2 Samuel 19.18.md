@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went over a ferry-boat to bring over the king's household, and to do what he thought good. And Shimei the son of Gera fell down before the king, when he was come over the Jordan.
+A ferry boat went to bring over the king's household, and to do what he thought good. Shimei the son of Gera fell down before the king, when he was come over the Jordan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the second month on the fourteenth day at even they shall keep it; they shall eat it with unleavened bread and bitter herbs:
+In the second month, on the fourteenth day at evening they shall keep it; they shall eat it with unleavened bread and bitter herbs.

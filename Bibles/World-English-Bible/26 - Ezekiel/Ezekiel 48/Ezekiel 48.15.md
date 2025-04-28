@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the five thousand that are left in the breadth, in front of the five and twenty thousand, shall be for common use, for the city, for dwelling and for suburbs; and the city shall be in the midst thereof.
+The five thousand that are left in the breadth, in front of the twenty-five thousand, shall be for common use, for the city, for dwelling and for suburbs; and the city shall be in its midst.

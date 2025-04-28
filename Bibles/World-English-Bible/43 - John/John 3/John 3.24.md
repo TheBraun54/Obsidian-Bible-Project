@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For John was not yet cast into prison.
+For John was not yet thrown into prison.

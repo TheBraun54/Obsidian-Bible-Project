@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now on the first [day] of the week cometh Mary Magdalene early, while it was yet dark, unto the tomb, and seeth the stone taken away from the tomb.
+Now on the first day of the week, Mary Magdalene went early, while it was still dark, to the tomb, and saw the stone taken away from the tomb.

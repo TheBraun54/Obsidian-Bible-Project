@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it was little which thou hadst before I came, and it hath increased unto a multitude; and Jehovah hath blessed thee whithersoever I turned: and now when shall I provide for mine own house also?
+For it was little which you had before I came, and it has increased to a multitude. Yahweh has blessed you wherever I turned. Now when will I provide for my own house also?"

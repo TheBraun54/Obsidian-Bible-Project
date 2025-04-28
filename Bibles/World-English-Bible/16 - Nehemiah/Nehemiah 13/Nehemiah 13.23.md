@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days also saw I the Jews that had married women of Ashdod, of Ammon, [and] of Moab:
+In those days also saw I the Jews who had married women of Ashdod, of Ammon, [and] of Moab:

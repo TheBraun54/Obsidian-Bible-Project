@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as it is taken off from the ox of the sacrifice of peace-offerings: and the priest shall burn them upon the altar of burnt-offering.
+as it is taken off of the bull of the sacrifice of peace offerings. The priest shall burn them on the altar of burnt offering.

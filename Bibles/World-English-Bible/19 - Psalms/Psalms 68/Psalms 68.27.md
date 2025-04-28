@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is little Benjamin their ruler, The princes of Judah [and] their council, The princes of Zebulun, the princes of Naphtali.
+There is little Benjamin, their ruler, the princes of Judah, their council, the princes of Zebulun, and the princes of Naphtali.

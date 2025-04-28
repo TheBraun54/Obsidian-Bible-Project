@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men that journeyed with him stood speechless, hearing the voice, but beholding no man.
+The men who traveled with him stood speechless, hearing the sound, but seeing no one.

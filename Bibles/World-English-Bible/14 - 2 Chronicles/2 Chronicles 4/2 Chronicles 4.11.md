@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Huram made the pots, and the shovels, and the basins. So Huram made an end of doing the work that he wrought for king Solomon in the house of God:
+Huram made the pots, and the shovels, and the basins. So Huram made an end of doing the work that he did for king Solomon in the house of God:

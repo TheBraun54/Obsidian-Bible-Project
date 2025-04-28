@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God called the dry land Earth; and the gathering together of the waters called he Seas: and God saw that it was good.
+God called the dry land "earth," and the gathering together of the waters he called "seas." God saw that it was good.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore turn thou to thy God: keep kindness and justice, and wait for thy God continually.
+Therefore turn to your God. Keep kindness and justice, and wait continually for your God.

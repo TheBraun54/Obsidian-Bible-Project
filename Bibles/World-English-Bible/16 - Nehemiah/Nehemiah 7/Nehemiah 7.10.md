@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Arah, six hundred fifty and two.
+The children of Arah, six hundred fifty-two.

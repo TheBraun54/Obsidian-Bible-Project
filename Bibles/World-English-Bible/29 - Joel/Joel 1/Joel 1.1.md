@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word of Jehovah that came to Joel the son of Pethuel.
+The Word of Yahweh that came to Joel, the son of Pethuel.

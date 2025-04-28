@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever goeth upon its paws, among all beasts that go on all fours, they are unclean unto you: whoso toucheth their carcass shall be unclean until the even.
+Whatever goes on its paws, among all animals that go on all fours, they are unclean to you. Whoever touches their carcass shall be unclean until the evening.

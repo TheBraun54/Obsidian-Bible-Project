@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to esteem them exceeding highly in love for their work's sake. Be at peace among yourselves.
+and to respect and honor them in love for their work's sake. Be at peace among yourselves.

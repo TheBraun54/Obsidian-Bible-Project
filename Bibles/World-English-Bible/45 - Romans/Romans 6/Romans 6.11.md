@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so reckon ye also yourselves to be dead unto sin, but alive unto God in Christ Jesus.
+Thus consider yourselves also to be dead to sin, but alive to God in Christ Jesus our Lord.

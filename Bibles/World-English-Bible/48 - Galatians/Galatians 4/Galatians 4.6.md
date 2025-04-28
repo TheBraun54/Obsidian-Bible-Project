@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And because ye are sons, God sent forth the Spirit of his Son into our hearts, crying, Abba, Father.
+And because you are children, God sent out the Spirit of his Son into your hearts, crying, "Abba, Father!"

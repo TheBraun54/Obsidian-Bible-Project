@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they burnt the city with fire, and all that was therein; only the silver, and the gold, and the vessels of brass and of iron, they put into the treasury of the house of Jehovah.
+They burnt the city with fire, and all that was in it. Only they put the silver, the gold, and the vessels of brass and of iron into the treasury of Yahweh's house.

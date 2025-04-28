@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after three months we set sail in a ship of Alexandria which had wintered in the island, whose sign was The Twin Brothers.
+After three months, we set sail in a ship of Alexandria which had wintered in the island, whose sign was "The Twin Brothers."

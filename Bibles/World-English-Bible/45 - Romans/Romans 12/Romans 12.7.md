@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or ministry, [let us give ourselves] to our ministry; or he that teacheth, to his teaching;
+or service, let us give ourselves to service; or he who teaches, to his teaching;

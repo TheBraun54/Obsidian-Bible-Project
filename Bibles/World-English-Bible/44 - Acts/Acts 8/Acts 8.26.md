@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But an angel of the Lord spake unto Philip, saying, Arise, and go toward the south unto the way that goeth down from Jerusalem unto Gaza: the same is desert.
+But an angel of the Lord spoke to Philip, saying, "Arise, and go toward the south to the way that goes down from Jerusalem to Gaza. This is a desert."

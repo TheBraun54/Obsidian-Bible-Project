@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and we took their land, and gave it for an inheritance unto the Reubenites, and to the Gadites, and to the half-tribe of the Manassites.
+and we took their land, and gave it for an inheritance to the Reubenites, and to the Gadites, and to the half-tribe of the Manassites.

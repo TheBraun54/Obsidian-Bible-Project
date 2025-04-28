@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul said to the centurion and to the soldiers, Except these abide in the ship, ye cannot be saved.
+Paul said to the centurion and to the soldiers, "Unless these stay in the ship, you can't be saved."

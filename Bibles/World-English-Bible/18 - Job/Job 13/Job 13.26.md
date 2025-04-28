@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou writest bitter things against me, And makest me to inherit the iniquities of my youth:
+For you write bitter things against me, and make me inherit the iniquities of my youth:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware lest ye say, We have found wisdom; God may vanquish him, not man:
+Beware lest you say, 'We have found wisdom, God may refute him, not man;'

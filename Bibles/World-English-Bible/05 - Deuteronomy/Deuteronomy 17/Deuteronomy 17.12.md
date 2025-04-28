@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man that doeth presumptuously, in not hearkening unto the priest that standeth to minister there before Jehovah thy God, or unto the judge, even that man shall die: and thou shalt put away the evil from Israel.
+The man who does presumptuously, in not listening to the priest who stands to minister there before Yahweh your God, or to the judge, even that man shall die: and you shall put away the evil from Israel.

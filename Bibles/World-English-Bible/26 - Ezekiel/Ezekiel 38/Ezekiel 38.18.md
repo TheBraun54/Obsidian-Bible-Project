@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, when Gog shall come against the land of Israel, saith the Lord Jehovah, that my wrath shall come up into my nostrils.
+It shall happen in that day, when Gog shall come against the land of Israel, says the Lord Yahweh, that my wrath shall come up into my nostrils.

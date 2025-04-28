@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus hath Jehovah of hosts said, Hew ye down trees, and cast up a mound against Jerusalem: this is the city to be visited; she is wholly oppression in the midst of her.
+For Yahweh of Armies said, "Cut down trees, and cast up a mound against Jerusalem: this is the city to be visited; she is wholly oppression in the midst of her.

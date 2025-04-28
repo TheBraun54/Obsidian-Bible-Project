@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She hath killed her beasts; She hath mingled her wine; She hath also furnished her table:
+She has prepared her meat. She has mixed her wine. She has also set her table.

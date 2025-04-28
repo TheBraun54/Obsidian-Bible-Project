@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(although Jesus himself baptized not, but his disciples),
+(although Jesus himself didn't baptize, but his disciples),

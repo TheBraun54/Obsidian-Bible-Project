@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Amalek dwelleth in the land of the South: and the Hittite, and the Jebusite, and the Amorite, dwell in the hill-country; and the Canaanite dwelleth by the sea, and along by the side of the Jordan.
+Amalek dwells in the land of the South: and the Hittite, and the Jebusite, and the Amorite, dwell in the hill country; and the Canaanite dwells by the sea, and along by the side of the Jordan."

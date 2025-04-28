@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they forgat Jehovah their God; and he sold them into the hand of Sisera, captain of the host of Hazor, and into the hand of the Philistines, and into the hand of the king of Moab; and they fought against them.
+"But they forgot Yahweh their God; and he sold them into the hand of Sisera, captain of the army of Hazor, and into the hand of the Philistines, and into the hand of the king of Moab; and they fought against them.

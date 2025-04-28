@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, God doeth loftily in his power: Who is a teacher like unto him?
+Behold, God is exalted in his power. Who is a teacher like him?

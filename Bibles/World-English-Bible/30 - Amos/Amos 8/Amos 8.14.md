@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that swear by the sin of Samaria, and say, As thy god, O Dan, liveth; and, As the way of Beer-sheba liveth; they shall fall, and never rise up again.
+Those who swear by the sin of Samaria, and say, 'As your god, Dan, lives;' and, 'As the way of Beersheba lives;' they will fall, and never rise up again."

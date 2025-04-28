@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Cyrus king of Persia, All the kingdoms of the earth hath Jehovah, the God of heaven, given me; and he hath charged me to build him a house in Jerusalem, which is in Judah. Whosoever there is among you of all his people, Jehovah his God be with him, and let him go up.
+"Thus says Cyrus king of Persia, 'Yahweh, the God of heaven, has given all the kingdoms of the earth to me; and he has commanded me to build him a house in Jerusalem, which is in Judah. Whoever there is among you of all his people, Yahweh his God be with him, and let him go up.'"

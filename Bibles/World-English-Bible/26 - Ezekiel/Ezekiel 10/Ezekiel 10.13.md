@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the wheels, they were called in my hearing, the whirling [wheels] .
+As for the wheels, they were called in my hearing, the whirling [wheels].

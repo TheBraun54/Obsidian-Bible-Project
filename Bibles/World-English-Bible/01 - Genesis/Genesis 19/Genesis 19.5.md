@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they called unto Lot, and said unto him, Where are the men that came in to thee this night? bring them out unto us, that we may know them.
+They called to Lot, and said to him, "Where are the men who came in to you this night? Bring them out to us, that we may have sex with them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall cause their voice to be heard over thee, and shall cry bitterly, and shall cast up dust upon their heads, they shall wallow themselves in the ashes:
+and shall cause their voice to be heard over you, and shall cry bitterly, and shall cast up dust on their heads, they shall wallow themselves in the ashes:

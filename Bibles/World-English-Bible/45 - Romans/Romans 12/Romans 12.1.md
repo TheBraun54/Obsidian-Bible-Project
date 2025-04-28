@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beseech you therefore, brethren, by the mercies of God, to present your bodies a living sacrifice, holy, acceptable to God, [which is] your spiritual service.
+Therefore I urge you, brothers, by the mercies of God, to present your bodies a living sacrifice, holy, acceptable to God, which is your spiritual service.

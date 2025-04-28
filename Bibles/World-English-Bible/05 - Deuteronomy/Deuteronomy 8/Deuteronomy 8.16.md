@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who fed thee in the wilderness with manna, which thy fathers knew not; that he might humble thee, and that he might prove thee, to do thee good at thy latter end:
+who fed you in the wilderness with manna, which your fathers didn't know; that he might humble you, and that he might prove you, to do you good at your latter end:

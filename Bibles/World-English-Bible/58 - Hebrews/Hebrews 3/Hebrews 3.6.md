@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Christ as a son, over his house; whose house are we, if we hold fast our boldness and the glorying of our hope firm unto the end.
+but Christ is faithful as a Son over his house; whose house we are, if we hold fast our confidence and the glorying of our hope firm to the end.

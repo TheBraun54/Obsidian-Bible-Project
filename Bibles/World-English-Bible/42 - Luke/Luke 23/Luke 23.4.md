@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate said unto the chief priests and the multitudes, I find no fault in this man.
+Pilate said to the chief priests and the multitudes, "I find no basis for a charge against this man."

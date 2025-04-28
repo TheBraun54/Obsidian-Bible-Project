@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king that faithfully judgeth the poor, His throne shall be established for ever.
+The king who fairly judges the poor, his throne shall be established forever.

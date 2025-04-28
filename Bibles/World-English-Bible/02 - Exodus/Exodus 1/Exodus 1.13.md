@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Egyptians made the children of Israel to serve with rigor:
+The Egyptians ruthlessly made the children of Israel serve,

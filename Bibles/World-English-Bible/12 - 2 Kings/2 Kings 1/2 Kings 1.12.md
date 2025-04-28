@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah answered and said unto them, If I be a man of God, let fire come down from heaven, and consume thee and thy fifty. And the fire of God came down from heaven, and consumed him and his fifty.
+Elijah answered them, "If I am a man of God, let fire come down from the sky, and consume you and your fifty!" The fire of God came down from the sky, and consumed him and his fifty.

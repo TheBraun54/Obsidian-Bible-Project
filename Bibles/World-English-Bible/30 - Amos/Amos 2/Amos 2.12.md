@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye gave the Nazirites wine to drink, and commanded the prophets, saying, Prophesy not.
+"But you gave the Nazirites wine to drink, and commanded the prophets, saying, 'Don't prophesy!'

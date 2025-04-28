@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and hath not wronged any, but hath restored to the debtor his pledge, hath taken nought by robbery, hath given his bread to the hungry, and hath covered the naked with a garment;
+and has not wronged any, but has restored to the debtor his pledge, has taken nothing by robbery, has given his bread to the hungry, and has covered the naked with a garment;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How hath the Lord covered the daughter of Zion with a cloud in his anger! He hath cast down from heaven unto the earth the beauty of Israel, And hath not remembered his footstool in the day of his anger.
+How has the Lord covered the daughter of Zion with a cloud in his anger! He has cast down from heaven to the earth the beauty of Israel, And hasn't remembered his footstool in the day of his anger.

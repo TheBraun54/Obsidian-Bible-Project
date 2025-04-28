@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath made himself known, he hath executed judgment: The wicked is snared in the work of his own hands. {{Higgaion. Selah
+Yahweh has made himself known. He has executed judgment. The wicked is snared by the work of his own hands. Meditation. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Gideon, and the hundred men that were with him, came unto the outermost part of the camp in the beginning of the middle watch, when they had but newly set the watch: and they blew the trumpets, and brake in pieces the pitchers that were in their hands.
+So Gideon, and the hundred men who were with him, came to the outermost part of the camp in the beginning of the middle watch, when they had but newly set the watch: and they blew the trumpets, and broke in pieces the pitchers that were in their hands.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have feared the sword; and I will bring the sword upon you, saith the Lord Jehovah.
+You have feared the sword; and I will bring the sword on you, says the Lord Yahweh.

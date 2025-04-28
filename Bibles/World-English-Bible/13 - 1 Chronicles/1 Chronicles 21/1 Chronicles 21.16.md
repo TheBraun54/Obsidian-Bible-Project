@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David lifted up his eyes, and saw the angel of Jehovah standing between earth and heaven, having a drawn sword in his hand stretched out over Jerusalem. Then David and the elders, clothed in sackcloth, fell upon their faces.
+David lifted up his eyes, and saw the angel of Yahweh standing between earth and the sky, having a drawn sword in his hand stretched out over Jerusalem. Then David and the elders, clothed in sackcloth, fell on their faces.

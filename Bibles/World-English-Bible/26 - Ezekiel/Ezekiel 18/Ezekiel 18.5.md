@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if a man be just, and do that which is lawful and right,
+But if a man is just, and does that which is lawful and right,

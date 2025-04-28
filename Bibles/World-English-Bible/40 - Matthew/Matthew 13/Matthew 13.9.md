@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath ears, let him hear.
+He who has ears to hear, let him hear."

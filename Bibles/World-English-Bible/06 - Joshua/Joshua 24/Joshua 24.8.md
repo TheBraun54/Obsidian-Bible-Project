@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I brought you into the land of the Amorites, that dwelt beyond the Jordan: and they fought with you; and I gave them into your hand, and ye possessed their land; and I destroyed them from before you.
+"'I brought you into the land of the Amorites, that lived beyond the Jordan: and they fought with you; and I gave them into your hand. You possessed their land; and I destroyed them from before you.

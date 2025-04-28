@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Obed-edom had sons: Shemaiah the first-born, Jehozabad the second, Joah the third, and Sacar the fourth, and Nethanel the fifth,
+Obed-Edom had sons: Shemaiah the firstborn, Jehozabad the second, Joah the third, and Sacar the fourth, and Nethanel the fifth,

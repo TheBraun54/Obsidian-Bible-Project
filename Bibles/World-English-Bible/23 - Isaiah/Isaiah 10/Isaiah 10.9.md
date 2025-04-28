@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not Calno as Carchemish? is not Hamath as Arpad? is not Samaria as Damascus?
+Isn't Calno like Carchemish? Isn't Hamath like Arpad? Isn't Samaria like Damascus?"

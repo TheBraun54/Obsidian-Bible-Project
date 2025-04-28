@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto Joseph, I have dreamed a dream, and there is none that can interpret it: and I have heard say of thee, that when thou hearest a dream thou canst interpret it.
+Pharaoh said to Joseph, "I have dreamed a dream, and there is no one who can interpret it. I have heard it said of you, that when you hear a dream you can interpret it."

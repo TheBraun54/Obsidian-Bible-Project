@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh the barren woman to keep house, [And to be] a joyful mother of children. Praise ye Jehovah.
+He settles the barren woman in her home, as a joyful mother of children. Praise Yah!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the pride of the wicked the poor is hotly pursued; Let them be taken in the devices that they have conceived.
+In arrogance, the wicked hunt down the weak. They are caught in the schemes that they devise.

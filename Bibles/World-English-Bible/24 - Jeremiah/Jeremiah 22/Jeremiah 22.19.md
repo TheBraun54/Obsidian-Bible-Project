@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall be buried with the burial of an ass, drawn and cast forth beyond the gates of Jerusalem.
+He shall be buried with the burial of a donkey, drawn and cast forth beyond the gates of Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fool despiseth his father's correction; But he that regardeth reproof getteth prudence.
+A fool despises his father's correction, but he who heeds reproof shows prudence.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The blessings of thy father Have prevailed above the blessings of my progenitors Unto the utmost bound of the everlasting hills: They shall be on the head of Joseph, And on the crown of the head of him that was separate from his brethren.
+The blessings of your father have prevailed above the blessings of your ancestors, above the boundaries of the ancient hills. They will be on the head of Joseph, on the crown of the head of him who is separated from his brothers.

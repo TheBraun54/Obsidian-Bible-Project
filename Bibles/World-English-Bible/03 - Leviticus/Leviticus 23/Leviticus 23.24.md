@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, In the seventh month, on the first day of the month, shall be a solemn rest unto you, a memorial of blowing of trumpets, a holy convocation.
+"Speak to the children of Israel, saying, 'In the seventh month, on the first day of the month, shall be a solemn rest to you, a memorial of blowing of trumpets, a holy convocation.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Pass on before the people, and take with thee of the elders of Israel; and thy rod, wherewith thou smotest the river, take in thy hand, and go.
+Yahweh said to Moses, "Walk on before the people, and take the elders of Israel with you, and take the rod in your hand with which you struck the Nile, and go.

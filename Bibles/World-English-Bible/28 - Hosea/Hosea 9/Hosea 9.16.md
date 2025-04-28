@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim is smitten, their root is dried up, they shall bear no fruit: yea, though they bring forth, yet will I slay the beloved fruit of their womb.
+Ephraim is struck. Their root has dried up. They will bear no fruit. Even though they bring forth, yet I will kill the beloved ones of their womb."

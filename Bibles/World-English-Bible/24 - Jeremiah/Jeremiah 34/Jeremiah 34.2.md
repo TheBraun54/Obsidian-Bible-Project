@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, the God of Israel, Go, and speak to Zedekiah king of Judah, and tell him, Thus saith Jehovah, Behold, I will give this city into the hand of the king of Babylon, and he shall burn it with fire:
+Thus says Yahweh, the God of Israel, Go, and speak to Zedekiah king of Judah, and tell him, Thus says Yahweh, Behold, I will give this city into the hand of the king of Babylon, and he shall burn it with fire:

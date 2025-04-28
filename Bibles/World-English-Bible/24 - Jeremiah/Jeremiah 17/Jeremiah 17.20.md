@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say unto them, Hear ye the word of Jehovah, ye kings of Judah, and all Judah, and all the inhabitants of Jerusalem, that enter in by these gates:
+and tell them, Hear the word of Yahweh, you kings of Judah, and all Judah, and all the inhabitants of Jerusalem, that enter in by these gates:

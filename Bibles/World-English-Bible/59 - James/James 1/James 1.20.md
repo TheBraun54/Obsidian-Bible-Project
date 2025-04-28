@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the wrath of man worketh not the righteousness of God.
+for the anger of man doesn't produce the righteousness of God.

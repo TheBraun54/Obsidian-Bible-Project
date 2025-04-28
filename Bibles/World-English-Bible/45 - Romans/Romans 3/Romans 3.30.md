@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if so be that God is one, and he shall justify the circumcision by faith, and the uncircumcision through faith.
+since indeed there is one God who will justify the circumcised by faith, and the uncircumcised through faith.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I am seeking my brethren: tell me, I pray thee, where they are feeding [the flock] .
+He said, "I am looking for my brothers. Tell me, please, where they are feeding the flock."

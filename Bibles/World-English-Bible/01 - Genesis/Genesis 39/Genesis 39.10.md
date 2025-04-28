@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as she spake to Joseph day by day, that he hearkened not unto her, to lie by her, [or] to be with her.
+As she spoke to Joseph day by day, he didn't listen to her, to lie by her, or to be with her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will take you to me for a people, and I will be to you a God; and ye shall know that I am Jehovah your God, who bringeth you out from under the burdens of the Egyptians.
+and I will take you to me for a people, and I will be to you a God; and you shall know that I am Yahweh your God, who brings you out from under the burdens of the Egyptians.

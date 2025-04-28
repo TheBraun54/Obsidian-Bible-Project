@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, when the king saw Esther the queen standing in the court, that she obtained favor in his sight; and the king held out to Esther the golden sceptre that was in his hand. So Esther drew near, and touched the top of the sceptre.
+When the king saw Esther the queen standing in the court, she obtained favor in his sight; and the king held out to Esther the golden scepter that was in his hand. So Esther came near, and touched the top of the scepter.

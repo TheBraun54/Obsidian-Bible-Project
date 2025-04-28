@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that as all the good things are come upon you of which Jehovah your God spake unto you, so will Jehovah bring upon you all the evil things, until he have destroyed you from off this good land which Jehovah your God hath given you.
+It shall happen that as all the good things have come on you of which Yahweh your God spoke to you, so Yahweh will bring on you all the evil things, until he has destroyed you from off this good land which Yahweh your God has given you,

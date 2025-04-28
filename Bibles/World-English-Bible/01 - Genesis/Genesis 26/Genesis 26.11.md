@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech charged all the people, saying, He that toucheth this man or his wife shall surely be put to death.
+Abimelech commanded all the people, saying, "He who touches this man or his wife will surely be put to death."

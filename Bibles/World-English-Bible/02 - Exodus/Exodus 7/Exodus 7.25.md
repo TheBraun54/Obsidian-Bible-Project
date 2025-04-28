@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seven days were fulfilled, after that Jehovah had smitten the river.
+Seven days were fulfilled, after Yahweh had struck the river.

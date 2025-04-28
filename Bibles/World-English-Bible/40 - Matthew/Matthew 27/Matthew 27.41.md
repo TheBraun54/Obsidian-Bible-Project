@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In like manner also the chief priests mocking [him], with the scribes and elders, said,
+Likewise the chief priests also mocking, with the scribes, the Pharisees, and the elders, said,

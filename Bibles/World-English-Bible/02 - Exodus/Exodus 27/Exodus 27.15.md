@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the other side shall be hangings of fifteen cubits; their pillars three, and their sockets three.
+For the other side shall be hangings of fifteen cubits; their pillars three, and their sockets three.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the generations of Shem. Shem was a hundred years old, and begat Arpachshad two years after the flood:
+This is the history of the generations of Shem. Shem was one hundred years old and became the father of Arpachshad two years after the flood.

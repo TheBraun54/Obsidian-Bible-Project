@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Baasha heard thereof, that he left off building Ramah, and dwelt in Tirzah.
+It happened, when Baasha heard of it, that he left off building Ramah, and lived in Tirzah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went in to his wife, and she conceived, and bare a son, and he called his name Beriah, because it went evil with his house.
+He went in to his wife, and she conceived, and bore a son, and he named him Beriah, because it went evil with his house.

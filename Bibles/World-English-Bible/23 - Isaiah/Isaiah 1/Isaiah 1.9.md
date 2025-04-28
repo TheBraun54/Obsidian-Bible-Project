@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Except Jehovah of hosts had left unto us a very small remnant, we should have been as Sodom, we should have been like unto Gomorrah.
+Unless Yahweh of Armies had left to us a very small remnant, we would have been as Sodom; we would have been like Gomorrah.

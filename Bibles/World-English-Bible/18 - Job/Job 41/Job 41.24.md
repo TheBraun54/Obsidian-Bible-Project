@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His heart is as firm as a stone; Yea, firm as the nether millstone.
+His heart is as firm as a stone, yes, firm as the lower millstone.

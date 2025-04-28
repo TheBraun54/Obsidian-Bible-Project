@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he also made savory food, and brought it unto his father; and he said unto his father, Let my father arise, and eat of his son's venison, that thy soul may bless me.
+He also made savory food, and brought it to his father. He said to his father, "Let my father arise, and eat of his son's venison, that your soul may bless me."

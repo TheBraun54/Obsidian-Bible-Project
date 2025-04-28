@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or, Deliver me from the adversary's hand? Or, Redeem me from the hand of the oppressors?
+or, 'Deliver me from the adversary's hand?' or, 'Redeem me from the hand of the oppressors?'

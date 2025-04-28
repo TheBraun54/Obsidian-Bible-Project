@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man come presumptuously upon his neighbor, to slay him with guile; thou shalt take him from mine altar, that he may die.
+If a man schemes and comes presumptuously on his neighbor to kill him, you shall take him from my altar, that he may die.

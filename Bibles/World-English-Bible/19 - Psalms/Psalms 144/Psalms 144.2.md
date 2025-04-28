@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My lovingkindness, and my fortress, My high tower, and my deliverer; My shield, and he in whom I take refuge; Who subdueth my people under me.
+my loving kindness, my fortress, my high tower, my deliverer, my shield, and he in whom I take refuge; who subdues my people under me.

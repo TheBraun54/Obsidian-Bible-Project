@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thou shalt go unto my father's house, and to my kindred, and take a wife for my son.
+but you shall go to my father's house, and to my relatives, and take a wife for my son.'

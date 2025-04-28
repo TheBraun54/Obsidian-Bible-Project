@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I, Jehovah, have spoken it: it shall come to pass, and I will do it: I will not go back, neither will I spare, neither will I repent; according to thy ways, and according to thy doings, shall they judge thee, saith the Lord Jehovah.
+I, Yahweh, have spoken it: it shall happen, and I will do it: I will not go back, neither will I spare, neither will I repent; according to your ways, and according to your doings, shall they judge you, says the Lord Yahweh.

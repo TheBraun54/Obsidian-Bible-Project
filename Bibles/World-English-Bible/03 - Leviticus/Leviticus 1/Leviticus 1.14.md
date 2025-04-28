@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if his oblation to Jehovah be a burnt-offering of birds, then he shall offer his oblation of turtle-doves, or of young pigeons.
+"'If his offering to Yahweh is a burnt offering of birds, then he shall offer his offering of turtledoves, or of young pigeons.

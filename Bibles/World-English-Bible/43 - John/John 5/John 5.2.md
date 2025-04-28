@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there is in Jerusalem by the sheep [gate] a pool, which is called in Hebrew Bethesda, having five porches.
+Now in Jerusalem by the sheep gate, there is a pool, which is called in Hebrew, "Bethesda," having five porches.

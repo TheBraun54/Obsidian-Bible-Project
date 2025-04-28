@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Thou shalt surely die, Ahimelech, thou, and all thy father's house.
+The king said, "You shall surely die, Ahimelech, you, and all your father's house."

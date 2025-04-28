@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man be found stealing any of his brethren of the children of Israel, and he deal with him as a slave, or sell him; then that thief shall die: so shalt thou put away the evil from the midst of thee.
+If a man be found stealing any of his brothers of the children of Israel, and he deal with him as a slave, or sell him; then that thief shall die: so you shall put away the evil from the midst of you.

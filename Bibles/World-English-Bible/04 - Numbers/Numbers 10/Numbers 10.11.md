@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the second year, in the second month, on the twentieth day of the month, that the cloud was taken up from over the tabernacle of the testimony.
+It happened in the second year, in the second month, on the twentieth day of the month, that the cloud was taken up from over the tabernacle of the testimony.

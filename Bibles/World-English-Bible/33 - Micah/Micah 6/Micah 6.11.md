@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall I be pure with wicked balances, and with a bag of deceitful weights?
+Shall I be pure with dishonest scales, and with a bag of deceitful weights?

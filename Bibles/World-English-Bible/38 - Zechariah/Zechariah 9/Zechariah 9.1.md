@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of the word of Jehovah upon the land of Hadrach, and Damascus [shall be] its resting-place (for the eye of man and of all the tribes of Israel is toward Jehovah);
+An oracle. The word of Yahweh is against the land of Hadrach, and will rest upon Damascus; for the eye of man and of all the tribes of Israel is toward Yahweh;

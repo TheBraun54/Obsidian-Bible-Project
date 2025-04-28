@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There went up a smoke out of his nostrils, And fire out of his mouth devoured: Coals were kindled by it.
+Smoke went out of his nostrils. Consuming fire came out of his mouth. Coals were kindled by it.

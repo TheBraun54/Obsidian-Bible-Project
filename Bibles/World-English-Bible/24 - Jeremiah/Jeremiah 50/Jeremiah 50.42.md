@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They lay hold on bow and spear; they are cruel, and have no mercy; their voice roareth like the sea; and they ride upon horses, every one set in array, as a man to the battle, against thee, O daughter of Babylon.
+They lay hold on bow and spear; they are cruel, and have no mercy; their voice roars like the sea; and they ride on horses, everyone set in array, as a man to the battle, against you, daughter of Babylon.

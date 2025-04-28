@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the chief baker saw that the interpretation was good, he said unto Joseph, I also was in my dream, and, behold, three baskets of white bread were on my head:
+When the chief baker saw that the interpretation was good, he said to Joseph, "I also was in my dream, and behold, three baskets of white bread were on my head.

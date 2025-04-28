@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus heard it, he saith unto them, They that are whole have no need of a physician, but they that are sick: I came not to call the righteous, but sinners.
+When Jesus heard it, he said to them, "Those who are healthy have no need for a physician, but those who are sick. I came not to call the righteous, but sinners to repentance."

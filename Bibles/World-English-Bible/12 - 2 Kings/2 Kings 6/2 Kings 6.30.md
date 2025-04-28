@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the king heard the words of the woman, that he rent his clothes (now he was passing by upon the wall); and the people looked, and, behold, he had sackcloth within upon his flesh.
+It happened, when the king heard the words of the woman, that he tore his clothes (now he was passing by on the wall); and the people looked, and behold, he had sackcloth underneath on his flesh.

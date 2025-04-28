@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for the altar of incense refined gold by weight; and gold for the pattern of the chariot, [even] the cherubim, that spread out [their wings], and covered the ark of the covenant of Jehovah.
+and for the altar of incense refined gold by weight; and gold for the pattern of the chariot, [even] the cherubim, that spread out [their wings], and covered the ark of the covenant of Yahweh.

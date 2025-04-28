@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Unto two thousand and three hundred evenings [and] mornings; then shall the sanctuary be cleansed.
+He said to me, To two thousand and three hundred evenings [and] mornings; then shall the sanctuary be cleansed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lips of the righteous know what is acceptable; But the mouth of the wicked [speaketh] perverseness.
+The lips of the righteous know what is acceptable, but the mouth of the wicked is perverse.

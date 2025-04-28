@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my lips utter praise; For thou teachest me thy statutes.
+Let my lips utter praise, for you teach me your statutes.

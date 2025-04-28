@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now in Christ Jesus ye that once were far off are made nigh in the blood of Christ.
+But now in Christ Jesus you who once were far off are made near in the blood of Christ.

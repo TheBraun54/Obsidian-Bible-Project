@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is good, a stronghold in the day of trouble; and he knoweth them that take refuge in him.
+Yahweh is good, a stronghold in the day of trouble; and he knows those who take refuge in him.

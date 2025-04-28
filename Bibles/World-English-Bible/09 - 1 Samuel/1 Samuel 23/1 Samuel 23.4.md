@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David inquired of Jehovah yet again. And Jehovah answered him, and said, Arise, go down to Keilah; for I will deliver the Philistines into thy hand.
+Then David inquired of Yahweh yet again. Yahweh answered him, and said, "Arise, go down to Keilah; for I will deliver the Philistines into your hand."

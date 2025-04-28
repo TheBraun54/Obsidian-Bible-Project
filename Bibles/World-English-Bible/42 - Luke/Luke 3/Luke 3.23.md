@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus himself, when he began [to teach], was about thirty years of age, being the son (as was supposed) of Joseph, the [son] of Heli,
+Jesus himself, when he began to teach, was about thirty years old, being the son (as was supposed) of Joseph, the son of Heli,

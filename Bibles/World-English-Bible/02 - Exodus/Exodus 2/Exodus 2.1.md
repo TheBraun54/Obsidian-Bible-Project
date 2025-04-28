@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went a man of the house of Levi, and took to wife a daughter of Levi.
+A man of the house of Levi went and took a daughter of Levi as his wife.

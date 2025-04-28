@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then they that are of faith are blessed with the faithful Abraham.
+So then, those who are of faith are blessed with the faithful Abraham.

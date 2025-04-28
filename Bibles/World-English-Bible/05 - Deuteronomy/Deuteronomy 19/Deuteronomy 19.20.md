@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that remain shall hear, and fear, and shall henceforth commit no more any such evil in the midst of thee.
+Those who remain shall hear, and fear, and shall henceforth commit no more any such evil in the midst of you.

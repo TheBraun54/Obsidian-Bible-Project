@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pleasant words are [as] a honeycomb, Sweet to the soul, and health to the bones.
+Pleasant words are a honeycomb, sweet to the soul, and health to the bones.

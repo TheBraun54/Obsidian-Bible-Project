@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Amasa went to call [the men of] Judah together; but he tarried longer than the set time which he had appointed him.
+So Amasa went to call [the men of] Judah together; but he stayed longer than the set time which he had appointed him.

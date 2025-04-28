@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servant told Isaac all the things that he had done.
+The servant told Isaac all the things that he had done.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou numberest my wanderings: Put thou my tears into thy bottle; Are they not in thy book?
+You number my wanderings. You put my tears into your bottle. Aren't they in your book?

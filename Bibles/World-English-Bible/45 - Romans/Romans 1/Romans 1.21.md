@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because that, knowing God, they glorified him not as God, neither gave thanks; but became vain in their reasonings, and their senseless heart was darkened.
+Because, knowing God, they didn't glorify him as God, neither gave thanks, but became vain in their reasoning, and their senseless heart was darkened.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will I also deal in wrath; mine eye shall not spare, neither will I have pity; and though they cry in mine ears with a loud voice, yet will I not hear them.
+Therefore will I also deal in wrath; my eye shall not spare, neither will I have pity; and though they cry in my ears with a loud voice, yet will I not hear them.

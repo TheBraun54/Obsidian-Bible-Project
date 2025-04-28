@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they offered him wine mingled with myrrh: but he received it not.
+They offered him wine mixed with myrrh to drink, but he didn't take it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eye also is dim by reason of sorrow, And all my members are as a shadow.
+My eye also is dim by reason of sorrow. All my members are as a shadow.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They took Jesus therefore: and he went out, bearing the cross for himself, unto the place called The place of a skull, which is called in Hebrew, Golgotha:
+He went out, bearing his cross, to the place called "The Place of a Skull," which is called in Hebrew, "Golgotha,"

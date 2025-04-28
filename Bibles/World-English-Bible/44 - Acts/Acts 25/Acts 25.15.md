@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-about whom, when I was at Jerusalem, the chief priests and the elders of the Jews informed [me], asking for sentence against him.
+about whom, when I was at Jerusalem, the chief priests and the elders of the Jews informed me, asking for a sentence against him.

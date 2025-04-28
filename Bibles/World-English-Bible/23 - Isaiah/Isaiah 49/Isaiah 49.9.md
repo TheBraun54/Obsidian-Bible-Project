@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying to them that are bound, Go forth; to them that are in darkness, Show yourselves. They shall feed in the ways, and on all bare heights shall be their pasture.
+saying to those who are bound, 'Come out!'; to those who are in darkness, 'Show yourselves!' "They shall feed in the ways, and on all bare heights shall be their pasture.

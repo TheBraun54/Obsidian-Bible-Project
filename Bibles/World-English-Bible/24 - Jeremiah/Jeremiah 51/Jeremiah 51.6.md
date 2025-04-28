@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Flee out of the midst of Babylon, and save every man his life; be not cut off in her iniquity: for it is the time of Jehovah's vengeance; he will render unto her a recompense.
+Flee out of the midst of Babylon, and save every man his life; don't be cut off in her iniquity: for it is the time of Yahweh's vengeance; he will render to her a recompense.

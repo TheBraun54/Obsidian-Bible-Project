@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stand now with thine enchantments, and with the multitude of thy sorceries, wherein thou hast labored from thy youth; if so be thou shalt be able to profit, if so be thou mayest prevail.
+"Stand now with your enchantments, and with the multitude of your sorceries, in which you have labored from your youth; if so be you shall be able to profit, if so be you may prevail.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The waters hide themselves [and become] like stone, And the face of the deep is frozen.
+The waters become hard like stone, when the surface of the deep is frozen.

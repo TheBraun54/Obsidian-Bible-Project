@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the God of Abraham, and the God of Isaac, and the God of Jacob? God is not [the God] of the dead, but of the living.
+'I am the God of Abraham, and the God of Isaac, and the God of Jacob?' God is not the God of the dead, but of the living."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Jehoram was risen up over the kingdom of his father, and had strengthened himself, he slew all his brethren with the sword, and divers also of the princes of Israel.
+Now when Jehoram was risen up over the kingdom of his father, and had strengthened himself, he killed all his brothers with the sword, and various also of the princes of Israel.

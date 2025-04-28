@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, even when I am old and grayheaded, O God, forsake me not, Until I have declared thy strength unto [the next] generation, Thy might to every one that is to come.
+Yes, even when I am old and gray-haired, God, don't forsake me, until I have declared your strength to the next generation, your might to everyone who is to come.

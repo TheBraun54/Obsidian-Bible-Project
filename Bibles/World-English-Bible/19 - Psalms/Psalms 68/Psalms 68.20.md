@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is unto us a God of deliverances; And unto Jehovah the Lord belongeth escape from death.
+God is to us a God of deliverance. To Yahweh, the Lord, belongs escape from death.

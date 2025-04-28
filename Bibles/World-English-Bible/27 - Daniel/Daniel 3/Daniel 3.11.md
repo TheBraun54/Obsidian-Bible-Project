@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and whoso falleth not down and worshippeth, shall be cast into the midst of a burning fiery furnace.
+and whoever doesn't fall down and worship shall be cast into the midst of a burning fiery furnace.

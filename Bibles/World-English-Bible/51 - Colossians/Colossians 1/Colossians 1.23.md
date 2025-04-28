@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if so be that ye continue in the faith, grounded and stedfast, and not moved away from the hope of the gospel which ye heard, which was preached in all creation under heaven; whereof I Paul was made a minister.
+if it is so that you continue in the faith, grounded and steadfast, and not moved away from the hope of the Good News which you heard, which is being proclaimed in all creation under heaven; of which I, Paul, was made a servant.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they agreed not among themselves, they departed after that Paul had spoken one word, Well spake the Holy Spirit through Isaiah the prophet unto your fathers,
+When they didn't agree among themselves, they departed after Paul had spoken one word, "The Holy Spirit spoke rightly through Isaiah, the prophet, to our fathers,

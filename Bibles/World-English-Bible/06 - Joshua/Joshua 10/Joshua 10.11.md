@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as they fled from before Israel, while they were at the descent of Beth-horon, that Jehovah cast down great stones from heaven upon them unto Azekah, and they died: they were more who died with the hailstones than they whom the children of Israel slew with the sword.
+It happened, as they fled from before Israel, while they were at the descent of Beth Horon, that Yahweh cast down great stones from the sky on them to Azekah, and they died. There were more who died from the hailstones than who the children of Israel killed with the sword.

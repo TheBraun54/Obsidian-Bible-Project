@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst put all things in subjection under his feet. For in that he subjected all things unto him, he left nothing that is not subject to him. But now we see not yet all things subjected to him.
+You have put all things in subjection under his feet." For in that he subjected all things to him, he left nothing that is not subject to him. But now we don't see all things subjected to him, yet.

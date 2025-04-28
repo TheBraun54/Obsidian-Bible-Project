@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked have drawn out the sword, and have bent their bow, To cast down the poor and needy, To slay such as are upright in the way.
+The wicked have drawn out the sword, and have bent their bow, to cast down the poor and needy, to kill those who are upright in the way.

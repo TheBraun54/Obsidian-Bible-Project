@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the head of Ephraim is Samaria, and the head of Samaria is Remaliah's son. If ye will not believe, surely ye shall not be established.
+and the head of Ephraim is Samaria, and the head of Samaria is Remaliah's son. If you will not believe, surely you shall not be established.'"

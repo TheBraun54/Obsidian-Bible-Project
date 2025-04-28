@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, at the time of the return of the year, at the time when kings go out [to battle], that Joab led forth the army, and wasted the country of the children of Ammon, and came and besieged Rabbah. But David tarried at Jerusalem. And Joab smote Rabbah, and overthrew it.
+It happened, at the time of the return of the year, at the time when kings go out [to battle], that Joab led forth the army, and wasted the country of the children of Ammon, and came and besieged Rabbah. But David stayed at Jerusalem. Joab struck Rabbah, and overthrew it.

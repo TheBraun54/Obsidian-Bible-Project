@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses, Go in unto Pharaoh, and say unto him, Thus saith Jehovah, Let my people go, that they may serve me.
+Yahweh spoke to Moses, Go in to Pharaoh, and tell him, "This is what Yahweh says, 'Let my people go, that they may serve me.

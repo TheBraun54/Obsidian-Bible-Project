@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he that saith he abideth in him ought himself also to walk even as he walked.
+he who says he remains in him ought himself also to walk just like he walked.

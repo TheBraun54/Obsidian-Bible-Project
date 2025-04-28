@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they slew the bullock, and brought the child to Eli.
+They killed the bull, and brought the child to Eli.

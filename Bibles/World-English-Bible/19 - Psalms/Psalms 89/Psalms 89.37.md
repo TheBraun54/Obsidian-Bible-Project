@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall be established for ever as the moon, And [as] the faithful witness in the sky. {{Selah
+It will be established forever like the moon, the faithful witness in the sky." Selah.

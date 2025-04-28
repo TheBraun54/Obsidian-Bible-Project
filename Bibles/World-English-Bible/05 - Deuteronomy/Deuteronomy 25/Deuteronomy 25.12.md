@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then thou shalt cut off her hand, thine eye shall have no pity.
+then you shall cut off her hand, your eye shall have no pity.

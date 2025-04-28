@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-also the breadth of the face of the house, and of the separate place toward the east, a hundred cubits.
+also the breadth of the face of the house, and of the separate place toward the east, one hundred cubits.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, it was needful that the Scripture should be fulfilled, which the Holy Spirit spake before by the mouth of David concerning Judas, who was guide to them that took Jesus.
+"Brothers, it was necessary that this Scripture should be fulfilled, which the Holy Spirit spoke before by the mouth of David concerning Judas, who was guide to those who took Jesus.

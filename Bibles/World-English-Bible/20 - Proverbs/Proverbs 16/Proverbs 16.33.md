@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lot is cast into the lap; But the whole disposing thereof is of Jehovah.
+The lot is cast into the lap, but its every decision is from Yahweh.

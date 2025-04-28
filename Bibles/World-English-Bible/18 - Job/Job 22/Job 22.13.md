@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou sayest, What doth God know? Can he judge through the thick darkness?
+You say, 'What does God know? Can he judge through the thick darkness?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak sent yet again princes, more, and more honorable than they.
+Balak sent yet again princes, more, and more honorable than they.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then ye shall come up after him, and he shall come and sit upon my throne; for he shall be king in my stead; and I have appointed him to be prince over Israel and over Judah.
+Then you shall come up after him, and he shall come and sit on my throne; for he shall be king in my place. I have appointed him to be prince over Israel and over Judah."

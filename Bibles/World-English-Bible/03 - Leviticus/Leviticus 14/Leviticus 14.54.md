@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law for all manner of plague of leprosy, and for a scall,
+This is the law for any plague of leprosy, and for an itch,

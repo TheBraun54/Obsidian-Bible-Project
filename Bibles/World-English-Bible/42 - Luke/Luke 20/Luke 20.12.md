@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent yet a third: and him also they wounded, and cast him forth.
+He sent yet a third, and they also wounded him, and threw him out.

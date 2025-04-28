@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made many to stumble, yea, they fell one upon another: and they said, Arise, and let us go again to our own people, and to the land of our nativity, from the oppressing sword.
+He made many to stumble, yes, they fell one on another: and they said, Arise, and let us go again to our own people, and to the land of our birth, from the oppressing sword.

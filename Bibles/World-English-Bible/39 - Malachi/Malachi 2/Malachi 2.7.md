@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the priest's lips should keep knowledge, and they should seek the law at his mouth; for he is the messenger of Jehovah of hosts.
+For the priest's lips should keep knowledge, and they should seek the law at his mouth; for he is the messenger of Yahweh of Armies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I protest by that glorifying in you, brethren, which I have in Christ Jesus our Lord, I die daily.
+I affirm, by the boasting in you which I have in Christ Jesus our Lord, I die daily.

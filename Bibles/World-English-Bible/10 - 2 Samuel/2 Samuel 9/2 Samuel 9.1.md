@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said, Is there yet any that is left of the house of Saul, that I may show him kindness for Jonathan's sake?
+David said, "Is there yet any who is left of the house of Saul, that I may show him kindness for Jonathan's sake?"

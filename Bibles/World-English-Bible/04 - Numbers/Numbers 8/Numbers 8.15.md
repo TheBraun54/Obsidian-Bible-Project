@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after that shall the Levites go in to do the service of the tent of meeting: and thou shalt cleanse them, and offer them for a wave-offering.
+"After that, the Levites shall go in to do the service of the Tent of Meeting: and you shall cleanse them, and offer them as a wave offering.

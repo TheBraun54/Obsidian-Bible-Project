@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this people's heart is waxed gross, And their ears are dull of hearing, And their eyes they have closed; Lest, haply they should perceive with their eyes, And hear with their ears, And understand with their heart, And should turn again, And I should heal them.
+For this people's heart has grown callous. Their ears are dull of hearing. Their eyes they have closed. Lest they should see with their eyes, hear with their ears, understand with their heart, and would turn again, and I would heal them.'

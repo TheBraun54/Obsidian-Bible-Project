@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that diggeth a pit shall fall into it; and whoso breaketh through a wall, a serpent shall bite him.
+He who digs a pit may fall into it; and whoever breaks through a wall may be bitten by a snake.

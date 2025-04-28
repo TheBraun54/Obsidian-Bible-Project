@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even so, being affectionately desirous of you, we were well pleased to impart unto you, not the gospel of God only, but also our own souls, because ye were become very dear to us.
+Even so, affectionately longing for you, we were well pleased to impart to you, not the Good News of God only, but also our own souls, because you had become very dear to us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the seventh day the priest shall look on the plague; and, behold, if the scall be not spread, and there be in it no yellow hair, and the appearance of the scall be not deeper than the skin,
+On the seventh day the priest shall examine the plague; and behold, if the itch hasn't spread, and there is no yellow hair in it, and the appearance of the itch isn't deeper than the skin,

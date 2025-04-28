@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come into the temple, the chief priests and the elders of the people came unto him as he was teaching, and said, By what authority doest thou these things? and who gave thee this authority?
+When he had come into the temple, the chief priests and the elders of the people came to him as he was teaching, and said, "By what authority do you do these things? Who gave you this authority?"

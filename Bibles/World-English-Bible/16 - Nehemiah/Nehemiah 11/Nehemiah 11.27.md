@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in Hazar-shual, and in Beer-sheba and the towns thereof,
+and in Hazar Shual, and in Beersheba and its towns,

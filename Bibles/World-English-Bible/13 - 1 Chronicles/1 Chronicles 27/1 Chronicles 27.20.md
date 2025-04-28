@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the children of Ephraim, Hoshea the son of Azaziah: of the half-[ tribe] of Manasseh, Joel the son of Pedaiah:
+of the children of Ephraim, Hoshea the son of Azaziah: of the half-tribe of Manasseh, Joel the son of Pedaiah:

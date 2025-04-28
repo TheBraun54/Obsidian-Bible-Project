@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rebekah lifted up her eyes, and when she saw Isaac, she alighted from the camel.
+Rebekah lifted up her eyes, and when she saw Isaac, she dismounted from the camel.

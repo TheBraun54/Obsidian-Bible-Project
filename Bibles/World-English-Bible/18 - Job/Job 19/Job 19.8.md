@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath walled up my way that I cannot pass, And hath set darkness in my paths.
+He has walled up my way so that I can't pass, and has set darkness in my paths.

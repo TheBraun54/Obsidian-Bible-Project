@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he is in one [mind], and who can turn him? And what his soul desireth, even that he doeth.
+But he stands alone, and who can oppose him? What his soul desires, even that he does.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Spirit saith expressly, that in later times some shall fall away from the faith, giving heed to seducing spirits and doctrines of demons,
+But the Spirit says expressly that in later times some will fall away from the faith, paying attention to seducing spirits and doctrines of demons,

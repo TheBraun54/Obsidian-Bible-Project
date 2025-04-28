@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I send an angel before thee, to keep thee by the way, and to bring thee into the place which I have prepared.
+"Behold, I send an angel before you, to keep you by the way, and to bring you into the place which I have prepared.

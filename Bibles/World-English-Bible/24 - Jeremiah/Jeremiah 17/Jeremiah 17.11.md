@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the partridge that sitteth on [eggs] which she hath not laid, so is he that getteth riches, and not by right; in the midst of his days they shall leave him, and at his end he shall be a fool.
+As the partridge that sits on [eggs] which she has not laid, so is he who gets riches, and not by right; in the midst of his days they shall leave him, and at his end he shall be a fool.

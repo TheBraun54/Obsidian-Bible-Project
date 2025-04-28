@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he knew no quietness within him, He shall not save aught of that wherein he delighteth.
+"Because he knew no quietness within him, he shall not save anything of that in which he delights.

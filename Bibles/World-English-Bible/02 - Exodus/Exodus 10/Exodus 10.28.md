@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto him, Get thee from me, take heed to thyself, see my face no more; for in the day thou seest my face thou shalt die.
+Pharaoh said to him, "Get away from me! Be careful to see my face no more; for in the day you see my face you shall die!"

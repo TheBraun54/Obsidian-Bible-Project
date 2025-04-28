@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he wept aloud: and the Egyptians heard, and the house of Pharaoh heard.
+He wept aloud. The Egyptians heard, and the house of Pharaoh heard.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And who knoweth whether he will be a wise man or a fool? yet will he have rule over all my labor wherein I have labored, and wherein I have showed myself wise under the sun. This also is vanity.
+Who knows whether he will be a wise man or a fool? Yet he will have rule over all of my labor in which I have labored, and in which I have shown myself wise under the sun. This also is vanity.

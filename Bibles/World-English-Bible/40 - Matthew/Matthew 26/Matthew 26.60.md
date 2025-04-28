@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they found it not, though many false witnesses came. But afterward came two,
+and they found none. Even though many false witnesses came forward, they found none. But at last two false witnesses came forward,

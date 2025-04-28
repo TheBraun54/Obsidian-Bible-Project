@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there was a great earthquake; for an angel of the Lord descended from heaven, and came and rolled away the stone, and sat upon it.
+Behold, there was a great earthquake, for an angel of the Lord descended from the sky, and came and rolled away the stone from the door, and sat on it.

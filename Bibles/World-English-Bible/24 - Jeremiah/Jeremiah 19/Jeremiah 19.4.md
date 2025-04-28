@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because they have forsaken me, and have estranged this place, and have burned incense in it unto other gods, that they knew not, they and their fathers and the kings of Judah; and have filled this place with the blood of innocents,
+Because they have forsaken me, and have estranged this place, and have burned incense in it to other gods, that they didn't know, they and their fathers and the kings of Judah; and have filled this place with the blood of innocents,

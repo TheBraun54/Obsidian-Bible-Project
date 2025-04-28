@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But that ye also may know my affairs, how I do, Tychicus, the beloved brother and faithful minister in the Lord, shall make known to you all things:
+But that you also may know my affairs, how I am doing, Tychicus, the beloved brother and faithful servant in the Lord, will make known to you all things;

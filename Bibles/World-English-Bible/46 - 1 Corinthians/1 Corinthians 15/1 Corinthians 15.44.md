@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it is sown a natural body; it is raised a spiritual body. If there is a natural body, there is also a spiritual [body] .
+It is sown a natural body; it is raised a spiritual body. There is a natural body and there is also a spiritual body.

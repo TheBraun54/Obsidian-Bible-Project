@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I have said, I will bring you up out of the affliction of Egypt unto the land of the Canaanite, and the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite, unto a land flowing with milk and honey.
+and I have said, I will bring you up out of the affliction of Egypt to the land of the Canaanite, the Hittite, the Amorite, the Perizzite, the Hivite, and the Jebusite, to a land flowing with milk and honey."'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if so be that ye heard him, and were taught in him, even as truth is in Jesus:
+if indeed you heard him, and were taught in him, even as truth is in Jesus:

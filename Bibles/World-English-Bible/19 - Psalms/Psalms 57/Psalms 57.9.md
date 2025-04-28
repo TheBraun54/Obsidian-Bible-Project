@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thanks unto thee, O Lord, among the peoples: I will sing praises unto thee among the nations.
+I will give thanks to you, Lord, among the peoples. I will sing praises to you among the nations.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king and all the people offered sacrifice before Jehovah.
+Then the king and all the people offered sacrifice before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who rejoice exceedingly, And are glad, when they can find the grave?
+who rejoice exceedingly, and are glad, when they can find the grave?

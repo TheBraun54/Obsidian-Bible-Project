@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Since the world began it was never heard that any one opened the eyes of a man born blind.
+Since the world began it has never been heard of that anyone opened the eyes of someone born blind.

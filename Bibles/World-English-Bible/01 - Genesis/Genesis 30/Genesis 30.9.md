@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Leah saw that she had left off bearing, she took Zilpah her handmaid, and gave her to Jacob to wife.
+When Leah saw that she had finished bearing, she took Zilpah, her handmaid, and gave her to Jacob as a wife.

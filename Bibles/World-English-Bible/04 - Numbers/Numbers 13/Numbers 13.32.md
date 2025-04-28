@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought up an evil report of the land which they had spied out unto the children of Israel, saying, The land, through which we have gone to spy it out, is a land that eateth up the inhabitants thereof; and all the people that we saw in it are men of great stature.
+They brought up an evil report of the land which they had spied out to the children of Israel, saying, "The land, through which we have gone to spy it out, is a land that eats up its inhabitants; and all the people who we saw in it are men of great stature.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See that ye refuse not him that speaketh. For if they escaped not when they refused him that warned [them] on earth, much more [shall not] we [escape] who turn away from him that [warneth] from heaven:
+See that you don't refuse him who speaks. For if they didn't escape when they refused him who warned on the Earth, how much more will we not escape who turn away from him who warns from heaven,

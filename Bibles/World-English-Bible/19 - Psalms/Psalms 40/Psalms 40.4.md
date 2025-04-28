@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man that maketh Jehovah his trust, And respecteth not the proud, nor such as turn aside to lies.
+Blessed is the man who makes Yahweh his trust, and doesn't respect the proud, nor such as turn aside to lies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ And it was told] the Gazites, saying, Samson is come hither. And they compassed him in, and laid wait for him all night in the gate of the city, and were quiet all the night, saying, [Let be] till morning light, then we will kill him.
+[It was told] the Gazites, saying, "Samson is here!" They surrounded him, and laid wait for him all night in the gate of the city, and were quiet all the night, saying, [Let be] until morning light, then we will kill him.

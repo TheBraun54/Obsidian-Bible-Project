@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Humble yourselves in the sight of the Lord, and he shall exalt you.
+Humble yourselves in the sight of the Lord, and he will exalt you.

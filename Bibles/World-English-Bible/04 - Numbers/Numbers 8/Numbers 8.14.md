@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shalt thou separate the Levites from among the children of Israel; and the Levites shall be mine.
+Thus you shall separate the Levites from among the children of Israel, and the Levites shall be mine.

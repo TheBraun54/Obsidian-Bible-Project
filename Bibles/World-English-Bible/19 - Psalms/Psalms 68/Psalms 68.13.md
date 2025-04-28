@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When ye lie among the sheepfolds, [It is as] the wings of a dove covered with silver, And her pinions with yellow gold.
+while you sleep among the campfires, the wings of a dove sheathed with silver, her feathers with shining gold.

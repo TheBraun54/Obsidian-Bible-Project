@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this [man] shall be [our] peace. When the Assyrian shall come into our land, and when he shall tread in our palaces, then shall we raise against him seven shepherds, and eight principal men.
+He will be our peace when Assyria invades our land, and when he marches through our fortresses, then we will raise against him seven shepherds, and eight leaders of men.

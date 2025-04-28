@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-forasmuch as he hath sent unto us in Babylon, saying, [The captivity] is long: build ye houses, and dwell in them; and plant gardens, and eat the fruit of them?
+because he has sent to us in Babylon, saying, [The captivity] is long: build houses, and dwell in them; and plant gardens, and eat the fruit of them?

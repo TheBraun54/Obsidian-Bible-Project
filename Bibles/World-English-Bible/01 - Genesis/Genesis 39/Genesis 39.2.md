@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah was with Joseph, and he was a prosperous man; and he was in the house of his master the Egyptian.
+Yahweh was with Joseph, and he was a prosperous man. He was in the house of his master the Egyptian.

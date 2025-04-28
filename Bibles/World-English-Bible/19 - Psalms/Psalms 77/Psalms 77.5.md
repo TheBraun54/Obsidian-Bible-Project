@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have considered the days of old, The years of ancient times.
+I have considered the days of old, the years of ancient times.

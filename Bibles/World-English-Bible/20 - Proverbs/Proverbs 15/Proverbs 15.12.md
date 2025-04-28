@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A scoffer loveth not to be reproved; He will not go unto the wise.
+A scoffer doesn't love to be reproved; he will not go to the wise.

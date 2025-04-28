@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but declared both to them of Damascus first and at Jerusalem, and throughout all the country of Judaea, and also to the Gentiles, that they should repent and turn to God, doing works worthy of repentance.
+but declared first to them of Damascus, at Jerusalem, and throughout all the country of Judea, and also to the Gentiles, that they should repent and turn to God, doing works worthy of repentance.

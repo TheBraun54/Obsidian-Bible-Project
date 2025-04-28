@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They would none of my counsel; They despised all my reproof.
+They wanted none of my counsel. They despised all my reproof.

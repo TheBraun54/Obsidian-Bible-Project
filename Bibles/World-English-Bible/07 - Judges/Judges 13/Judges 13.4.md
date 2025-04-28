@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore beware, I pray thee, and drink no wine nor strong drink, and eat not any unclean thing:
+Now therefore please beware and drink no wine nor strong drink, and don't eat any unclean thing:

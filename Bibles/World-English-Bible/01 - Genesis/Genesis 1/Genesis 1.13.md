@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was evening and there was morning, a third day.
+There was evening and there was morning, a third day.

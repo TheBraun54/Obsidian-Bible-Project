@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But foolish and ignorant questionings refuse, knowing that they gender strifes.
+But refuse foolish and ignorant questionings, knowing that they generate strife.

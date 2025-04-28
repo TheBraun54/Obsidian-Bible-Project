@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Bigvai, Uthai and Zabbud; and with them seventy males.
+Of the sons of Bigvai, Uthai and Zabbud; and with them seventy males.

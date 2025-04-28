@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this did Sennacherib king of Assyria send his servants to Jerusalem, (now he was before Lachish, and all his power with him,) unto Hezekiah king of Judah, and unto all Judah that were at Jerusalem, saying,
+After this did Sennacherib king of Assyria send his servants to Jerusalem, (now he was before Lachish, and all his power with him), to Hezekiah king of Judah, and to all Judah who were at Jerusalem, saying,

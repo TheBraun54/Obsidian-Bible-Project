@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to them that go down to Egypt for help, and rely on horses, and trust in chariots because they are many, and in horsemen because they are very strong, but they look not unto the Holy One of Israel, neither seek Jehovah!
+Woe to those who go down to Egypt for help, and rely on horses, and trust in chariots because they are many, and in horsemen because they are very strong, but they don't look to the Holy One of Israel, and they don't seek Yahweh!

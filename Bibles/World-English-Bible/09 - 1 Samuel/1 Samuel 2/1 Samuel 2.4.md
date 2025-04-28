@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The bows of the mighty men are broken; And they that stumbled are girded with strength.
+"The bows of the mighty men are broken. Those who stumbled are armed with strength.

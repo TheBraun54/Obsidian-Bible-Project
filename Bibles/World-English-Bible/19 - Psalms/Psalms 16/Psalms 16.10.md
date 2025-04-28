@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou wilt not leave my soul to Sheol; Neither wilt thou suffer thy holy one to see corruption.
+For you will not leave my soul in Sheol, neither will you allow your holy one to see corruption.

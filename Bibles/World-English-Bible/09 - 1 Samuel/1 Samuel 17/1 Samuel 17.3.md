@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines stood on the mountain on the one side, and Israel stood on the mountain on the other side: and there was a valley between them.
+The Philistines stood on the mountain on the one side, and Israel stood on the mountain on the other side: and there was a valley between them.

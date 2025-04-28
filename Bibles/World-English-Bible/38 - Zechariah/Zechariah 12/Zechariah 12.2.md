@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, I will make Jerusalem a cup of reeling unto all the peoples round about, and upon Judah also shall it be in the siege against Jerusalem.
+"Behold, I will make Jerusalem a cup of reeling to all the surrounding peoples, and on Judah also will it be in the siege against Jerusalem.

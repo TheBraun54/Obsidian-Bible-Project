@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put of thine honor upon him, that all the congregation of the children of Israel may obey.
+You shall put of your honor on him, that all the congregation of the children of Israel may obey.

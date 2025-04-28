@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the blade sprang up and brought forth fruit, then appeared the tares also.
+But when the blade sprang up and brought forth fruit, then the darnel weeds appeared also.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Moses called for all the elders of Israel, and said unto them, Draw out, and take you lambs according to your families, and kill the passover.
+Then Moses called for all the elders of Israel, and said to them, "Draw out, and take lambs according to your families, and kill the Passover.

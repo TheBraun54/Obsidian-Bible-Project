@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram said, O Lord Jehovah, what wilt thou give me, seeing I go childless, and he that shall be possessor of my house is Eliezer of Damascus?
+Abram said, "Lord Yahweh, what will you give me, since I go childless, and he who will inherit my estate is Eliezer of Damascus?"

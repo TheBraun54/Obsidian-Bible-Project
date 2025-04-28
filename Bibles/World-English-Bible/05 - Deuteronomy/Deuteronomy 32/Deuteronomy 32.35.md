@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Vengeance is mine, and recompense, At the time when their foot shall slide: For the day of their calamity is at hand, And the things that are to come upon them shall make haste.
+Vengeance is mine, and recompense, at the time when their foot slides; for the day of their calamity is at hand. The things that are to come on them shall make haste."

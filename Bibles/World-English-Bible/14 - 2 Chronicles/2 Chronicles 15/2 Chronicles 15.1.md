@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit of God came upon Azariah the son of Oded:
+The Spirit of God came on Azariah the son of Oded:

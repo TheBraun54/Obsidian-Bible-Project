@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And others fell into the good ground, and yielded fruit, growing up and increasing; and brought forth, thirtyfold, and sixtyfold, and a hundredfold.
+Others fell into the good ground, and yielded fruit, growing up and increasing. Some brought forth thirty times, some sixty times, and some one hundred times as much."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the land, whither ye go over to possess it, is a land of hills and valleys, [and] drinketh water of the rain of heaven,
+but the land, where you go over to possess it, is a land of hills and valleys, [and] drinks water of the rain of the sky,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us therefore, as many as are perfect, be thus minded: and if in anything ye are otherwise minded, this also shall God reveal unto you:
+Let us therefore, as many as are perfect, think this way. If in anything you think otherwise, God will also reveal that to you.

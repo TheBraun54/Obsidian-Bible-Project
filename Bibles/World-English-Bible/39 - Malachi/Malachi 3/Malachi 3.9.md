@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are cursed with the curse; for ye rob me, even this whole nation.
+You are cursed with the curse; for you rob me, even this whole nation.

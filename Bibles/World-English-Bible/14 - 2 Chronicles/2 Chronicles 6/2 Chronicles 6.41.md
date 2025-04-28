@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore arise, O Jehovah God, into thy resting-place, thou, and the ark of thy strength: let thy priests, O Jehovah God, be clothed with salvation, and let thy saints rejoice in goodness. [
+"Now therefore arise, Yahweh God, into your resting place, you, and the ark of your strength: let your priests, Yahweh God, be clothed with salvation, and let your saints rejoice in goodness.

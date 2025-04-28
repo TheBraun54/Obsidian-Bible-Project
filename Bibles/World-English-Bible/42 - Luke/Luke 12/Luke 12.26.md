@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If then ye are not able to do even that which is least, why are ye anxious concerning the rest?
+If then you aren't able to do even the least things, why are you anxious about the rest?

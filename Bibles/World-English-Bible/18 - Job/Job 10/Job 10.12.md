@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast granted me life and lovingkindness; And thy visitation hath preserved my spirit.
+You have granted me life and loving kindness. Your visitation has preserved my spirit.

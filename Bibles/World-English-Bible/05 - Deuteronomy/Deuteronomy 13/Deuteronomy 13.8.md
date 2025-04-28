@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt not consent unto him, nor hearken unto him; neither shall thine eye pity him, neither shalt thou spare, neither shalt thou conceal him:
+you shall not consent to him, nor listen to him; neither shall your eye pity him, neither shall you spare, neither shall you conceal him:

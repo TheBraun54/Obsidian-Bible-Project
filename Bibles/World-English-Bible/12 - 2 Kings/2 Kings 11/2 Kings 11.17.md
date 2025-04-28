@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoiada made a covenant between Jehovah and the king and the people, that they should be Jehovah's people; between the king also and the people.
+Jehoiada made a covenant between Yahweh and the king and the people, that they should be Yahweh's people; between the king also and the people.

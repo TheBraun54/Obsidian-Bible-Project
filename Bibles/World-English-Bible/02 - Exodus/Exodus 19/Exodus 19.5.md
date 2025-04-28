@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, if ye will obey my voice indeed, and keep my covenant, then ye shall be mine own possession from among all peoples: for all the earth is mine:
+Now therefore, if you will indeed obey my voice, and keep my covenant, then you shall be my own possession from among all peoples; for all the earth is mine;

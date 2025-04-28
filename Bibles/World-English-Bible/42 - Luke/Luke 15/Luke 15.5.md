@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he hath found it, he layeth it on his shoulders, rejoicing.
+When he has found it, he carries it on his shoulders, rejoicing.

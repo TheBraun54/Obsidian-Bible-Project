@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unleavened bread shall be eaten throughout the seven days; and there shall no leavened bread be seen with thee, neither shall there be leaven seen with thee, in all thy borders.
+Unleavened bread shall be eaten throughout the seven days; and no leavened bread shall be seen with you, neither shall there be yeast seen with you, in all your borders.

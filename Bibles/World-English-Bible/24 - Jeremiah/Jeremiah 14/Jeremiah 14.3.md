@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their nobles send their little ones to the waters: they come to the cisterns, and find no water; they return with their vessels empty; they are put to shame and confounded, and cover their heads.
+Their nobles send their little ones to the waters: they come to the cisterns, and find no water; they return with their vessels empty; they are disappointed and confounded, and cover their heads.

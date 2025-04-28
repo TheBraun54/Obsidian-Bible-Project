@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the maiden pleased him, and she obtained kindness of him; and he speedily gave her her things for purification, with her portions, and the seven maidens who were meet to be given her out of the king's house: and he removed her and her maidens to the best place of the house of the women.
+The maiden pleased him, and she obtained kindness from him. He quickly gave her cosmetics and her portions of food, and the seven choice maidens who were to be given her out of the king's house. He moved her and her maidens to the best place in the women's house.

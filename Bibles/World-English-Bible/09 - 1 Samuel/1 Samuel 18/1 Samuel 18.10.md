@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that an evil spirit from God came mightily upon Saul, and he prophesied in the midst of the house: and David played with his hand, as he did day by day. And Saul had his spear in his hand;
+It happened on the next day, that an evil spirit from God came mightily on Saul, and he prophesied in the midst of the house. David played with his hand, as he did day by day. Saul had his spear in his hand;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thine eyes look right on, And let thine eyelids look straight before thee.
+Let your eyes look straight ahead. Fix your gaze directly before you.

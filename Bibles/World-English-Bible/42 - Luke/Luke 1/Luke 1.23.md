@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the days of his ministration were fulfilled, he departed unto his house.
+It happened, when the days of his service were fulfilled, he departed to his house.

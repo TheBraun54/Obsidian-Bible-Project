@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the set feasts of Jehovah, even holy convocations, which ye shall proclaim in their appointed season.
+"'These are the set feasts of Yahweh, even holy convocations, which you shall proclaim in their appointed season.

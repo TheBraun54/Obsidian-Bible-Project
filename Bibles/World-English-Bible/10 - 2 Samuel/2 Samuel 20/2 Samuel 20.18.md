@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then she spake, saying, They were wont to speak in old time, saying, They shall surely ask [counsel] at Abel: and so they ended [the matter] .
+Then she spoke, saying, "They were used to say in old times, 'They shall surely ask counsel at Abel;' and so they settled it.

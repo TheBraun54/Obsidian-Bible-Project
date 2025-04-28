@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will not trust in my bow, Neither shall my sword save me.
+For I will not trust in my bow, neither shall my sword save me.

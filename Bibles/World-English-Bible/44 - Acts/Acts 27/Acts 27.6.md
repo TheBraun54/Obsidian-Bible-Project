@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there the centurion found a ship of Alexandria sailing for Italy; and he put us therein.
+There the centurion found a ship of Alexandria sailing for Italy, and he put us on board.

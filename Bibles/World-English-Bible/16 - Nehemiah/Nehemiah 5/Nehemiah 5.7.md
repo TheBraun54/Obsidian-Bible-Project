@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I consulted with myself, and contended with the nobles and the rulers, and said unto them, Ye exact usury, every one of his brother. And I held a great assembly against them.
+Then I consulted with myself, and contended with the nobles and the rulers, and said to them, "You exact usury, everyone of his brother." I held a great assembly against them.

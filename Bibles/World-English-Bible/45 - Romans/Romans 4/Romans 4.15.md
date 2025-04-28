@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the law worketh wrath; but where there is no law, neither is there transgression.
+For the law works wrath, for where there is no law, neither is there disobedience.

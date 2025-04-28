@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he hath despised the word of Jehovah, and hath broken his commandment, that soul shall utterly be cut off; his iniquity shall be upon him.
+Because he has despised the word of Yahweh, and has broken his commandment, that soul shall utterly be cut off; his iniquity shall be on him.'"

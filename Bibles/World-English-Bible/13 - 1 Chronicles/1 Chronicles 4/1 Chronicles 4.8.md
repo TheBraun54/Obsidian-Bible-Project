@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hakkoz begat Anub, and Zobebah, and the families of Aharhel the son of Harum.
+Hakkoz became the father of Anub, and Zobebah, and the families of Aharhel the son of Harum.

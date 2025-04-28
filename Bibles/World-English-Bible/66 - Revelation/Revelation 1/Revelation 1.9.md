@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I John, your brother and partaker with you in the tribulation and kingdom and patience [which are] in Jesus, was in the isle that is called Patmos, for the word of God and the testimony of Jesus.
+I John, your brother and partner with you in oppression, Kingdom, and perseverance in Christ Jesus, was on the isle that is called Patmos because of God's Word and the testimony of Jesus Christ.

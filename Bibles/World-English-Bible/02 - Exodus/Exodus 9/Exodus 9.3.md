@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, the hand of Jehovah is upon thy cattle which are in the field, upon the horses, upon the asses, upon the camels, upon the herds, and upon the flocks: [there shall be] a very grievous murrain.
+behold, the hand of Yahweh is on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very grievous pestilence.

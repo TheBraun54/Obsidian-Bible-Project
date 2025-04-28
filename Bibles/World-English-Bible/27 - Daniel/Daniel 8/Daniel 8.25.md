@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And through his policy he shall cause craft to prosper in his hand; and he shall magnify himself in his heart, and in [their] security shall he destroy many: he shall also stand up against the prince of princes; but he shall be broken without hand.
+Through his policy he shall cause craft to prosper in his hand; and he shall magnify himself in his heart, and in [their] security shall he destroy many: he shall also stand up against the prince of princes; but he shall be broken without hand.

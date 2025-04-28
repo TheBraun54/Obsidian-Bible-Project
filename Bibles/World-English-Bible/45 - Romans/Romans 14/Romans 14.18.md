@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that herein serveth Christ is well-pleasing to God, and approved of men.
+For he who serves Christ in these things is acceptable to God and approved by men.

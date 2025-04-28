@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people that were in the city were called together to pursue after them: and they pursued after Joshua, and were drawn away from the city.
+All the people who were in the city were called together to pursue after them. They pursued Joshua, and were drawn away from the city.

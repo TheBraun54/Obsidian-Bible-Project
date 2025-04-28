@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Ask counsel, we pray thee, of God, that we may know whether our way which we go shall be prosperous.
+They said to him, "Please ask counsel of God, that we may know whether our way which we go shall be prosperous."

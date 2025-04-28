@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they have not been planted; yea, they have not been sown; yea, their stock hath not taken root in the earth: moreover he bloweth upon them, and they wither, and the whirlwind taketh them away as stubble.
+They are planted scarcely. They are sown scarcely. Their stock has scarcely taken root in the ground. He merely blows on them, and they wither, and the whirlwind takes them away as stubble.

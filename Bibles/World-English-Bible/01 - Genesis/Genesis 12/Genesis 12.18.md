@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh called Abram, and said, What is this that thou hast done unto me? why didst thou not tell me that she was thy wife?
+Pharaoh called Abram and said, "What is this that you have done to me? Why didn't you tell me that she was your wife?

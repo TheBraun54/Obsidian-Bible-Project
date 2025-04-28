@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had thus spoken, he cried with a loud voice, Lazarus, come forth.
+When he had said this, he cried with a loud voice, "Lazarus, come out!"

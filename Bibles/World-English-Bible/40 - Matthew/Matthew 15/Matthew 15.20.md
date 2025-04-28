@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-these are the things which defile the man; but to eat with unwashen hands defileth not the man.
+These are the things which defile the man; but to eat with unwashed hands doesn't defile the man."

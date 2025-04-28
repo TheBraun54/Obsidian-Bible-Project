@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the day of my trouble I sought the Lord: My hand was stretched out in the night, and slacked not; My soul refused to be comforted.
+In the day of my trouble I sought the Lord. My hand was stretched out in the night, and didn't get tired. My soul refused to be comforted.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will even give them into the hand of their enemies, and into the hand of them that seek their life; and their dead bodies shall be for food unto the birds of the heavens, and to the beasts of the earth.
+I will even give them into the hand of their enemies, and into the hand of those who seek their life; and their dead bodies shall be for food to the birds of the sky, and to the animals of the earth.

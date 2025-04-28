@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will raise them up a prophet from among their brethren, like unto thee; and I will put my words in his mouth, and he shall speak unto them all that I shall command him.
+I will raise them up a prophet from among their brothers, like you; and I will put my words in his mouth, and he shall speak to them all that I shall command him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be on the seventh day, that he shall shave all his hair off his head and his beard and his eyebrows, even all his hair he shall shave off: and he shall wash his clothes, and he shall bathe his flesh in water, and he shall be clean.
+It shall be on the seventh day, that he shall shave all his hair off his head and his beard and his eyebrows, even all his hair he shall shave off. He shall wash his clothes, and he shall bathe his body in water, then he shall be clean.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let Reuben live, and not die; Nor let his men be few.
+"Let Reuben live, and not die; Nor let his men be few."

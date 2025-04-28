@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My flesh trembleth for fear of thee; And I am afraid of thy judgments.
+My flesh trembles for fear of you. I am afraid of your judgments. AYIN

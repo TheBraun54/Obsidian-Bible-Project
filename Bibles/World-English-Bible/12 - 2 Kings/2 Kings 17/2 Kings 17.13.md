@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet Jehovah testified unto Israel, and unto Judah, by every prophet, and every seer, saying, Turn ye from your evil ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the prophets.
+Yet Yahweh testified to Israel, and to Judah, by every prophet, and every seer, saying, "Turn from your evil ways, and keep my commandments and my statutes, according to all the law which I commanded your fathers, and which I sent to you by my servants the prophets."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus called unto him his disciples, and said, I have compassion on the multitude, because they continue with me now three days and have nothing to eat: and I would not send them away fasting, lest haply they faint on the way.
+Jesus summoned his disciples and said, "I have compassion on the multitude, because they continue with me now three days and have nothing to eat. I don't want to send them away fasting, or they might faint on the way."

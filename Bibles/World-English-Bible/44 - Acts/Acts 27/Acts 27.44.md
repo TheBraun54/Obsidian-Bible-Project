@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the rest, some on planks, and some on [other] things from the ship. And so it came to pass, that they all escaped safe to the land.
+and the rest should follow, some on planks, and some on other things from the ship. So it happened that they all escaped safely to the land.

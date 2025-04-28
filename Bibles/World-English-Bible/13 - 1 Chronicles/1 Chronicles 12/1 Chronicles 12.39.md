@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were there with David three days, eating and drinking; for their brethren had made preparation for them.
+They were there with David three days, eating and drinking; for their brothers had made preparation for them.

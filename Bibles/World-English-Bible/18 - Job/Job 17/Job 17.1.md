@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My spirit is consumed, my days are extinct, The grave is [ready] for me.
+"My spirit is consumed. My days are extinct, And the grave is ready for me.

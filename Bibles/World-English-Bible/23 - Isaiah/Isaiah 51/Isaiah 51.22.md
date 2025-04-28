@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith thy Lord Jehovah, and thy God that pleadeth the cause of his people, Behold, I have taken out of thy hand the cup of staggering, even the bowl of the cup of my wrath; thou shalt no more drink it again:
+Thus says your Lord Yahweh, and your God who pleads the cause of his people, "Behold, I have taken out of your hand the cup of staggering, even the bowl of the cup of my wrath; you shall no more drink it again:

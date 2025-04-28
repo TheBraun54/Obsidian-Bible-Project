@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they were by Jebus, the day was far spent; and the servant said unto his master, Come, I pray thee, and let us turn aside into this city of the Jebusites, and lodge in it.
+When they were by Jebus, the day was far spent; and the servant said to his master, "Please come and let us turn aside into this city of the Jebusites, and lodge in it."

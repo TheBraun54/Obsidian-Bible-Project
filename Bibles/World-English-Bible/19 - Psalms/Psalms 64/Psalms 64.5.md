@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They encourage themselves in an evil purpose; They commune of laying snares privily; They say, Who will see them?
+They encourage themselves in evil plans. They talk about laying snares secretly. They say, "Who will see them?"

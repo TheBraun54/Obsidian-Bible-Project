@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged them much that no man should know this: and he commanded that [something] should be given her to eat.
+He strictly ordered them that no one should know this, and commanded that something should be given to her to eat.

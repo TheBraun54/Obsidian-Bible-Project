@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built Tadmor in the wilderness, and all the store-cities, which he built in Hamath.
+He built Tadmor in the wilderness, and all the storage cities, which he built in Hamath.

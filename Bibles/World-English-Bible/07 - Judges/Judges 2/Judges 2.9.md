@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they buried him in the border of his inheritance in Timnath-heres, in the hill-country of Ephraim, on the north of the mountain of Gaash.
+They buried him in the border of his inheritance in Timnath Heres, in the hill country of Ephraim, on the north of the mountain of Gaash.

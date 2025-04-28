@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cried with a mighty voice, saying, Fallen, fallen is Babylon the great, and is become a habitation of demons, and a hold of every unclean spirit, and a hold of every unclean and hateful bird.
+He cried with a mighty voice, saying, "Fallen, fallen is Babylon the great, and she has become a habitation of demons, a prison of every unclean spirit, and a prison of every unclean and hateful bird!

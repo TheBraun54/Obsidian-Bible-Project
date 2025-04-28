@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the Danites that could set the battle in array, twenty and eight thousand and six hundred.
+Of the Danites who could set the battle in array, twenty-eight thousand six hundred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherewith thine enemies have reproached, O Jehovah, Wherewith they have reproached the footsteps of thine anointed.
+With which your enemies have mocked, Yahweh, with which they have mocked the footsteps of your anointed one.

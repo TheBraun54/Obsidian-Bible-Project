@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The high places also of Aven, the sin of Israel, shall be destroyed: the thorn and the thistle shall come up on their altars; and they shall say to the mountains, Cover us; and to the hills, Fall on us.
+The high places also of Aven, the sin of Israel, will be destroyed. The thorn and the thistle will come up on their altars. They will tell the mountains, "Cover us!" and the hills, "Fall on us!"

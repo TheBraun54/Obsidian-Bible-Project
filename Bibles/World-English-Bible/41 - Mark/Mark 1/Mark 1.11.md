@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a voice came out of the heavens, Thou art my beloved Son, in thee I am well pleased.
+A voice came out of the sky, "You are my beloved Son, in whom I am well pleased."

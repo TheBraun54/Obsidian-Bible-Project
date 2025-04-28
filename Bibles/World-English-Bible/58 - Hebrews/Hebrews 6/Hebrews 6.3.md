@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this will we do, if God permit.
+This will we do, if God permits.

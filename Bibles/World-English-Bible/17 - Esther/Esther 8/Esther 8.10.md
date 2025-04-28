@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he wrote the name of king Ahasuerus, and sealed it with the king's ring, and sent letters by post on horseback, riding on swift steeds that were used in the king's service, bred of the stud:
+He wrote in the name of King Ahasuerus, and sealed it with the king's ring, and sent letters by courier on horseback, riding on royal horses that were bread from swift steeds.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make thy face to shine upon thy servant: Save me in thy lovingkindness.
+Make your face to shine on your servant. Save me in your loving kindness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Elim, and encamped by the Red Sea.
+They traveled from Elim, and encamped by the Red Sea.

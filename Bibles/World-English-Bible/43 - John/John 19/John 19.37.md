@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again another scripture saith, They shall look on him whom they pierced.
+Again another Scripture says, "They will look on him whom they pierced."

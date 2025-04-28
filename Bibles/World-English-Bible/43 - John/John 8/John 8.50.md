@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I seek not mine own glory: there is one that seeketh and judgeth.
+But I don't seek my own glory. There is one who seeks and judges.

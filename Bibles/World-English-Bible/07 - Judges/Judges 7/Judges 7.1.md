@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jerubbaal, who is Gideon, and all the people that were with him, rose up early, and encamped beside the spring of Harod: and the camp of Midian was on the north side of them, by the hill of Moreh, in the valley.
+Then Jerubbaal, who is Gideon, and all the people who were with him, rose up early, and encamped beside the spring of Harod: and the camp of Midian was on the north side of them, by the hill of Moreh, in the valley.

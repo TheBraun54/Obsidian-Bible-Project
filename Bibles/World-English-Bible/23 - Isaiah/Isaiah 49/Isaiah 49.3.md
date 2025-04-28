@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto me, Thou art my servant; Israel, in whom I will be glorified.
+and he said to me, "You are my servant; Israel, in whom I will be glorified."

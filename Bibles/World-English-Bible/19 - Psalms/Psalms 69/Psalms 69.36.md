@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The seed also of his servants shall inherit it; And they that love his name shall dwell therein.
+The children also of his servants shall inherit it. Those who love his name shall dwell therein. For the Chief Musician. By David. A reminder.

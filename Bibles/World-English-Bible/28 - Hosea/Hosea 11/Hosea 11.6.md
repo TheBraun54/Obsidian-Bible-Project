@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sword shall fall upon their cities, and shall consume their bars, and devour [them], because of their own counsels.
+The sword will fall on their cities, and will destroy the bars of their gates, and will put an end to their plans.

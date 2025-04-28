@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who in the days of his flesh, having offered up prayers and supplications with strong crying and tears unto him that was able to save him from death, and having been heard for his godly fear, [
+He, in the days of his flesh, having offered up prayers and petitions with strong crying and tears to him who was able to save him from death, and having been heard for his godly fear,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When my spirit was overwhelmed within me, Thou knewest my path. In the way wherein I walk Have they hidden a snare for me.
+When my spirit was overwhelmed within me, you knew my path. In the way in which I walk, they have hidden a snare for me.

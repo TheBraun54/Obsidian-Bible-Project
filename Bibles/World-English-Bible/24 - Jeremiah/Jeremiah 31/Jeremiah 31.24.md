@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah and all the cities thereof shall dwell therein together, the husbandmen, and they that go about with flocks.
+Judah and all its cities shall dwell therein together, the farmers, and those who go about with flocks.

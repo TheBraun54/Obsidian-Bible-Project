@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of a talent of pure gold shall it be made, with all these vessels.
+It shall be made of a talent of pure gold, with all these accessories.

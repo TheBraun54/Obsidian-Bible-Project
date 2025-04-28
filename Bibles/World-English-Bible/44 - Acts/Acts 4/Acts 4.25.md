@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who by the Holy Spirit, [by] the mouth of our father David thy servant, didst say, Why did the Gentiles rage, And the peoples imagine vain things?
+who by the mouth of your servant, David, said, 'Why do the nations rage, and the peoples plot a vain thing?

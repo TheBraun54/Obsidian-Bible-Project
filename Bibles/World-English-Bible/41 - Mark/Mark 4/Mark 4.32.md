@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet when it is sown, groweth up, and becometh greater than all the herbs, and putteth out great branches; so that the birds of the heaven can lodge under the shadow thereof.
+yet when it is sown, grows up, and becomes greater than all the herbs, and puts out great branches, so that the birds of the sky can lodge under its shadow."

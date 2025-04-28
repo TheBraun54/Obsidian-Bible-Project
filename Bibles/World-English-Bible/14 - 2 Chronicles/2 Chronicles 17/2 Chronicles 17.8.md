@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and with them the Levites, even Shemaiah, and Nethaniah, and Zebadiah, and Asahel, and Shemiramoth, and Jehonathan, and Adonijah, and Tobijah, and Tob-adonijah, the Levites; and with them Elishama and Jehoram, the priests.
+and with them the Levites, even Shemaiah, and Nethaniah, and Zebadiah, and Asahel, and Shemiramoth, and Jehonathan, and Adonijah, and Tobijah, and Tobadonijah, the Levites; and with them Elishama and Jehoram, the priests.

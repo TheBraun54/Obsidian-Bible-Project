@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Two wagons and four oxen he gave unto the sons of Gershon, according to their service:
+He gave two wagons and four oxen to the sons of Gershon, according to their service:

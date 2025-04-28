@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Satan answered Jehovah, and said, Doth Job fear God for nought?
+Then Satan answered Yahweh, and said, "Does Job fear God for nothing?

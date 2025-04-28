@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have observed thy precepts and thy testimonies; For all my ways are before thee.
+I have obeyed your precepts and your testimonies, for all my ways are before you. TAV

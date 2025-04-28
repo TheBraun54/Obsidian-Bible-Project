@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when even was come, the disciples came to him, saying, The place is desert, and the time is already past; send the multitudes away, that they may go into the villages, and buy themselves food.
+When evening had come, his disciples came to him, saying, "This place is deserted, and the hour is already late. Send the multitudes away, that they may go into the villages, and buy themselves food."

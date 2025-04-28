@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear this word that Jehovah hath spoken against you, O children of Israel, against the whole family which I brought up out of the land of Egypt, saying,
+Hear this word that Yahweh has spoken against you, children of Israel, against the whole family which I brought up out of the land of Egypt, saying:

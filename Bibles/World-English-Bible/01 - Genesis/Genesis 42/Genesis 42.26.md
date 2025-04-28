@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they laded their asses with their grain, and departed thence.
+They loaded their donkeys with their grain, and departed from there.

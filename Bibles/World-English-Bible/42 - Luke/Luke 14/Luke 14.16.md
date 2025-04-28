@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto him, A certain man made a great supper; and he bade many:
+But he said to him, "A certain man made a great supper, and he invited many people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Asa was wroth with the seer, and put him in the prison-house; for he was in a rage with him because of this thing. And Asa oppressed some of the people at the same time.
+Then Asa was angry with the seer, and put him in the prison; for he was in a rage with him because of this thing. Asa oppressed some of the people at the same time.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The beast that thou sawest was, and is not; and is about to come up out of the abyss, and to go into perdition. And they that dwell on the earth shall wonder, [they] whose name hath not been written in the book of life from the foundation of the world, when they behold the beast, how that he was, and is not, and shall come.
+The beast that you saw was, and is not; and is about to come up out of the abyss and to go into destruction. Those who dwell on the earth and whose names have not been written in the book of life from the foundation of the world will marvel when they see that the beast was, and is not, and shall be present.

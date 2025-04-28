@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said, For judgment came I into this world, that they that see not may see; and that they that see may become blind.
+Jesus said, "I came into this world for judgment, that those who don't see may see; and that those who see may become blind."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seest thou not what they do in the cities of Judah and in the streets of Jerusalem?
+Don't you see what they do in the cities of Judah and in the streets of Jerusalem?

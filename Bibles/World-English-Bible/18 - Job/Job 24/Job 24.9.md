@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are that pluck the fatherless from the breast, And take a pledge of the poor;
+There are those who pluck the fatherless from the breast, and take a pledge of the poor,

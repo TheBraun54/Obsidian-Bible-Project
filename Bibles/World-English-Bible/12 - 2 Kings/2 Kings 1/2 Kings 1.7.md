@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, What manner of man was he that came up to meet you, and told you these words?
+He said to them, "What kind of man was he who came up to meet you, and told you these words?"

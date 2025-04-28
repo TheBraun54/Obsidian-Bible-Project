@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one shall say unto him, What are these wounds between thine arms? Then he shall answer, Those with which I was wounded in the house of my friends.
+One will say to him, 'What are these wounds between your arms?' Then he will answer, 'Those with which I was wounded in the house of my friends.'

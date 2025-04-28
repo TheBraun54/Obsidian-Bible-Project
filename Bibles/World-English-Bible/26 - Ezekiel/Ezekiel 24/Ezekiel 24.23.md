@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your tires shall be upon your heads, and your shoes upon your feet: ye shall not mourn nor weep; but ye shall pine away in your iniquities, and moan one toward another.
+Your tires shall be on your heads, and your shoes on your feet: you shall not mourn nor weep; but you shall pine away in your iniquities, and moan one toward another.

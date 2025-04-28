@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, when they had further threatened them, let them go, finding nothing how they might punish them, because of the people; for all men glorified God for that which was done.
+When they had further threatened them, they let them go, finding no way to punish them, because of the people; for everyone glorified God for that which was done.

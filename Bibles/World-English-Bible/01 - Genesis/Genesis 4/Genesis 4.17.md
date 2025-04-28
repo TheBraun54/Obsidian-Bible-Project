@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Cain knew his wife; and she conceived, and bare Enoch: and he builded a city, and called the name of the city, after the name of his son, Enoch.
+Cain knew his wife. She conceived, and gave birth to Enoch. He built a city, and called the name of the city, after the name of his son, Enoch.

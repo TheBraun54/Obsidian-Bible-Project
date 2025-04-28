@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hadarezer sent, and brought out the Syrians that were beyond the River: and they came to Helam, with Shobach the captain of the host of Hadarezer at their head.
+Hadadezer sent, and brought out the Syrians who were beyond the River: and they came to Helam, with Shobach the captain of the army of Hadadezer at their head.

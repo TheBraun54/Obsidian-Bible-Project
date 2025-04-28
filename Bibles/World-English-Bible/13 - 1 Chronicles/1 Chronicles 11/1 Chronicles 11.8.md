@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built the city round about, from Millo even round about; and Joab repaired the rest of the city.
+He built the city all around, from Millo even around; and Joab repaired the rest of the city.

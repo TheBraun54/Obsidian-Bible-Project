@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Keep ye justice, and do righteousness; for my salvation is near to come, and my righteousness to be revealed.
+Thus says Yahweh, "Keep justice, and do righteousness; for my salvation is near to come, and my righteousness to be revealed.

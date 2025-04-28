@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to Aijeleth hash-Shahar. A Psalm of David]. My God, my God, why hast thou forsaken me? [Why art thou so] far from helping me, [and from] the words of my groaning?
+My God, my God, why have you forsaken me? Why are you so far from helping me, and from the words of my groaning?

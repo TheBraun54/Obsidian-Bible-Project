@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man shall deliver unto his neighbor money or stuff to keep, and it be stolen out of the man's house; if the thief be found, he shall pay double.
+"If a man delivers to his neighbor money or stuff to keep, and it is stolen out of the man's house; if the thief is found, he shall pay double.

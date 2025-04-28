@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou didst form my inward parts: Thou didst cover me in my mother's womb.
+For you formed my inmost being. You knit me together in my mother's womb.

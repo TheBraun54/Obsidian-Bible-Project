@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by me thy days shall be multiplied, And the years of thy life shall be increased.
+For by me your days will be multiplied. The years of your life will be increased.

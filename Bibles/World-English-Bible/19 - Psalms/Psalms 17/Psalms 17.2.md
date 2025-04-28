@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my sentence come forth from thy presence; Let thine eyes look upon equity.
+Let my sentence come forth from your presence. Let your eyes look on equity.

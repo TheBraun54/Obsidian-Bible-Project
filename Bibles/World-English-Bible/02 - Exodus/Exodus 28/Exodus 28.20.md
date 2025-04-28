@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the fourth row a beryl, and an onyx, and a jasper: they shall be inclosed in gold in their settings.
+and the fourth row a chrysolite, an onyx, and a jasper: they shall be enclosed in gold in their settings.

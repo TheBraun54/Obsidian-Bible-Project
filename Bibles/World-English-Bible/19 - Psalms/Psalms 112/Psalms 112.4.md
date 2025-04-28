@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto the upright there ariseth light in the darkness: [He is] gracious, and merciful, and righteous.
+Light dawns in the darkness for the upright, gracious, merciful, and righteous.

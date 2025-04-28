@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I arose in the night, I and some few men with me; neither told I any man what my God put into my heart to do for Jerusalem; neither was there any beast with me, save the beast that I rode upon.
+I arose in the night, I and some few men with me; neither told I any man what my God put into my heart to do for Jerusalem; neither was there any animal with me, except the animal that I rode on.

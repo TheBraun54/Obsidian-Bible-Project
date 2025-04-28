@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt give them hardness of heart, thy curse unto them.
+You will give them hardness of heart, your curse to them.

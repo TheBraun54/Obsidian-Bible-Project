@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall the trumpet be blown in a city, and the people not be afraid? shall evil befall a city, and Jehovah hath not done it?
+Does the trumpet alarm sound in a city, without the people being afraid? Does evil happen to a city, and Yahweh hasn't done it?

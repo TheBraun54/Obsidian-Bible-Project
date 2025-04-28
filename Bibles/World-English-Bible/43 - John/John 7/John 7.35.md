@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore said among themselves, Whither will this man go that we shall not find him? will he go unto the Dispersion among the Greeks, and teach the Greeks?
+The Jews therefore said among themselves, "Where will this man go that we won't find him? Will he go to the Dispersion among the Greeks, and teach the Greeks?

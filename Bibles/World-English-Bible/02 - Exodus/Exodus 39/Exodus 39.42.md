@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to all that Jehovah commanded Moses, so the children of Israel did all the work.
+According to all that Yahweh commanded Moses, so the children of Israel did all the work.

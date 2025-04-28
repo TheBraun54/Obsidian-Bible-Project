@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Behold, I come as a thief. Blessed is he that watcheth, and keepeth his garments, lest he walk naked, and they see his shame.)
+"Behold, I come like a thief. Blessed is he who watches, and keeps his clothes, so that he doesn't walk naked, and they see his shame."

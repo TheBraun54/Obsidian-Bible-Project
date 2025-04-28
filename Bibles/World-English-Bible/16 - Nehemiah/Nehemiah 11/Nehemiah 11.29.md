@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in En-rimmon, and in Zorah, and in Jarmuth,
+and in En Rimmon, and in Zorah, and in Jarmuth,

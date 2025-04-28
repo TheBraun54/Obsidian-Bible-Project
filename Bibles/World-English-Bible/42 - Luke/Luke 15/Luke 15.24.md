@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for this my son was dead, and is alive again; he was lost, and is found. And they began to be merry.
+for this, my son, was dead, and is alive again. He was lost, and is found.' They began to celebrate.

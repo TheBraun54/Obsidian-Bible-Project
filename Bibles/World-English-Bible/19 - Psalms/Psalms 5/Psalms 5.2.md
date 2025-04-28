@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken unto the voice of my cry, my King, and my God; For unto thee do I pray.
+Listen to the voice of my cry, my King and my God; for to you do I pray.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also we certify you, that touching any of the priests and Levites, the singers, porters, Nethinim, or servants of this house of God, it shall not be lawful to impose tribute, custom, or toll, upon them.
+Also we inform you, that touching any of the priests and Levites, the singers, porters, Nethinim, or servants of this house of God, it shall not be lawful to impose tribute, custom, or toll, on them.

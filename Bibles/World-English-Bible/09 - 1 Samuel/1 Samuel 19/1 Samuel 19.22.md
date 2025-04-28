@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then went he also to Ramah, and came to the great well that is in Secu: and he asked and said, Where are Samuel and David? And one said, Behold, they are at Naioth in Ramah.
+Then went he also to Ramah, and came to the great well that is in Secu: and he asked, "Where are Samuel and David?" One said, "Behold, they are at Naioth in Ramah."

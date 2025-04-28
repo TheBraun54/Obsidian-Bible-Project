@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So have I looked upon thee in the sanctuary, To see thy power and thy glory.
+So I have seen you in the sanctuary, watching your power and your glory.

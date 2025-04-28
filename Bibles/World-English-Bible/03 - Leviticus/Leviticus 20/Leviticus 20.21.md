@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man shall take his brother's wife, it is impurity: he hath uncovered his brother's nakedness; they shall be childless.
+"'If a man takes his brother's wife, it is an impurity: he has uncovered his brother's nakedness; they shall be childless.

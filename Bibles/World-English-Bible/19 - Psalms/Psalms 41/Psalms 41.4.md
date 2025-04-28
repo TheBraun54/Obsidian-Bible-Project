@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, O Jehovah, have mercy upon me: Heal my soul; For I have sinned against thee.
+I said, "Yahweh, have mercy on me! Heal me, for I have sinned against you."

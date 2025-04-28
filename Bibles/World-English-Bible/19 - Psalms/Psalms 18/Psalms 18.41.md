@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They cried, but there was none to save; Even unto Jehovah, but he answered them not.
+They cried, but there was none to save; even to Yahweh, but he didn't answer them.

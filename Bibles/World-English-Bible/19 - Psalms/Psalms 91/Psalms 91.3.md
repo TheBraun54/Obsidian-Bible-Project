@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he will deliver thee from the snare of the fowler, And from the deadly pestilence.
+For he will deliver you from the snare of the fowler, and from the deadly pestilence.

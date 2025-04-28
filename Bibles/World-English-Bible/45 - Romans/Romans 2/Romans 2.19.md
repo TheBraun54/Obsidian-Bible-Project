@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and art confident that thou thyself art a guide of the blind, a light of them that are in darkness,
+and are confident that you yourself are a guide of the blind, a light to those who are in darkness,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she went away unto her house, and found the child laid upon the bed, and the demon gone out.
+She went away to her house, and found the child having been laid on the bed, with the demon gone out.

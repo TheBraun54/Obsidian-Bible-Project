@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter saith unto him, Thou shalt never wash my feet. Jesus answered him, If I wash thee not, thou hast no part with me.
+Peter said to him, "You will never wash my feet!" Jesus answered him, "If I don't wash you, you have no part with me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I shall be condemned; Why then do I labor in vain?
+I shall be condemned. Why then do I labor in vain?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set in it settings of stones, four rows of stones: a row of sardius, topaz, and carbuncle shall be the first row;
+You shall set in it settings of stones, four rows of stones: a row of ruby, topaz, and beryl shall be the first row;

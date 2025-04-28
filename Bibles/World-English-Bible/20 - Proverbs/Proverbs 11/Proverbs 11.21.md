@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Though] hand [join] in hand, the evil man shall not be unpunished; But the seed of the righteous shall be delivered.
+Most certainly, the evil man will not be unpunished, but the seed of the righteous will be delivered.

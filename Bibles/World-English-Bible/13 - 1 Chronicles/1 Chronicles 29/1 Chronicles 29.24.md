@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the princes, and the mighty men, and all the sons likewise of king David, submitted themselves unto Solomon the king.
+All the princes, the mighty men, and also all of the sons of king David submitted themselves to Solomon the king.

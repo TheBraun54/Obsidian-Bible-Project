@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in Jeshua, and in Moladah, and Beth-pelet,
+and in Jeshua, and in Moladah, and Beth Pelet,

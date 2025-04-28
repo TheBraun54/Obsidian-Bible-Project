@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why will ye die, thou and thy people, by the sword, by the famine, and by the pestilence, as Jehovah hath spoken concerning the nation that will not serve the king of Babylon?
+Why will you die, you and your people, by the sword, by the famine, and by the pestilence, as Yahweh has spoken concerning the nation that will not serve the king of Babylon?

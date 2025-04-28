@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou blind Pharisee, cleanse first the inside of the cup and of the platter, that the outside thereof may become clean also.
+You blind Pharisee, first clean the inside of the cup and of the platter, that its outside may become clean also.

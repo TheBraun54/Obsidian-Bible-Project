@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the days come, saith Jehovah, that I will raise unto David a righteous Branch, and he shall reign as king and deal wisely, and shall execute justice and righteousness in the land.
+Behold, the days come, says Yahweh, that I will raise to David a righteous Branch, and he shall reign as king and deal wisely, and shall execute justice and righteousness in the land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how shall not rather the ministration of the spirit be with glory?
+won't service of the Spirit be with much more glory?

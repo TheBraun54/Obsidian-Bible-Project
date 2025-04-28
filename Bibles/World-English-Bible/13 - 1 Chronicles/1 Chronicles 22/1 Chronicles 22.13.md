@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou prosper, if thou observe to do the statutes and the ordinances which Jehovah charged Moses with concerning Israel: be strong, and of good courage; fear not, neither be dismayed.
+Then you will prosper, if you observe to do the statutes and the ordinances which Yahweh gave Moses concerning Israel. Be strong, and courageous. Don't be afraid, neither be dismayed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the time of the going down of the sun, that Joshua commanded, and they took them down off the trees, and cast them into the cave wherein they had hidden themselves, and laid great stones on the mouth of the cave, unto this very day.
+It happened at the time of the going down of the sun, that Joshua commanded, and they took them down off the trees, and cast them into the cave in which they had hidden themselves, and laid great stones on the mouth of the cave, which remain to this very day.

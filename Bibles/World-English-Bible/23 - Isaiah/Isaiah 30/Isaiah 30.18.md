@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And therefore will Jehovah wait, that he may be gracious unto you; and therefore will he be exalted, that he may have mercy upon you: for Jehovah is a God of justice; blessed are all they that wait for him.
+Therefore Yahweh will wait, that he may be gracious to you; and therefore he will be exalted, that he may have mercy on you, for Yahweh is a God of justice. Blessed are all those who wait for him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, if meat causeth my brother to stumble, I will eat no flesh for evermore, that I cause not my brother to stumble.
+Therefore, if food causes my brother to stumble, I will eat no meat forevermore, that I don't cause my brother to stumble.

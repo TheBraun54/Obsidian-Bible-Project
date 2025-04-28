@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the words of Esau her elder son were told to Rebekah; and she sent and called Jacob her younger son, and said unto him, Behold, thy brother Esau, as touching thee, doth comfort himself, [purposing] to kill thee.
+The words of Esau, her elder son, were told to Rebekah. She sent and called Jacob, her younger son, and said to him, "Behold, your brother Esau comforts himself about you by planning to kill you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there appeared unto them tongues parting asunder, like as of fire; and it sat upon each one of them.
+Tongues like fire appeared and were distributed to them, and one sat on each of them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses answered and said, But, behold, they will not believe me, nor hearken unto my voice; for they will say, Jehovah hath not appeared unto thee.
+Moses answered, "But, behold, they will not believe me, nor listen to my voice; for they will say, 'Yahweh has not appeared to you.'"

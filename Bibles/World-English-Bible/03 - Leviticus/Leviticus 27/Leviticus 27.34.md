@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the commandments, which Jehovah commanded Moses for the children of Israel in mount Sinai.
+These are the commandments which Yahweh commanded Moses for the children of Israel on Mount Sinai.

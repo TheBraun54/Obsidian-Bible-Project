@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech called Isaac, and said, Behold, of a surety she is thy wife: and how saidst thou, She is my sister? And Isaac said unto him, Because I said, Lest I die because of her.
+Abimelech called Isaac, and said, "Behold, surely she is your wife. Why did you say, 'She is my sister?'" Isaac said to him, "Because I said, 'Lest I die because of her.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is now the third time that Jesus was manifested to the disciples, after that he was risen from the dead.
+This is now the third time that Jesus was revealed to his disciples, after he had risen from the dead.

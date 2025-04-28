@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, I told you that I am [he] ; if therefore ye seek me, let these go their way:
+Jesus answered, "I told you that I am he. If therefore you seek me, let these go their way,"

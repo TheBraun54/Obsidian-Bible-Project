@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the four corners of the court there were courts inclosed, forty [cubits] long and thirty broad: these four in the corners were of one measure.
+In the four corners of the court there were courts enclosed, forty [cubits] long and thirty broad: these four in the corners were of one measure.

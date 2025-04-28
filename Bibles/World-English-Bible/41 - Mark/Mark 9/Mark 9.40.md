@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that is not against us is for us.
+For whoever is not against us is on our side.

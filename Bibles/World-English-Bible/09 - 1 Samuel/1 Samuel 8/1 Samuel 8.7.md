@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Samuel, Hearken unto the voice of the people in all that they say unto thee; for they have not rejected thee, but they have rejected me, that I should not be king over them.
+Yahweh said to Samuel, "Listen to the voice of the people in all that they tell you; for they have not rejected you, but they have rejected me, that I should not be king over them.

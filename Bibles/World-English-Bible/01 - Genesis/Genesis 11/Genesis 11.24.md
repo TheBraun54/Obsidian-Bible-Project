@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nahor lived nine and twenty years, and begat Terah:
+Nahor lived twenty-nine years, and became the father of Terah.

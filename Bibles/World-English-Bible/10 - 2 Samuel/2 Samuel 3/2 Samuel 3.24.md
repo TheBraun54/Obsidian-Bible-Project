@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Joab came to the king, and said, What hast thou done? behold, Abner came unto thee; why is it that thou hast sent him away, and he is quite gone?
+Then Joab came to the king, and said, "What have you done? Behold, Abner came to you. Why is it that you have sent him away, and he is quite gone?

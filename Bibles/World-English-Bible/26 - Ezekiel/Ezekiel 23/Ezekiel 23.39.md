@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when they had slain their children to their idols, then they came the same day into my sanctuary to profane it; and, lo, thus have they done in the midst of my house.
+For when they had slain their children to their idols, then they came the same day into my sanctuary to profane it; and behold, thus have they done in the midst of my house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said to Aaron, Go into the wilderness to meet Moses. And he went, and met him in the mountain of God, and kissed him.
+Yahweh said to Aaron, "Go into the wilderness to meet Moses." He went, and met him on God's mountain, and kissed him.

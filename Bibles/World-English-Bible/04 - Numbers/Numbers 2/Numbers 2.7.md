@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ And] the tribe of Zebulun: and the prince of the children of Zebulun shall be Eliab the son of Helon.
+The tribe of Zebulun: and the prince of the children of Zebulun shall be Eliab the son of Helon.

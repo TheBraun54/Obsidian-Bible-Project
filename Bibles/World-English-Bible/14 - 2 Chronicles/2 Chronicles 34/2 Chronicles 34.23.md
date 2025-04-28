@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto them, Thus saith Jehovah, the God of Israel: Tell ye the man that sent you unto me,
+She said to them, "Thus says Yahweh, the God of Israel: 'Tell the man who sent you to me,

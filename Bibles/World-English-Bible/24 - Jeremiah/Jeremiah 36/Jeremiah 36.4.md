@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jeremiah called Baruch the son of Neriah; and Baruch wrote from the mouth of Jeremiah all the words of Jehovah, which he had spoken unto him, upon a roll of a book.
+Then Jeremiah called Baruch the son of Neriah; and Baruch wrote from the mouth of Jeremiah all the words of Yahweh, which he had spoken to him, on a scroll of a book.

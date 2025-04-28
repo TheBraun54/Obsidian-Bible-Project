@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is wise, that he may understand these things? prudent, that he may know them? for the ways of Jehovah are right, and the just shall walk in them; but transgressors shall fall therein.
+Who is wise, that he may understand these things? Who is prudent, that he may know them? For the ways of Yahweh are right, and the righteous walk in them; But the rebellious stumble in them.

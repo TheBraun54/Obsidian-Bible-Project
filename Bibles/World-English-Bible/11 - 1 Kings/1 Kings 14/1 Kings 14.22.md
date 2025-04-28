@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah did that which was evil in the sight of Jehovah, and they provoked him to jealousy with their sins which they committed, above all that their fathers had done.
+Judah did that which was evil in the sight of Yahweh, and they provoked him to jealousy with their sins which they committed, above all that their fathers had done.

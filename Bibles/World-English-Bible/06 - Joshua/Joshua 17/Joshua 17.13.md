@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the children of Israel were waxed strong, that they put the Canaanites to taskwork, and did not utterly drive them out.
+It happened, when the children of Israel had grown strong, that they put the Canaanites to forced labor, and didn't utterly drive them out.

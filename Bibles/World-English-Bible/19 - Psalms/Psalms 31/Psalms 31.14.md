@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I trusted in thee, O Jehovah: I said, Thou art my God.
+But I trust in you, Yahweh. I said, "You are my God."

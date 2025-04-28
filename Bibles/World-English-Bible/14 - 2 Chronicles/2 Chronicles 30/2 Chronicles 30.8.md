@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now be ye not stiffnecked, as your fathers were; but yield yourselves unto Jehovah, and enter into his sanctuary, which he hath sanctified for ever, and serve Jehovah your God, that his fierce anger may turn away from you.
+Now don't be stiff-necked, as your fathers were; but yield yourselves to Yahweh, and enter into his sanctuary, which he has sanctified forever, and serve Yahweh your God, that his fierce anger may turn away from you.

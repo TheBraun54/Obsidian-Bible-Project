@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is a day of discomfiture, and of treading down, and of perplexity, from the Lord, Jehovah of hosts, in the valley of vision; a breaking down of the walls, and a crying to the mountains. [
+For it is a day of confusion, and of treading down, and of perplexity, from the Lord, Yahweh of Armies, in the valley of vision; a breaking down of the walls, and a crying to the mountains."

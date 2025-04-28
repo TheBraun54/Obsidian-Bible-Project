@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the heavens are shut up, and there is no rain, because they have sinned against thee; if they pray toward this place, and confess thy name, and turn from their sin, when thou dost afflict them:
+"When the sky is shut up, and there is no rain, because they have sinned against you; if they pray toward this place, and confess your name, and turn from their sin, when you afflict them:

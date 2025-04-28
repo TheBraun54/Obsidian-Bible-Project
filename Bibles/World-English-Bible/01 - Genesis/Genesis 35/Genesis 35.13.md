@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God went up from him in the place where he spake with him.
+God went up from him in the place where he spoke with him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I live, saith the Lord Jehovah, surely in the place where the king dwelleth that made him king, whose oath he despised, and whose covenant he brake, even with him in the midst of Babylon he shall die.
+As I live, says the Lord Yahweh, surely in the place where the king dwells who made him king, whose oath he despised, and whose covenant he broke, even with him in the midst of Babylon he shall die.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in Jerusalem dwelt certain of the children of Judah, and of the children of Benjamin. Of the children of Judah: Athaiah the son of Uzziah, the son of Zechariah, the son of Amariah, the son of Shephatiah, the son of Mahalalel, of the children of Perez;
+In Jerusalem lived certain of the children of Judah, and of the children of Benjamin. Of the children of Judah: Athaiah the son of Uzziah, the son of Zechariah, the son of Amariah, the son of Shephatiah, the son of Mahalalel, of the children of Perez;

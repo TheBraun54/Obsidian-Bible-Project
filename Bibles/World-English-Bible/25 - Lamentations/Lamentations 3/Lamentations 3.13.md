@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath caused the shafts of his quiver to enter into my reins.
+He has caused the shafts of his quiver to enter into my kidneys.

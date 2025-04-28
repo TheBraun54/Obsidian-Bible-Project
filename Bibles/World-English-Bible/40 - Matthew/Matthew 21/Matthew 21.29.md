@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, I will not: but afterward he repented himself, and went.
+He answered, 'I will not,' but afterward he changed his mind, and went.

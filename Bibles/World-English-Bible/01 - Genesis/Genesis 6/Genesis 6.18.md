@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will establish my covenant with thee; and thou shalt come into the ark, thou, and thy sons, and thy wife, and thy sons' wives with thee.
+But I will establish my covenant with you. You shall come into the ship, you, your sons, your wife, and your sons' wives with you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And John was clothed with camel's hair, and [had] a leathern girdle about his loins, and did eat locusts and wild honey.
+John was clothed with camel's hair and a leather belt around his waist. He ate locusts and wild honey.

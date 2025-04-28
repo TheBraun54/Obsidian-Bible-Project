@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm]. Oh sing unto Jehovah a new song; For he hath done marvellous things: His right hand, and his holy arm, hath wrought salvation for him.
+Sing to Yahweh a new song, for he has done marvelous things! His right hand, and his holy arm, have worked salvation for him.

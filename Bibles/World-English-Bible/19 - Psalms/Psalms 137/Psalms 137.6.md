@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my tongue cleave to the roof of my mouth, If I remember thee not; If I prefer not Jerusalem Above my chief joy.
+Let my tongue stick to the roof of my mouth if I don't remember you; if I don't prefer Jerusalem above my chief joy.

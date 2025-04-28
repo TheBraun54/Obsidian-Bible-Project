@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is my comfort in my affliction; For thy word hath quickened me.
+This is my comfort in my affliction, for your word has revived me.

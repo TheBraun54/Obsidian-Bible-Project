@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, O Jehovah, art my refuge! Thou hast made the Most High thy habitation;
+Because you have made Yahweh your refuge, and the Most High your dwelling place,

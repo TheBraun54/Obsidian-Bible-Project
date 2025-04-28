@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took it, and ate before them.
+He took them, and ate in front of them.

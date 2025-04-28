@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king commanded all the people, saying, Keep the passover unto Jehovah your God, as it is written in this book of the covenant.
+The king commanded all the people, saying, "Keep the Passover to Yahweh your God, as it is written in this book of the covenant."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of the chamber [of the south] cometh the storm, And cold out of the north.
+Out of its room comes the storm, and cold out of the north.

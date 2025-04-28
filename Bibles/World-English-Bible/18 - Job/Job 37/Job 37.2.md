@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, oh, hear the noise of his voice, And the sound that goeth out of his mouth.
+Hear, oh, hear the noise of his voice, the sound that goes out of his mouth.

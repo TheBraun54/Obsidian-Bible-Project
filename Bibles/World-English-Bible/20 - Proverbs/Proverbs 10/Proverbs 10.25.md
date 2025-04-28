@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the whirlwind passeth, the wicked is no more; But the righteous is an everlasting foundation.
+When the whirlwind passes, the wicked is no more; but the righteous stand firm forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went out, and told the people the words of Jehovah: and he gathered seventy men of the elders of the people, and set them round about the Tent.
+Moses went out, and told the people the words of Yahweh; and he gathered seventy men of the elders of the people, and set them around the Tent.

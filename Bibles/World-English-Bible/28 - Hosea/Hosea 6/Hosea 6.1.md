@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, and let us return unto Jehovah; for he hath torn, and he will heal us; he hath smitten, and he will bind us up.
+"Come, and let us return to Yahweh; for he has torn us to pieces, and he will heal us; he has injured us, and he will bind up our wounds.

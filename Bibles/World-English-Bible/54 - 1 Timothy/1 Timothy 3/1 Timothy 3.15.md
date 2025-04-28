@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if I tarry long, that thou mayest know how men ought to behave themselves in the house of God, which is the church of the living God, the pillar and ground of the truth.
+but if I wait long, that you may know how men ought to behave themselves in the house of God, which is the assembly of the living God, the pillar and ground of the truth.

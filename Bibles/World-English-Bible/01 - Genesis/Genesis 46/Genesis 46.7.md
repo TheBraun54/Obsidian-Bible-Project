@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-his sons, and his sons' sons with him, his daughters, and his sons' daughters, and all his seed brought he with him into Egypt.
+his sons, and his sons' sons with him, his daughters, and his sons' daughters, and he brought all his seed with him into Egypt.

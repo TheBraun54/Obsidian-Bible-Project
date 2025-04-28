@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nathan said to the king, Go, do all that is in thy heart; for Jehovah is with thee.
+Nathan said to the king, "Go, do all that is in your heart; for Yahweh is with you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall the strength of Pharaoh be your shame, and the refuge in the shadow of Egypt your confusion.
+Therefore the strength of Pharaoh will be your shame, and the refuge in the shadow of Egypt your confusion.

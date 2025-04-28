@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built up the altar of Jehovah, and offered thereon sacrifices of peace-offerings and of thanksgiving, and commanded Judah to serve Jehovah, the God of Israel.
+He built up the altar of Yahweh, and offered thereon sacrifices of peace offerings and of thanksgiving, and commanded Judah to serve Yahweh, the God of Israel.

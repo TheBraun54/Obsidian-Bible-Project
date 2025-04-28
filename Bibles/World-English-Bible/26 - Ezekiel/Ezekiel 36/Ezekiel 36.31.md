@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall ye remember your evil ways, and your doings that were not good; and ye shall loathe yourselves in your own sight for your iniquities and for your abominations.
+Then you shall remember your evil ways, and your doings that were not good; and you shall loathe yourselves in your own sight for your iniquities and for your abominations.

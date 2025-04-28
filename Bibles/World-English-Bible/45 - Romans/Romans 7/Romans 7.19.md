@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the good which I would I do not: but the evil which I would not, that I practise.
+For the good which I desire, I don't do; but the evil which I don't desire, that I practice.

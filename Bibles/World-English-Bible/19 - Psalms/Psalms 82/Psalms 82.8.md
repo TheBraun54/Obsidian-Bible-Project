@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O God, judge the earth; For thou shalt inherit all the nations.
+Arise, God, judge the earth, for you inherit all of the nations. A song. A Psalm by Asaph.

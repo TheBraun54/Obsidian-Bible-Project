@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the porch of pillars; the length thereof was fifty cubits, and the breadth thereof thirty cubits; and a porch before them; and pillars and a threshold before them.
+He made the porch of pillars; its length was fifty cubits, and its breadth thirty cubits; and a porch before them; and pillars and a threshold before them.

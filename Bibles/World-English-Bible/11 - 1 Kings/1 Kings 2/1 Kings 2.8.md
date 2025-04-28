@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, there is with thee Shimei the son of Gera, the Benjamite, of Bahurim, who cursed me with a grievous curse in the day when I went to Mahanaim; but he came down to meet me at the Jordan, and I sware to him by Jehovah, saying, I will not put thee to death with the sword.
+"Behold, there is with you Shimei the son of Gera, the Benjamite, of Bahurim, who cursed me with a grievous curse in the day when I went to Mahanaim; but he came down to meet me at the Jordan, and I swore to him by Yahweh, saying, 'I will not put you to death with the sword.'

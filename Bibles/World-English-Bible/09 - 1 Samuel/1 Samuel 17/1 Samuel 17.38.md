@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul clad David with his apparel, and he put a helmet of brass upon his head, and he clad him with a coat of mail.
+Saul dressed David with his clothing. He put a helmet of brass on his head, and he clad him with a coat of mail.

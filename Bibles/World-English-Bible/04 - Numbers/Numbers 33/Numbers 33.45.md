@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Iyim, and encamped in Dibon-gad.
+They traveled from Iyim, and encamped in Dibon Gad.

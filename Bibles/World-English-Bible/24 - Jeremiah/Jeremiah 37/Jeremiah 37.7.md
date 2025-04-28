@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, the God of Israel, Thus shall ye say to the king of Judah, that sent you unto me to inquire of me: Behold, Pharaoh's army, which is come forth to help you, shall return to Egypt into their own land.
+Thus says Yahweh, the God of Israel, You shall tell the king of Judah, who sent you to me to inquire of me: Behold, Pharaoh's army, which is come forth to help you, shall return to Egypt into their own land.

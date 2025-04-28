@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He brought me to the banqueting-house, And his banner over me was love.
+He brought me to the banquet hall. His banner over me is love.

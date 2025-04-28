@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He overlaid also the house, the beams, the thresholds, and the walls thereof, and the doors thereof, with gold; and graved cherubim on the walls.
+He overlaid also the house, the beams, the thresholds, and its walls, and its doors, with gold; and engraved cherubim on the walls.

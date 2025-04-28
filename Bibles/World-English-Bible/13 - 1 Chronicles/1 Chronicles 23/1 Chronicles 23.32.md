@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that they should keep the charge of the tent of meeting, and the charge of the holy place, and the charge of the sons of Aaron their brethren, for the service of the house of Jehovah.
+and that they should keep the duty of the Tent of Meeting, and the duty of the holy place, and the duty of the sons of Aaron their brothers, for the service of the house of Yahweh.

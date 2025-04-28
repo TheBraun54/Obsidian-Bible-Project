@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with good will doing service, as unto the Lord, and not unto men:
+with good will doing service, as to the Lord, and not to men;

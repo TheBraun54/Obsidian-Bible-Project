@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the daughter of Tyre [shall be there] with a gift; The rich among the people shall entreat thy favor.
+The daughter of Tyre comes with a gift. The rich among the people entreat your favor.

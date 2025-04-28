@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And other fell among the thorns, and the thorns grew up, and choked it, and it yielded no fruit.
+Others fell among the thorns, and the thorns grew up, and choked it, and it yielded no fruit.

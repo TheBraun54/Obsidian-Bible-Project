@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the day when Jehovah spake unto Moses in the land of Egypt,
+It happened on the day when Yahweh spoke to Moses in the land of Egypt,

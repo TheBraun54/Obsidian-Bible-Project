@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because Manasseh king of Judah hath done these abominations, and hath done wickedly above all that the Amorites did, that were before him, and hath made Judah also to sin with his idols;
+"Because Manasseh king of Judah has done these abominations, and has done wickedly above all that the Amorites did, who were before him, and has made Judah also to sin with his idols;

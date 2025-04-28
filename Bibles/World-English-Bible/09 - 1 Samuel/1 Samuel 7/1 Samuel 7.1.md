@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Kiriath-jearim came, and fetched up the ark of Jehovah, and brought it into the house of Abinadab in the hill, and sanctified Eleazar his son to keep the ark of Jehovah.
+The men of Kiriath Jearim came, and fetched up the ark of Yahweh, and brought it into the house of Abinadab in the hill, and sanctified Eleazar his son to keep the ark of Yahweh.

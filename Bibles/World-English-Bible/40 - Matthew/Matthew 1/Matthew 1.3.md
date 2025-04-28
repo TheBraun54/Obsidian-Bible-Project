@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Judah begat Perez and Zerah of Tamar; and Perez begat Hezron; and Hezron begat Ram;
+Judah became the father of Perez and Zerah by Tamar. Perez became the father of Hezron. Hezron became the father of Ram.

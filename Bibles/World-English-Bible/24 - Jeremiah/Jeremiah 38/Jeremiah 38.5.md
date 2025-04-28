@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zedekiah the king said, Behold, he is in your hand; for the king is not he that can do anything against you.
+Zedekiah the king said, Behold, he is in your hand; for the king is not he who can do anything against you.

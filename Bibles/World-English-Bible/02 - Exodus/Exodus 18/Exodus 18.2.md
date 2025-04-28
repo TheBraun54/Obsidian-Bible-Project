@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jethro, Moses' father-in-law, took Zipporah, Moses' wife, after he had sent her away,
+Jethro, Moses' father-in-law, received Zipporah, Moses' wife, after he had sent her away,

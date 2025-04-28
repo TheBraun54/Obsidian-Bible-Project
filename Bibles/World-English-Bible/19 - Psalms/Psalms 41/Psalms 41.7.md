@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that hate me whisper together against me; Against me do they devise my hurt.
+All who hate me whisper together against me. They imagine the worst for me.

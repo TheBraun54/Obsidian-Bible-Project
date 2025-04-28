@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all these kings and their land did Joshua take at one time, because Jehovah, the God of Israel, fought for Israel.
+Joshua took all these kings and their land at one time, because Yahweh, the God of Israel, fought for Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were double beneath; and in like manner they were entire unto the top thereof unto one ring: thus he did to both of them in the two corners.
+They were double beneath, and in the same way they were all the way to its top to one ring. He did thus to both of them in the two corners.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ram begat Amminadab, and Amminadab begat Nahshon, prince of the children of Judah;
+Ram became the father of Amminadab, and Amminadab became the father of Nahshon, prince of the children of Judah;

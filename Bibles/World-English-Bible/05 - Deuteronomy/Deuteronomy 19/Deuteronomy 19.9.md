@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if thou shalt keep all this commandment to do it, which I command thee this day, to love Jehovah thy God, and to walk ever in his ways; then shalt thou add three cities more for thee, besides these three:
+if you keep all this commandment to do it, which I command you this day, to love Yahweh your God, and to walk ever in his ways; then you shall add three cities more for yourselves, besides these three:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The caravans [that travel] by the way of them turn aside; They go up into the waste, and perish.
+The caravans that travel beside them turn aside. They go up into the waste, and perish.

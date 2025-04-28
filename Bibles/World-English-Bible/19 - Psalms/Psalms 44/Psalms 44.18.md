@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our heart is not turned back, Neither have our steps declined from thy way,
+Our heart has not turned back, neither have our steps strayed from your path,

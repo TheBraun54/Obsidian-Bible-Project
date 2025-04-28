@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah went further, and stood in a narrow place, where was no way to turn either to the right hand or to the left.
+The angel of Yahweh went further, and stood in a narrow place, where there was no way to turn either to the right hand or to the left.

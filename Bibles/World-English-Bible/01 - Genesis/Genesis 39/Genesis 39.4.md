@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph found favor in his sight, and he ministered unto him: and he made him overseer over his house, and all that he had he put into his hand.
+Joseph found favor in his sight. He ministered to him, and he made him overseer over his house, and all that he had he put into his hand.

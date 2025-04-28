@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless ye shall die like men, And fall like one of the princes.
+Nevertheless you shall die like men, and fall like one of the rulers."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Pashhur, a thousand two hundred forty and seven.
+The children of Pashhur, one thousand two hundred forty-seven.

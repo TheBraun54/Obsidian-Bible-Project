@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all the inhabitants of the hill-country from Lebanon unto Misrephoth-maim, even all the Sidonians; them will I drive out from before the children of Israel: only allot thou it unto Israel for an inheritance, as I have commanded thee.
+all the inhabitants of the hill country from Lebanon to Misrephoth Maim, even all the Sidonians; them will I drive out from before the children of Israel: only allocate it to Israel for an inheritance, as I have commanded you.

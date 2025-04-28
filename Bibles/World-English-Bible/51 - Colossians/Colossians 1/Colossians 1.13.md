@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who delivered us out of the power of darkness, and translated us into the kingdom of the Son of his love;
+who delivered us out of the power of darkness, and translated us into the Kingdom of the Son of his love;

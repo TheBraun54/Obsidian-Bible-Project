@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now, O king, establish the interdict, and sign the writing, that it be not changed, according to the law of the Medes and Persians, which altereth not.
+Now, O king, establish the decree, and sign the writing, that it not be changed, according to the law of the Medes and Persians, which doesn't alter.

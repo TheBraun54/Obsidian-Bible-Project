@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gather my saints together unto me, Those that have made a covenant with me by sacrifice.
+"Gather my saints together to me, those who have made a covenant with me by sacrifice."

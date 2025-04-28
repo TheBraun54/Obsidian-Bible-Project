@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Philip went down to the city of Samaria, and proclaimed unto them the Christ.
+Philip went down to the city of Samaria, and proclaimed to them the Christ.

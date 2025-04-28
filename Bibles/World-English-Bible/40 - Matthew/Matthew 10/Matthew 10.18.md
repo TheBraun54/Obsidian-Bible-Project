@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea and before governors and kings shall ye be brought for my sake, for a testimony to them and to the Gentiles.
+Yes, and you will be brought before governors and kings for my sake, for a testimony to them and to the nations.

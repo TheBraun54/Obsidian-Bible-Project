@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-surely they shall not see the land which I sware unto their fathers, neither shall any of them that despised me see it:
+surely they shall not see the land which I swore to their fathers, neither shall any of those who despised me see it:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Iron sharpeneth iron; So a man sharpeneth the countenance of his friend.
+Iron sharpens iron; so a man sharpens his friend's countenance.

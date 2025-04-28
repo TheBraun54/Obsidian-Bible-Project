@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt cast thy lot among us; We will all have one purse:
+You shall cast your lot among us. We'll all have one purse."

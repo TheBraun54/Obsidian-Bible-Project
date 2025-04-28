@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now it is come unto thee, and thou faintest; It toucheth thee, and thou art troubled.
+But now it is come to you, and you faint. It touches you, and you are troubled.

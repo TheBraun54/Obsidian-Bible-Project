@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall deliver him unto the Gentiles to mock, and to scourge, and to crucify: and the third day he shall be raised up.
+and will hand him over to the Gentiles to mock, to scourge, and to crucify; and the third day he will be raised up."

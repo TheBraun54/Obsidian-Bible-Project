@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they flattered him with their mouth, And lied unto him with their tongue.
+But they flattered him with their mouth, and lied to him with their tongue.

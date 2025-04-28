@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the synagogue there was a man, that had a spirit of an unclean demon; and he cried out with a loud voice,
+In the synagogue there was a man who had a spirit of an unclean demon, and he cried out with a loud voice,

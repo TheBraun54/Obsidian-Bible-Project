@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of God, who went before the camp of Israel, removed and went behind them; and the pillar of cloud removed from before them, and stood behind them:
+The angel of God, who went before the camp of Israel, moved and went behind them; and the pillar of cloud moved from before them, and stood behind them.

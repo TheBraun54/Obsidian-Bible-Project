@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these things having been thus prepared, the priests go in continually into the first tabernacle, accomplishing the services;
+Now these things having been thus prepared, the priests go in continually into the first tabernacle, accomplishing the services,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What will ye? shall I come unto you with a rod, or in love and a spirit of gentleness?
+What do you want? Shall I come to you with a rod, or in love and a spirit of gentleness?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will set his hand also on the sea, And his right hand on the rivers.
+I will set his hand also on the sea, and his right hand on the rivers.

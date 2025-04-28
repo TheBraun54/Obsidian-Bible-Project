@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Aram: Uz, and Hul, and Gether, and Mash.
+The sons of Aram: Uz, Hul, Gether, and Mash.

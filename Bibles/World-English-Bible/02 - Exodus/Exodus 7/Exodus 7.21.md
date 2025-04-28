@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fish that were in the river died; and the river became foul, and the Egyptians could not drink water from the river; and the blood was throughout all the land of Egypt.
+The fish that were in the river died; and the river became foul, and the Egyptians couldn't drink water from the river; and the blood was throughout all the land of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had brought their boats to land, they left all, and followed him.
+When they had brought their boats to land, they left everything, and followed him.

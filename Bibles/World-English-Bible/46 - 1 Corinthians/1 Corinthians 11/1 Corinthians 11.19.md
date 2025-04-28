@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there must be also factions among you, that they that are approved may be made manifest among you.
+For there also must be factions among you, that those who are approved may be revealed among you.

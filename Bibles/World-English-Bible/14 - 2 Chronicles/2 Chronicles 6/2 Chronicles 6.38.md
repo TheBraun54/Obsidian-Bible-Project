@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if they return unto thee with all their heart and with all their soul in the land of their captivity, whither they have carried them captive, and pray toward their land, which thou gavest unto their fathers, and the city which thou hast chosen, and toward the house which I have built for thy name:
+if they return to you with all their heart and with all their soul in the land of their captivity, where they have carried them captive, and pray toward their land, which you gave to their fathers, and the city which you have chosen, and toward the house which I have built for your name:

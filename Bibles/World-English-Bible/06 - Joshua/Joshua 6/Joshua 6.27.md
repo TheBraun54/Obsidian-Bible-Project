@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah was with Joshua; and his fame was in all the land.
+So Yahweh was with Joshua; and his fame was in all the land.

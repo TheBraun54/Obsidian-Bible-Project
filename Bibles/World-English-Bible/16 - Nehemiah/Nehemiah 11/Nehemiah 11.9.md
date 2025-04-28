@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joel the son of Zichri was their overseer; and Judah the son of Hassenuah was second over the city.
+Joel the son of Zichri was their overseer; and Judah the son of Hassenuah was second over the city.

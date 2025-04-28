@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the truth's sake which abideth in us, and it shall be with us for ever:
+for the truth's sake, which remains in us, and it will be with us forever:

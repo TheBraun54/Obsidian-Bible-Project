@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judas, who betrayed him, answered and said, Is it I, Rabbi? He saith unto him, Thou hast said.
+Judas, who betrayed him, answered, "It isn't me, is it, Rabbi?" He said to him, "You said it."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are they that waited, and their sons. Of the sons of the Kohathites: Heman the singer, the son of Joel, the son of Samuel,
+These are those who waited, and their sons. Of the sons of the Kohathites: Heman the singer, the son of Joel, the son of Samuel,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of the Nazirite who voweth, [and of] his oblation unto Jehovah for his separation, besides that which he is able to get: according to his vow which he voweth, so he must do after the law of his separation.
+"'This is the law of the Nazirite who vows, and of his offering to Yahweh for his separation, besides that which he is able to get. According to his vow which he vows, so he must do after the law of his separation.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed [is] the kingdom that cometh, [the kingdom] of our father David: Hosanna in the highest.
+Blessed is the kingdom of our father David that is coming in the name of the Lord! Hosanna in the highest!"

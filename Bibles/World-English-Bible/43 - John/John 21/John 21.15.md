@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So when they had broken their fast, Jesus saith to Simon Peter, Simon, [son] of John, lovest thou me more than these? He saith unto him, Yea, Lord; thou knowest that I love thee. He saith unto him, Feed my lambs.
+So when they had eaten their breakfast, Jesus said to Simon Peter, "Simon, son of Jonah, do you love me more than these?" He said to him, "Yes, Lord; you know that I have affection for you." He said to him, "Feed my lambs."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall do no manner of work: it is a statute for ever throughout your generations in all your dwellings.
+You shall do no kind of work: it is a statute forever throughout your generations in all your dwellings.

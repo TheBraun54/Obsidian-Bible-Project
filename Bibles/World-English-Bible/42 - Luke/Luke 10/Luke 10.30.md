@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus made answer and said, A certain man was going down from Jerusalem to Jericho; and he fell among robbers, who both stripped him and beat him, and departed, leaving him half dead.
+Jesus answered, "A certain man was going down from Jerusalem to Jericho, and he fell among robbers, who both stripped him and beat him, and departed, leaving him half dead.

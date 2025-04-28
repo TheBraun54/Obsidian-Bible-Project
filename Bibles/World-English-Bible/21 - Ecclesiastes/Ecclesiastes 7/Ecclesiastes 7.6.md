@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the crackling of thorns under a pot, so is the laughter of the fool: this also is vanity.
+For as the crackling of thorns under a pot, so is the laughter of the fool. This also is vanity.

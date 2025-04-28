@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any man seemeth to be contentious, we have no such custom, neither the churches of God.
+But if any man seems to be contentious, we have no such custom, neither do God's assemblies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I wait for Jehovah, my soul doth wait, And in his word do I hope.
+I wait for Yahweh. My soul waits. I hope in his word.

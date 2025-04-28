@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then there came some that told Jehoshaphat, saying, There cometh a great multitude against thee from beyond the sea from Syria; and, behold, they are in Hazazon-tamar (the same is En-gedi).
+Then some came who told Jehoshaphat, saying, "A great multitude is coming against you from beyond the sea from Syria. Behold, they are in Hazazon Tamar" (that is, En Gedi).

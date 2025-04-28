@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-before the sun, and the light, and the moon, and the stars, are darkened, and the clouds return after the rain;
+Before the sun, the light, the moon, and the stars are darkened, and the clouds return after the rain;

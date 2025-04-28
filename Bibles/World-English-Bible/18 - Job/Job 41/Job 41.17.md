@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are joined one to another; They stick together, so that they cannot be sundered.
+They are joined one to another. They stick together, so that they can't be pulled apart.

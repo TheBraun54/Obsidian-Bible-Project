@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that came to Jeremiah from Jehovah, saying,
+The word that came to Jeremiah from Yahweh, saying,

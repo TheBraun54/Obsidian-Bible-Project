@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where are the gods of Hamath, and of Arpad? where are the gods of Sepharvaim, of Hena, and Ivvah? have they delivered Samaria out of my hand?
+Where are the gods of Hamath, and of Arpad? Where are the gods of Sepharvaim, of Hena, and Ivvah? Have they delivered Samaria out of my hand?

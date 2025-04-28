@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now if we put the horses' bridles into their mouths that they may obey us, we turn about their whole body also.
+Indeed, we put bits into the horses' mouths so that they may obey us, and we guide their whole body.

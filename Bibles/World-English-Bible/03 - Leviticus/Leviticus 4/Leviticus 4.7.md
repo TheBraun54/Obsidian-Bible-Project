@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall put of the blood upon the horns of the altar of sweet incense before Jehovah, which is in the tent of meeting; and all the blood of the bullock shall he pour out at the base of the altar of burnt-offering, which is at the door of the tent of meeting.
+The priest shall put some of the blood on the horns of the altar of sweet incense before Yahweh, which is in the Tent of Meeting; and he shall pour out all of rest of the blood of the bull at the base of the altar of burnt offering, which is at the door of the Tent of Meeting.

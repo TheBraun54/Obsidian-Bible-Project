@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See, I have set before thee this day life and good, and death and evil;
+Behold, I have set before you this day life and good, and death and evil;

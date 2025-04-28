@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him Gabbai, Sallai, nine hundred twenty and eight.
+After him Gabbai, Sallai, nine hundred twenty-eight.

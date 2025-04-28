@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, mine own familiar friend, in whom I trusted, Who did eat of my bread, Hath lifted up his heel against me.
+Yes, my own familiar friend, in whom I trusted, who ate bread with me, has lifted up his heel against me.

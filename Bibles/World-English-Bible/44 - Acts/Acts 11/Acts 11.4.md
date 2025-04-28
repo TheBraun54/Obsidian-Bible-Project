@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter began, and expounded [the matter] unto them in order, saying,
+But Peter began, and explained to them in order, saying,

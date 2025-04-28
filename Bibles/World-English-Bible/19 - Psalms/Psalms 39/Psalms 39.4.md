@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, make me to know mine end, And the measure of my days, what it is; Let me know how frail I am.
+"Yahweh, show me my end, what is the measure of my days. Let me know how frail I am.

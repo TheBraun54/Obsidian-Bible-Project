@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He said also unto me, Thou shalt again see yet other great abominations which they do.
+He said also to me, You shall again see yet other great abominations which they do.

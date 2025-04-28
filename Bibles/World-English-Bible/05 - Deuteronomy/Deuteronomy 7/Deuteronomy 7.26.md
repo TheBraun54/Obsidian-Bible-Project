@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not bring an abomination into thy house, and become a devoted thing like unto it: thou shalt utterly detest it, and thou shalt utterly abhor it; for it is a devoted thing.
+You shall not bring an abomination into your house, and become a devoted thing like it. You shall utterly detest it, and you shall utterly abhor it; for it is a devoted thing.

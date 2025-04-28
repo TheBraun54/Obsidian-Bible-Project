@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To-morrow about this time I will send thee a man out of the land of Benjamin, and thou shalt anoint him to be prince over my people Israel; and he shall save my people out of the hand of the Philistines: for I have looked upon my people, because their cry is come unto me.
+"Tomorrow about this time I will send you a man out of the land of Benjamin, and you shall anoint him to be prince over my people Israel; and he shall save my people out of the hand of the Philistines: for I have looked on my people, because their cry has come to me."

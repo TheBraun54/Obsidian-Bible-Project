@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel joined himself unto Baal-peor: and the anger of Jehovah was kindled against Israel.
+Israel joined himself to Baal Peor: and the anger of Yahweh was kindled against Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tremble, thou earth, at the presence of the Lord, At the presence of the God of Jacob,
+Tremble, you earth, at the presence of the Lord, at the presence of the God of Jacob,

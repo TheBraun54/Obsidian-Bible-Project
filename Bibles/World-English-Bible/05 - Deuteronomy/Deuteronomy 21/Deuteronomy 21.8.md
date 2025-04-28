@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forgive, O Jehovah, thy people Israel, whom thou hast redeemed, and suffer not innocent blood [to remain] in the midst of thy people Israel. And the blood shall be forgiven them.
+Forgive, Yahweh, your people Israel, whom you have redeemed, and don't allow innocent blood [to remain] in the midst of your people Israel." The blood shall be forgiven them.

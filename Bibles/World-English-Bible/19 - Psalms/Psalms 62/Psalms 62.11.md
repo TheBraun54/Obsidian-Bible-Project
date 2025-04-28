@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God hath spoken once, Twice have I heard this, That power belongeth unto God.
+God has spoken once; twice I have heard this, that power belongs to God.

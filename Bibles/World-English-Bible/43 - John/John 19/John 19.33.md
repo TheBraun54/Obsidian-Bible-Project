@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when they came to Jesus, and saw that he was dead already, they brake not his legs:
+but when they came to Jesus, and saw that he was already dead, they didn't break his legs.

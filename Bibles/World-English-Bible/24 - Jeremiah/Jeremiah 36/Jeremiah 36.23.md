@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jehudi had read three or four leaves, that [the king] cut it with the penknife, and cast it into the fire that was in the brazier, until all the roll was consumed in the fire that was in the brazier.
+It happened, when Jehudi had read three or four leaves, that [the king] cut it with the penknife, and cast it into the fire that was in the brazier, until all the scroll was consumed in the fire that was in the brazier.

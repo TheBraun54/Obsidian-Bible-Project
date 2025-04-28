@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came unto the place which is called The skull, there they crucified him, and the malefactors, one on the right hand and the other on the left.
+When they came to the place that is called The Skull, they crucified him there with the criminals, one on the right and the other on the left.

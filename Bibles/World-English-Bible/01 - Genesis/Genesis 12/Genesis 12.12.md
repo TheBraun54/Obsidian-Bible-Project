@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it will come to pass, when the Egyptians shall see thee, that they will say, This is his wife: and they will kill me, but they will save thee alive.
+It will happen, when the Egyptians will see you, that they will say, 'This is his wife.' They will kill me, but they will save you alive.

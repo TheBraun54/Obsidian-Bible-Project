@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto him that was thirsty they brought water; the inhabitants of the land of Tema did meet the fugitives with their bread.
+They brought water to him who was thirsty. The inhabitants of the land of Tema met the fugitives with their bread.

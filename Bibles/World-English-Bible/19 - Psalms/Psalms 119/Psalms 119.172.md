@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my tongue sing of thy word; For all thy commandments are righteousness.
+Let my tongue sing of your word, for all your commandments are righteousness.

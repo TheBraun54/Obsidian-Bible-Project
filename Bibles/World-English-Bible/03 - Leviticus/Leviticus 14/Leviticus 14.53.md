@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he shall let got the living bird out of the city into the open field: so shall he make atonement for the house; and it shall be clean.
+but he shall let the living bird go out of the city into the open field. So shall he make atonement for the house; and it shall be clean."

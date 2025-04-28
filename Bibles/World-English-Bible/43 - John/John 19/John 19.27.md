@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith he to the disciple, Behold, thy mother! And from that hour the disciple took her unto his own [home] .
+Then he said to the disciple, "Behold, your mother!" From that hour, the disciple took her to his own home.

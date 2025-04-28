@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I made a covenant with mine eyes; How then should I look upon a virgin?
+"I made a covenant with my eyes, how then should I look lustfully at a young woman?

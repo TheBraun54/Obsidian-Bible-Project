@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the word of Jehovah unto the prophet Jeremiah, saying,
+Then came the word of Yahweh to the prophet Jeremiah, saying,

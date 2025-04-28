@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every male among the priests shall eat thereof: it is most holy.
+Every male among the priests shall eat of it: it is most holy.

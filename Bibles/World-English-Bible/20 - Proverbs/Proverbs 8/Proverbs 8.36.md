@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that sinneth against me wrongeth his own soul: All they that hate me love death.
+But he who sins against me wrongs his own soul. All those who hate me love death."

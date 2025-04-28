@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that him that escapeth from the sword of Hazael shall Jehu slay; and him that escapeth from the sword of Jehu shall Elisha slay.
+It shall happen, that he who escapes from the sword of Hazael, Jehu will kill; and he who escapes from the sword of Jehu, Elisha will kill.

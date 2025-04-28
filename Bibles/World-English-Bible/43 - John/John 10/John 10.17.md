@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore doth the Father love me, because I lay down my life, that I may take it again.
+Therefore the Father loves me, because I lay down my life, that I may take it again.

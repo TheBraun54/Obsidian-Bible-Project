@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, The Jews have agreed to ask thee to bring down Paul to-morrow unto the council, as though thou wouldest inquire somewhat more exactly concerning him.
+He said, "The Jews have agreed to ask you to bring Paul down to the council tomorrow, as though intending to inquire somewhat more accurately concerning him.

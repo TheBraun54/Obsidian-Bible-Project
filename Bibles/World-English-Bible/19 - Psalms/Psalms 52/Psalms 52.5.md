@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God will likewise destroy thee for ever; He will take thee up, and pluck thee out of thy tent, And root thee out of the land of the living. {{Selah
+God will likewise destroy you forever. He will take you up, and pluck you out of your tent, and root you out of the land of the living. Selah.

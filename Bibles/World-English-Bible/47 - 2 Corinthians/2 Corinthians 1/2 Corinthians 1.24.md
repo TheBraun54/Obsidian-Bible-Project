@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not that we have lordship over your faith, but are helpers of your joy: for in faith ye stand fast.
+Not that we have lordship over your faith, but are fellow workers with you for your joy. For you stand firm in faith.

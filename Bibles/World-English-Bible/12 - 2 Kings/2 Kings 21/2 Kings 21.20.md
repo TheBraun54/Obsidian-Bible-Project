@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil in the sight of Jehovah, as did Manasseh his father.
+He did that which was evil in the sight of Yahweh, as did Manasseh his father.

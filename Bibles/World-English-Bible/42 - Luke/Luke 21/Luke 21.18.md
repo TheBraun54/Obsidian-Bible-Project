@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not a hair of your head shall perish.
+And not a hair of your head will perish.

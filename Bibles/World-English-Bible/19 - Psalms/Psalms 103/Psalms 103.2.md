@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bless Jehovah, O my soul, And forget not all his benefits:
+Praise Yahweh, my soul, and don't forget all his benefits;

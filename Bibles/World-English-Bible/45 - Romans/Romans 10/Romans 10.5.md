@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Moses writeth that the man that doeth the righteousness which is of the law shall live thereby.
+For Moses writes about the righteousness of the law, "The one who does them will live by them."

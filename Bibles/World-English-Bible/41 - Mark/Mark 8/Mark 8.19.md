@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I brake the five loaves among the five thousand, how many baskets full of broken pieces took ye up? They say unto him, Twelve.
+When I broke the five loaves among the five thousand, how many baskets full of broken pieces did you take up?" They told him, "Twelve."

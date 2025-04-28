@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the Nethinim, and the children of Solomon's servants, were three hundred ninety and two.
+All the Nethinim, and the children of Solomon's servants, were three hundred ninety-two.

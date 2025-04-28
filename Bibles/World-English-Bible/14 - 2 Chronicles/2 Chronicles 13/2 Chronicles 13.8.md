@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now ye think to withstand the kingdom of Jehovah in the hand of the sons of David; and ye are a great multitude, and there are with you the golden calves which Jeroboam made you for gods.
+"Now you think to withstand the kingdom of Yahweh in the hand of the sons of David; and you are a great multitude, and there are with you the golden calves which Jeroboam made you for gods.

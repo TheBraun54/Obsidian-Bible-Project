@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The poor and needy seek water, and there is none, and their tongue faileth for thirst; I, Jehovah, will answer them, I, the God of Israel, will not forsake them.
+The poor and needy seek water, and there is none. Their tongue fails for thirst. I, Yahweh, will answer them. I, the God of Israel, will not forsake them.

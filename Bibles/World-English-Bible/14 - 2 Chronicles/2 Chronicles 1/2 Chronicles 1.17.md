@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they fetched up and brought out of Egypt a chariot for six hundred [shekels] of silver, and a horse for a hundred and fifty: and so for all the kings of the Hittites, and the kings of Syria, did they bring them out by their means.
+They brought up and brought out of Egypt a chariot for six hundred pieces of silver, and a horse for one hundred fifty: and so for all the kings of the Hittites, and the kings of Syria, did they bring them out by their means.

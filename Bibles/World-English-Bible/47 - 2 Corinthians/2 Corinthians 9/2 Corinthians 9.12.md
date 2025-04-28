@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the ministration of this service not only filleth up the measure of the wants of the saints, but aboundeth also through many thanksgivings unto God;
+For this service of giving that you perform not only makes up for lack among the saints, but abounds also through many givings of thanks to God;

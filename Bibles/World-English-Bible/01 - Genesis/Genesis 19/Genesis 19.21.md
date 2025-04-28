@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, See, I have accepted thee concerning this thing also, that I will not overthrow the city of which thou hast spoken.
+He said to him, "Behold, I have granted your request concerning this thing also, that I will not overthrow the city of which you have spoken.

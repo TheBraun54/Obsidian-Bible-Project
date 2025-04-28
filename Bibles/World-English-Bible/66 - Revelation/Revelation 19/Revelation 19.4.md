@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the four and twenty elders and the four living creatures fell down and worshipped God that sitteth on the throne, saying, Amen; Hallelujah.
+The twenty-four elders and the four living creatures fell down and worshiped God who sits on the throne, saying, "Amen! Hallelujah!"

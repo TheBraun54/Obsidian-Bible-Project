@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoredom and wine and new wine take away the understanding.
+Prostitution, wine, and new wine take away understanding.

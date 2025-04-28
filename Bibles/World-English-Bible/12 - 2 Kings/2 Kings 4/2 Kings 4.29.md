@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he said to Gehazi, Gird up thy loins, and take my staff in thy hand, and go thy way: if thou meet any man, salute him not; and if any salute thee, answer him not again: and lay my staff upon the face of the child.
+Then he said to Gehazi, "Tuck your cloak into your belt, take my staff in your hand, and go your way. If you meet any man, don't greet him; and if anyone greets you, don't answer him again. Then lay my staff on the face of the child."

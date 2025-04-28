@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man find a damsel that is a virgin, that is not betrothed, and lay hold on her, and lie with her, and they be found;
+If a man find a lady who is a virgin, who is not pledged to be married, and lay hold on her, and lie with her, and they be found;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep my commandments and live; And my law as the apple of thine eye.
+Keep my commandments and live! Guard my teaching as the apple of your eye.

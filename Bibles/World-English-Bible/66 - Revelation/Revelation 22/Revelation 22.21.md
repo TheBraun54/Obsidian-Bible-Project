@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The grace of the Lord Jesus be with the saints. Amen.
+The grace of the Lord Jesus Christ be with all the saints. Amen.

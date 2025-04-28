@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man of great wrath shall bear the penalty; For if thou deliver [him], thou must do it yet again.
+A hot-tempered man must pay the penalty, for if you rescue him, you must do it again.

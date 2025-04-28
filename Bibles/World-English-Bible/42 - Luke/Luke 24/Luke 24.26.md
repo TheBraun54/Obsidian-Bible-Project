@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behooved it not the Christ to suffer these things, and to enter into his glory?
+Didn't the Christ have to suffer these things and to enter into his glory?"

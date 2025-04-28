@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This saying therefore went forth among the brethren, that that disciple should not die: yet Jesus said not unto him, that he should not die; but, If I will that he tarry till I come, what [is that] to thee?
+This saying therefore went out among the brothers, that this disciple wouldn't die. Yet Jesus didn't say to him that he wouldn't die, but, "If I desire that he stay until I come, what is that to you?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Ephraim, were forty thousand and five hundred.
+those who were numbered of them, of the tribe of Ephraim, were forty thousand five hundred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt prepare thee the way, and divide the borders of thy land, which Jehovah thy God causeth thee to inherit, into three parts, that every manslayer may flee thither.
+You shall prepare you the way, and divide the borders of your land, which Yahweh your God causes you to inherit, into three parts, that every manslayer may flee there.

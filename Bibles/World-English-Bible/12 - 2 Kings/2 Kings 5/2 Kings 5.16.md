@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said, As Jehovah liveth, before whom I stand, I will receive none. And he urged him to take it; but he refused.
+But he said, "As Yahweh lives, before whom I stand, I will receive none." He urged him to take it; but he refused.

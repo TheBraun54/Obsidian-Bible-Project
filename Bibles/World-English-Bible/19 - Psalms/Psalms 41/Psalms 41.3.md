@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will support him upon the couch of languishing: Thou makest all his bed in his sickness.
+Yahweh will sustain him on his sickbed, and restore him from his bed of illness.

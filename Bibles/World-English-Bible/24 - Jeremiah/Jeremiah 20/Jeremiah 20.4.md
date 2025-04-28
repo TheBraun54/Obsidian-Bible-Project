@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Behold, I will make thee a terror to thyself, and to all thy friends; and they shall fall by the sword of their enemies, and thine eyes shall behold it; and I will give all Judah into the hand of the king of Babylon, and he shall carry them captive to Babylon, and shall slay them with the sword.
+For thus says Yahweh, Behold, I will make you a terror to yourself, and to all your friends; and they shall fall by the sword of their enemies, and your eyes shall see it; and I will give all Judah into the hand of the king of Babylon, and he shall carry them captive to Babylon, and shall kill them with the sword.

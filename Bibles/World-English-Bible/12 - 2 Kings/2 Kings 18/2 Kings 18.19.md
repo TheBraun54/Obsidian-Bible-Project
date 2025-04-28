@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rabshakeh said unto them, Say ye now to Hezekiah, Thus saith the great king, the king of Assyria, What confidence is this wherein thou trustest?
+Rabshakeh said to them, "Say now to Hezekiah, 'Thus says the great king, the king of Assyria, "What confidence is this in which you trust?

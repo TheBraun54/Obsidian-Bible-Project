@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His appearance was as lightning, and his raiment white as snow:
+His appearance was like lightning, and his clothing white as snow.

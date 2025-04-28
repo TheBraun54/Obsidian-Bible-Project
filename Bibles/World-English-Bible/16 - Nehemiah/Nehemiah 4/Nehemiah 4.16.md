@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass from that time forth, that half of my servants wrought in the work, and half of them held the spears, the shields, and the bows, and the coats of mail; and the rulers were behind all the house of Judah.
+It happened from that time forth, that half of my servants worked in the work, and half of them held the spears, the shields, and the bows, and the coats of mail; and the rulers were behind all the house of Judah.

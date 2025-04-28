@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moab is put to shame; for it is broken down: wail and cry; tell ye it by the Arnon, that Moab is laid waste.
+Moab is disappointed; for it is broken down: wail and cry; tell it by the Arnon, that Moab is laid waste.

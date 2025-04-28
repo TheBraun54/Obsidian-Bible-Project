@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the righteous triumph, there is great glory; But when the wicked rise, men hide themselves.
+When the righteous triumph, there is great glory; but when the wicked rise, men hide themselves.

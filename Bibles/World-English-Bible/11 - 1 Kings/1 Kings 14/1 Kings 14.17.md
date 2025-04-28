@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeroboam's wife arose, and departed, and came to Tirzah: [and] as she came to the threshold of the house, the child died.
+Jeroboam's wife arose, and departed, and came to Tirzah. As she came to the threshold of the house, the child died.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples were filled with joy with the Holy Spirit.
+The disciples were filled with joy with the Holy Spirit.

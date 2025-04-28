@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how that our gospel came not unto you in word only, but also in power, and in the Holy Spirit, and [in] much assurance; even as ye know what manner of men we showed ourselves toward you for your sake.
+and that our Good News came to you not in word only, but also in power, and in the Holy Spirit, and with much assurance. You know what kind of men we showed ourselves to be among you for your sake.

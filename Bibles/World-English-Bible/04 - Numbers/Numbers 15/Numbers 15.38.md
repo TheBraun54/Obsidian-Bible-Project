@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and bid them that they make them fringes in the borders of their garments throughout their generations, and that they put upon the fringe of each border a cord of blue:
+"Speak to the children of Israel, and tell them that they should make themselves fringes in the borders of their garments throughout their generations, and that they put on the fringe of each border a cord of blue:

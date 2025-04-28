@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the mountain of Zion, which is desolate: The foxes walk upon it.
+For the mountain of Zion, which is desolate: The foxes walk on it.

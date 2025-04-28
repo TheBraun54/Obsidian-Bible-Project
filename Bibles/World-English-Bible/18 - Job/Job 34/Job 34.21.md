@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For his eyes are upon the ways of a man, And he seeth all his goings.
+"For his eyes are on the ways of a man. He sees all his goings.

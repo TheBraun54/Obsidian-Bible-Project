@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass about this time, that he went into the house to do his work; and there was none of the men of the house there within.
+About this time, he went into the house to do his work, and there were none of the men of the house inside.

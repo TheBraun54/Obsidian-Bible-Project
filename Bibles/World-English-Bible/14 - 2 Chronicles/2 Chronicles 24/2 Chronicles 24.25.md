@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were departed for him (for they left him very sick), his own servants conspired against him for the blood of the sons of Jehoiada the priest, and slew him on his bed, and he died; and they buried him in the city of David, but they buried him not in the sepulchres of the kings.
+When they were departed for him (for they left him very sick), his own servants conspired against him for the blood of the sons of Jehoiada the priest, and killed him on his bed, and he died; and they buried him in the city of David, but they didn't bury him in the tombs of the kings.

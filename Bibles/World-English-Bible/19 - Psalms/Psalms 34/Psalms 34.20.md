@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He keepeth all his bones: Not one of them is broken.
+He protects all of his bones. Not one of them is broken.

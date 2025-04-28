@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Moses had given the inheritance of the two tribes and the half-tribe beyond the Jordan: but unto the Levites he gave no inheritance among them.
+For Moses had given the inheritance of the two tribes and the half-tribe beyond the Jordan; but to the Levites he gave no inheritance among them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have taught thee in the way of wisdom; I have led thee in paths of uprightness.
+I have taught you in the way of wisdom. I have led you in straight paths.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover they that were nigh unto them, [even] as far as Issachar and Zebulun and Naphtali, brought bread on asses, and on camels, and on mules, and on oxen, victuals of meal, cakes of figs, and clusters of raisins, and wine, and oil, and oxen, and sheep in abundance: for there was joy in Israel.
+Moreover those who were near to them, [even] as far as Issachar and Zebulun and Naphtali, brought bread on donkeys, and on camels, and on mules, and on oxen, food of meal, cakes of figs, and clusters of raisins, and wine, and oil, and cattle, and sheep in abundance: for there was joy in Israel.

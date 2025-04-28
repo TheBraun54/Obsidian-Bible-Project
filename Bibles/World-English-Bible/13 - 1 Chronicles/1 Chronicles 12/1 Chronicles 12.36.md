@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Asher, such as were able to go out in the host, that could set the battle in array, forty thousand.
+Of Asher, such as were able to go out in the army, who could set the battle in array, forty thousand.

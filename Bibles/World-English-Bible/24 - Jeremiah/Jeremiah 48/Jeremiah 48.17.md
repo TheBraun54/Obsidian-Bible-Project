@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All ye that are round about him, bemoan him, and all ye that know his name; say, How is the strong staff broken, the beautiful rod!
+All you who are around him, bemoan him, and all you who know his name; say, How is the strong staff broken, the beautiful rod!

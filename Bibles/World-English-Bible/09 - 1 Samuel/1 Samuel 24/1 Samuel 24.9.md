@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Saul, Wherefore hearkenest thou to men's words, saying, Behold, David seeketh thy hurt?
+David said to Saul, "Why do you listen to men's words, saying, 'Behold, David seeks your hurt?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-crying out, Men of Israel, help: This is the man that teacheth all men everywhere against the people, and the law, and this place; and moreover he brought Greeks also into the temple, and hath defiled this holy place.
+crying out, "Men of Israel, help! This is the man who teaches all men everywhere against the people, and the law, and this place. Moreover, he also brought Greeks into the temple, and has defiled this holy place!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heart of her husband trusteth in her, And he shall have no lack of gain.
+The heart of her husband trusts in her. He shall have no lack of gain.

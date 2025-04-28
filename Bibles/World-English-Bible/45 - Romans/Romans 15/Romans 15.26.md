@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it hath been the good pleasure of Macedonia and Achaia to make a certain contribution for the poor among the saints that are at Jerusalem.
+For it has been the good pleasure of Macedonia and Achaia to make a certain contribution for the poor among the saints who are at Jerusalem.

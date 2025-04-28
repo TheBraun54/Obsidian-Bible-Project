@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are certain Jews whom thou hast appointed over the affairs of the province of Babylon: Shadrach, Meshach, and Abed-nego; these men, O king, have not regarded thee: they serve not thy gods, nor worship the golden image which thou hast set up.
+There are certain Jews whom you have appointed over the affairs of the province of Babylon: Shadrach, Meshach, and Abednego; these men, O king, have not respected you. They don't serve your gods, nor worship the golden image which you have set up.

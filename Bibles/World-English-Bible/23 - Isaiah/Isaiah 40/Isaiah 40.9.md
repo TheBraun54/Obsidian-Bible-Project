@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou that tellest good tidings to Zion, get thee up on a high mountain; O thou that tellest good tidings to Jerusalem, lift up thy voice with strength; lift it up, be not afraid; say unto the cities of Judah, Behold, your God!
+You who tell good news to Zion, go up on a high mountain. You who tell good news to Jerusalem, lift up your voice with strength. Lift it up. Don't be afraid. Say to the cities of Judah, "Behold, your God!"

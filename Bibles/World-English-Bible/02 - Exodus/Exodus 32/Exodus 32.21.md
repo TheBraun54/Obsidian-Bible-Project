@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Aaron, What did this people unto thee, that thou hast brought a great sin upon them?
+Moses said to Aaron, "What did these people do to you, that you have brought a great sin on them?"

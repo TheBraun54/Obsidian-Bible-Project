@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Nebuzaradan the captain of the guard carried away captive into Babylon the residue of the people that remained in the city, the deserters also that fell away to him, and the residue of the people that remained.
+Then Nebuzaradan the captain of the guard carried away captive into Babylon the residue of the people who remained in the city, the deserters also who fell away to him, and the residue of the people who remained.

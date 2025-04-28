@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the rest of the oil that is in the priest's hand he shall put upon the head of him that is to be cleansed, to make atonement for him before Jehovah.
+The rest of the oil that is in the priest's hand he shall put on the head of him who is to be cleansed, to make atonement for him before Yahweh.

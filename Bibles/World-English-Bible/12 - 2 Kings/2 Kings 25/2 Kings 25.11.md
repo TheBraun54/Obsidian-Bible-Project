@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the residue of the people that were left in the city, and those that fell away, that fell to the king of Babylon, and the residue of the multitude, did Nebuzaradan the captain of the guard carry away captive.
+The residue of the people who were left in the city, and those who fell away, who fell to the king of Babylon, and the residue of the multitude, did Nebuzaradan the captain of the guard carry away captive.

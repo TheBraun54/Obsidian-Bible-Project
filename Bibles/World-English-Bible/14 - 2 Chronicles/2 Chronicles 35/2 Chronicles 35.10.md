@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the service was prepared, and the priests stood in their place, and the Levites by their courses, according to the king's commandment.
+So the service was prepared, and the priests stood in their place, and the Levites by their divisions, according to the king's commandment.

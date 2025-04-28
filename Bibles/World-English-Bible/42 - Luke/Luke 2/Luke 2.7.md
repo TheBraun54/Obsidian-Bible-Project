@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she brought forth her firstborn son; and she wrapped him in swaddling clothes, and laid him in a manger, because there was no room for them in the inn.
+She brought forth her firstborn son, and she wrapped him in bands of cloth, and laid him in a feeding trough, because there was no room for them in the inn.

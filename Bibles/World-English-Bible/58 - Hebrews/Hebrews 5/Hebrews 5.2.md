@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who can bear gently with the ignorant and erring, for that he himself also is compassed with infirmity;
+The high priest can deal gently with those who are ignorant and going astray, because he himself is also surrounded with weakness.

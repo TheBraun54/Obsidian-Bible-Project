@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah, the God of Israel, From everlasting even to everlasting. And let all the people say, Amen. Praise ye Jehovah.
+Blessed be Yahweh, the God of Israel, from everlasting even to everlasting! Let all the people say, "Amen." Praise Yah! BOOK V

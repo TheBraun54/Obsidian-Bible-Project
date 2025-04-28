@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To give prudence to the simple, To the young man knowledge and discretion:
+to give prudence to the simple, knowledge and discretion to the young man:

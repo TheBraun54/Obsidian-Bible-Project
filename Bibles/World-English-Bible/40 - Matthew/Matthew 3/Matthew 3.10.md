@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And even now the axe lieth at the root of the trees: every tree therefore that bringeth not forth good fruit is hewn down, and cast into the fire.
+"Even now the axe lies at the root of the trees. Therefore, every tree that doesn't bring forth good fruit is cut down, and cast into the fire.

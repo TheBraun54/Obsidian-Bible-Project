@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their doings will not suffer them to turn unto their God; for the spirit of whoredom is within them, and they know not Jehovah.
+Their deeds won't allow them to turn to their God; for the spirit of prostitution is within them, and they don't know Yahweh.

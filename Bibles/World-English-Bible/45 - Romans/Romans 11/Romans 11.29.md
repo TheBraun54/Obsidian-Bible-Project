@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the gifts and the calling of God are not repented of.
+For the gifts and the calling of God are irrevocable.

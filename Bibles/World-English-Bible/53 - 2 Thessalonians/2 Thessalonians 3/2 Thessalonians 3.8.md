@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither did we eat bread for nought at any man's hand, but in labor and travail, working night and day, that we might not burden any of you:
+neither did we eat bread from anyone's hand without paying for it, but in labor and travail worked night and day, that we might not burden any of you;

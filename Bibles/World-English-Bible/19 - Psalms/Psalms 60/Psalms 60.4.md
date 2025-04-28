@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast given a banner to them that fear thee, That it may be displayed because of the truth. {{Selah
+You have given a banner to those who fear you, that it may be displayed because of the truth. Selah.

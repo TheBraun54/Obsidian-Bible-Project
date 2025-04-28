@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-great in counsel, and mighty in work; whose eyes are open upon all the ways of the sons of men, to give every one according to his ways, and according to the fruit of his doings:
+great in counsel, and mighty in work; whose eyes are open on all the ways of the sons of men, to give everyone according to his ways, and according to the fruit of his doings:

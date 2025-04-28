@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus asked him, What is thy name? And he said, Legion; for many demons were entered into him.
+Jesus asked him, "What is your name?" He said, "Legion," for many demons had entered into him.

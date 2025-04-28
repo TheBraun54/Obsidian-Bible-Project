@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore is my harp [turned] to mourning, And my pipe into the voice of them that weep.
+Therefore my harp has turned to mourning, and my pipe into the voice of those who weep.

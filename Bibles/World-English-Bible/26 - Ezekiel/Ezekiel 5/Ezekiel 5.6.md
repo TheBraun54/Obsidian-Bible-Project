@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she hath rebelled against mine ordinances in doing wickedness more than the nations, and against my statutes more than the countries that are round about her; for they have rejected mine ordinances, and as for my statutes, they have not walked in them.
+She has rebelled against my ordinances in doing wickedness more than the nations, and against my statutes more than the countries that are around her; for they have rejected my ordinances, and as for my statutes, they have not walked in them.

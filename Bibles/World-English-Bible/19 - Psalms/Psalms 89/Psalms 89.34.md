@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My covenant will I not break, Nor alter the thing that is gone out of my lips.
+I will not break my covenant, nor alter what my lips have uttered.

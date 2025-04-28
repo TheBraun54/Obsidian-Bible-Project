@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and rent the kingdom away from the house of David, and gave it thee; and yet thou hast not been as my servant David, who kept my commandments, and who followed me with all his heart, to do that only which was right in mine eyes,
+and tore the kingdom away from the house of David, and gave it you; and yet you have not been as my servant David, who kept my commandments, and who followed me with all his heart, to do that only which was right in my eyes,

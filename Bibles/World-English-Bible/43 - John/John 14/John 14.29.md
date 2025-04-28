@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I have told you before it come to pass, that, when it is come to pass, ye may believe.
+Now I have told you before it happens so that, when it happens, you may believe.

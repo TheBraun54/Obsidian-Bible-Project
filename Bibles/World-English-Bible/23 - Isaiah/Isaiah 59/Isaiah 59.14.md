@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And justice is turned away backward, and righteousness standeth afar off; for truth is fallen in the street, and uprightness cannot enter.
+Justice is turned away backward, and righteousness stands afar off; for truth is fallen in the street, and uprightness can't enter.

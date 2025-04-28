@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded them that all should sit down by companies upon the green grass.
+He commanded them that everyone should sit down in groups on the green grass.

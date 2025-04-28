@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall flee by the valley of my mountains; for the valley of the mountains shall reach unto Azel; yea, ye shall flee, like as ye fled from before the earthquake in the days of Uzziah king of Judah; and Jehovah my God shall come, and all the holy ones with thee.
+You shall flee by the valley of my mountains; for the valley of the mountains shall reach to Azel; yes, you shall flee, just like you fled from before the earthquake in the days of Uzziah king of Judah. Yahweh my God will come, and all the holy ones with you.

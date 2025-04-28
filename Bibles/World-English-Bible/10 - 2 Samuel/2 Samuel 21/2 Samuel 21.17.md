@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Abishai the son of Zeruiah succored him, and smote the Philistine, and killed him. Then the men of David sware unto him, saying, Thou shalt go no more out with us to battle, that thou quench not the lamp of Israel.
+But Abishai the son of Zeruiah helped him, and struck the Philistine, and killed him. Then the men of David swore to him, saying, "You shall go no more out with us to battle, that you don't quench the lamp of Israel."

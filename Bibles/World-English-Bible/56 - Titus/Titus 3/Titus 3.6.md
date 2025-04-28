@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which he poured out upon us richly, through Jesus Christ our Saviour;
+whom he poured out on us richly, through Jesus Christ our Savior;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And how hear we, every man in our own language wherein we were born?
+How do we hear, everyone in our own native language?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have trusted in thy lovingkindness; My heart shall rejoice in thy salvation.
+But I trust in your loving kindness. My heart rejoices in your salvation.

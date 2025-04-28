@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not make unto thee a graven image, [nor] any likeness [of anything] that is in heaven above, or that is in the earth beneath, or that is in the water under the earth:
+"You shall not make an engraved image for yourself, [nor] any likeness [of anything] that is in heaven above, or that is in the earth beneath, or that is in the water under the earth:

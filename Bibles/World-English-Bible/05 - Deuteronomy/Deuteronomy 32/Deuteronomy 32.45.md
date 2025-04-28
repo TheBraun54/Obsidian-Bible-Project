@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses made an end of speaking all these words to all Israel;
+Moses made an end of speaking all these words to all Israel;

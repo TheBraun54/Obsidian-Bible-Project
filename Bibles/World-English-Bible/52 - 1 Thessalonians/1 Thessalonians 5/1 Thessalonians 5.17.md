@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-pray without ceasing;
+Pray without ceasing.

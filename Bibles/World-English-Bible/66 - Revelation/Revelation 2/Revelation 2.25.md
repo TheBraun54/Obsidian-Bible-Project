@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless that which ye have, hold fast till I come.
+Nevertheless, hold that which you have firmly until I come.

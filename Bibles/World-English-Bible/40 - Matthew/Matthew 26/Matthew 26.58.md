@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter followed him afar off, unto the court of the high priest, and entered in, and sat with the officers, to see the end.
+But Peter followed him from a distance, to the court of the high priest, and entered in and sat with the officers, to see the end.

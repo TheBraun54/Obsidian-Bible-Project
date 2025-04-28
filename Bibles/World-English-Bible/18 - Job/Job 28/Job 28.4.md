@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He breaketh open a shaft away from where men sojourn; They are forgotten of the foot; They hang afar from men, they swing to and fro.
+He breaks open a shaft away from where people live. They are forgotten by the foot. They hang far from men, they swing back and forth.

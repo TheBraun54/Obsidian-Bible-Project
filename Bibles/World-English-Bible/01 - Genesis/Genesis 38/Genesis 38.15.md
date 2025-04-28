@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Judah saw her, he thought her to be a harlot; for she had covered her face.
+When Judah saw her, he thought that she was a prostitute, for she had covered her face.

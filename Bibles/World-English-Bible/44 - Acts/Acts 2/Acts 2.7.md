@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were all amazed and marvelled, saying, Behold, are not all these that speak Galilaeans?
+They were all amazed and marveled, saying to one another, "Behold, aren't all these who speak Galileans?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall a strong people glorify thee; a city of terrible nations shall fear thee.
+Therefore a strong people will glorify you. A city of awesome nations will fear you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they blessed Rebekah, and said unto her, Our sister, be thou [the mother] of thousands of ten thousands, and let thy seed possess the gate of those that hate them.
+They blessed Rebekah, and said to her, "Our sister, may you be the mother of thousands of ten thousands, and let your seed possess the gate of those who hate them."

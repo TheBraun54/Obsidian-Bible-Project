@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Jesus passed by from thence, he saw a man, called Matthew, sitting at the place of toll: and he saith unto him, Follow me. And he arose, and followed him.
+As Jesus passed by from there, he saw a man called Matthew sitting at the tax collection office. He said to him, "Follow me." He got up and followed him.

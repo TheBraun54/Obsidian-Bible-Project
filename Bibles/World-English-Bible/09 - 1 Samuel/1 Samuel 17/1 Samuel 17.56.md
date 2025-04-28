@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Inquire thou whose son the stripling is.
+The king said, "Inquire whose son the young man is!"

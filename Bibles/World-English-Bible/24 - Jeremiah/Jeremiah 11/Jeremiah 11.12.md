@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the cities of Judah and the inhabitants of Jerusalem go and cry unto the gods unto which they offer incense: but they will not save them at all in the time of their trouble.
+Then shall the cities of Judah and the inhabitants of Jerusalem go and cry to the gods to which they offer incense: but they will not save them at all in the time of their trouble.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua returned, and all Israel with him, unto the camp to Gilgal.
+Joshua returned, and all Israel with him, to the camp to Gilgal.

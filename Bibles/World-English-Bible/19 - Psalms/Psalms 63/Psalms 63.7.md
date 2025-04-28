@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast been my help, And in the shadow of thy wings will I rejoice.
+For you have been my help. I will rejoice in the shadow of your wings.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-seeing that we, who are many, are one bread, one body: for we are all partake of the one bread.
+Because there is one loaf of bread, we, who are many, are one body; for we all partake of the one loaf of bread.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah blessed the latter end of Job more than his beginning: And he had fourteen thousand sheep, and six thousand camels, and a thousand yoke of oxen, and a thousand she-asses.
+So Yahweh blessed the latter end of Job more than his beginning. He had fourteen thousand sheep, six thousand camels, one thousand yoke of oxen, and a thousand female donkeys.

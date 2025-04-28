@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Abner came to David to Hebron, and twenty men with him. And David made Abner and the men that were with him a feast.
+So Abner came to David to Hebron, and twenty men with him. David made Abner and the men who were with him a feast.

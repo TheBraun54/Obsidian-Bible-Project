@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I could wish that I myself were anathema from Christ for my brethren's sake, my kinsmen according to the flesh:
+For I could wish that I myself were accursed from Christ for my brothers' sake, my relatives according to the flesh,

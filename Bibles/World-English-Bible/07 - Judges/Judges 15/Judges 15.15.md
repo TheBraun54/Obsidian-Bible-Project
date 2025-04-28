@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he found a fresh jawbone of an ass, and put forth his hand, and took it, and smote a thousand men therewith.
+He found a fresh jawbone of a donkey, and put forth his hand, and took it, and struck a thousand men therewith.

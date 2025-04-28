@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Because thou hast forgotten me, and cast me behind thy back, therefore bear thou also thy lewdness and thy whoredoms.
+Therefore thus says the Lord Yahweh: Because you have forgotten me, and cast me behind your back, therefore you also bear your lewdness and your prostitution.

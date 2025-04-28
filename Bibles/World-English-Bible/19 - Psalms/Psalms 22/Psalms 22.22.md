@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will declare thy name unto my brethren: In the midst of the assembly will I praise thee.
+I will declare your name to my brothers. In the midst of the assembly, I will praise you.

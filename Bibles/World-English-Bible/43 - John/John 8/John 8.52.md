@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews said unto him, Now we know that thou hast a demon. Abraham died, and the prophets; and thou sayest, If a man keep my word, he shall never taste of death.
+Then the Jews said to him, "Now we know that you have a demon. Abraham died, and the prophets; and you say, 'If a man keeps my word, he will never taste of death.'

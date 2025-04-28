@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not the waterflood overwhelm me, Neither let the deep shallow me up; And let not the pit shut its mouth upon me.
+Don't let the flood waters overwhelm me, neither let the deep swallow me up. Don't let the pit shut its mouth on me.

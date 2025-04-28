@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eye that mocketh at his father, And despiseth to obey his mother, The ravens of the valley shall pick it out, And the young eagles shall eat it.
+"The eye that mocks at his father, and scorns obedience to his mother: the ravens of the valley shall pick it out, the young eagles shall eat it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So it shall be a reproach and a taunt, an instruction and an astonishment, unto the nations that are round about thee, when I shall execute judgments on thee in anger and in wrath, and in wrathful rebukes; (I, Jehovah, have spoken it;)
+So it shall be a reproach and a taunt, an instruction and an astonishment, to the nations that are around you, when I shall execute judgments on you in anger and in wrath, and in wrathful rebukes; (I, Yahweh, have spoken it;)

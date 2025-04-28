@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sendeth two of his disciples, and saith unto them, Go into the city, and there shall meet you a man bearing a pitcher of water: follow him;
+He sent two of his disciples, and said to them, "Go into the city, and there you will meet a man carrying a pitcher of water. Follow him,

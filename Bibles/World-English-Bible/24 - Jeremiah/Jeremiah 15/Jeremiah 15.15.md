@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, thou knowest; remember me, and visit me, and avenge me of my persecutors; take me not away in thy longsuffering: know that for thy sake I have suffered reproach.
+Yahweh, you know; remember me, and visit me, and avenge me of my persecutors; don't take me away in your longsuffering: know that for your sake I have suffered reproach.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O earth, cover not thou my blood, And let my cry have no [resting] -place.
+"Earth, don't cover my blood. Let my cry have no place to rest.

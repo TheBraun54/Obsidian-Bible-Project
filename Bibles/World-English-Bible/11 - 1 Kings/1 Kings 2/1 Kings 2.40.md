@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shimei arose, and saddled his ass, and went to Gath to Achish, to seek his servants; and Shimei went, and brought his servants from Gath.
+Shimei arose, and saddled his donkey, and went to Gath to Achish, to seek his servants; and Shimei went, and brought his servants from Gath.

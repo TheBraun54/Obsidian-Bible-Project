@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the light of a lamp shall shine no more at all in thee; and the voice of the bridegroom and of the bride shall be heard no more at all in thee: for thy merchants were the princes of the earth; for with thy sorcery were all the nations deceived.
+The light of a lamp will shine no more at all in you. The voice of the bridegroom and of the bride will be heard no more at all in you; for your merchants were the princes of the earth; for with your sorcery all the nations were deceived.

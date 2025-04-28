@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thought on my ways, And turned my feet unto thy testimonies.
+I considered my ways, and turned my steps to your statutes.

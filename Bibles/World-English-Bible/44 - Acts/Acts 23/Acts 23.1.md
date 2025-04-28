@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul, looking stedfastly on the council, said, Brethren, I have lived before God in all good conscience until this day.
+Paul, looking steadfastly at the council, said, "Brothers, I have lived before God in all good conscience until this day."

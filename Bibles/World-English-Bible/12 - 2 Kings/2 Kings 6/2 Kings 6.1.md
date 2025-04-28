@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of the prophets said unto Elisha, Behold now, the place where we dwell before thee is too strait for us.
+The sons of the prophets said to Elisha, "See now, the place where we dwell before you is too small for us.

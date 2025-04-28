@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The salutation of me Paul with mine own hand, which is the token in every epistle: so I write.
+The greeting of me, Paul, with my own hand, which is the sign in every letter: this is how I write.

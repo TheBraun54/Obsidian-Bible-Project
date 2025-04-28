@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came Peter and said to him, Lord, how oft shall my brother sin against me, and I forgive him? until seven times?
+Then Peter came and said to him, "Lord, how often shall my brother sin against me, and I forgive him? Until seven times?"

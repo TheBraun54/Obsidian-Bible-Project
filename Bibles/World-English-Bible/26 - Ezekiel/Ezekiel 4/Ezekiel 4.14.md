@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Ah Lord Jehovah! behold, my soul hath not been polluted; for from my youth up even till now have I not eaten of that which dieth of itself, or is torn of beasts; neither came there abominable flesh into my mouth.
+Then I said, Ah Lord Yahweh! behold, my soul has not been polluted; for from my youth up even until now have I not eaten of that which dies of itself, or is torn of animals; neither came there abominable flesh into my mouth.

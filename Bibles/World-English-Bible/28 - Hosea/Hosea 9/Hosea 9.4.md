@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not pour out wine-[ offerings] to Jehovah, neither shall they be pleasing unto him: their sacrifices shall be unto them as the bread of mourners; all that eat thereof shall be polluted; for their bread shall be for their appetite; it shall not come into the house of Jehovah.
+They won't pour out wine offerings to Yahweh, neither will they be pleasing to him. Their sacrifices will be to them like the bread of mourners; all who eat of it will be polluted; for their bread will be for their appetite. It will not come into the house of Yahweh.

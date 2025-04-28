@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them bring forth, and declare unto us what shall happen: declare ye the former things, what they are, that we may consider them, and know the latter end of them; or show us things to come.
+"Let them announce, and declare to us what shall happen. Declare the former things, what they are, that we may consider them, and know the latter end of them; or show us things to come.

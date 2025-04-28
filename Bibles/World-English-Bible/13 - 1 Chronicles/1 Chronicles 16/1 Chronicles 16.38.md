@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Obed-edom with their brethren, threescore and eight; Obed-edom also the son of Jeduthun and Hosah to be doorkeepers;
+and Obed-Edom with their brothers, sixty-eight; Obed-Edom also the son of Jeduthun and Hosah to be doorkeepers;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if we sin wilfully after that we have received the knowledge of the truth, there remaineth no more a sacrifice for sins,
+For if we sin willfully after we have received the knowledge of the truth, there remains no more a sacrifice for sins,

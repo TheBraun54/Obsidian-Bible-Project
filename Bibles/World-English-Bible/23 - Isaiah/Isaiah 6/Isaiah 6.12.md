@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah have removed men far away, and the forsaken places be many in the midst of the land.
+And Yahweh has removed men far away, and the forsaken places are many in the midst of the land.

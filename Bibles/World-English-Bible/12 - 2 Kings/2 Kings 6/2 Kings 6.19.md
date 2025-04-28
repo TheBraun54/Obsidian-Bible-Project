@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha said unto them, This is not the way, neither is this the city: follow me, and I will bring you to the man whom ye seek. And he led them to Samaria.
+Elisha said to them, "This is not the way, neither is this the city. Follow me, and I will bring you to the man whom you seek." He led them to Samaria.

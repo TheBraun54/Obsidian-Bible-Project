@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shall he multiply wives to himself, that his heart turn not away: neither shall he greatly multiply to himself silver and gold.
+Neither shall he multiply wives to himself, that his heart not turn away: neither shall he greatly multiply to himself silver and gold.

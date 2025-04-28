@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sluggard burieth his hand in the dish; It wearieth him to bring it again to his mouth.
+The sluggard buries his hand in the dish. He is too lazy to bring it back to his mouth.

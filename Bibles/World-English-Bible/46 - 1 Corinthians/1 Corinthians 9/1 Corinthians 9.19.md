@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though I was free from all [men], I brought myself under bondage to all, that I might gain the more.
+For though I was free from all, I brought myself under bondage to all, that I might gain the more.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there shall be a day of Jehovah of hosts upon all that is proud and haughty, and upon all that is lifted up; and it shall be brought low;
+For there will be a day of Yahweh of Armies for all that is proud and haughty, and for all that is lifted up; and it shall be brought low:

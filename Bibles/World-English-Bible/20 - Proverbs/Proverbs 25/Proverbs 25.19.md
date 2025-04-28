@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Confidence in an unfaithful man in time of trouble Is [like] a broken tooth, and a foot out of joint.
+Confidence in someone unfaithful in time of trouble is like a bad tooth, or a lame foot.

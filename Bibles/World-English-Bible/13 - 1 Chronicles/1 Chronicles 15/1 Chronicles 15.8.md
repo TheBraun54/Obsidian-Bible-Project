@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the sons of Elizaphan, Shemaiah the chief, and his brethren two hundred;
+of the sons of Elizaphan, Shemaiah the chief, and his brothers two hundred;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is righteous in all his ways, And gracious in all his works.
+Yahweh is righteous in all his ways, and gracious in all his works.

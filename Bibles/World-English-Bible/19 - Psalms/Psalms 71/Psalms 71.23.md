@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My lips shall shout for joy when I sing praises unto thee; And my soul, which thou hast redeemed.
+My lips shall shout for joy! My soul, which you have redeemed, sings praises to you!

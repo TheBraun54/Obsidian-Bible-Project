@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called to him the multitude again, and said unto them, Hear me all of you, and understand:
+He called all the multitude to himself, and said to them, "Hear me, all of you, and understand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, because the children of Israel had sinned against Jehovah their God, who brought them up out of the land of Egypt from under the hand of Pharaoh king of Egypt, and had feared other gods,
+It was so, because the children of Israel had sinned against Yahweh their God, who brought them up out of the land of Egypt from under the hand of Pharaoh king of Egypt, and had feared other gods,

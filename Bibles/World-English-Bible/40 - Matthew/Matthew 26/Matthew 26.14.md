@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then one of the twelve, who was called Judas Iscariot, went unto the chief priests,
+Then one of the twelve, who was called Judas Iscariot, went to the chief priests,

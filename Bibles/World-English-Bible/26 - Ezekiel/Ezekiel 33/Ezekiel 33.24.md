@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, they that inhabit those waste places in the land of Israel speak, saying, Abraham was one, and he inherited the land: but we are many; the land is given us for inheritance.
+Son of man, they who inhabit those waste places in the land of Israel speak, saying, Abraham was one, and he inherited the land: but we are many; the land is given us for inheritance.

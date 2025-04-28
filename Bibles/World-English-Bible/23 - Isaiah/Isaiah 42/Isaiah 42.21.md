@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It pleased Jehovah, for his righteousness' sake, to magnify the law, and make it honorable.
+It pleased Yahweh, for his righteousness' sake, to magnify the law, and make it honorable.

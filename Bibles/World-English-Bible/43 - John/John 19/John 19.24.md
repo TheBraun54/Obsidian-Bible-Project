@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore one to another, Let us not rend it, but cast lots for it, whose it shall be: that the scripture might be fulfilled, which saith, They parted my garments among them, And upon my vesture did they cast lots.
+Then they said to one another, "Let's not tear it, but cast lots for it to decide whose it will be," that the Scripture might be fulfilled, which says, "They parted my garments among them. For my cloak they cast lots." Therefore the soldiers did these things.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there came out from the temple the seven angels that had the seven plagues, arrayed with [precious] stone, pure [and] bright, and girt about their breasts with golden girdles.
+The seven angels who had the seven plagues came out, clothed with pure, bright linen, and wearing golden sashes around their breasts.

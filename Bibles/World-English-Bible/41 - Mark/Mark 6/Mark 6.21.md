@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when a convenient day was come, that Herod on his birthday made a supper to his lords, and the high captains, and the chief men of Galilee;
+Then a convenient day came, that Herod on his birthday made a supper for his nobles, the high officers, and the chief men of Galilee.

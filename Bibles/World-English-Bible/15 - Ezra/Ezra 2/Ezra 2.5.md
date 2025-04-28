@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Arah, seven hundred seventy and five.
+The children of Arah, seven hundred seventy-five.

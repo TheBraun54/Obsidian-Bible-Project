@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou wilt do us no hurt, as we have not touched thee, and as we have done unto thee nothing but good, and have sent thee away in peace: thou art now the blessed of Jehovah.
+that you will do us no harm, as we have not touched you, and as we have done to you nothing but good, and have sent you away in peace.' You are now the blessed of Yahweh."

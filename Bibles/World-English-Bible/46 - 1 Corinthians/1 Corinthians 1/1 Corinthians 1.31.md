@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that, according as it is written, He that glorieth, let him glory in the Lord.
+that, according as it is written, "He who boasts, let him boast in the Lord."

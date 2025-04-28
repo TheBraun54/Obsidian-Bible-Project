@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all these things do the nations of the world seek after: but your Father knoweth that ye have need of these things.
+For the nations of the world seek after all of these things, but your Father knows that you need these things.

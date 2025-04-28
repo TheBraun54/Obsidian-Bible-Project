@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set a fire in Egypt: Sin shall be in great anguish, and No shall be broken up; and Memphis [shall have] adversaries in the day-time.
+I will set a fire in Egypt: Sin shall be in great anguish, and No shall be broken up; and Memphis [shall have] adversaries in the daytime.

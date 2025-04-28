@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that maketh inquisition for blood remembereth them; He forgetteth not the cry of the poor.
+For he who avenges blood remembers them. He doesn't forget the cry of the afflicted.

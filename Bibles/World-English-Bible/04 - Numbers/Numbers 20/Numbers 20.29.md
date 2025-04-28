@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all the congregation saw that Aaron was dead, they wept for Aaron thirty days, even all the house of Israel.
+When all the congregation saw that Aaron was dead, they wept for Aaron thirty days, even all the house of Israel.

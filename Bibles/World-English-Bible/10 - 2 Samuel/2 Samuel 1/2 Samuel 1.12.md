@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they mourned, and wept, and fasted until even, for Saul, and for Jonathan his son, and for the people of Jehovah, and for the house of Israel; because they were fallen by the sword.
+They mourned, and wept, and fasted until evening, for Saul, and for Jonathan his son, and for the people of Yahweh, and for the house of Israel; because they were fallen by the sword.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(the Lord grant unto him to find mercy of the Lord in that day); and in how many things he ministered at Ephesus, thou knowest very well.
+(the Lord grant to him to find the Lord's mercy in that day); and in how many things he served at Ephesus, you know very well.

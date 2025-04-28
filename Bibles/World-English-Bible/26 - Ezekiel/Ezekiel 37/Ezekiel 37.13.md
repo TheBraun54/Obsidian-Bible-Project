@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall know that I am Jehovah, when I have opened your graves, and caused you to come up out of your graves, O my people.
+You shall know that I am Yahweh, when I have opened your graves, and caused you to come up out of your graves, my people.

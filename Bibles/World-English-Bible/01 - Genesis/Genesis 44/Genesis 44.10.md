@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Now also let it be according unto your words: he with whom it is found shall be my bondman; and ye shall be blameless.
+He said, "Now also let it be according to your words: he with whom it is found will be my bondservant; and you will be blameless."

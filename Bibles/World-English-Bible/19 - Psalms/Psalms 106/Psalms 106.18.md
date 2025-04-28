@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a fire was kindled in their company; The flame burned up the wicked.
+A fire was kindled in their company. The flame burned up the wicked.

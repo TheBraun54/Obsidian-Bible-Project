@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Afterward Jesus findeth him in the temple, and said unto him, Behold, thou art made whole: sin no more, lest a worse thing befall thee.
+Afterward Jesus found him in the temple, and said to him, "Behold, you are made well. Sin no more, so that nothing worse happens to you."

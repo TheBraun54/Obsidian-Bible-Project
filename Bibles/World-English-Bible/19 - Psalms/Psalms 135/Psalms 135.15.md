@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The idols of the nations are silver and gold, The work of men's hands.
+The idols of the nations are silver and gold, the work of men's hands.

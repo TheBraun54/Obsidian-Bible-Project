@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be left few in number, whereas ye were as the stars of heaven for multitude; because thou didst not hearken unto the voice of Jehovah thy God.
+You shall be left few in number, whereas you were as the stars of the sky for multitude; because you didn't listen to the voice of Yahweh your God.

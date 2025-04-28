@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, We strictly charged you not to teach in this name: and behold, ye have filled Jerusalem with your teaching, and intend to bring this man's blood upon us.
+saying, "Didn't we strictly command you not to teach in this name? Behold, you have filled Jerusalem with your teaching, and intend to bring this man's blood on us."

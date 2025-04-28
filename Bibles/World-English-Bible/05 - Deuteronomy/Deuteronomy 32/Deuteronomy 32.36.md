@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will judge his people, And repent himself for his servants; When he seeth that [their] power is gone, And there is none [remaining], shut up or left at large.
+For Yahweh will judge his people, and have compassion on his servants, when he sees that [their] power is gone, There is none [remaining], shut up or left at large.

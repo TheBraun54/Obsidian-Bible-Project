@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and above it cherubim of glory overshadowing the mercy-seat; of which things we cannot now speak severally.
+and above it cherubim of glory overshadowing the mercy seat, of which things we can't speak now in detail.

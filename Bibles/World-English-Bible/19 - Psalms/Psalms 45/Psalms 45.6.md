@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy throne, O God, is for ever and ever: A sceptre of equity is the sceptre of thy kingdom.
+Your throne, God, is forever and ever. A scepter of equity is the scepter of your kingdom.

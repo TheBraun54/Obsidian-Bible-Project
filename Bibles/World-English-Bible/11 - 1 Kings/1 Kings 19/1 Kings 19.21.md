@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he returned from following him, and took the yoke of oxen, and slew them, and boiled their flesh with the instruments of the oxen, and gave unto the people, and they did eat. Then he arose, and went after Elijah, and ministered unto him.
+He returned from following him, and took the yoke of oxen, and killed them, and boiled their flesh with the instruments of the oxen, and gave to the people, and they ate. Then he arose, and went after Elijah, and served him.

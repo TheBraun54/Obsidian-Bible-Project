@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Sarai said unto Abram, My wrong be upon thee: I gave my handmaid into thy bosom; and when she saw that she had conceived, I was despised in her eyes: Jehovah judge between me and thee.
+Sarai said to Abram, "This wrong is your fault. I gave my handmaid into your bosom, and when she saw that she had conceived, I was despised in her eyes. Yahweh judge between me and you."

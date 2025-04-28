@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath established his throne in the heavens; And his kingdom ruleth over all.
+Yahweh has established his throne in the heavens. His kingdom rules over all.

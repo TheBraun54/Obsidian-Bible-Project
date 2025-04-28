@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God appeared unto Jacob again, when he came from Paddan-aram, and blessed him.
+God appeared to Jacob again, when he came from Paddan Aram, and blessed him.

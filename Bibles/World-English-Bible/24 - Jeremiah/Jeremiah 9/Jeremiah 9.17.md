@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, Consider ye, and call for the mourning women, that they may come; and send for the skilful women, that they may come:
+Thus says Yahweh of Armies, Consider, and call for the mourning women, that they may come; and send for the skillful women, that they may come:

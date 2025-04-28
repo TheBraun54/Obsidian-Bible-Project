@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak said unto Balaam, Come now, I will take thee unto another place; peradventure it will please God that thou mayest curse me them from thence.
+Balak said to Balaam, "Come now, I will take you to another place; perhaps it will please God that you may curse me them from there."

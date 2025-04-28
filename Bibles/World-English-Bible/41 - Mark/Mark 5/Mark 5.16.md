@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that saw it declared unto them how it befell him that was possessed with demons, and concerning the swine.
+Those who saw it declared to them how it happened to him who was possessed by demons, and about the pigs.

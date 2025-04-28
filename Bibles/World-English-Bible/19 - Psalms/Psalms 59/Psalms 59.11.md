@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Slay them not, lest my people forget: Scatter them by thy power, and bring them down, O Lord our shield.
+Don't kill them, or my people may forget. Scatter them by your power, and bring them down, Lord our shield.

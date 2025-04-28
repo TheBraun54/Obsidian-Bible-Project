@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as ye would that men should do to you, do ye also to them likewise.
+"As you would like people to do to you, do exactly so to them.

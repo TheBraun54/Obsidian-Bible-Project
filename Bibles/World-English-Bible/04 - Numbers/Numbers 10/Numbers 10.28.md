@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus were the journeyings of the children of Israel according to their hosts; and they set forward.
+Thus were the travels of the children of Israel according to their armies; and they went forward.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Nay, my lord, but to buy food are thy servants come.
+They said to him, "No, my lord, but your servants have come to buy food.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast made us an off-scouring and refuse in the midst of the peoples.
+You have made us an off-scouring and refuse in the midst of the peoples.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any hath caused sorrow, he hath caused sorrow, not to me, but in part (that I press not too heavily) to you all.
+But if any has caused sorrow, he has caused sorrow, not to me, but in part (that I not press too heavily) to you all.

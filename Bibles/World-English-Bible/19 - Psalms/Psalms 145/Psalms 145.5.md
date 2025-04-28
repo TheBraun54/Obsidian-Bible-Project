@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the glorious majesty of thine honor, And of thy wondrous works, will I meditate.
+Of the glorious majesty of your honor, of your wondrous works, I will meditate.

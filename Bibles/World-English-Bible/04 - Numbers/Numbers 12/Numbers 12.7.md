@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My servant Moses is not so; he is faithful in all my house:
+My servant Moses is not so. He is faithful in all my house.

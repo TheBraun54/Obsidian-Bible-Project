@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their heart is divided; now shall they be found guilty: he will smite their altars, he will destroy their pillars.
+Their heart is divided. Now they will be found guilty. He will demolish their altars. He will destroy their sacred stones.

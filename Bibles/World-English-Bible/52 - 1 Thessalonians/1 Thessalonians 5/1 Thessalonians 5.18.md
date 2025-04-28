@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in everything give thanks: for this is the will of God in Christ Jesus to you-ward.
+In everything give thanks, for this is the will of God in Christ Jesus toward you.

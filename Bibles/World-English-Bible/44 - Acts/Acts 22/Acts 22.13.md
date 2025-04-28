@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-came unto me, and standing by me said unto me, Brother Saul, receive thy sight. And in that very hour I looked up on him.
+came to me, and standing by me said to me, 'Brother Saul, receive your sight!' In that very hour I looked up at him.

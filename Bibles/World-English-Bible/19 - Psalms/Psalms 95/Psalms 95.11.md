@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I sware in my wrath, That they should not enter into my rest.
+Therefore I swore in my wrath, "They won't enter into my rest."

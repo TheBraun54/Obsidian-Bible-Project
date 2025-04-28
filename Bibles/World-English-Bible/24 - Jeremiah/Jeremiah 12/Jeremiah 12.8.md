@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heritage is become unto me as a lion in the forest: she hath uttered her voice against me; therefore I have hated her.
+My heritage is become to me as a lion in the forest: she has uttered her voice against me; therefore I have hated her.

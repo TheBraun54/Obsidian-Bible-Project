@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But many of them that heard the word believed; and the number of the men came to be about five thousand.
+But many of those who heard the word believed, and the number of the men came to be about five thousand.

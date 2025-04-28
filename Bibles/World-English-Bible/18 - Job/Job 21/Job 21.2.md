@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear diligently my speech; And let this be your consolations.
+"Listen diligently to my speech. Let this be your consolation.

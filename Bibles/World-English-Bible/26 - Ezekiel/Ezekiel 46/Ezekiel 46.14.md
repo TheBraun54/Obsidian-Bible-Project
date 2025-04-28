@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt prepare a meal-offering with it morning by morning, the sixth part of an ephah, and the third part of a hin of oil, to moisten the fine flour; a meal-offering unto Jehovah continually by a perpetual ordinance.
+You shall prepare a meal offering with it morning by morning, the sixth part of an ephah, and the third part of a hin of oil, to moisten the fine flour; a meal offering to Yahweh continually by a perpetual ordinance.

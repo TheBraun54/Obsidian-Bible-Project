@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God spake unto Noah, saying,
+God spoke to Noah, saying,

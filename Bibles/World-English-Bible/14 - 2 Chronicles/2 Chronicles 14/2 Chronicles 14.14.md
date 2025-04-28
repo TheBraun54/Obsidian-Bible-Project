@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they smote all the cities round about Gerar; for the fear of Jehovah came upon them: and they despoiled all the cities; for there was much spoil in them.
+They struck all the cities around Gerar; for the fear of Yahweh came on them: and they despoiled all the cities; for there was much spoil in them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be turned back by reason of their shame That say, Aha, aha.
+Let them be turned because of their shame Who say, "Aha! Aha!"

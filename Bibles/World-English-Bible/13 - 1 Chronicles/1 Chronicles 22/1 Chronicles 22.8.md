@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the word of Jehovah came to me, saying, Thou hast shed blood abundantly, and hast made great wars: thou shalt not build a house unto my name, because thou hast shed much blood upon the earth in my sight.
+But the word of Yahweh came to me, saying, 'You have shed blood abundantly, and have made great wars. You shall not build a house to my name, because you have shed much blood on the earth in my sight.

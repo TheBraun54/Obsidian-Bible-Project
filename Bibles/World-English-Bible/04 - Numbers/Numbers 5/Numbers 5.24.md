@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall make the woman drink the water of bitterness that causeth the curse; and the water that causeth the curse shall enter into her [and become] bitter.
+He shall make the woman drink the water of bitterness that causes the curse; and the water that causes the curse shall enter into her and become bitter.

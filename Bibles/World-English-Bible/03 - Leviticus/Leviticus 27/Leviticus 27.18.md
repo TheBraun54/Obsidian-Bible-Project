@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he sanctify his field after the jubilee, then the priest shall reckon unto him the money according to the years that remain unto the year of jubilee; and an abatement shall be made from thy estimation.
+But if he dedicates his field after the Jubilee, then the priest shall reckon to him the money according to the years that remain to the Year of Jubilee; and an abatement shall be made from your valuation.

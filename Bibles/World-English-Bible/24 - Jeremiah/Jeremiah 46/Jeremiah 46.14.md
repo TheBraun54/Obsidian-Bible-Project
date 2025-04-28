@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Declare ye in Egypt, and publish in Migdol, and publish in Memphis and in Tahpanhes: say ye, Stand forth, and prepare thee; for the sword hath devoured round about thee.
+Declare in Egypt, and publish in Migdol, and publish in Memphis and in Tahpanhes: say, Stand forth, and prepare; for the sword has devoured around you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest of the people he committed into the hand of Abishai his brother; and he put them in array against the children of Ammon.
+The rest of the people he committed into the hand of Abishai his brother; and he put them in array against the children of Ammon.

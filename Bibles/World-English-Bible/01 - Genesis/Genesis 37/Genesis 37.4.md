@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his brethren saw that their father loved him more than all his brethren; and they hated him, and could not speak peaceably unto him.
+His brothers saw that their father loved him more than all his brothers, and they hated him, and couldn't speak peaceably to him.

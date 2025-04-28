@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art wearied in the multitude of thy counsels: let now the astrologers, the star-gazers, the monthly prognosticators, stand up, and save thee from the things that shall come upon thee.
+You are wearied in the multitude of your counsels: let now the astrologers, the stargazers, the monthly prognosticators, stand up, and save you from the things that shall come on you.

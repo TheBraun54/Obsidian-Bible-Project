@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for until the law sin was in the world; but sin is not imputed when there is no law.
+For until the law, sin was in the world; but sin is not charged when there is no law.

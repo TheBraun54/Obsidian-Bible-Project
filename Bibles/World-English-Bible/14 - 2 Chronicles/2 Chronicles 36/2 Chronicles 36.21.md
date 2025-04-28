@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to fulfil the word of Jehovah by the mouth of Jeremiah, until the land had enjoyed its sabbaths: [for] as long as it lay desolate it kept sabbath, to fulfil threescore and ten years.
+to fulfill the word of Yahweh by the mouth of Jeremiah, until the land had enjoyed its Sabbaths: [for] as long as it lay desolate it kept Sabbath, to fulfill seventy years.

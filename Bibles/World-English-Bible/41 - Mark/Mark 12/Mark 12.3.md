@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took him, and beat him, and sent him away empty.
+They took him, beat him, and sent him away empty.

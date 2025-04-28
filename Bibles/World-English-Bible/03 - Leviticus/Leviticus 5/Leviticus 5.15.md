@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any one commit a trespass, and sin unwittingly, in the holy things of Jehovah; then he shall bring his trespass-offering unto Jehovah, a ram without blemish out of the flock, according to thy estimation in silver by shekels, after the shekel of the sanctuary, for a trespass-offering:
+"If anyone commits a trespass, and sins unwittingly, in the holy things of Yahweh; then he shall bring his trespass offering to Yahweh, a ram without blemish from the flock, according to your estimation in silver by shekels, after the shekel of the sanctuary, for a trespass offering.

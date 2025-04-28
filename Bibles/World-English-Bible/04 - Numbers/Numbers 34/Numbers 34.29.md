@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they whom Jehovah commanded to divide the inheritance unto the children of Israel in the land of Canaan.
+These are they whom Yahweh commanded to divide the inheritance to the children of Israel in the land of Canaan.

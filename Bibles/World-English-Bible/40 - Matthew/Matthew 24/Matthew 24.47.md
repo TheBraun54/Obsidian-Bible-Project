@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, that he will set him over all that he hath.
+Most certainly I tell you that he will set him over all that he has.

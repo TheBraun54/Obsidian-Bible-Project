@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And calling to him each one of his lord's debtors, he said to the first, How much owest thou unto my lord?
+Calling each one of his lord's debtors to him, he said to the first, 'How much do you owe to my lord?'

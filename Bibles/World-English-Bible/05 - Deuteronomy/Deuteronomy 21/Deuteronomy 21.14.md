@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, if thou have no delight in her, then thou shalt let her go whither she will; but thou shalt not sell her at all for money, thou shalt not deal with her as a slave, because thou hast humbled her.
+It shall be, if you have no delight in her, then you shall let her go where she will; but you shall not sell her at all for money, you shall not deal with her as a slave, because you have humbled her.

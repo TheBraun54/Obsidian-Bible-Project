@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Mephibosheth dwelt in Jerusalem; for he did eat continually at the king's table. And he was lame in both his feet.
+So Mephibosheth lived in Jerusalem; for he ate continually at the king's table. He was lame in both his feet.

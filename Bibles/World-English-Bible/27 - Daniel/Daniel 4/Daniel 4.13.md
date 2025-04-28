@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw in the visions of my head upon my bed, and, behold, a watcher and a holy one came down from heaven.
+I saw in the visions of my head on my bed, and behold, a watcher and a holy one came down from the sky.

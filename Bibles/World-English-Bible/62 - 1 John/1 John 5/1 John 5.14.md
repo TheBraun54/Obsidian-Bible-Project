@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the boldness which we have toward him, that, if we ask anything according to his will, he heareth us:
+This is the boldness which we have toward him, that, if we ask anything according to his will, he listens to us.

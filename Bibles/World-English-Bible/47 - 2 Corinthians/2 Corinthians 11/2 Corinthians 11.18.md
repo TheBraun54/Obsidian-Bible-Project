@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing that many glory after the flesh, I will glory also.
+Seeing that many boast after the flesh, I will also boast.

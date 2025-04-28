@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that thou wert as my brother, That sucked the breasts of my mother! [When] I should find thee without, I would kiss thee; Yea, and none would despise me.
+Oh that you were like my brother, who nursed from the breasts of my mother! If I found you outside, I would kiss you; yes, and no one would despise me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thy people in the midst of thee are women; the gates of thy land are set wide open unto thine enemies: the fire hath devoured thy bars.
+Behold, your troops in your midst are women. The gates of your land are set wide open to your enemies. The fire has devoured your bars.

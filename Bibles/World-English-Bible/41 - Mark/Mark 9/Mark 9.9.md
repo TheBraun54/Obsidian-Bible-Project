@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they were coming down from the mountain, he charged them that they should tell no man what things they had seen, save when the Son of man should have risen again from the dead.
+As they were coming down from the mountain, he commanded them that they should tell no one what things they had seen, until after the Son of Man had risen from the dead.

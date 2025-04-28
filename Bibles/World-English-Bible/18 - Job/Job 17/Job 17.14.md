@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have said to corruption, Thou art my father; To the worm, [Thou art] my mother, and my sister;
+If I have said to corruption, 'You are my father;' to the worm, 'My mother,' and 'my sister;'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So we fasted and besought our God for this: and he was entreated of us.
+So we fasted and begged our God for this: and he was entreated of us.

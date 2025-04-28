@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From Kibroth-hattaavah the people journeyed unto Hazeroth; and they abode at Hazeroth.
+From Kibroth Hattaavah the people traveled to Hazeroth; and they stayed at Hazeroth.

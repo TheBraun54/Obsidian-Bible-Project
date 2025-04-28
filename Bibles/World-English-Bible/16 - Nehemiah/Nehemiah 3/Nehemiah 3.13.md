@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The valley gate repaired Hanun, and the inhabitants of Zanoah; they built it, and set up the doors thereof, the bolts thereof, and the bars thereof, and a thousand cubits of the wall unto the dung gate.
+The valley gate repaired Hanun, and the inhabitants of Zanoah; they built it, and set up its doors, its bolts, and its bars, and one thousand cubits of the wall to the dung gate.

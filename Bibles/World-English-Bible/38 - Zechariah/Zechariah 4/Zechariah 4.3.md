@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and two olive-trees by it, one upon the right side of the bowl, and the other upon the left side thereof.
+and two olive trees by it, one on the right side of the bowl, and the other on the left side of it."

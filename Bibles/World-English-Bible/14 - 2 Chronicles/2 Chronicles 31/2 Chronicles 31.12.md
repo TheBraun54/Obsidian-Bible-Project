@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought in the oblations and the tithes and the dedicated things faithfully: and over them Conaniah the Levite was ruler, and Shimei his brother was second.
+They brought in the offerings and the tithes and the dedicated things faithfully: and over them Conaniah the Levite was ruler, and Shimei his brother was second.

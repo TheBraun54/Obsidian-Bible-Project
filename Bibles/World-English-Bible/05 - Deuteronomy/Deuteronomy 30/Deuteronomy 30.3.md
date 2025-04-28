@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that then Jehovah thy God will turn thy captivity, and have compassion upon thee, and will return and gather thee from all the peoples, whither Jehovah thy God hath scattered thee.
+that then Yahweh your God will turn your captivity, and have compassion on you, and will return and gather you from all the peoples, where Yahweh your God has scattered you.

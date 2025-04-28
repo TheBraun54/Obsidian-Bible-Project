@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While ye have the light, believe on the light, that ye may become sons of light. These things spake Jesus, and he departed and hid himself from them.
+While you have the light, believe in the light, that you may become children of light." Jesus said these things, and he departed and hid himself from them.

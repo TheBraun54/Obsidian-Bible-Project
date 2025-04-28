@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not eat it; thou shalt pour it out upon the earth as water.
+You shall not eat it; you shall pour it out on the earth as water.

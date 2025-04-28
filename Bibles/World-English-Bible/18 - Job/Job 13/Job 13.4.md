@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye are forgers of lies; Ye are all physicians of no value.
+But you are forgers of lies. You are all physicians of no value.

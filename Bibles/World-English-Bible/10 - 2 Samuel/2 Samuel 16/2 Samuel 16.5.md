@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when king David came to Bahurim, behold, there came out thence a man of the family of the house of Saul, whose name was Shimei, the son of Gera; he came out, and cursed still as he came.
+When king David came to Bahurim, behold, a man of the family of the house of Saul came out, whose name was Shimei, the son of Gera. He came out, and cursed still as he came.

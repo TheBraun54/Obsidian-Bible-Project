@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Set your heart unto all the words which I testify unto you this day, which ye shall command your children to observe to do, [even] all the words of this law.
+He said to them, "Set your heart to all the words which I testify to you this day, which you shall command your children to observe to do, [even] all the words of this law.

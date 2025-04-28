@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no one hath ascended into heaven, but he that descended out of heaven, [even] the Son of man, who is in heaven.
+No one has ascended into heaven, but he who descended out of heaven, the Son of Man, who is in heaven.

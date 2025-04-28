@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no marvel; for even Satan fashioneth himself into an angel of light.
+And no wonder, for even Satan masquerades as an angel of light.

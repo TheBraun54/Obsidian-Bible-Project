@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore take you twelve men out of the tribes of Israel, for every tribe a man.
+Now therefore take twelve men out of the tribes of Israel, for every tribe a man.

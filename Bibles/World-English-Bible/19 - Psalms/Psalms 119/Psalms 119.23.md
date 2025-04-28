@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Princes also sat and talked against me; [But] thy servant did meditate on thy statutes.
+Though princes sit and slander me, your servant will meditate on your statutes.

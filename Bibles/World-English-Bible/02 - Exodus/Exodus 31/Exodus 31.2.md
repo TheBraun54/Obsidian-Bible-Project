@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See, I have called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah:
+"Behold, I have called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah:

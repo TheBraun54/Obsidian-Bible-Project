@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Israel is a luxuriant vine, that putteth forth his fruit: according to the abundance of his fruit he hath multiplied his altars; according to the goodness of their land they have made goodly [ pillars.
+Israel is a luxuriant vine that puts forth his fruit. According to the abundance of his fruit he has multiplied his altars. As their land has prospered, they have adorned their sacred stones.

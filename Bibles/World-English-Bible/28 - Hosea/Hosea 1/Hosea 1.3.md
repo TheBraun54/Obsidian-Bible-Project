@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he went and took Gomer the daughter of Diblaim; and she conceived, and bare him a son.
+So he went and took Gomer the daughter of Diblaim; and she conceived, and bore him a son.

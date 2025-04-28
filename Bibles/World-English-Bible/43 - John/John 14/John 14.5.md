@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thomas saith unto him, Lord, we know not whither thou goest; how know we the way?
+Thomas said to him, "Lord, we don't know where you are going. How can we know the way?"

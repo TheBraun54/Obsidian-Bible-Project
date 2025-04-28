@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this man went up out of his city from year to year to worship and to sacrifice unto Jehovah of hosts in Shiloh. And the two sons of Eli, Hophni and Phinehas, priests unto Jehovah, were there.
+This man went up out of his city from year to year to worship and to sacrifice to Yahweh of Armies in Shiloh. The two sons of Eli, Hophni and Phinehas, priests to Yahweh, were there.

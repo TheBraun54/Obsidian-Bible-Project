@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he also that [received] the two talents came and said, Lord, thou deliveredst unto me two talents: lo, I have gained other two talents.
+"He also who got the two talents came and said, 'Lord, you delivered to me two talents. Behold, I have gained another two talents besides them.'

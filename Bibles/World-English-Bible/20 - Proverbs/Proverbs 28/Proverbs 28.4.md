@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that forsake the law praise the wicked; But such as keep the law contend with them.
+Those who forsake the law praise the wicked; but those who keep the law contend with them.

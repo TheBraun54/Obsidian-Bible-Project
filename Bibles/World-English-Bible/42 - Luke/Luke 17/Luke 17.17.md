@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answering said, Were not the ten cleansed? but where are the nine?
+Jesus answered, "Weren't the ten cleansed? But where are the nine?

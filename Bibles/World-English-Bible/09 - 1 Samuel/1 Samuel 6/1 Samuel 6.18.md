@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the golden mice, according to the number of all the cities of the Philistines belonging to the five lords, both of fortified cities and of country villages, even unto the great stone, whereon they set down the ark of Jehovah, [which stone remaineth] unto this day in the field of Joshua the Beth-shemite.
+and the golden mice, according to the number of all the cities of the Philistines belonging to the five lords, both of fortified cities and of country villages, even to the great stone, whereon they set down the ark of Yahweh, [which stone remains] to this day in the field of Joshua of Beth Shemesh.

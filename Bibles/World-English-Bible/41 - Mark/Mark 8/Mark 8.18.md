@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Having eyes, see ye not? and having ears, hear ye not? and do ye not remember?
+Having eyes, don't you see? Having ears, don't you hear? Don't you remember?

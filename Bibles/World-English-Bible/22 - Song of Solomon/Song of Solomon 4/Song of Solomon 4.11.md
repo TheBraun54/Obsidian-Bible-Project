@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy lips, O [my] bride, drop [as] the honeycomb: Honey and milk are under thy tongue; And the smell of thy garments is like the smell of Lebanon.
+Your lips, my bride, drip like the honeycomb. Honey and milk are under your tongue. The smell of your garments is like the smell of Lebanon.

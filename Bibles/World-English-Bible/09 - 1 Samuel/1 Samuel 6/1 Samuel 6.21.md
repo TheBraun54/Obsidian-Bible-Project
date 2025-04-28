@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sent messengers to the inhabitants of Kiriath-jearim, saying, The Philistines have brought back the ark of Jehovah; come ye down, and fetch it up to you.
+They sent messengers to the inhabitants of Kiriath Jearim, saying, "The Philistines have brought back the ark of Yahweh; come down, and bring it up to yourselves."

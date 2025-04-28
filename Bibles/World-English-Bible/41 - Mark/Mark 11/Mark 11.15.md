@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come to Jerusalem: and he entered into the temple, and began to cast out them that sold and them that bought in the temple, and overthrew the tables of the money-changers, and the seats of them that sold the doves;
+They came to Jerusalem, and Jesus entered into the temple, and began to throw out those who sold and those who bought in the temple, and overthrew the tables of the money changers, and the seats of those who sold the doves.

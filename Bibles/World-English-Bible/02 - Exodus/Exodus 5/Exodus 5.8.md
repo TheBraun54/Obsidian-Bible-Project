@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the number of the bricks, which they did make heretofore, ye shall lay upon them; ye shall not diminish aught thereof: for they are idle; therefore they cry, saying, Let us go and sacrifice to our God.
+The number of the bricks, which they made before, you require from them. You shall not diminish anything of it, for they are idle; therefore they cry, saying, 'Let us go and sacrifice to our God.'

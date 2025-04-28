@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They compassed me about; yea, they compassed me about: In the name of Jehovah I will cut them off.
+They surrounded me, yes, they surrounded me. In the name of Yahweh I indeed cut them off.

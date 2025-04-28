@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of them that flee and escape out of the land of Babylon, to declare in Zion the vengeance of Jehovah our God, the vengeance of his temple.
+The voice of those who flee and escape out of the land of Babylon, to declare in Zion the vengeance of Yahweh our God, the vengeance of his temple.

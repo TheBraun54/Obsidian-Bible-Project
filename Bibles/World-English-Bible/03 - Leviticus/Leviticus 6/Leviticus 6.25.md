@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Aaron and to his sons, saying, This is the law of the sin-offering: in the place where the burnt-offering is killed shall the sin-offering be killed before Jehovah: it is most holy.
+"Speak to Aaron and to his sons, saying, 'This is the law of the sin offering: in the place where the burnt offering is killed, the sin offering shall be killed before Yahweh. It is most holy.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One generation goeth, and another generation cometh; but the earth abideth for ever.
+One generation goes, and another generation comes; but the earth remains forever.

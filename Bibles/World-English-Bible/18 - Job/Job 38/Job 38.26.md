@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To cause it to rain on a land where no man is; On the wilderness, wherein there is no man;
+To cause it to rain on a land where no man is; on the wilderness, in which there is no man;

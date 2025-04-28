@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, Can the sons of the bridechamber fast, while the bridegroom is with them? as long as they have the bridegroom with them, they cannot fast.
+Jesus said to them, "Can the groomsmen fast while the bridegroom is with them? As long as they have the bridegroom with them, they can't fast.

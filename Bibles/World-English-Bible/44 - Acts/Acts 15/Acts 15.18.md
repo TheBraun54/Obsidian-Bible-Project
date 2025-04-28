@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Saith the Lord, who maketh these things known from of old.
+All his works are known to God from eternity.'

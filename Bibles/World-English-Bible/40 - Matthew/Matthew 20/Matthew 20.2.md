@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had agreed with the laborers for a shilling a day, he sent them into his vineyard.
+When he had agreed with the laborers for a denarius a day, he sent them into his vineyard.

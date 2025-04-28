@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The youth and the old man lie on the ground in the streets; My virgins and my young men are fallen by the sword: Thou hast slain them in the day of thine anger; Thou hast slaughtered, [and] not pitied.
+The youth and the old man lie on the ground in the streets; My virgins and my young men are fallen by the sword: You have killed them in the day of your anger; you have slaughtered, [and] not pitied.

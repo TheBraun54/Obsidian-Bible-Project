@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salma the father of Beth-lehem, Hareph the father of Beth-gader.
+Salma the father of Bethlehem, Hareph the father of Beth Gader.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A foolish son is a grief to his father, And bitterness to her that bare him.
+A foolish son brings grief to his father, and bitterness to her who bore him.

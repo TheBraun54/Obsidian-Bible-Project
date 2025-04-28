@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah their God will save them in that day as the flock of his people; for [they shall be as] the stones of a crown, lifted on high over his land.
+Yahweh their God will save them in that day as the flock of his people; for they are like the jewels of a crown, lifted on high over his land.

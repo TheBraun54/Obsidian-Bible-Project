@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the number of the armies of the horsemen was twice ten thousand times ten thousand: I heard the number of them.
+The number of the armies of the horsemen was two hundred million. I heard the number of them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the company shall stone them with stones, and despatch them with their swords; they shall slay their sons and their daughters, and burn up their houses with fire.
+The company shall stone them with stones, and dispatch them with their swords; they shall kill their sons and their daughters, and burn up their houses with fire.

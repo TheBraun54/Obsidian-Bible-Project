@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh sing unto Jehovah a new song: Sing unto Jehovah, all the earth.
+Sing to Yahweh a new song! Sing to Yahweh, all the earth.

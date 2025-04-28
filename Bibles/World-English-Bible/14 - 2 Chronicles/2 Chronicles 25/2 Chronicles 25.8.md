@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou wilt go, do [valiantly], be strong for the battle: God will cast thee down before the enemy; for God hath power to help, and to cast down.
+But if you will go, take action, be strong for the battle. God will overthrow you before the enemy; for God has power to help, and to overthrow."

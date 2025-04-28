@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto them repaired Jedaiah the son of Harumaph, over against his house. And next unto him repaired Hattush the son of Hashabneiah.
+Next to them repaired Jedaiah the son of Harumaph, over against his house. Next to him repaired Hattush the son of Hashabneiah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall horses run upon the rock? will one plow [there] with oxen? that ye have turned justice into gall, and the fruit of righteousness into wormwood;
+Do horses run on the rocky crags? Does one plow there with oxen? But you have turned justice into poison, and the fruit of righteousness into bitterness;

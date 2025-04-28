@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that sitteth on anything whereon he that hath the issue sat shall wash his clothes, and bathe himself in water, and be unclean until the even.
+He who sits on anything whereon the man who has the discharge sat shall wash his clothes, and bathe himself in water, and be unclean until the evening.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now Jehovah hath spoken, saying, Within three years, as the years of a hireling, the glory of Moab shall be brought into contempt, with all his great multitude; and the remnant shall be very small and of no account.
+But now Yahweh has spoken, saying, "Within three years, as a worker bound by contract would count them, the glory of Moab shall be brought into contempt, with all his great multitude; and the remnant will be very small and feeble."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall ye keep my commandments, and do them: I am Jehovah.
+"Therefore you shall keep my commandments, and do them. I am Yahweh.

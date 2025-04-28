@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath regarded the prayer of the destitute, And hath not despised their prayer.
+He has responded to the prayer of the destitute, and has not despised their prayer.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought back all the goods, and also brought back his brother Lot, and his goods, and the women also, and the people.
+He brought back all the goods, and also brought back his relative, Lot, and his goods, and the women also, and the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom then will ye liken God? or what likeness will ye compare unto him?
+To whom then will you liken God? Or what likeness will you compare to him?

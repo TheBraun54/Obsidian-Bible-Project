@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-besides their men-servants and their maid-servants, of whom there were seven thousand three hundred thirty and seven: and they had two hundred forty and five singing men and singing women.
+besides their male servants and their female servants, of whom there were seven thousand three hundred thirty-seven: and they had two hundred forty-five singing men and singing women.

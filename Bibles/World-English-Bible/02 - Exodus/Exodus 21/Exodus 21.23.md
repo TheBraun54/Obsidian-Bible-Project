@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any harm follow, then thou shalt give life for life,
+But if any harm follows, then you must take life for life,

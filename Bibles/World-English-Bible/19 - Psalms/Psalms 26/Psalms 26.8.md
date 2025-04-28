@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, I love the habitation of thy house, And the place where thy glory dwelleth.
+Yahweh, I love the habitation of your house, the place where your glory dwells.

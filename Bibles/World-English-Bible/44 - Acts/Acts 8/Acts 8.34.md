@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the eunuch answered Philip, and said, I pray thee, of whom speaketh the prophet this? of himself, or of some other?
+The eunuch answered Philip, "Who is the prophet talking about? About himself, or about someone else?"

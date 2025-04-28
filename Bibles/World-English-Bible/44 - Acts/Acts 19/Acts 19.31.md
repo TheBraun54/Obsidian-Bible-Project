@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And certain also of the Asiarchs, being his friends, sent unto him and besought him not to adventure himself into the theatre.
+Certain also of the Asiarchs, being his friends, sent to him and begged him not to venture into the theater.

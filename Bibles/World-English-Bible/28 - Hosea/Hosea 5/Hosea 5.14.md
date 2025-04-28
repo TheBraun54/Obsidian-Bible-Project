@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will be unto Ephraim as a lion, and as a young lion to the house of Judah: I, even I, will tear and go away; I will carry off, and there shall be none to deliver.
+For I will be to Ephraim like a lion, and like a young lion to the house of Judah. I myself will tear in pieces and go away. I will carry off, and there will be no one to deliver.

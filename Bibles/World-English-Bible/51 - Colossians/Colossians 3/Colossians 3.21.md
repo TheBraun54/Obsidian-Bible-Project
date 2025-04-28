@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fathers, provoke not your children, that they be not discouraged.
+Fathers, don't provoke your children, so that they won't be discouraged.

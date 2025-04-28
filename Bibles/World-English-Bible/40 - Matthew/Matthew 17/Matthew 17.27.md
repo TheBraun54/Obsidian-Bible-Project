@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But, lest we cause them to stumble, go thou to the sea, and cast a hook, and take up the fish that first cometh up; and when thou hast opened his mouth, thou shalt find a shekel: that take, and give unto them for me and thee.
+But, lest we cause them to stumble, go to the sea, cast a hook, and take up the first fish that comes up. When you have opened its mouth, you will find a stater coin. Take that, and give it to them for me and you."

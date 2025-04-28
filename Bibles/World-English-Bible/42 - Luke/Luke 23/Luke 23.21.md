@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but they shouted, saying, Crucify, crucify him.
+but they shouted, saying, "Crucify! Crucify him!"

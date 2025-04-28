@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will judge the poor of the people, He will save the children of the needy, And will break in pieces the oppressor.
+He will judge the poor of the people. He will save the children of the needy, and will break the oppressor in pieces.

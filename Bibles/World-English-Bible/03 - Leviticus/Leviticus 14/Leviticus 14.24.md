@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall take the lamb of the trespass-offering, and the log of oil, and the priest shall wave them for a wave-offering before Jehovah.
+The priest shall take the lamb of the trespass offering, and the log of oil, and the priest shall wave them for a wave offering before Yahweh.

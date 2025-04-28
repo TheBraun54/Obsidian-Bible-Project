@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that say to the seers, See not; and to the prophets, Prophesy not unto us right things, speak unto us smooth things, prophesy deceits,
+who tell the seers, "Don't see!" and to the prophets, "Don't prophesy to us right things. Tell us pleasant things. Prophesy deceits.

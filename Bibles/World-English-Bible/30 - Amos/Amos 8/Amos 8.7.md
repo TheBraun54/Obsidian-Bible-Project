@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath sworn by the excellency of Jacob, Surely I will never forget any of their works.
+Yahweh has sworn by the pride of Jacob, "Surely I will never forget any of their works.

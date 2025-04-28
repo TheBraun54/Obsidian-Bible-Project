@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people saw the pillar of cloud stand at the door of the Tent: and all the people rose up and worshipped, every man at his tent door.
+All the people saw the pillar of cloud stand at the door of the Tent, and all the people rose up and worshiped, everyone at their tent door.

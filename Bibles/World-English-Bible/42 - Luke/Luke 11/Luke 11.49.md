@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore also said the wisdom of God, I will send unto them prophets and apostles; and [some] of them they shall kill and persecute;
+Therefore also the wisdom of God said, 'I will send to them prophets and apostles; and some of them they will kill and persecute,

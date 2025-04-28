@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And herein I give [my] judgment: for this is expedient for you, who were the first to make a beginning a year ago, not only to do, but also to will.
+I give a judgment in this: for this is expedient for you, who were the first to start a year ago, not only to do, but also to be willing.

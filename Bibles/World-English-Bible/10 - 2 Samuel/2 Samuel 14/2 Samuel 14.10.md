@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Whosoever saith aught unto thee, bring him to me, and he shall not touch thee any more.
+The king said, "Whoever says anything to you, bring him to me, and he shall not touch you any more."

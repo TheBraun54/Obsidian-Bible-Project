@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God wrought special miracles by the hands of Paul:
+God worked special miracles by the hands of Paul,

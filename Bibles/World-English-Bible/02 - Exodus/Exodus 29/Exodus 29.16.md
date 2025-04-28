@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt slay the ram, and thou shalt take its blood, and sprinkle it round about upon the altar.
+You shall kill the ram, and you shall take its blood, and sprinkle it around on the altar.

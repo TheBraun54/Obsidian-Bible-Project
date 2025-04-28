@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come up unto me, and help me, and let us smite Gibeon; for it hath made peace with Joshua and with the children of Israel.
+"Come up to me, and help me, and let us strike Gibeon; for it has made peace with Joshua and with the children of Israel."

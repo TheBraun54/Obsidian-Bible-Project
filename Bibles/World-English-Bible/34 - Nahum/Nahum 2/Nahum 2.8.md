@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Nineveh hath been from of old like a pool of water: yet they flee away. Stand, stand, [they cry] ; but none looketh back.
+But Nineveh has been from of old like a pool of water, yet they flee away. "Stop! Stop!" they cry, but no one looks back.

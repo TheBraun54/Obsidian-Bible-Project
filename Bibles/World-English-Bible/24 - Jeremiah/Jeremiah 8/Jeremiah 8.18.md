@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that I could comfort myself against sorrow! my heart is faint within me.
+Oh that I could comfort myself against sorrow! My heart is faint within me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we said, We cannot go down: if our youngest brother be with us, then will we go down; for we may not see the man's face, except our youngest brother be with us.
+We said, 'We can't go down. If our youngest brother is with us, then we will go down: for we may not see the man's face, unless our youngest brother is with us.'

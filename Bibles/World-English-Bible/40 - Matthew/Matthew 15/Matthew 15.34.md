@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, How many loaves have ye? And they said, Seven, and a few small fishes.
+Jesus said to them, "How many loaves do you have?" They said, "Seven, and a few small fish."

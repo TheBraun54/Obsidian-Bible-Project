@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the altar of burnt-offering with all its vessels, and the laver and its base,
+the altar of burnt offering with all its vessels, the basin and its base,

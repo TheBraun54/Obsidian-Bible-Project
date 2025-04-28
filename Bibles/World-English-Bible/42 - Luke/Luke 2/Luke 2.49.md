@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, How is it that ye sought me? knew ye not that I must be in my Father's house?
+He said to them, "Why were you looking for me? Didn't you know that I must be in my Father's house?"

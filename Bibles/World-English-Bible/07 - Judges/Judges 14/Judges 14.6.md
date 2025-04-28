@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit of Jehovah came mightily upon him, and he rent him as he would have rent a kid; and he had nothing in his hand: but he told not his father or his mother what he had done.
+The Spirit of Yahweh came mightily on him, and he tore him as he would have torn a young goat; and he had nothing in his hand: but he didn't tell his father or his mother what he had done.

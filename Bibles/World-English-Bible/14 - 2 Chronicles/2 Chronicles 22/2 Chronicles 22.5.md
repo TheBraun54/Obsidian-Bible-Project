@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He walked also after their counsel, and went with Jehoram the son of Ahab king of Israel to war against Hazael king of Syria at Ramoth-gilead: and the Syrians wounded Joram.
+He walked also after their counsel, and went with Jehoram the son of Ahab king of Israel to war against Hazael king of Syria at Ramoth Gilead: and the Syrians wounded Joram.

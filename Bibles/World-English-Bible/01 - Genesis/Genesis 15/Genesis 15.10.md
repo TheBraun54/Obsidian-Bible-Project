@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took him all these, and divided them in the midst, and laid each half over against the other: but the birds divided he not.
+He brought him all of these, and divided them in the middle, and laid each half opposite the other; but he didn't divide the birds.

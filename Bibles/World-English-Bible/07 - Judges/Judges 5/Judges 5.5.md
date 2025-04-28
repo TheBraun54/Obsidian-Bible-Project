@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mountains quaked at the presence of Jehovah, Even yon Sinai at the presence of Jehovah, the God of Israel.
+The mountains quaked at the presence of Yahweh, even Sinai, at the presence of Yahweh, the God of Israel.

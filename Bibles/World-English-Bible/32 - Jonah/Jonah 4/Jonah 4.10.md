@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Thou hast had regard for the gourd, for which thou hast not labored, neither madest it grow; which came up in a night, and perished in a night:
+Yahweh said, "You have been concerned for the vine, for which you have not labored, neither made it grow; which came up in a night, and perished in a night.

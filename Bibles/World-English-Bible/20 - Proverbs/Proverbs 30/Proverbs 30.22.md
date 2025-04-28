@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a servant when he is king; And a fool when he is filled with food;
+For a servant when he is king; a fool when he is filled with food;

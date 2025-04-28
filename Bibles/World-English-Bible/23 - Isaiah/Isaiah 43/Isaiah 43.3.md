@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am Jehovah thy God, the Holy One of Israel, thy Saviour; I have given Egypt as thy ransom, Ethiopia and Seba in thy stead.
+For I am Yahweh your God, the Holy One of Israel, your Savior. I have given Egypt as your ransom, Ethiopia and Seba in your place.

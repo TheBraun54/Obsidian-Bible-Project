@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the king to Amasa, Call me the men of Judah together within three days, and be thou here present.
+Then the king said to Amasa, "Call me the men of Judah together within three days, and be here present."

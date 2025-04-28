@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He gave also their increase unto the caterpillar, And their labor unto the locust.
+He gave also their increase to the caterpillar, and their labor to the locust.

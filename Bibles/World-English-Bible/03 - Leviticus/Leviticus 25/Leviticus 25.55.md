@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For unto me the children of Israel are servants; they are my servants whom I brought forth out of the land of Egypt: I am Jehovah your God.
+For to me the children of Israel are servants; they are my servants whom I brought forth out of the land of Egypt. I am Yahweh your God.

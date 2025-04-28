@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I form the light, and create darkness; I make peace, and create evil. I am Jehovah, that doeth all these things.
+I form the light, and create darkness. I make peace, and create calamity. I am Yahweh, who does all these things.

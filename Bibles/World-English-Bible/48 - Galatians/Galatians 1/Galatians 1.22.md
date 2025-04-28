@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I was still unknown by face unto the churches of Judaea which were in Christ:
+I was still unknown by face to the assemblies of Judea which were in Christ,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember now, O Jehovah, I beseech thee, how I have walked before thee in truth and with a perfect heart, and have done that which is good in thy sight. And Hezekiah wept sore.
+"Remember now, Yahweh, I beg you, how I have walked before you in truth and with a perfect heart, and have done that which is good in your sight." Hezekiah wept bitterly.

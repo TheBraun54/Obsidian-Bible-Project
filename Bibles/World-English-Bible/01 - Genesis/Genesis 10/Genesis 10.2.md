@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Japheth: Gomer, and Magog, and Madai, and Javan, and Tubal, and Meshech, and Tiras.
+The sons of Japheth: Gomer, Magog, Madai, Javan, Tubal, Meshech, and Tiras.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Asahel pursued after Abner; and in going he turned not to the right hand nor to the left from following Abner.
+Asahel pursued after Abner; and in going he didn't turn to the right hand nor to the left from following Abner.

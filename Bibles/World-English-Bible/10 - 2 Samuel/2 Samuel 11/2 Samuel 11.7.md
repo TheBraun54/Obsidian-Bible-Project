@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Uriah was come unto him, David asked of him how Joab did, and how the people fared, and how the war prospered.
+When Uriah was come to him, David asked of him how Joab did, and how the people fared, and how the war prospered.

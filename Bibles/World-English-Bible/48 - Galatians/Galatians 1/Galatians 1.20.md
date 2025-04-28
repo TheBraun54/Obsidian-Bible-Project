@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now touching the things which I write unto you, behold, before God, I lie not.
+Now about the things which I write to you, behold, before God, I'm not lying.

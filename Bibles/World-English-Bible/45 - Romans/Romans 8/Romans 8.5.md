@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they that are after the flesh mind the things of the flesh; but they that are after the Spirit the things of the Spirit.
+For those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit, the things of the Spirit.

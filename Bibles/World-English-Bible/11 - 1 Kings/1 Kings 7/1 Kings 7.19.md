@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the capitals that were upon the top of the pillars in the porch were of lily-work, four cubits.
+The capitals that were on the top of the pillars in the porch were of lily work, four cubits.

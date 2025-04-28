@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered me and said, Knowest thou not what these are? And I said, No, my lord.
+He answered me, "Don't you know what these are?" I said, "No, my lord."

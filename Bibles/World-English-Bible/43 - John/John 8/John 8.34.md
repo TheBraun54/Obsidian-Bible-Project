@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered them, Verily, verily, I say unto you, Every one that committeth sin is the bondservant of sin.
+Jesus answered them, "Most certainly I tell you, everyone who commits sin is the bondservant of sin.

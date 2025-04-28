@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A faithful man shall abound with blessings; But he that maketh haste to be rich shall not be unpunished.
+A faithful man is rich with blessings; but one who is eager to be rich will not go unpunished.

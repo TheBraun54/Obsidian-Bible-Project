@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jephthah said unto them, I and my people were at great strife with the children of Ammon; and when I called you, ye saved me not out of their hand.
+Jephthah said to them, "I and my people were at great strife with the children of Ammon; and when I called you, you didn't save me out of their hand.

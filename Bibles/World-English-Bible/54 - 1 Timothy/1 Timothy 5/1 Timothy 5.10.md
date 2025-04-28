@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-well reported of for good works; if she hath brought up children, if she hath used hospitality to strangers, if she hath washed the saints' feet, if she hath relieved the afflicted, if she hath diligently followed every good work.
+being approved by good works, if she has brought up children, if she has been hospitable to strangers, if she has washed the saints' feet, if she has relieved the afflicted, and if she has diligently followed every good work.

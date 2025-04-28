@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The world cannot hate you; but me it hateth, because I testify of it, that its works are evil.
+The world can't hate you, but it hates me, because I testify about it, that its works are evil.

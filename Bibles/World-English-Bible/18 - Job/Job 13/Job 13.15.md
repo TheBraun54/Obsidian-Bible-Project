@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he will slay me; I have no hope: Nevertheless I will maintain my ways before him.
+Behold, he will kill me. I have no hope. Nevertheless, I will maintain my ways before him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stretched forth his hand, and touched him, saying, I will; be thou made clean. And straightway the leprosy departed from him.
+He stretched out his hand, and touched him, saying, "I want to. Be made clean." Immediately the leprosy left him.

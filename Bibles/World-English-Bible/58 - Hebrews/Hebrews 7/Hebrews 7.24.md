@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he, because he abideth for ever, hath his priesthood unchangeable.
+But he, because he lives forever, has his priesthood unchangeable.

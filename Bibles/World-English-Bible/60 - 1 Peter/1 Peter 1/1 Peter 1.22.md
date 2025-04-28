@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing ye have purified your souls in your obedience to the truth unto unfeigned love of the brethren, love one another from the heart fervently:
+Seeing you have purified your souls in your obedience to the truth through the Spirit in sincere brotherly affection, love one another from the heart fervently:

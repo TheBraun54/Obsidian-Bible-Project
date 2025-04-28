@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore we faint not; but though our outward man is decaying, yet our inward man is renewed day by day.
+Therefore we don't faint, but though our outward man is decaying, yet our inward man is renewed day by day.

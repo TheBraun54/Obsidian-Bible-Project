@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His strength shall be hunger-bitten, And calamity shall be ready at his side.
+His strength shall be famished. Calamity shall be ready at his side.

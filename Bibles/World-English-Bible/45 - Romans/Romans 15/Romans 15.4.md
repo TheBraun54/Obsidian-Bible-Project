@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whatsoever things were written aforetime were written for our learning, that through patience and through comfort of the scriptures we might have hope.
+For whatever things were written before were written for our learning, that through patience and through encouragement of the Scriptures we might have hope.

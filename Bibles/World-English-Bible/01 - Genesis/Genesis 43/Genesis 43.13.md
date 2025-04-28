@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-take also your brother, and arise, go again unto the man:
+Take your brother also, get up, and return to the man.

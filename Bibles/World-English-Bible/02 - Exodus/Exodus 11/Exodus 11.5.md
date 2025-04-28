@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the first-born in the land of Egypt shall die, from the first-born of Pharaoh that sitteth upon his throne, even unto the first-born of the maid-servant that is behind the mill; and all the first-born of cattle.
+and all the firstborn in the land of Egypt shall die, from the firstborn of Pharaoh who sits on his throne, even to the firstborn of the female servant who is behind the mill; and all the firstborn of livestock.

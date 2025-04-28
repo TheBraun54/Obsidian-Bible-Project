@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The young lions do lack, and suffer hunger; But they that seek Jehovah shall not want any good thing.
+The young lions do lack, and suffer hunger, but those who seek Yahweh shall not lack any good thing.

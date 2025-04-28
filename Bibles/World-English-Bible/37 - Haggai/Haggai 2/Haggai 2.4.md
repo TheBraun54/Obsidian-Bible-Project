@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet now be strong, O Zerubbabel, saith Jehovah; and be strong, O Joshua, son of Jehozadak, the high priest; and be strong, all ye people of the land, saith Jehovah, and work: for I am with you, saith Jehovah of hosts,
+Yet now be strong, Zerubbabel,' says Yahweh. 'Be strong, Joshua, son of Jehozadak, the high priest. Be strong, all you people of the land,' says Yahweh, 'and work, for I am with you,' says Yahweh of Armies.

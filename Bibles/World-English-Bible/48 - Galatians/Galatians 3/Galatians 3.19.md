@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then is the law? It was added because of transgressions, till the seed should come to whom the promise hath been made; [and it was] ordained through angels by the hand of a mediator.
+What then is the law? It was added because of transgressions, until the seed should come to whom the promise has been made. It was ordained through angels by the hand of a mediator.

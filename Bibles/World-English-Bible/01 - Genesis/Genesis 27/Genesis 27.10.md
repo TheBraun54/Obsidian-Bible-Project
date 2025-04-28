@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt bring it to thy father, that he may eat, so that he may bless thee before his death.
+You shall bring it to your father, that he may eat, so that he may bless you before his death."

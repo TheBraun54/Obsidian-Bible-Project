@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make me to go in the path of thy commandments; For therein do I delight.
+Direct me in the path of your commandments, for I delight in them.

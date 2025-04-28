@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is easier for a camel to enter in through a needle's eye, than for a rich man to enter into the kingdom of God.
+For it is easier for a camel to enter in through a needle's eye, than for a rich man to enter into the Kingdom of God."

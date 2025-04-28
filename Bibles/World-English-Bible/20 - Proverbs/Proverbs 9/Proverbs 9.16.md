@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso is simple, let him turn in hither; And as for him that is void of understanding, she saith to him,
+"Whoever is simple, let him turn in here." as for him who is void of understanding, she says to him,

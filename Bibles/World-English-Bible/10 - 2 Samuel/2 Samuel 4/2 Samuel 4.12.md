@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David commanded his young men, and they slew them, and cut off their hands and their feet, and hanged them up beside the pool in Hebron. But they took the head of Ish-bosheth, and buried it in the grave of Abner in Hebron.
+David commanded his young men, and they killed them, and cut off their hands and their feet, and hanged them up beside the pool in Hebron. But they took the head of Ishbosheth, and buried it in the grave of Abner in Hebron.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even there shall thy hand lead me, And thy right hand shall hold me.
+Even there your hand will lead me, and your right hand will hold me.

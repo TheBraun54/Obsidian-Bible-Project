@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua rose up early in the morning, and brought Israel near by their tribes; and the tribe of Judah was taken:
+So Joshua rose up early in the morning and brought Israel near by their tribes. The tribe of Judah was selected.

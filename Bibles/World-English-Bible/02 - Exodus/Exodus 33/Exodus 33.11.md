@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses face to face, as a man speaketh unto his friend. And he turned again into the camp: but his minister Joshua, the son of Nun, a young man, departed not out of the Tent.
+Yahweh spoke to Moses face to face, as a man speaks to his friend. He turned again into the camp, but his servant Joshua, the son of Nun, a young man, didn't depart out of the Tent.

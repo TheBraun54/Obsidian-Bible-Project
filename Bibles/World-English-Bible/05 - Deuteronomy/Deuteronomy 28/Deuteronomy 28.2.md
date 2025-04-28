@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all these blessings shall come upon thee, and overtake thee, if thou shalt hearken unto the voice of Jehovah thy God.
+and all these blessings shall come on you, and overtake you, if you shall listen to the voice of Yahweh your God.

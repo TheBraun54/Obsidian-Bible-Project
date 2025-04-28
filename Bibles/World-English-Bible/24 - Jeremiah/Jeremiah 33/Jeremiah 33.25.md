@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: If my covenant of day and night [stand] not, if I have not appointed the ordinances of heaven and earth;
+Thus says Yahweh: If my covenant of day and night fails, if I have not appointed the ordinances of heaven and earth;

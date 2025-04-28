@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the robe of the ephod all of blue.
+"You shall make the robe of the ephod all of blue.

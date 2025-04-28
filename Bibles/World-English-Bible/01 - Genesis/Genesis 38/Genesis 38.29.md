@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as he drew back his hand, that, behold, his brother came out: and she said, Wherefore hast thou made a breach for thyself? therefore his name was called Perez.
+It happened, as he drew back his hand, that behold, his brother came out, and she said, "Why have you made a breach for yourself?" Therefore his name was called Perez.

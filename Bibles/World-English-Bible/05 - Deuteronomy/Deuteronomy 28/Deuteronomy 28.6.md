@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed shalt thou be when thou comest in, and blessed shalt thou be when thou goest out.
+You shall be blessed when you come in, and you shall be blessed when you go out.

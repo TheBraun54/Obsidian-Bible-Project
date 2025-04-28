@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That commandeth the sun, and it riseth not, And sealeth up the stars;
+He commands the sun, and it doesn't rise, and seals up the stars.

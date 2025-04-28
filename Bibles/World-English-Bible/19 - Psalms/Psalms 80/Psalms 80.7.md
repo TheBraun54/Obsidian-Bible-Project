@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn us again, O God of hosts; And cause thy face to shine, and we shall be saved.
+Turn us again, God of Armies. Cause your face to shine, and we will be saved.

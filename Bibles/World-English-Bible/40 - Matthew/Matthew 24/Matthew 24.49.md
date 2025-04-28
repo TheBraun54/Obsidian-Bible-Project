@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall begin to beat his fellow-servants, and shall eat and drink with the drunken;
+and begins to beat his fellow servants, and eat and drink with the drunkards,

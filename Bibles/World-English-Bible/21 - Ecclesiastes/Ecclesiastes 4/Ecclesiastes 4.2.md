@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I praised the dead that have been long dead more than the living that are yet alive;
+Therefore I praised the dead who have been long dead more than the living who are yet alive.

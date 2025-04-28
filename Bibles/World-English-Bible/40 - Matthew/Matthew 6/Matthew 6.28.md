@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And why are ye anxious concerning raiment? Consider the lilies of the field, how they grow; they toil not, neither do they spin:
+Why are you anxious about clothing? Consider the lilies of the field, how they grow. They don't toil, neither do they spin,

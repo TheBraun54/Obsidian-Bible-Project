@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto him, Thus saith Jephthah: Israel took not away the land of Moab, nor the land of the children of Ammon,
+and he said to him, "Thus says Jephthah: Israel didn't take away the land of Moab, nor the land of the children of Ammon,

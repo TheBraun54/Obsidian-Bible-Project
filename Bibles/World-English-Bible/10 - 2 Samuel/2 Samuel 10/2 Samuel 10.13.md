@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joab and the people that were with him drew nigh unto the battle against the Syrians: and they fled before him.
+So Joab and the people who were with him drew near to the battle against the Syrians: and they fled before him.

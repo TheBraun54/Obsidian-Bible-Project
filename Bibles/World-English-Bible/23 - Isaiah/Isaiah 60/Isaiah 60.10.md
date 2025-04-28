@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And foreigners shall build up thy walls, and their kings shall minister unto thee: for in my wrath I smote thee, but in my favor have I had mercy on thee.
+"Foreigners shall build up your walls, and their kings shall minister to you: for in my wrath I struck you, but in my favor have I had mercy on you.

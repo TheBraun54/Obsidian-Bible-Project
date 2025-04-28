@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a woman approach unto any beast, and lie down thereto, thou shalt kill the woman, and the beast: they shall surely be put to death; their blood shall be upon them.
+"'If a woman approaches any animal, and lies down with it, you shall kill the woman, and the animal: they shall surely be put to death; their blood shall be upon them.

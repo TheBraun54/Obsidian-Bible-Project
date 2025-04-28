@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he charged them that they should take nothing for [their] journey, save a staff only; no bread, no wallet, no money in their purse;
+He commanded them that they should take nothing for their journey, except a staff only: no bread, no wallet, no money in their purse,

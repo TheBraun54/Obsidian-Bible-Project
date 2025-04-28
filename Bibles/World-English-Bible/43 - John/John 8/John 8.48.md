@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews answered and said unto him, Say we not well that thou art a Samaritan, and hast a demon?
+Then the Jews answered him, "Don't we say well that you are a Samaritan, and have a demon?"

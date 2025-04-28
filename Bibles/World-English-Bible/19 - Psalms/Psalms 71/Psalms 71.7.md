@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am as a wonder unto many; But thou art my strong refuge.
+I am a marvel to many, but you are my strong refuge.

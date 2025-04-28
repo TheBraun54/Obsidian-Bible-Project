@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-why saidst thou, She is my sister, so that I took her to be my wife? now therefore behold thy wife, take her, and go thy way.
+Why did you say, 'She is my sister,' so that I took her to be my wife? Now therefore, see your wife, take her, and go your way."

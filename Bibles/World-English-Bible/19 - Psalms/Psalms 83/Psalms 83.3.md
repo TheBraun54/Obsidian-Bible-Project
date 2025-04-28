@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy take crafty counsel against thy people, And consult together against thy hidden ones.
+They conspire with cunning against your people. They plot against your cherished ones.

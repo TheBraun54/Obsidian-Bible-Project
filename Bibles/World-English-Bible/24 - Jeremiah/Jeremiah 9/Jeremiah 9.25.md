@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the days come, saith Jehovah, that I will punish all them that are circumcised in [their] uncircumcision:
+Behold, the days come, says Yahweh, that I will punish all those who are circumcised in [their] uncircumcision:

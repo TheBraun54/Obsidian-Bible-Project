@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus rebuked him, saying, Hold thy peace, and come out of him. And when the demon had thrown him down in the midst, he came out of him, having done him no hurt.
+Jesus rebuked him, saying, "Be silent, and come out of him!" When the demon had thrown him down in their midst, he came out of him, having done him no harm.

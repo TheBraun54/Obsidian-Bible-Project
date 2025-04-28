@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For her wounds are incurable; for it is come even unto Judah; it reacheth unto the gate of my people, even to Jerusalem.
+For her wounds are incurable; for it has come even to Judah. It reaches to the gate of my people, even to Jerusalem.

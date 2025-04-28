@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh give thanks unto Jehovah; For he is good; For his lovingkindness [endureth] for ever.
+Give thanks to Yahweh, for he is good; for his loving kindness endures forever.

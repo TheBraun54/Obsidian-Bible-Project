@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the messenger that went to call Micaiah spake to him, saying, Behold, the words of the prophets [declare] good to the king with one mouth: let thy word therefore, I pray thee, be like one of theirs, and speak thou good.
+The messenger who went to call Micaiah spoke to him, saying, "Behold, the words of the prophets [declare] good to the king with one mouth. Let your word therefore, please be like one of theirs, and speak good."

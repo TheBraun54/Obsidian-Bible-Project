@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sit thou silent, and get thee into darkness, O daughter of the Chaldeans; for thou shalt no more be called The mistress of kingdoms.
+"Sit in silence, and go into darkness, daughter of the Chaldeans; for you shall no more be called the mistress of kingdoms.

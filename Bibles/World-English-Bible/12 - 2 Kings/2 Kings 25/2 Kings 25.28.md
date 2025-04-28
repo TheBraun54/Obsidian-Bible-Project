@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he spake kindly to him, and set his throne above the throne of the kings that were with him in Babylon,
+and he spoke kindly to him, and set his throne above the throne of the kings who were with him in Babylon,

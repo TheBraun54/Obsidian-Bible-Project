@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he say thus, It is well; thy servant shall have peace: but if he be wroth, then know that evil is determined by him.
+If he says, 'It is well;' your servant shall have peace: but if he be angry, then know that evil is determined by him.

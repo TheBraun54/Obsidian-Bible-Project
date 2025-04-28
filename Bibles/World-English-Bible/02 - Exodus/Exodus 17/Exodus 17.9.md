@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Joshua, Choose us out men, and go out, fight with Amalek: to-morrow I will stand on the top of the hill with the rod of God in my hand.
+Moses said to Joshua, "Choose men for us, and go out, fight with Amalek. Tomorrow I will stand on the top of the hill with God's rod in my hand."

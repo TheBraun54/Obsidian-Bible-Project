@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A false witness shall not be unpunished; And he that uttereth lies shall not escape.
+A false witness shall not be unpunished. He who pours out lies shall not go free.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that say, [The time] is not near to build houses: this [city] is the caldron, and we are the flesh.
+who say, [The time] is not near to build houses: this [city] is the caldron, and we are the flesh.

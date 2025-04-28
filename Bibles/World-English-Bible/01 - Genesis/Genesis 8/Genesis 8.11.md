@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the dove came in to him at eventide; and, lo, in her mouth an olive-leaf plucked off: so Noah knew that the waters were abated from off the earth.
+The dove came back to him at evening, and, behold, in her mouth was an olive leaf plucked off. So Noah knew that the waters were abated from the earth.

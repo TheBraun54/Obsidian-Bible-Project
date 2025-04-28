@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Faithful are the wounds of a friend; But the kisses of an enemy are profuse.
+Faithful are the wounds of a friend; although the kisses of an enemy are profuse.

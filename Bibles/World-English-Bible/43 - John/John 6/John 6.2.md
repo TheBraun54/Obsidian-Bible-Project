@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a great multitude followed him, because they beheld the signs which he did on them that were sick.
+A great multitude followed him, because they saw his signs which he did on those who were sick.

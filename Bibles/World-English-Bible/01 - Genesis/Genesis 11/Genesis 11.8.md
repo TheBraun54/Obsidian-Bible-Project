@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah scattered them abroad from thence upon the face of all the earth: and they left off building the city.
+So Yahweh scattered them abroad from there on the surface of all the earth. They stopped building the city.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All thy fortresses shall be [like] fig-trees with the first-ripe figs: if they be shaken, they fall into the mouth of the eater.
+All your fortresses will be like fig trees with the first-ripe figs: if they are shaken, they fall into the mouth of the eater.

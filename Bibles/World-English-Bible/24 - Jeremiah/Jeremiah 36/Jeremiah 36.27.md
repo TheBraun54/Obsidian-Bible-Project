@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the word of Jehovah came to Jeremiah, after that the king had burned the roll, and the words which Baruch wrote at the mouth of Jeremiah, saying,
+Then the word of Yahweh came to Jeremiah, after that the king had burned the scroll, and the words which Baruch wrote at the mouth of Jeremiah, saying,

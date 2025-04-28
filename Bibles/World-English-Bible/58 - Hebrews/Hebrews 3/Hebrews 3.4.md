@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every house is builded by some one; but he that built all things is God.
+For every house is built by someone; but he who built all things is God.

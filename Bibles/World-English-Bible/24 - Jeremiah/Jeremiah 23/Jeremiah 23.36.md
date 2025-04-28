@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the burden of Jehovah shall ye mention no more: for every man's own word shall be his burden; for ye have perverted the words of the living God, of Jehovah of hosts our God.
+You shall mention the burden of Yahweh no more: for every man's own word shall be his burden; for you have perverted the words of the living God, of Yahweh of Armies our God.

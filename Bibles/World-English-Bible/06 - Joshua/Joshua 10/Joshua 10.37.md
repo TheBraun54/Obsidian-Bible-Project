@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they took it, and smote it with the edge of the sword, and the king thereof, and all the cities thereof, and all the souls that were therein; he left none remaining, according to all that he had done to Eglon; but he utterly destroyed it, and all the souls that were therein.
+They took it, and struck it with the edge of the sword, with its king and all its cities, and all the souls who were in it. He left none remaining, according to all that he had done to Eglon; but he utterly destroyed it, and all the souls who were in it.

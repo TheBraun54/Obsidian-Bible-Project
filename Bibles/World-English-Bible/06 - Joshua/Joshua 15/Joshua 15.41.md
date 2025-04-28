@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Gederoth, Beth-dagon, and Naamah, and Makkedah; sixteen cities with their villages.
+Gederoth, Beth Dagon, Naamah, and Makkedah; sixteen cities with their villages.

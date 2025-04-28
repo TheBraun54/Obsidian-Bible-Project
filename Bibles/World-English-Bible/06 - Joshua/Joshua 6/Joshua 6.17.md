@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the city shall be devoted, even it and all that is therein, to Jehovah: only Rahab the harlot shall live, she and all that are with her in the house, because she hid the messengers that we sent.
+The city shall be devoted, even it and all that is in it, to Yahweh. Only Rahab the prostitute shall live, she and all who are with her in the house, because she hid the messengers that we sent.

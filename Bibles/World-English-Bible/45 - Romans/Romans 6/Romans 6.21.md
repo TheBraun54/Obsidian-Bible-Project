@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What fruit then had ye at that time in the things whereof ye are now ashamed? for the end of those things is death.
+What fruit then did you have at that time in the things of which you are now ashamed? For the end of those things is death.

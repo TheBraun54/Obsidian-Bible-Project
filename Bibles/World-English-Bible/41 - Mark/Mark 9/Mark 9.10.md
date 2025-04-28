@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they kept the saying, questioning among themselves what the rising again from the dead should mean.
+They kept this saying to themselves, questioning what the "rising from the dead" meant.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when all the captains of the forces that were in the fields, even they and their men, heard that the king of Babylon had made Gedaliah the son of Ahikam governor in the land, and had committed unto him men, and women, and children, and of the poorest of the land, of them that were not carried away captive to Babylon;
+Now when all the captains of the forces who were in the fields, even they and their men, heard that the king of Babylon had made Gedaliah the son of Ahikam governor in the land, and had committed to him men, and women, and children, and of the poorest of the land, of those who were not carried away captive to Babylon;

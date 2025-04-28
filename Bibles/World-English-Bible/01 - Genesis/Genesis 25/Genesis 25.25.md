@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the first came forth red, all over like a hairy garment; and they called his name Esau.
+The first came out red all over, like a hairy garment. They named him Esau.

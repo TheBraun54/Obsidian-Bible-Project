@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And turning to the woman, he said unto Simon, Seest thou this woman? I entered into thy house, thou gavest me no water for my feet: but she hath wetted my feet with her tears, and wiped them with her hair.
+Turning to the woman, he said to Simon, "Do you see this woman? I entered into your house, and you gave me no water for my feet, but she has wet my feet with her tears, and wiped them with the hair of her head.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the time [is come] for judgment to begin at the house of God: and if [it begin] first at us, what [shall be] the end of them that obey not the gospel of God?
+For the time has come for judgment to begin with the household of God. If it begins first with us, what will happen to those who don't obey the Good News of God?

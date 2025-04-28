@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let your speech be, Yea, yea; Nay, nay: and whatsoever is more than these is of the evil [one] .
+But let your 'Yes' be 'Yes' and your 'No' be 'No.' Whatever is more than these is of the evil one.

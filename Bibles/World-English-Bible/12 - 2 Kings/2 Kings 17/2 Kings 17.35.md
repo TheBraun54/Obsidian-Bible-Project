@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with whom Jehovah had made a covenant, and charged them, saying, Ye shall not fear other gods, nor bow yourselves to them, nor serve them, nor sacrifice to them:
+with whom Yahweh had made a covenant, and commanded them, saying, "You shall not fear other gods, nor bow yourselves to them, nor serve them, nor sacrifice to them;

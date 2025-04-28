@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Zaccai, seven hundred and threescore.
+The children of Zaccai, seven hundred sixty.

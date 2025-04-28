@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And say ye to Amasa, Art thou not my bone and my flesh? God do so to me, and more also, if thou be not captain of the host before me continually in the room of Joab.
+Say to Amasa, 'Aren't you my bone and my flesh? God do so to me, and more also, if you aren't captain of the army before me continually in the room of Joab.'"

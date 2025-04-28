@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king David said, Call to me Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada. And they came before the king.
+King David said, "Call to me Zadok the priest, Nathan the prophet, and Benaiah the son of Jehoiada." They came before the king.

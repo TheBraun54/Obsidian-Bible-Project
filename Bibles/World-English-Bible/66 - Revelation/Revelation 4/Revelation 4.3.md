@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he that sat [was] to look upon like a jasper stone and a sardius: and [there was] a rainbow round about the throne, like an emerald to look upon.
+that looked like a jasper stone and a sardius. There was a rainbow around the throne, like an emerald to look at.

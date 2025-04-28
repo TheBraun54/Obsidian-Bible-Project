@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And even as Jannes and Jambres withstood Moses, so do these also withstand the truth. Men corrupted in mind, reprobate concerning the faith.
+Even as Jannes and Jambres opposed Moses, so do these also oppose the truth; men corrupted in mind, who concerning the faith, are rejected.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Judah that bare shield and spear were six thousand and eight hundred, armed for war.
+The children of Judah who bore shield and spear were six thousand and eight hundred, armed for war.

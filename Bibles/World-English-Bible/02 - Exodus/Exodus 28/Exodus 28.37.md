@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put it on a lace of blue, and it shall be upon the mitre; upon the forefront of the mitre it shall be.
+You shall put it on a lace of blue, and it shall be on the sash; on the front of the sash it shall be.

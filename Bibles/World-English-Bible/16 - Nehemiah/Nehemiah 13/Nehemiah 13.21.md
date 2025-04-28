@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I testified against them, and said unto them, Why lodge ye about the wall? if ye do so again, I will lay hands on you. From that time forth came they no more on the sabbath.
+Then I testified against them, and said to them, "Why do you stay around the wall? If you do so again, I will lay hands on you." From that time on, they didn't come on the Sabbath.

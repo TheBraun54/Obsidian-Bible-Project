@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God blessed the seventh day, and hallowed it; because that in it he rested from all his work which God had created and made.
+God blessed the seventh day, and made it holy, because he rested in it from all his work which he had created and made.

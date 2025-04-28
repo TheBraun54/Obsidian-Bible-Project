@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Gad, at the south side southward, the border shall be even from Tamar unto the waters of Meribath-kadesh, to the brook [of Egypt], unto the great sea.
+By the border of Gad, at the south side southward, the border shall be even from Tamar to the waters of Meribath Kadesh, to the brook [of Egypt], to the great sea.

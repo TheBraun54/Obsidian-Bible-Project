@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A little leaven leaveneth the whole lump.
+A little yeast grows through the whole lump.

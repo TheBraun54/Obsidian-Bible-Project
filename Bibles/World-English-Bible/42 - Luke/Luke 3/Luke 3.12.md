@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came also publicans to be baptized, and they said unto him, Teacher, what must we do?
+Tax collectors also came to be baptized, and they said to him, "Teacher, what must we do?"

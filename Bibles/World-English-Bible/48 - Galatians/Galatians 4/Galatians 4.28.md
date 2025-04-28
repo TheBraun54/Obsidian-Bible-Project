@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now we, brethren, as Isaac was, are children of promise.
+Now we, brothers, as Isaac was, are children of promise.

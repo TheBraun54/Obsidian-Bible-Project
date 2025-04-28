@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the floor of the house he overlaid with gold, within and without.
+The floor of the house he overlaid with gold, inside and outside.

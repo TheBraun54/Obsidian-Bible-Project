@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jephthah gathered together all the men of Gilead, and fought with Ephraim; and the men of Gilead smote Ephraim, because they said, Ye are fugitives of Ephraim, ye Gileadites, in the midst of Ephraim, [and] in the midst of Manasseh.
+Then Jephthah gathered together all the men of Gilead, and fought with Ephraim; and the men of Gilead struck Ephraim, because they said, "You are fugitives of Ephraim, you Gileadites, in the midst of Ephraim, [and] in the midst of Manasseh."

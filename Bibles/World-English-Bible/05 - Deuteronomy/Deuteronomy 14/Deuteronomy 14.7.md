@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless these ye shall not eat of them that chew the cud, or of them that have the hoof cloven: the camel, and the hare, and the coney; because they chew the cud but part not the hoof, they are unclean unto you.
+Nevertheless these you shall not eat of them that chew the cud, or of those who have the hoof cloven: the camel, and the hare, and the rabbit; because they chew the cud but don't part the hoof, they are unclean to you.

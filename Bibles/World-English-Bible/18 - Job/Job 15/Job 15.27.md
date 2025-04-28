@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he hath covered his face with his fatness, And gathered fat upon his loins;
+because he has covered his face with his fatness, and gathered fat on his thighs.

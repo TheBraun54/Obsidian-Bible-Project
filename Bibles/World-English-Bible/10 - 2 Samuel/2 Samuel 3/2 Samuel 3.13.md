@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Well; I will make a league with thee; but one thing I require of thee: that is, thou shalt not see my face, except thou first bring Michal, Saul's daughter, when thou comest to see my face.
+He said, "Good; I will make a treaty with you; but one thing I require of you. That is, you shall not see my face, unless you first bring Michal, Saul's daughter, when you come to see my face."

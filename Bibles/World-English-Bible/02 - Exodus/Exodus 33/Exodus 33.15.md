@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, If thy presence go not [with me], carry us not up hence.
+He said to him, "If your presence doesn't go with me, don't carry us up from here.

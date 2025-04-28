@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return, ye backsliding children, I will heal your backslidings. Behold, we are come unto thee; for thou art Jehovah our God.
+Return, you backsliding children, I will heal your backsliding. "Behold, we have come to you; for you are Yahweh our God.

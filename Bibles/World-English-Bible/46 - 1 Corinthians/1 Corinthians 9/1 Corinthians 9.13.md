@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know ye not that they that minister about sacred things eat [of] the things of the temple, [and] they that wait upon the altar have their portion with the altar?
+Don't you know that those who serve around sacred things eat from the things of the temple, and those who wait on the altar have their portion with the altar?

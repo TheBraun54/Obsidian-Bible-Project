@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let the righteous be glad; let them exult before God: Yea, let them rejoice with gladness.
+But let the righteous be glad. Let them rejoice before God. Yes, let them rejoice with gladness.

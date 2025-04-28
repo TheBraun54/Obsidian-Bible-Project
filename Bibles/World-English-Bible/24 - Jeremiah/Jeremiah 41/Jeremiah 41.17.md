@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they departed, and dwelt in Geruth Chimham, which is by Beth-lehem, to go to enter into Egypt,
+and they departed, and lived in Geruth Chimham, which is by Bethlehem, to go to enter into Egypt,

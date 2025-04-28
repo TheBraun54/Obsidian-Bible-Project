@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be on the bed, or on anything whereon she sitteth, when he toucheth it, he shall be unclean until the even.
+If it is on the bed, or on anything whereon she sits, when he touches it, he shall be unclean until the evening.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that smote the peoples in wrath with a continual stroke, that ruled the nations in anger, with a persecution that none restrained.
+who struck the peoples in wrath with a continual stroke, who ruled the nations in anger, with a persecution that none restrained.

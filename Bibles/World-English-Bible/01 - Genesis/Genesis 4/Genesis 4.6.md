@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Cain, Why art thou wroth? and why is thy countenance fallen?
+Yahweh said to Cain, "Why are you angry? Why has the expression of your face fallen?

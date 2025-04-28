@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The backslider in heart shall be filled with his own ways; And a good man [shall be satisfied] from himself.
+The unfaithful will be repaid for his own ways; likewise a good man will be rewarded for his ways.

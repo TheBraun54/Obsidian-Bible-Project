@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses in mount Sinai, saying,
+Yahweh said to Moses in Mount Sinai,

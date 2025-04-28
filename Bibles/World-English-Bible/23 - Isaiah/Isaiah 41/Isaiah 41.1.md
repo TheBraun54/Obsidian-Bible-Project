@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep silence before me, O islands; and let the peoples renew their strength: let them come near; then let them speak; let us come near together to judgment.
+"Keep silent before me, islands, and let the peoples renew their strength. Let them come near, then let them speak. Let's meet together for judgment.

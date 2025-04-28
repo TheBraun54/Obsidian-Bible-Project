@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was accused by the chief priests and elders, he answered nothing.
+When he was accused by the chief priests and elders, he answered nothing.

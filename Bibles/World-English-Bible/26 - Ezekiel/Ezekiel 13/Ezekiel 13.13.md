@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: I will even rend it with a stormy wind in my wrath; and there shall be an overflowing shower in mine anger, and great hailstones in wrath to consume it.
+Therefore thus says the Lord Yahweh: I will even tear it with a stormy wind in my wrath; and there shall be an overflowing shower in my anger, and great hailstones in wrath to consume it.

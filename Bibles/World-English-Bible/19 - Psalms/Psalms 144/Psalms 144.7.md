@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stretch forth thy hand from above; Rescue me, and deliver me out of great waters, Out of the hand of aliens;
+Stretch out your hand from above, rescue me, and deliver me out of great waters, out of the hands of foreigners;

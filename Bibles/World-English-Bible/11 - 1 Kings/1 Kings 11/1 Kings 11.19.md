@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hadad found great favor in the sight of Pharaoh, so that he gave him to wife the sister of his own wife, the sister of Tahpenes the queen.
+Hadad found great favor in the sight of Pharaoh, so that he gave him as wife the sister of his own wife, the sister of Tahpenes the queen.

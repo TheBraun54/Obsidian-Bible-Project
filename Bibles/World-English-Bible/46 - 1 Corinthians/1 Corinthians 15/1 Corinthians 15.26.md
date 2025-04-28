@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The last enemy that shall be abolished is death.
+The last enemy that will be abolished is death.

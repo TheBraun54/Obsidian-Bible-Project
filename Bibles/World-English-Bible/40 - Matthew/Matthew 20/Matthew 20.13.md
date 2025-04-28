@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said to one of them, Friend, I do thee no wrong: didst not thou agree with me for a shilling?
+"But he answered one of them, 'Friend, I am doing you no wrong. Didn't you agree with me for a denarius?

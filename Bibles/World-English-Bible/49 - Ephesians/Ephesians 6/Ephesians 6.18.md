@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with all prayer and supplication praying at all seasons in the Spirit, and watching thereunto in all perseverance and supplication for all the saints,
+with all prayer and requests, praying at all times in the Spirit, and being watchful to this end in all perseverance and requests for all the saints:

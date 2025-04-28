@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ah sinful nation, a people laden with iniquity, a seed of evil-doers, children that deal corruptly! they have forsaken Jehovah, they have despised the Holy One of Israel, they are estranged [and gone] backward.
+Ah sinful nation, a people loaded with iniquity, a seed of evildoers, children who deal corruptly! They have forsaken Yahweh. They have despised the Holy One of Israel. They are estranged and backward.

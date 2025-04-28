@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am poor and needy, And my heart is wounded within me.
+for I am poor and needy. My heart is wounded within me.

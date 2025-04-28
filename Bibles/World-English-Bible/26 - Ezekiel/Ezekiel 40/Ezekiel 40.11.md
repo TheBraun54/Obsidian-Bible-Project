@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he measured the breadth of the opening of the gate, ten cubits; and the length of the gate, thirteen cubits;
+He measured the breadth of the opening of the gate, ten cubits; and the length of the gate, thirteen cubits;

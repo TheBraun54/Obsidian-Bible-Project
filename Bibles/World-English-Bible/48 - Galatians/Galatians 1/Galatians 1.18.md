@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then after three years I went up to Jerusalem to visit Cephas, and tarried with him fifteen days.
+Then after three years I went up to Jerusalem to visit Peter, and stayed with him fifteen days.

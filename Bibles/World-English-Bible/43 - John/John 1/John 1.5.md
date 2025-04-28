@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the light shineth in the darkness; and the darkness apprehended it not.
+The light shines in the darkness, and the darkness hasn't overcome it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahaz begat Jehoaddah; and Jehoaddah begat Alemeth, and Azmaveth, and Zimri; and Zimri begat Moza.
+Ahaz became the father of Jehoaddah; and Jehoaddah became the father of Alemeth, and Azmaveth, and Zimri; and Zimri became the father of Moza.

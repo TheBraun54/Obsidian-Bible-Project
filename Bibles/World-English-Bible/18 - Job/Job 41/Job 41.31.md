@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh the deep to boil like a pot: He maketh the sea like a pot of ointment.
+He makes the deep to boil like a pot. He makes the sea like a pot of ointment.

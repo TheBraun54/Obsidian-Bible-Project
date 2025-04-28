@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heart of the righteous studieth to answer; But the mouth of the wicked poureth out evil things.
+The heart of the righteous weighs answers, but the mouth of the wicked gushes out evil.

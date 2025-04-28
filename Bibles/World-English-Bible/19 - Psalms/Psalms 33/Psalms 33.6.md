@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the word of Jehovah were the heavens made, And all the host of them by the breath of his mouth.
+By Yahweh's word, the heavens were made; all their army by the breath of his mouth.

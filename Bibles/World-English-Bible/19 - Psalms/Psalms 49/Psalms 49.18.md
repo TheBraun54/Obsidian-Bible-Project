@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though while he lived he blessed his soul (And men praise thee, when thou doest well to thyself,)
+Though while he lived he blessed his soul-- and men praise you when you do well for yourself--

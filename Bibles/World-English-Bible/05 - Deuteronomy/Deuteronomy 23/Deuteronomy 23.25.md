@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou comest into thy neighbor's standing grain, then thou mayest pluck the ears with thy hand; but thou shalt not move a sickle unto thy neighbor's standing grain.
+When you come into your neighbor's standing grain, then you may pluck the ears with your hand; but you shall not move a sickle to your neighbor's standing grain.

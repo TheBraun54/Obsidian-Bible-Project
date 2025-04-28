@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from the wicked their light is withholden, And the high arm is broken.
+From the wicked, their light is withheld. The high arm is broken.

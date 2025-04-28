@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but given to hospitality, a lover of good, sober-minded, just, holy, self-controlled;
+but given to hospitality, a lover of good, sober minded, fair, holy, self-controlled;

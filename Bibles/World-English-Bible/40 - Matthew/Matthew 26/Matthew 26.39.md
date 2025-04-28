@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went forward a little, and fell on his face, and prayed, saying, My Father, if it be possible, let this cup pass away from me: nevertheless, not as I will, but as thou wilt.
+He went forward a little, fell on his face, and prayed, saying, "My Father, if it is possible, let this cup pass away from me; nevertheless, not what I desire, but what you desire."

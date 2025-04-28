@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath lifted up the horn of his people, The praise of all his saints; Even of the children of Israel, a people near unto him. Praise ye Jehovah.
+He has lifted up the horn of his people, the praise of all his saints; even of the children of Israel, a people near to him. Praise Yah!

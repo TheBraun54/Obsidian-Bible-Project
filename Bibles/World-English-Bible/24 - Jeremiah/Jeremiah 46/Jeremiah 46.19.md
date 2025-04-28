@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou daughter that dwellest in Egypt, furnish thyself to go into captivity; for Memphis shall become a desolation, and shall be burnt up, without inhabitant.
+You daughter who dwells in Egypt, furnish yourself to go into captivity; for Memphis shall become a desolation, and shall be burnt up, without inhabitant.

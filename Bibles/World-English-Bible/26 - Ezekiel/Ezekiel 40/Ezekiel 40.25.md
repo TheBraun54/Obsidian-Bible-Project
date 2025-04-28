@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were windows in it and in the arches thereof round about, like those windows: the length was fifty cubits, and the breadth five and twenty cubits.
+There were windows in it and in its arches all around, like those windows: the length was fifty cubits, and the breadth twenty-five cubits.

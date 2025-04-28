@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nebuchadnezzar also carried of the vessels of the house of Jehovah to Babylon, and put them in his temple at Babylon.
+Nebuchadnezzar also carried of the vessels of the house of Yahweh to Babylon, and put them in his temple at Babylon.

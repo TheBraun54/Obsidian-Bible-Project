@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this was done thrice: and all were drawn up again into heaven.
+This was done three times, and all were drawn up again into heaven.

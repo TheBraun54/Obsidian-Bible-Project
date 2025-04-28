@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, We piped unto you, and ye did not dance; we wailed, and ye did not mourn.
+and say, 'We played the flute for you, and you didn't dance. We mourned for you, and you didn't lament.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Cabbon, and Lahmam, and Chitlish,
+Cabbon, Lahmam, Chitlish,

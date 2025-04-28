@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will cut off thy graven images and thy pillars out of the midst of thee; and thou shalt no more worship the work of thy hands;
+I will cut off your engraved images and your pillars out of your midst; and you shall no more worship the work of your hands.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of the sons of Korah; a Song]. His foundation is in the holy mountains.
+His foundation is in the holy mountains.

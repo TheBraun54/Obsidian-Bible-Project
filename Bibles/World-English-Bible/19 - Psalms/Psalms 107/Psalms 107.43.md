@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso is wise will give heed to these things; And they will consider the lovingkindnesses of Jehovah.
+Whoever is wise will pay attention to these things. They will consider the loving kindnesses of Yahweh. A Song. A Psalm by David.

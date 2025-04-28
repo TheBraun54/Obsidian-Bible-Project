@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if they do that which is evil in my sight, that they obey not my voice, then I will repent of the good, wherewith I said I would benefit them.
+if they do that which is evil in my sight, that they not obey my voice, then I will repent of the good, with which I said I would benefit them.

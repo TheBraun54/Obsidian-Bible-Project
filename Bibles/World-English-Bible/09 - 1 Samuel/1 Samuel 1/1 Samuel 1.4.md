@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the day came that Elkanah sacrificed, he gave to Peninnah his wife, and to all her sons and her daughters, portions:
+When the day came that Elkanah sacrificed, he gave to Peninnah his wife, and to all her sons and her daughters, portions:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said, Some one did touch me; for I perceived that power had gone forth from me.
+But Jesus said, "Someone did touch me, for I perceived that power has gone out of me."

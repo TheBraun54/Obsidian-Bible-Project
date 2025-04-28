@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear not therefore: ye are of more value than many sparrows.
+Therefore don't be afraid. You are of more value than many sparrows.

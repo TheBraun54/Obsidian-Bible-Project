@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will not suffer me to take my breath, But filleth me with bitterness.
+He will not allow me to catch my breath, but fills me with bitterness.

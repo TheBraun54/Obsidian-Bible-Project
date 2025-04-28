@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if that which passeth away [was] with glory, much more that which remaineth [is] in glory.
+For if that which passes away was with glory, much more that which remains is in glory.

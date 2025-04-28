@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore rejoice, O heavens, and ye that dwell in them. Woe for the earth and for the sea: because the devil is gone down unto you, having great wrath, knowing that he hath but a short time. [
+Therefore rejoice, heavens, and you who dwell in them. Woe to the earth and to the sea, because the devil has gone down to you, having great wrath, knowing that he has but a short time."

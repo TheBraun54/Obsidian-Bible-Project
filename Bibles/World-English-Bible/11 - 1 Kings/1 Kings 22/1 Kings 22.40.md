@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Ahab slept with his fathers; and Ahaziah his son reigned in his stead.
+So Ahab slept with his fathers; and Ahaziah his son reigned in his place.

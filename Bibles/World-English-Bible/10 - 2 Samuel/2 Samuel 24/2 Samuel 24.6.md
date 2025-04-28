@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then they came to Gilead, and to the land of Tahtim-hodshi; and they came to Dan-jaan, and round about to Sidon,
+then they came to Gilead, and to the land of Tahtim Hodshi; and they came to Dan Jaan, and around to Sidon,

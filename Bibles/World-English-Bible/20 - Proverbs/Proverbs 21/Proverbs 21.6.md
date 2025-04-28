@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The getting of treasures by a lying tongue Is a vapor driven to and fro by them that seek death.
+Getting treasures by a lying tongue is a fleeting vapor for those who seek death.

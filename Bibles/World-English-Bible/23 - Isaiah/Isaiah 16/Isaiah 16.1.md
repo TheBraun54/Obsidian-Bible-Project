@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Send ye the lambs for the ruler of the land from Selah to the wilderness, unto the mount of the daughter of Zion.
+Send the lambs for the ruler of the land from Selah to the wilderness, to the mountain of the daughter of Zion.

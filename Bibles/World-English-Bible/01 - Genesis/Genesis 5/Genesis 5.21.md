@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Enoch lived sixty and five years, and begat Methuselah:
+Enoch lived sixty-five years, and became the father of Methuselah.

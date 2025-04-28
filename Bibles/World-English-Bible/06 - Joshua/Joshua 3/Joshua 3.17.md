@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests that bare the ark of the covenant of Jehovah stood firm on dry ground in the midst of the Jordan; and all Israel passed over on dry ground, until all the nation were passed clean over the Jordan.
+The priests who bore the ark of the covenant of Yahweh stood firm on dry ground in the middle of the Jordan; and all Israel passed over on dry ground, until all the nation had passed completely over the Jordan.

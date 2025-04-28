@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cast for it four rings of gold, and put the rings in the four corners that were on the four feet thereof.
+He cast four rings of gold for it, and put the rings in the four corners that were on its four feet.

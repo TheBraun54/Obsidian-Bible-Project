@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the stars shall be falling from heaven, and the powers that are in the heavens shall be shaken.
+the stars will be falling from the sky, and the powers that are in the heavens will be shaken.

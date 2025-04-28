@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king of Israel called an officer, and said, Fetch quickly Micaiah the son of Imla.
+Then the king of Israel called an officer, and said, "Get Micaiah the son of Imla quickly."

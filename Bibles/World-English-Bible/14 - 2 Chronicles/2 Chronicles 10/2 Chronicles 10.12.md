@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jeroboam and all the people came to Rehoboam the third day, as the king bade, saying, Come to me again the third day.
+So Jeroboam and all the people came to Rehoboam the third day, as the king asked, saying, "Come to me again the third day."

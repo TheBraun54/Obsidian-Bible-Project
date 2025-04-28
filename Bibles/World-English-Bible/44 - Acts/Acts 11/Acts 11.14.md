@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who shall speak unto thee words, whereby thou shalt be saved, thou and all thy house.
+who will speak to you words by which you will be saved, you and all your house.'

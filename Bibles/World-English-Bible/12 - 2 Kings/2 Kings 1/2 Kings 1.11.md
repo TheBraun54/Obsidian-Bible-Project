@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he sent unto him another captain of fifty and his fifty. And he answered and said unto him, O man of God, thus hath the king said, Come down quickly.
+Again he sent to him another captain of fifty and his fifty. He answered him, "Man of God, the king has said, 'Come down quickly!'"

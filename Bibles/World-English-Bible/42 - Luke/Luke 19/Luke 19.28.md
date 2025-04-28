@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had thus spoken, he went on before, going up to Jerusalem.
+Having said these things, he went on ahead, going up to Jerusalem.

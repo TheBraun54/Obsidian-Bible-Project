@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah said, God hath endowed me with a good dowry; now will my husband dwell with me, because I have borne him six sons: and she called his name Zebulun.
+Leah said, "God has endowed me with a good dowry. Now my husband will live with me, because I have borne him six sons." She named him Zebulun.

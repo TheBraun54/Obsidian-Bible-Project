@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him also, Be thou also over five cities.
+"So he said to him, 'And you are to be over five cities.'

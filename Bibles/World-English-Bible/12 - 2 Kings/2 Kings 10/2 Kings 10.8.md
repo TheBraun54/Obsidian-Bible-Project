@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came a messenger, and told him, saying, They have brought the heads of the king's sons. And he said, Lay ye them in two heaps at the entrance of the gate until the morning.
+A messenger came, and told him, "They have brought the heads of the king's sons." He said, "Lay them in two heaps at the entrance of the gate until the morning."

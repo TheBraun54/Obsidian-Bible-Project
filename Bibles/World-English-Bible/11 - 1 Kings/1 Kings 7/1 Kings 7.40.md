@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hiram made the lavers, and the shovels, and the basins. So Hiram made an end of doing all the work that he wrought for king Solomon in the house of Jehovah:
+Hiram made the basins, and the shovels, and the basins. So Hiram made an end of doing all the work that he worked for king Solomon in the house of Yahweh:

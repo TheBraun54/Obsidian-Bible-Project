@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they prophesy a lie unto you, to remove you far from your land, and that I should drive you out, and ye should perish.
+for they prophesy a lie to you, to remove you far from your land, and that I should drive you out, and you should perish.

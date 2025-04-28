@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have made thee small among the nations: thou art greatly despised.
+Behold, I have made you small among the nations. You are greatly despised.

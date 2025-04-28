@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every beast that parteth the hoof, and hath the hoof cloven in two, [and] cheweth the cud, among the beasts, that may ye eat.
+Every animal that parts the hoof, and has the hoof cloven in two, [and] chews the cud, among the animals, that may you eat.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a highway shall be there, and a way, and it shall be called The way of holiness; the unclean shall not pass over it; but is shall be for [the redeemed] : the wayfaring men, yea fools, shall not err [therein] .
+A highway will be there, a road, and it will be called The Holy Way. The unclean shall not pass over it, but it will be for those who walk in the Way. Wicked fools will not go there.

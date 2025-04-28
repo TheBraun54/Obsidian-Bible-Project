@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Prayer of Moses the man of God]. Lord, thou hast been our dwelling-place In all generations.
+Lord, you have been our dwelling place for all generations.

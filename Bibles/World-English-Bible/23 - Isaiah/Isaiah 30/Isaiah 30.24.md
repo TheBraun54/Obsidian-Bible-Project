@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the oxen likewise and the young asses that till the ground shall eat savory provender, which hath been winnowed with the shovel and with the fork.
+The oxen likewise and the young donkeys that till the ground will eat savory provender, which has been winnowed with the shovel and with the fork.

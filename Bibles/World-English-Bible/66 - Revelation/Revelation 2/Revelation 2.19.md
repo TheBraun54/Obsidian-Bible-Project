@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know thy works, and thy love and faith and ministry and patience, and that thy last works are more than the first.
+"I know your works, your love, faith, service, patient endurance, and that your last works are more than the first.

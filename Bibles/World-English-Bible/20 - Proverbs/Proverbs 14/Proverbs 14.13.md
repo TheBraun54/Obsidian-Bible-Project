@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even in laughter the heart is sorrowful; And the end of mirth is heaviness.
+Even in laughter the heart may be sorrowful, and mirth may end in heaviness.

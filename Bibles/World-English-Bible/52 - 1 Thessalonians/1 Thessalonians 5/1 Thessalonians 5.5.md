@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for ye are all sons of light, and sons of the day: we are not of the night, nor of darkness;
+You are all children of light, and children of the day. We don't belong to the night, nor to darkness,

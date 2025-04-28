@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said unto them, I also will ask you a question; and tell me:
+He answered them, "I also will ask you one question. Tell me:

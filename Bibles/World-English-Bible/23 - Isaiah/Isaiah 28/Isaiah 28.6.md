@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a spirit of justice to him that sitteth in judgment, and strength to them that turn back the battle at the gate.
+and a spirit of justice to him who sits in judgment, and strength to those who turn back the battle at the gate.

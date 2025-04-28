@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto this day, whensoever Moses is read, a veil lieth upon their heart.
+But to this day, when Moses is read, a veil lies on their heart.

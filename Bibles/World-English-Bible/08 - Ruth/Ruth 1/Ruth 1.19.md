@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they two went until they came to Beth-lehem. And it came to pass, when they were come to Beth-lehem, that all the city was moved about them, and [the women] said, Is this Naomi?
+So they two went until they came to Bethlehem. It happened, when they were come to Bethlehem, that all the city was moved about them, and [the women] said, "Is this Naomi?"

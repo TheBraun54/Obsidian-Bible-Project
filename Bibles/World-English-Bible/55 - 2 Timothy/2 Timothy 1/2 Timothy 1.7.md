@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God gave us not a spirit of fearfulness; but of power and love and discipline.
+For God didn't give us a spirit of fear, but of power, love, and self-control.

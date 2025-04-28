@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wise in heart will receive commandments; But a prating fool shall fall.
+The wise in heart accept commandments, but a chattering fool will fall.

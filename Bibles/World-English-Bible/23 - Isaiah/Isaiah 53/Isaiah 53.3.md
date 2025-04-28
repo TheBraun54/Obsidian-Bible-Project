@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He was despised, and rejected of men; a man of sorrows, and acquainted with grief: and as one from whom men hide their face he was despised; and we esteemed him not.
+He was despised, and rejected by men; a man of suffering, and acquainted with disease. He was despised as one from whom men hide their face; and we didn't respect him.

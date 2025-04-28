@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so as to preach the gospel even unto the parts beyond you, [and] not to glory in another's province in regard of things ready to our hand.
+so as to preach the Good News even to the parts beyond you, not to boast in what someone else has already done.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one therefore who shall confess me before men, him will I also confess before my Father who is in heaven.
+Everyone therefore who confesses me before men, him I will also confess before my Father who is in heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he revealeth the deep and secret things; he knoweth what is in the darkness, and the light dwelleth with him.
+he reveals the deep and secret things; he knows what is in the darkness, and the light dwells with him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These ten times have ye reproached me: Ye are not ashamed that ye deal hardly with me.
+You have reproached me ten times. You aren't ashamed that you attack me.

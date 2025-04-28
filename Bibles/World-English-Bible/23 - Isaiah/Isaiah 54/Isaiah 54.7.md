@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a small moment have I forsaken thee; but with great mercies will I gather thee.
+"For a small moment have I forsaken you; but with great mercies will I gather you.

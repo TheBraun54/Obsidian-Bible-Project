@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Vow, and pay unto Jehovah your God: Let all that are round about him bring presents unto him that ought to be feared.
+Make vows to Yahweh your God, and fulfill them! Let all of his neighbors bring presents to him who is to be feared.

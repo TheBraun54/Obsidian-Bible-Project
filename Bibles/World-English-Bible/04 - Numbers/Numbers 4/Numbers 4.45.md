@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they that were numbered of the families of the sons of Merari, whom Moses and Aaron numbered according to the commandment of Jehovah by Moses.
+These are those who were numbered of the families of the sons of Merari, whom Moses and Aaron numbered according to the commandment of Yahweh by Moses.

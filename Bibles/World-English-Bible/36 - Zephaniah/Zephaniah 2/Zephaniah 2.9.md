@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore as I live, saith Jehovah of hosts, the God of Israel, Surely Moab shall be as Sodom, and the children of Ammon as Gomorrah, a possession of nettles, and saltpits, and a perpetual desolation: the residue of my people shall make a prey of them, and the remnant of my nation shall inherit them.
+Therefore as I live, says Yahweh of Armies, the God of Israel, surely Moab will be as Sodom, and the children of Ammon as Gomorrah, a possession of nettles, and salt pits, and a perpetual desolation. The remnant of my people will plunder them, and the survivors of my nation will inherit them.

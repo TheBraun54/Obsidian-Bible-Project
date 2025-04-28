@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth silver shall not be satisfied with silver; nor he that loveth abundance, with increase: this also is vanity.
+He who loves silver shall not be satisfied with silver; nor he who loves abundance, with increase: this also is vanity.

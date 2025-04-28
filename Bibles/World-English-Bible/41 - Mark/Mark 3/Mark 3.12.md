@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged them much that they should not make him known.
+He sternly warned them that they should not make him known.

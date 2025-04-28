@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and were all baptized unto Moses in the cloud and in the sea;
+and were all baptized into Moses in the cloud and in the sea;

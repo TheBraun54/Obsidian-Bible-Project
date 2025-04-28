@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of Jacob shall one have dominion, And shall destroy the remnant from the city.
+Out of Jacob shall one have dominion, and shall destroy the remnant from the city."

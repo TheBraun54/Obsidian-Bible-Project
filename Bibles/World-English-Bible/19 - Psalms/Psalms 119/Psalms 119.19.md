@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am a sojourner in the earth: Hide not thy commandments from me.
+I am a stranger on the earth. Don't hide your commandments from me.

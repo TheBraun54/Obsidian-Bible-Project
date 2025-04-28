@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus cleansed I them from all foreigners, and appointed charges for the priests and for the Levites, every one in his work;
+Thus I cleansed them from all foreigners, and appointed duties for the priests and for the Levites, everyone in his work;

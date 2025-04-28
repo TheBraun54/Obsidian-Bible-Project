@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not wrest the justice [due] to the sojourner, [or] to the fatherless, nor take the widow's raiment to pledge;
+You shall not wrest the justice [due] to the foreigner, [or] to the fatherless, nor take the widow's clothing to pledge;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will therefore chastise him, and release him.
+I will therefore chastise him and release him."

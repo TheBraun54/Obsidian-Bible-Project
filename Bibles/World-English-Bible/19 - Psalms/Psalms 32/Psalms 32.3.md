@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I kept silence, my bones wasted away Through my groaning all the day long.
+When I kept silence, my bones wasted away through my groaning all day long.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In him was life; and the life was the light of men.
+In him was life, and the life was the light of men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall offer no strange incense thereon, nor burnt-offering, nor meal-offering; and ye shall pour no drink-offering thereon.
+You shall offer no strange incense on it, nor burnt offering, nor meal offering; and you shall pour no drink offering on it.

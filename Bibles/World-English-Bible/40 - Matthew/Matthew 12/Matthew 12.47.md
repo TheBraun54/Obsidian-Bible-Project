@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one said unto him, Behold, thy mother and thy brethren stand without, seeking to speak to thee.
+One said to him, "Behold, your mother and your brothers stand outside, seeking to speak to you."

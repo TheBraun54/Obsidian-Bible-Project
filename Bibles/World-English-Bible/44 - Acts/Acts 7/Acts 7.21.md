@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when he was cast out, Pharaoh's daughter took him up, and nourished him for her own son.
+When he was thrown out, Pharaoh's daughter took him up, and reared him as her own son.

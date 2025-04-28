@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ and that] the whole land thereof is brimstone, and salt, [and] a burning, [that] it is not sown, nor beareth, nor any grass groweth therein, like the overthrow of Sodom and Gomorrah, Admah and Zeboiim, which Jehovah overthrew in his anger, and in his wrath:
+[and that] the whole land of it is sulfur, and salt, [and] a burning, [that] it is not sown, nor bears, nor any grass grows therein, like the overthrow of Sodom and Gomorrah, Admah and Zeboiim, which Yahweh overthrew in his anger, and in his wrath:

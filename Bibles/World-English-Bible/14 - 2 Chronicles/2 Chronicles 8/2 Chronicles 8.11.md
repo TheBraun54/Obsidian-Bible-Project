@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon brought up the daughter of Pharaoh out of the city of David unto the house that he had built for her; for he said, My wife shall not dwell in the house of David king of Israel, because the places are holy, whereunto the ark of Jehovah hath come.
+Solomon brought up the daughter of Pharaoh out of the city of David to the house that he had built for her; for he said, "My wife shall not dwell in the house of David king of Israel, because the places where the ark of Yahweh has come are holy."

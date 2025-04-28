@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Midianites and the Amalekites and all the children of the east lay along in the valley like locusts for multitude; and their camels were without number, as the sand which is upon the sea-shore for multitude.
+The Midianites and the Amalekites and all the children of the east lay along in the valley like locusts for multitude; and their camels were without number, as the sand which is on the seashore for multitude.

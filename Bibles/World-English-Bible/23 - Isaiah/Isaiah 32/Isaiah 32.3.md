@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the eyes of them that see shall not be dim, and the ears of them that hear shall hearken.
+The eyes of those who see will not be dim, and the ears of those who hear will listen.

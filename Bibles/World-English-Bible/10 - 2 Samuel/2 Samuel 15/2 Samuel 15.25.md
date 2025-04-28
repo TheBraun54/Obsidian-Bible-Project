@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Zadok, Carry back the ark of God into the city: if I shall find favor in the eyes of Jehovah, he will bring me again, and show me both it, and his habitation:
+The king said to Zadok, "Carry back the ark of God into the city. If I find favor in the eyes of Yahweh, he will bring me again, and show me both it, and his habitation;

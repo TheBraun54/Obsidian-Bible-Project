@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man rose up to depart; but his father-in-law urged him, and he lodged there again.
+The man rose up to depart; but his father-in-law urged him, and he lodged there again.

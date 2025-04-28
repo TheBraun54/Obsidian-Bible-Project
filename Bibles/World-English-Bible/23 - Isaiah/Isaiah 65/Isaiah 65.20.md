@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall be no more thence an infant of days, nor an old man that hath not filled his days; for the child shall die a hundred years old, and the sinner being a hundred years old shall be accursed.
+"There shall be no more there an infant of days, nor an old man who has not filled his days; for the child shall die one hundred years old, and the sinner being one hundred years old shall be accursed.

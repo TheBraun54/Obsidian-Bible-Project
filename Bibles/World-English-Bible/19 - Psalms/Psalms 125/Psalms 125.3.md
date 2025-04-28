@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the sceptre of wickedness shall not rest upon the lot of the righteous; That the righteous put not forth their hands unto iniquity.
+For the scepter of wickedness won't remain over the allotment of the righteous; so that the righteous won't use their hands to do evil.

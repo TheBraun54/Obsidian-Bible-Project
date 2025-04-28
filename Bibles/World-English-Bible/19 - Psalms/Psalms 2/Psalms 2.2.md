@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The kings of the earth set themselves, And the rulers take counsel together, Against Jehovah, and against his anointed, [saying] ,
+The kings of the earth take a stand, and the rulers take counsel together, against Yahweh, and against his Anointed, saying,

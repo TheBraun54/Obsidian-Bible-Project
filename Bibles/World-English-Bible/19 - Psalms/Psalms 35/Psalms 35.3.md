@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Draw out also the spear, and stop the way against them that pursue me: Say unto my soul, I am thy salvation.
+Brandish the spear and block those who pursue me. Tell my soul, "I am your salvation."

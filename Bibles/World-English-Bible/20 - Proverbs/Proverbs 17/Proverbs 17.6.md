@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Children's children are the crown of old men; And the glory of children are their fathers.
+Children's children are the crown of old men; the glory of children are their parents.

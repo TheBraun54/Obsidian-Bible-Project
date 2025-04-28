@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came a cloud overshadowing them: and there came a voice out of the cloud, This is my beloved Son: hear ye him.
+A cloud came, overshadowing them, and a voice came out of the cloud, "This is my beloved Son. Listen to him."

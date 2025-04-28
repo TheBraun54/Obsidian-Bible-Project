@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long will ye set upon a man, That ye may slay [him], all of you, Like a leaning wall, like a tottering fence?
+How long will you assault a man, would all of you throw him down, Like a leaning wall, like a tottering fence?

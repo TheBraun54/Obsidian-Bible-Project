@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause ye pay tribute also; for they are ministers of God's service, attending continually upon this very thing.
+For this reason you also pay taxes, for they are servants of God's service, attending continually on this very thing.

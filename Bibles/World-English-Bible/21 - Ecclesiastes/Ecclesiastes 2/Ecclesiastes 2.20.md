@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I turned about to cause my heart to despair concerning all the labor wherein I had labored under the sun.
+Therefore I began to cause my heart to despair concerning all the labor in which I had labored under the sun.

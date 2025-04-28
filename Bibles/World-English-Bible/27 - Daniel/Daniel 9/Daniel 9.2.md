@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in the first year of his reign I, Daniel, understood by the books the number of the years whereof the word of Jehovah came to Jeremiah the prophet, for the accomplishing of the desolations of Jerusalem, even seventy years.
+in the first year of his reign I, Daniel, understood by the books the number of the years about which the word of Yahweh came to Jeremiah the prophet, for the accomplishing of the desolations of Jerusalem, even seventy years.

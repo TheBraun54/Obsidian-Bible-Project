@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She layeth her hands to the distaff, And her hands hold the spindle.
+She lays her hands to the distaff, and her hands hold the spindle.

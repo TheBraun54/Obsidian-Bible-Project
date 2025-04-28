@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zechariah the son of Meshelemiah was porter of the door of the tent of meeting.
+Zechariah the son of Meshelemiah was porter of the door of the Tent of Meeting.

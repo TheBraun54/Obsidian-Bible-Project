@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their possessions and habitations were Beth-el and the towns thereof, and eastward Naaran, and westward Gezer, with the towns thereof; Shechem also and the towns thereof, unto Azzah and the towns thereof;
+Their possessions and habitations were Bethel and its towns, and eastward Naaran, and westward Gezer, with its towns; Shechem also and its towns, to Azzah and its towns;

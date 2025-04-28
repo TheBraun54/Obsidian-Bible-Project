@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun and moon stood still in their habitation, At the light of thine arrows as they went, At the shining of thy glittering spear.
+The sun and moon stood still in the sky, at the light of your arrows as they went, at the shining of your glittering spear.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul refuseth to touch [them] ; They are as loathsome food to me.
+My soul refuses to touch them. They are as loathsome food to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall not his majesty make you afraid, And his dread fall upon you?
+Shall not his majesty make you afraid, And his dread fall on you?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not eat one day, nor two days, nor five days, neither ten days, nor twenty days,
+You will not eat one day, nor two days, nor five days, neither ten days, nor twenty days,

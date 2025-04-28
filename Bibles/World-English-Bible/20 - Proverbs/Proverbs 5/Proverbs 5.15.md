@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Drink waters out of thine own cistern, And running waters out of thine own well.
+Drink water out of your own cistern, running water out of your own well.

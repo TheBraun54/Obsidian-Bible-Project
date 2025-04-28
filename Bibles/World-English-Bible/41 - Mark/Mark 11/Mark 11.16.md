@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he would not suffer that any man should carry a vessel through the temple.
+He would not allow anyone to carry a container through the temple.

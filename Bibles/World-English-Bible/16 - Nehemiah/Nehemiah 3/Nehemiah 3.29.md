@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After them repaired Zadok the son of Immer over against his own house. And after him repaired Shemaiah the son of Shecaniah, the keeper of the east gate.
+After them repaired Zadok the son of Immer over against his own house. After him repaired Shemaiah the son of Shecaniah, the keeper of the east gate.

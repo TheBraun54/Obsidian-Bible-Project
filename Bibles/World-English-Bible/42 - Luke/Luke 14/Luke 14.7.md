@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake a parable unto those that were bidden, when he marked how they chose out the chief seats; saying unto them,
+He spoke a parable to those who were invited, when he noticed how they chose the best seats, and said to them,

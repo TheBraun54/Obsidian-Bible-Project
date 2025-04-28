@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am ready to fall, And my sorrow is continually before me.
+For I am ready to fall. My pain is continually before me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah did not set his love upon you, nor choose you, because ye were more in number than any people; for ye were the fewest of all peoples:
+Yahweh didn't set his love on you, nor choose you, because you were more in number than any people; for you were the fewest of all peoples:

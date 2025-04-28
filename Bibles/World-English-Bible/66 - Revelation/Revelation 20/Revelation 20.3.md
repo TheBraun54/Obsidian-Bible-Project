@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and cast him into the abyss, and shut [it], and sealed [it] over him, that he should deceive the nations no more, until the thousand years should be finished: after this he must be loosed for a little time.
+and cast him into the abyss, and shut it, and sealed it over him, that he should deceive the nations no more, until the thousand years were finished. After this, he must be freed for a short time.

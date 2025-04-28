@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And before I had done speaking in my heart, behold, Rebekah came forth with her pitcher on her shoulder; and she went down unto the fountain, and drew: and I said unto her, Let me drink, I pray thee.
+Before I had finished speaking in my heart, behold, Rebekah came forth with her pitcher on her shoulder. She went down to the spring, and drew. I said to her, 'Please let me drink.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When evil-doers came upon me to eat up my flesh, [Even] mine adversaries and my foes, they stumbled and fell.
+When evildoers came at me to eat up my flesh, even my adversaries and my foes, they stumbled and fell.

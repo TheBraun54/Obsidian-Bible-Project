@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man's work shall be burned, he shall suffer loss: but he himself shall be saved; yet so as through fire.
+If any man's work is burned, he will suffer loss, but he himself will be saved, but as through fire.

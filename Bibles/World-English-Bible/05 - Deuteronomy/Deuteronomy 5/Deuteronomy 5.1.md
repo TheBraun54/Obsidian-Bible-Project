@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses called unto all Israel, and said unto them, Hear, O Israel, the statutes and the ordinances which I speak in your ears this day, that ye may learn them, and observe to do them.
+Moses called to all Israel, and said to them, Hear, Israel, the statutes and the ordinances which I speak in your ears this day, that you may learn them, and observe to do them.

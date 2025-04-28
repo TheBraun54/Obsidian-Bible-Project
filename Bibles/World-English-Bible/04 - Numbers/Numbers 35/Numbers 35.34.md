@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not defile the land which ye inhabit, in the midst of which I dwell: for I, Jehovah, dwell in the midst of the children of Israel.
+You shall not defile the land which you inhabit, in the midst of which I dwell: for I, Yahweh, dwell in the midst of the children of Israel.'"

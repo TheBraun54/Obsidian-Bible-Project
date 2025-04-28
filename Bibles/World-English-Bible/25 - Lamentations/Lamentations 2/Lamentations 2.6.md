@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath violently taken away his tabernacle, as if it were of a garden; he hath destroyed his place of assembly: Jehovah hath caused solemn assembly and sabbath to be forgotten in Zion, And hath despised in the indignation of his anger the king and the priest.
+He has violently taken away his tabernacle, as if it were of a garden; he has destroyed his place of assembly: Yahweh has caused solemn assembly and Sabbath to be forgotten in Zion, Has despised in the indignation of his anger the king and the priest.

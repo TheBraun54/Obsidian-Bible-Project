@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This also were an iniquity to be punished by the judges; For I should have denied the God that is above.
+this also would be an iniquity to be punished by the judges; for I should have denied the God who is above.

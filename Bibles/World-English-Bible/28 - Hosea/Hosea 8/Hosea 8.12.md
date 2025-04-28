@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I wrote for him the ten thousand things of my law; but they are counted as a strange thing.
+I wrote for him the many things of my law; but they were regarded as a strange thing.

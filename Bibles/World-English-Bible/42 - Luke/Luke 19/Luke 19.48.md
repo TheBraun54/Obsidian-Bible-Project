@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they could not find what they might do; for the people all hung upon him, listening.
+They couldn't find what they might do, for all the people hung on to every word that he said.

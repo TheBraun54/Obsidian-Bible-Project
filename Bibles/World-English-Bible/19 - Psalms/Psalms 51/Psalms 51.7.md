@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Purify me with hyssop, and I shall be clean: Wash me, and I shall be whiter than snow.
+Purify me with hyssop, and I will be clean. Wash me, and I will be whiter than snow.

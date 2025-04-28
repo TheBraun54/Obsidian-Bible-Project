@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto her, Go, call thy husband, and come hither.
+Jesus said to her, "Go, call your husband, and come here."

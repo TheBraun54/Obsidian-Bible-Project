@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Multitudes, multitudes in the valley of decision! for the day of Jehovah is near in the valley of decision.
+Multitudes, multitudes in the valley of decision! For the day of Yahweh is near, in the valley of decision.

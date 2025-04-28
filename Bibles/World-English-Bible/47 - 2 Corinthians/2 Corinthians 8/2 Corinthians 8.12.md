@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the readiness is there, [it is] acceptable according as [a man] hath, not according as [he] hath not.
+For if the readiness is there, it is acceptable according to what you have, not according to what you don't have.

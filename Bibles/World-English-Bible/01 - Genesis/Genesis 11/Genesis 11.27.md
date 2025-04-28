@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the generations of Terah. Terah begat Abram, Nahor, and Haran; and Haran begat Lot.
+Now this is the history of the generations of Terah. Terah became the father of Abram, Nahor, and Haran. Haran became the father of Lot.

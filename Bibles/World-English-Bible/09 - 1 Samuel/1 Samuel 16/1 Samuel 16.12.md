@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent, and brought him in. Now he was ruddy, and withal of a beautiful countenance, and goodly to look upon. And Jehovah said, Arise, anoint him; for this is he.
+He sent, and brought him in. Now he was ruddy, and withal of a beautiful face, and goodly to look on. Yahweh said, "Arise, anoint him; for this is he."

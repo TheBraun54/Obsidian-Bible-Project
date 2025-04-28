@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After my words they spake not again; And my speech distilled upon them.
+After my words they didn't speak again. My speech fell on them.

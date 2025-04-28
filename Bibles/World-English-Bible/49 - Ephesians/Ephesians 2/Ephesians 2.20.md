@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being built upon the foundation of the apostles and prophets, Christ Jesus himself being the chief corner stone;
+being built on the foundation of the apostles and prophets, Christ Jesus himself being the chief cornerstone;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The thief cometh not, but that he may steal, and kill, and destroy: I came that they may have life, and may have [it] abundantly.
+The thief only comes to steal, kill, and destroy. I came that they may have life, and may have it abundantly.

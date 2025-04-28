@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain man was there, who had been thirty and eight years in his infirmity.
+A certain man was there, who had been sick for thirty-eight years.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Take thee a great tablet, and write upon it with the pen of a man, For Maher-shalal-hash-baz;
+Yahweh said to me, "Take a large tablet, and write on it with a man's pen, 'For Maher Shalal Hash Baz;'

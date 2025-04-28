@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto him, How went the matter? I pray thee, tell me. And he answered, The people are fled from the battle, and many of the people also are fallen and dead; and Saul and Jonathan his son are dead also.
+David said to him, "How did it go? Please tell me." He answered, "The people have fled from the battle, and many of the people also have fallen and are dead; and Saul and Jonathan his son are dead also."

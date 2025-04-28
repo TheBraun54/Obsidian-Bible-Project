@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass the same night, that Jehovah said unto him, Take thy father's bullock, even the second bullock seven years old, and throw down the altar of Baal that thy father hath, and cut down the Asherah that is by it;
+It happened the same night, that Yahweh said to him, "Take your father's bull, even the second bull seven years old, and throw down the altar of Baal that your father has, and cut down the Asherah that is by it;

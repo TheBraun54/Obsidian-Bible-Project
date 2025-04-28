@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all this, O king, doth Araunah give unto the king. And Araunah said unto the king, Jehovah thy God accept thee.
+all this, king, does Araunah give to the king." Araunah said to the king, "May Yahweh your God accept you."

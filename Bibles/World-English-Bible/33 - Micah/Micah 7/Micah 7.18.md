@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is a God like unto thee, that pardoneth iniquity, and passeth over the transgression of the remnant of his heritage? he retaineth not his anger for ever, because he delighteth in lovingkindness.
+Who is a God like you, who pardons iniquity, and passes over the disobedience of the remnant of his heritage? He doesn't retain his anger forever, because he delights in loving kindness.

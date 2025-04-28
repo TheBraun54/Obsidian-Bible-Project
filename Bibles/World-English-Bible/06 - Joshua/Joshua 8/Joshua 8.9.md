@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua sent them forth; and they went to the ambushment, and abode between Beth-el and Ai, on the west side of Ai: but Joshua lodged that night among the people.
+Joshua sent them out; and they went to set up the ambush, and stayed between Bethel and Ai, on the west side of Ai; but Joshua stayed among the people that night.

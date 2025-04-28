@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told him, Thy mother and thy brethren stand without, desiring to see thee.
+It was told him by some saying, "Your mother and your brothers stand outside, desiring to see you."

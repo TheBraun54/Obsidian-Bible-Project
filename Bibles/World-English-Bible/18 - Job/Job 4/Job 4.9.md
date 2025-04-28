@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the breath of God they perish, And by the blast of his anger are they consumed.
+By the breath of God they perish. By the blast of his anger are they consumed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mark ye well her bulwarks; Consider her palaces: That ye may tell it to the generation following.
+Mark well her bulwarks. Consider her palaces, that you may tell it to the next generation.

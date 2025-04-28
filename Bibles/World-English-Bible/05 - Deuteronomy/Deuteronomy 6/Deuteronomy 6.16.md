@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not tempt Jehovah your God, as ye tempted him in Massah.
+You shall not tempt Yahweh your God, as you tempted him in Massah.

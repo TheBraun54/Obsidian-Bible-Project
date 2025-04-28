@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, walk through the land in the length of it and in the breadth of it; for unto thee will I give it.
+Arise, walk through the land in its length and in its breadth; for I will give it to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses was a hundred and twenty years old when he died: his eye was not dim, nor his natural force abated.
+Moses was one hundred twenty years old when he died: his eye was not dim, nor his natural force abated.

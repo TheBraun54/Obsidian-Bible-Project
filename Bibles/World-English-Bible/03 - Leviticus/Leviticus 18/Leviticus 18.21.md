@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not give any of thy seed to make them pass through [the fire] to Molech; neither shalt thou profane the name of thy God: I am Jehovah.
+"'You shall not give any of your children to sacrifice to Molech; neither shall you profane the name of your God: I am Yahweh.

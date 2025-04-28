@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall he that offereth his oblation offer unto Jehovah a meal-offering of a tenth part [of an ephah] of fine flour mingled with the fourth part of a hin of oil:
+then he who offers his offering shall offer to Yahweh a meal offering of a tenth part [of an ephah] of fine flour mixed with the fourth part of a hin of oil:

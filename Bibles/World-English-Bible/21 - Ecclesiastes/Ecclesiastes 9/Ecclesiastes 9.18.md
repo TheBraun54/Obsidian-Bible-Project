@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom is better than weapons of war; but one sinner destroyeth much good.
+Wisdom is better than weapons of war; but one sinner destroys much good.

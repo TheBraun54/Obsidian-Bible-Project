@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every living thing was destroyed that was upon the face of the ground, both man, and cattle, and creeping things, and birds of the heavens; and they were destroyed from the earth: and Noah only was left, and they that were with him in the ark.
+Every living thing was destroyed that was on the surface of the ground, including man, livestock, creeping things, and birds of the sky. They were destroyed from the earth. Only Noah was left, and those who were with him in the ship.

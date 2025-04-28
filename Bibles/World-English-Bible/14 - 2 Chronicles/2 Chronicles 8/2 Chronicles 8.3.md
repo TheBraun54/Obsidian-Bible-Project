@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon went to Hamath-zobah, and prevailed against it.
+Solomon went to Hamath Zobah, and prevailed against it.

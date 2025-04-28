@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Mary was standing without at the tomb weeping: so, as she wept, she stooped and looked into the tomb;
+But Mary was standing outside at the tomb weeping. So, as she wept, she stooped and looked into the tomb,

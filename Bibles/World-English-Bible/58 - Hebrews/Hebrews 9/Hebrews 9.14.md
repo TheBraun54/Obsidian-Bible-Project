@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how much more shall the blood of Christ, who through the eternal Spirit offered himself without blemish unto God, cleanse your conscience from dead works to serve the living God?
+how much more will the blood of Christ, who through the eternal Spirit offered himself without blemish to God, cleanse your conscience from dead works to serve the living God?

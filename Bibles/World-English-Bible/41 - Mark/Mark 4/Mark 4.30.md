@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, How shall we liken the kingdom of God? or in what parable shall we set it forth?
+He said, "How will we liken the Kingdom of God? Or with what parable will we illustrate it?

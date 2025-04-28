@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast not thou cast us off, O God? And thou goest not forth, O God, with our hosts.
+Haven't you rejected us, God? You don't go forth, God, with our armies.

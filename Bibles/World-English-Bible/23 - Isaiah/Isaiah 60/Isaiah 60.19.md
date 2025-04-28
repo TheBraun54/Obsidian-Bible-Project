@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun shall be no more thy light by day; neither for brightness shall the moon give light unto thee: but Jehovah will be unto thee an everlasting light, and thy God thy glory.
+The sun shall be no more your light by day; neither for brightness shall the moon give light to you: but Yahweh will be to you an everlasting light, and your God your glory.

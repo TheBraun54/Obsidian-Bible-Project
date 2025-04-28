@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put into the ark the testimony which I shall give thee.
+You shall put the testimony which I shall give you into the ark.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will purge out from among you the rebels, and them that transgress against me; I will bring them forth out of the land where they sojourn, but they shall not enter into the land of Israel: and ye shall know that I am Jehovah.
+and I will purge out from among you the rebels, and those who disobey against me; I will bring them forth out of the land where they live, but they shall not enter into the land of Israel: and you shall know that I am Yahweh.

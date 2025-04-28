@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By these three plagues was the third part of men killed, by the fire and the smoke and the brimstone, which proceeded out of their mouths.
+By these three plagues were one third of mankind killed: by the fire, the smoke, and the sulfur, which proceeded out of their mouths.

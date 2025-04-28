@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he saw Jesus, he cried out, and fell down before him, and with a loud voice said, What have I to do with thee, Jesus, thou Son of the Most High God? I beseech thee, torment me not.
+When he saw Jesus, he cried out, and fell down before him, and with a loud voice said, "What do I have to do with you, Jesus, you Son of the Most High God? I beg you, don't torment me!"

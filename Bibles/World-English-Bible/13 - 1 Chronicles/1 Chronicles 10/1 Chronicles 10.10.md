@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put his armor in the house of their gods, and fastened his head in the house of Dagon.
+They put his armor in the house of their gods, and fastened his head in the house of Dagon.

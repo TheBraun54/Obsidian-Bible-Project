@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ As] a loving hind and a pleasant doe, Let her breasts satisfy thee at all times; And be thou ravished always with her love.
+A loving doe and a graceful deer-- let her breasts satisfy you at all times. Be captivated always with her love.

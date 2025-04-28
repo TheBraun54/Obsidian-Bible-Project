@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, O God, hast heard my vows: Thou hast given [me] the heritage of those that fear thy name.
+For you, God, have heard my vows. You have given me the heritage of those who fear your name.

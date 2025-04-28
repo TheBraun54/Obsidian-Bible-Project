@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if it beareth thorns and thistles, it is rejected and nigh unto a curse; whose end is to be burned.
+but if it bears thorns and thistles, it is rejected and near being cursed, whose end is to be burned.

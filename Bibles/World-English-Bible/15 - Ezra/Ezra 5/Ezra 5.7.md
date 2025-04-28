@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they sent a letter unto him, wherein was written thus: Unto Darius the king, all peace.
+they sent a letter to him, in which was written thus: To Darius the king, all peace.

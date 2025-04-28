@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even the jackals draw out the breast, they give suck to their young ones: The daughter of my people is become cruel, like the ostriches in the wilderness.
+Even the jackals draw out the breast, they nurse their young ones: The daughter of my people has become cruel, like the ostriches in the wilderness.

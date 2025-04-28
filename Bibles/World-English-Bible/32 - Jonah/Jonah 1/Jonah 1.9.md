@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, I am a Hebrew; and I fear Jehovah, the God of heaven, who hath made the sea and the dry land.
+He said to them, "I am a Hebrew, and I fear Yahweh, the God of heaven, who has made the sea and the dry land."

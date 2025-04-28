@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the children of Benjamin saw that they were smitten; for the men of Israel gave place to Benjamin, because they trusted unto the liers-in-wait whom they had set against Gibeah.
+So the children of Benjamin saw that they were struck; for the men of Israel gave place to Benjamin, because they trusted the ambushers whom they had set against Gibeah.

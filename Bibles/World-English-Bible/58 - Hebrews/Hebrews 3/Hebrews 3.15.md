@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-while it is said, To-day if ye shall hear his voice, Harden not your hearts, as in the provocation.
+while it is said, "Today if you will hear his voice, don't harden your hearts, as in the rebellion."

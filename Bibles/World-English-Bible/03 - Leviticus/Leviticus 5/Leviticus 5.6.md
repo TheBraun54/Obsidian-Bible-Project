@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall bring his trespass-offering unto Jehovah for his sin which he hath sinned, a female from the flock, a lamb or a goat, for a sin-offering; and the priest shall make atonement for him as concerning his sin.
+and he shall bring his trespass offering to Yahweh for his sin which he has sinned, a female from the flock, a lamb or a goat, for a sin offering; and the priest shall make atonement for him concerning his sin.

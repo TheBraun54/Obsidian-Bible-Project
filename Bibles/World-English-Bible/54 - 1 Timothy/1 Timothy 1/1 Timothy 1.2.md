@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto Timothy, my true child in faith: Grace, mercy, peace, from God the Father and Christ Jesus our Lord.
+to Timothy, my true child in faith: Grace, mercy, and peace, from God our Father and Christ Jesus our Lord.

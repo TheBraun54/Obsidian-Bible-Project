@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let the peace of Christ rule in your hearts, to the which also ye were called in one body; and be ye thankful.
+And let the peace of God rule in your hearts, to which also you were called in one body; and be thankful.

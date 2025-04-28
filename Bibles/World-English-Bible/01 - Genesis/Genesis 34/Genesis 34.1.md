@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Dinah the daughter of Leah, whom she bare unto Jacob, went out to see the daughters of the land.
+Dinah, the daughter of Leah, whom she bore to Jacob, went out to see the daughters of the land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hide me from the secret counsel of evil-doers, From the tumult of the workers of iniquity;
+Hide me from the conspiracy of the wicked, from the noisy crowd of the ones doing evil;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levite that is within thy gates, thou shalt not forsake him; for he hath no portion nor inheritance with thee.
+The Levite who is within your gates, you shall not forsake him; for he has no portion nor inheritance with you.

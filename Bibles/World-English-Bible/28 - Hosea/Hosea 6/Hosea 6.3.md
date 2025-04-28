@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let us know, let us follow on to know Jehovah: his going forth is sure as the morning; and he will come unto us as the rain, as the latter rain that watereth the earth.
+Let us acknowledge Yahweh. Let us press on to know Yahweh. As surely as the sun rises, Yahweh will appear. He will come to us like the rain, like the spring rain that waters the earth."

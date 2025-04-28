@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy neck is like the tower of ivory; Thine eyes [as] the pools in Heshbon, By the gate of Bath-rabbim; Thy nose is like the tower of Lebanon Which looketh toward Damascus.
+Your neck is like an ivory tower. Your eyes are like the pools in Heshbon by the gate of Bathrabbim. Your nose is like the tower of Lebanon which looks toward Damascus.

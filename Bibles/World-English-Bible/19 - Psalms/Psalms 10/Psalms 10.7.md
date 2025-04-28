@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His mouth is full of cursing and deceit and oppression: Under his tongue is mischief and iniquity.
+His mouth is full of cursing, deceit, and oppression. Under his tongue is mischief and iniquity.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehu the son of Hanani the seer went out to meet him, and said to king Jehoshaphat, Shouldest thou help the wicked, and love them that hate Jehovah? for this thing wrath is upon thee from before Jehovah.
+Jehu the son of Hanani the seer went out to meet him, and said to king Jehoshaphat, "Should you help the wicked, and love those who hate Yahweh? Because of this, wrath is on you from before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it was told Saul, he sent other messengers, and they also prophesied. And Saul sent messengers again the third time, and they also prophesied.
+When it was told Saul, he sent other messengers, and they also prophesied. Saul sent messengers again the third time, and they also prophesied.

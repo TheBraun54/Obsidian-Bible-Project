@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One man esteemeth one day above another: another esteemeth every day [alike] . Let each man be fully assured in his own mind.
+One man esteems one day as more important. Another esteems every day alike. Let each man be fully assured in his own mind.

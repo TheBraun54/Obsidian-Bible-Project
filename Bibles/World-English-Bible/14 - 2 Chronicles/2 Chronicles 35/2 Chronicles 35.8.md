@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his princes gave for a freewill-offering unto the people, to the priests, and to the Levites. Hilkiah and Zechariah and Jehiel, the rulers of the house of God, gave unto the priests for the passover-offerings two thousand and six hundred [small cattle], and three hundred oxen.
+His princes gave for a freewill offering to the people, to the priests, and to the Levites. Hilkiah and Zechariah and Jehiel, the rulers of the house of God, gave to the priests for the Passover offerings two thousand and six hundred [small livestock], and three hundred head of cattle.

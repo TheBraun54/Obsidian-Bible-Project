@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Depart ye, depart ye, go ye out from thence, touch no unclean thing; go ye out of the midst of her; cleanse yourselves, ye that bear the vessels of Jehovah.
+Depart, depart, go out from there, touch no unclean thing! Go out of the midst of her! Cleanse yourselves, you who bear the vessels of Yahweh.

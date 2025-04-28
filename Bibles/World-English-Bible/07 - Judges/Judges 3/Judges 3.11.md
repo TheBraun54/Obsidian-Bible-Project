@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the land had rest forty years. And Othniel the son of Kenaz died.
+The land had rest forty years. Othniel the son of Kenaz died.

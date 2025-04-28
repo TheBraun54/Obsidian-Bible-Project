@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he brought me out by the way of the gate northward, and led me round by the way without unto the outer gate, by the way of [the gate] that looketh toward the east; and, behold, there ran out waters on the right side.
+Then he brought me out by the way of the gate northward, and led me round by the way outside to the outer gate, by the way of [the gate] that looks toward the east; and behold, there ran out waters on the right side.

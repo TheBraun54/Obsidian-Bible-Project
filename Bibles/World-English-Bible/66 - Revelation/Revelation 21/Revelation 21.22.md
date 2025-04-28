@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw no temple therein: for the Lord God the Almighty, and the Lamb, are the temple thereof.
+I saw no temple in it, for the Lord God, the Almighty, and the Lamb, are its temple.

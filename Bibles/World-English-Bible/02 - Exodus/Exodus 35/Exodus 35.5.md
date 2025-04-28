@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye from among you an offering unto Jehovah; whosoever is of a willing heart, let him bring it, Jehovah's offering: gold, and silver, and brass,
+'Take from among you an offering to Yahweh. Whoever is of a willing heart, let him bring it, Yahweh's offering: gold, silver, brass,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thorns also and thistles shall it bring forth to thee; and thou shalt eat the herb of the field;
+Thorns also and thistles will it bring forth to you; and you will eat the herb of the field.

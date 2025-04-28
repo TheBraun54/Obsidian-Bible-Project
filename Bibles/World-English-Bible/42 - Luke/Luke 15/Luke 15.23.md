@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and bring the fatted calf, [and] kill it, and let us eat, and make merry:
+Bring the fattened calf, kill it, and let us eat, and celebrate;

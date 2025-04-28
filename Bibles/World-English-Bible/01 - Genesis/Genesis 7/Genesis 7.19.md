@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the waters prevailed exceedingly upon the earth; and all the high mountains that were under the whole heaven were covered.
+The waters prevailed exceedingly on the earth. All the high mountains that were under the whole sky were covered.

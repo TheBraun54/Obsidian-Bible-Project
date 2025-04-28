@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Song, a Psalm]. Make a joyful noise unto God, all the earth:
+Make a joyful shout to God, all the earth!

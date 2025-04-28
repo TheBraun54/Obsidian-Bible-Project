@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as she continued praying before Jehovah, that Eli marked her mouth.
+It happened, as she continued praying before Yahweh, that Eli saw her mouth.

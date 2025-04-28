@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief captain came and said unto him, Tell me, art thou a Roman? And he said, Yea.
+The commanding officer came and asked him, "Tell me, are you a Roman?" He said, "Yes."

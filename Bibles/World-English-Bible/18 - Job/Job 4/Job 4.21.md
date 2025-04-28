@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not their tent-cord plucked up within them? They die, and that without wisdom.
+Isn't their tent cord plucked up within them? They die, and that without wisdom.'

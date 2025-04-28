@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you, scribes and Pharisees, hypocrites! for ye compass sea and land to make one proselyte; and when he is become so, ye make him twofold more a son of hell than yourselves.
+Woe to you, scribes and Pharisees, hypocrites! For you travel around by sea and land to make one proselyte; and when he becomes one, you make him twice as much of a son of Gehenna as yourselves.

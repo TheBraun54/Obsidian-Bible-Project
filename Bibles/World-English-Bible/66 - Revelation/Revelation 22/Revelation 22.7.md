@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, I come quickly. Blessed is he that keepeth the words of the prophecy of this book.
+"Behold, I come quickly. Blessed is he who keeps the words of the prophecy of this book."

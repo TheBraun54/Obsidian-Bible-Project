@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it by thy wisdom that the hawk soareth, (And) stretcheth her wings toward the south?
+"Is it by your wisdom that the hawk soars, and stretches her wings toward the south?

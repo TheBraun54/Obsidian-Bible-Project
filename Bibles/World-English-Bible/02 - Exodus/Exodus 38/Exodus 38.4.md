@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made for the altar a grating of network of brass, under the ledge round it beneath, reaching halfway up.
+He made for the altar a grating of a network of brass, under the ledge around it beneath, reaching halfway up.

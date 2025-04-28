@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Ahab went up to eat and to drink. And Elijah went up to the top of Carmel; and he bowed himself down upon the earth, and put his face between his knees.
+So Ahab went up to eat and to drink. Elijah went up to the top of Carmel; and he bowed himself down on the earth, and put his face between his knees.

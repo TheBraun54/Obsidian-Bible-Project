@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the inheritance of the children of Gad according to their families, the cities and the villages thereof.
+This is the inheritance of the children of Gad according to their families, the cities and its villages.

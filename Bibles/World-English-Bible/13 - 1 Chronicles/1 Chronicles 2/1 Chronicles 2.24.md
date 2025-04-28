@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after that Hezron was dead in Caleb-ephrathah, then Abijah Hezron's wife bare him Ashhur the father of Tekoa.
+After that Hezron was dead in Caleb Ephrathah, then Abijah Hezron's wife bore him Ashhur the father of Tekoa.

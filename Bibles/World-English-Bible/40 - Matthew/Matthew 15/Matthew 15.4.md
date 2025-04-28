@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God said, Honor thy father and thy mother: and, He that speaketh evil of father or mother, let him die the death.
+For God commanded, 'Honor your father and your mother,' and, 'He who speaks evil of father or mother, let him be put to death.'

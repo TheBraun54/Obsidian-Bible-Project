@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto whom alone the land was given, And no stranger passed among them):
+to whom alone the land was given, and no stranger passed among them):

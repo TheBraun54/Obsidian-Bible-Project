@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he went, they spread their garments in the way.
+As he went, they spread their cloaks in the way.

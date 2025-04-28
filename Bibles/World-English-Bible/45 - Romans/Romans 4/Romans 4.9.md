@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is this blessing then pronounced upon the circumcision, or upon the uncircumcision also? for we say, To Abraham his faith was reckoned for righteousness.
+Is this blessing then pronounced on the circumcised, or on the uncircumcised also? For we say that faith was accounted to Abraham for righteousness.

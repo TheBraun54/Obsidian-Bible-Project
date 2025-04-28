@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever doeth these things is an abomination unto Jehovah: and because of these abominations Jehovah thy God doth drive them out from before thee.
+For whoever does these things is an abomination to Yahweh: and because of these abominations Yahweh your God does drive them out from before you.

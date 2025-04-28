@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do this now, my son, and deliver thyself, Seeing thou art come into the hand of thy neighbor: Go, humble thyself, and importune thy neighbor;
+Do this now, my son, and deliver yourself, since you have come into the hand of your neighbor. Go, humble yourself. Press your plea with your neighbor.

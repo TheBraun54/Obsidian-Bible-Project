@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy wickedness [may hurt] a man as thou art; And thy righteousness [may profit] a son of man.
+Your wickedness may hurt a man as you are, and your righteousness may profit a son of man.

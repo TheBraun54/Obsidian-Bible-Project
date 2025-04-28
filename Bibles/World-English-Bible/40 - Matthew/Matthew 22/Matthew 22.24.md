@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Teacher, Moses said, If a man die, having no children, his brother shall marry his wife, and raise up seed unto his brother.
+saying, "Teacher, Moses said, 'If a man dies, having no children, his brother shall marry his wife, and raise up seed for his brother.'

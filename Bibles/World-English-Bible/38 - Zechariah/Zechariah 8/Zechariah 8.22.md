@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, many peoples and strong nations shall come to seek Jehovah of hosts in Jerusalem, and to entreat the favor of Jehovah.
+Yes, many peoples and strong nations will come to seek Yahweh of Armies in Jerusalem, and to entreat the favor of Yahweh."

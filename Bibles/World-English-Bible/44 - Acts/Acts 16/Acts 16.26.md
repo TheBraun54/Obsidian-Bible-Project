@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and suddenly there was a great earthquake, so that the foundations of the prison-house were shaken: and immediately all the doors were opened, and every one's bands were loosed.
+Suddenly there was a great earthquake, so that the foundations of the prison were shaken; and immediately all the doors were opened, and everyone's bonds were loosened.

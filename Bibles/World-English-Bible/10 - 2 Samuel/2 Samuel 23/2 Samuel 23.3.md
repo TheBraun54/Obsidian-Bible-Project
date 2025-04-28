@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God of Israel said, The Rock of Israel spake to me: One that ruleth over men righteously, That ruleth in the fear of God,
+The God of Israel said, the Rock of Israel spoke to me, 'One who rules over men righteously, who rules in the fear of God,

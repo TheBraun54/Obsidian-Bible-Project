@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called for a famine upon the land; He brake the whole staff of bread.
+He called for a famine on the land. He destroyed the food supplies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, a prisoner of Christ Jesus, and Timothy our brother, to Philemon our beloved and fellow-worker,
+Paul, a prisoner of Christ Jesus, and Timothy our brother, to Philemon, our beloved fellow worker,

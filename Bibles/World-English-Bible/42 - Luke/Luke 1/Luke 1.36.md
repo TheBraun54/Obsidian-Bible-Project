@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, Elisabeth thy kinswoman, she also hath conceived a son in her old age; and this is the sixth month with her that was called barren.
+Behold, Elizabeth, your relative, also has conceived a son in her old age; and this is the sixth month with her who was called barren.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(But there was none like unto Ahab, who did sell himself to do that which was evil in the sight of Jehovah, whom Jezebel his wife stirred up.
+But there was none like Ahab, who sold himself to do that which was evil in the sight of Yahweh, whom Jezebel his wife stirred up.

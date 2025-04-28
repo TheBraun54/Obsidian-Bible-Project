@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the festival robes, and the mantles, and the shawls, and the satchels;
+the fine robes, the capes, the cloaks, the purses,

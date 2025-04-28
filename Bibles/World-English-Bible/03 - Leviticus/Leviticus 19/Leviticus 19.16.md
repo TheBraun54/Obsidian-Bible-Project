@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not go up and down as a talebearer among thy people: neither shalt thou stand against the blood of thy neighbor: I am Jehovah.
+"'You shall not go up and down as a slanderer among your people. "'You shall not endanger the life of your neighbor. I am Yahweh.

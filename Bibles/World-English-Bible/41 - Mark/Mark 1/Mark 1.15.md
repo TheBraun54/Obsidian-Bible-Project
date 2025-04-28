@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saying, The time is fulfilled, and the kingdom of God is at hand: repent ye, and believe in the gospel.
+and saying, "The time is fulfilled, and the Kingdom of God is at hand! Repent, and believe in the Good News."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither went I up to Jerusalem to them that were apostles before me: but I went away into Arabia; and again I returned unto Damascus.
+nor did I go up to Jerusalem to those who were apostles before me, but I went away into Arabia. Then I returned to Damascus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He heweth him down cedars, and taketh the holm-tree and the oak, and strengtheneth for himself one among the trees of the forest: he planteth a fir-tree, and the rain doth nourish it.
+He cuts down cedars for himself, and takes the cypress and the oak, and strengthens for himself one among the trees of the forest. He plants a fir tree, and the rain nourishes it.

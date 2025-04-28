@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that did feed delicately are desolate in the streets: They that were brought up in scarlet embrace dunghills.
+Those who did feed delicately are desolate in the streets: Those who were brought up in scarlet embrace dunghills.

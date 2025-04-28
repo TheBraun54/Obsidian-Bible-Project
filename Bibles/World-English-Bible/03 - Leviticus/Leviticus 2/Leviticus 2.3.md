@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that which is left of the meal-offering shall be Aaron's and his sons': it is a thing most holy of the offerings of Jehovah made by fire.
+That which is left of the meal offering shall be Aaron's and his sons'. It is a most holy thing of the offerings of Yahweh made by fire.

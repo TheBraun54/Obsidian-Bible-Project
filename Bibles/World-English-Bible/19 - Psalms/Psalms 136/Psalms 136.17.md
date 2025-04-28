@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that smote great kings; For his lovingkindness [endureth] for ever;
+To him who struck great kings; for his loving kindness endures forever;

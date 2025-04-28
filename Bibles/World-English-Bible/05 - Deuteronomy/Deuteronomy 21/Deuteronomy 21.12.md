@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then thou shalt bring her home to thy house; and she shall shave her head, and pare her nails;
+then you shall bring her home to your house; and she shall shave her head, and pare her nails;

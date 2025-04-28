@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every head is bald, and every beard clipped: upon all the hands are cuttings, and upon the loins sackcloth.
+For every head is bald, and every beard clipped: on all the hands are cuttings, and on the waist sackcloth.

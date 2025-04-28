@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that hour there was a great earthquake, and the tenth part of the city fell; and there were killed in the earthquake seven thousand persons: and the rest were affrighted, and gave glory to the God of heaven.
+In that day there was a great earthquake, and a tenth of the city fell. Seven thousand people were killed in the earthquake, and the rest were terrified, and gave glory to the God of heaven.

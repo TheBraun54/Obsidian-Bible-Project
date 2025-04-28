@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were heads of fathers' [houses] of the Levites, throughout their generations, chief men: these dwelt at Jerusalem.
+These were heads of fathers' [houses] of the Levites, throughout their generations, chief men: these lived at Jerusalem.

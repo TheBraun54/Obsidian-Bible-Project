@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast neither part nor lot in this matter: for thy heart is not right before God.
+You have neither part nor lot in this matter, for your heart isn't right before God.

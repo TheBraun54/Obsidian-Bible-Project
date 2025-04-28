@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will not fail nor be discouraged, till he have set justice in the earth; and the isles shall wait for his law.
+He will not fail nor be discouraged, until he has set justice in the earth, and the islands will wait for his law."

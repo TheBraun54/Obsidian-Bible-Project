@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall know at I am Jehovah, when I have set a fire in Egypt, and all her helpers are destroyed.
+They shall know that I am Yahweh, when I have set a fire in Egypt, and all her helpers are destroyed.

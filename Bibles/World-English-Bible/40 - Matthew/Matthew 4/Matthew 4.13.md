@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and leaving Nazareth, he came and dwelt in Capernaum, which is by the sea, in the borders of Zebulun and Naphtali:
+Leaving Nazareth, he came and lived in Capernaum, which is by the sea, in the region of Zebulun and Naphtali,

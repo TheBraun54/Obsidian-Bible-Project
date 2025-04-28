@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine enemies speak evil against me, [saying], When will he die, and his name perish?
+My enemies speak evil against me: "When will he die, and his name perish?"

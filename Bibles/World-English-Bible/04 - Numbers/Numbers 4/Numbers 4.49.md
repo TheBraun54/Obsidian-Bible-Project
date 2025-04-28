@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to the commandment of Jehovah they were numbered by Moses, every one according to his service, and according to his burden: thus were they numbered of him, as Jehovah commanded Moses. [
+According to the commandment of Yahweh they were numbered by Moses, everyone according to his service, and according to his burden. Thus were they numbered by him, as Yahweh commanded Moses.

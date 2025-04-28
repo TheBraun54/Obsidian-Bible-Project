@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is written, Rejoice, thou barren that bearest not; Break forth and cry, thou that travailest not: For more are the children of the desolate than of her that hath the husband.
+For it is written, "Rejoice, you barren who don't bear. Break forth and shout, you that don't travail. For more are the children of the desolate than of her who has a husband."

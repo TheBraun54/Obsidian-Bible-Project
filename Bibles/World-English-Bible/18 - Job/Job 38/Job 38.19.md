@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where is the way to the dwelling of light? And as for darkness, where is the place thereof,
+"What is the way to the dwelling of light? As for darkness, where is its place,

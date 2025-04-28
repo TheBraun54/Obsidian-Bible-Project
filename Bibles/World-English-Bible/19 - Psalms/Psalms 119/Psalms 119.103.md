@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How sweet are thy words unto my taste! [Yea, sweeter] than honey to my mouth!
+How sweet are your promises to my taste, more than honey to my mouth!

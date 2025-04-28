@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that are far off shall come and build in the temple of Jehovah; and ye shall know that Jehovah of hosts hath sent me unto you. And [this] shall come to pass, if ye will diligently obey the voice of Jehovah your God.
+Those who are far off shall come and build in the temple of Yahweh; and you shall know that Yahweh of Armies has sent me to you. This will happen, if you will diligently obey the voice of Yahweh your God."'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And shall I wait, because they speak not, Because they stand still, and answer no more?
+Shall I wait, because they don't speak, because they stand still, and answer no more?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art the God of my strength; Why hast thou cast me off? Why go I mourning because of the oppression of the enemy?
+For you are the God of my strength. Why have you rejected me? Why do I go mourning because of the oppression of the enemy?

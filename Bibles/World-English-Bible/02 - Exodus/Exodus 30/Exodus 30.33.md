@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever compoundeth any like it, or whosoever putteth any of it upon a stranger, he shall be cut off from his people.
+Whoever compounds any like it, or whoever puts any of it on a stranger, he shall be cut off from his people.'"

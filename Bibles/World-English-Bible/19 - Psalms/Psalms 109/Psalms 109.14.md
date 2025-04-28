@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the iniquity of his fathers be remembered with Jehovah; And let not the sin of his mother be blotted out.
+Let the iniquity of his fathers be remembered by Yahweh. Don't let the sin of his mother be blotted out.

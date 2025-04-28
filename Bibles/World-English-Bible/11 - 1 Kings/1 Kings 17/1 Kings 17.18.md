@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto Elijah, What have I to do with thee, O thou man of God? thou art come unto me to bring my sin to remembrance, and to slay my son!
+She said to Elijah, "What have I to do with you, you man of God? You have come to me to bring my sin to memory, and to kill my son!"

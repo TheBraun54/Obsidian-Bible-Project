@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David left his baggage in the hand of the keeper of the baggage, and ran to the army, and came and saluted his brethren.
+David left his baggage in the hand of the keeper of the baggage, and ran to the army, and came and greeted his brothers.

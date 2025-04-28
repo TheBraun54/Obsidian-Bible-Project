@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word of Jehovah that came to Jeremiah the prophet concerning the Philistines, before that Pharaoh smote Gaza.
+The word of Yahweh that came to Jeremiah the prophet concerning the Philistines, before that Pharaoh struck Gaza.

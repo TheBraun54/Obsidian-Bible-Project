@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I would not have you ignorant, brethren, that oftentimes I purposed to come unto you (and was hindered hitherto), that I might have some fruit in you also, even as in the rest of the Gentiles.
+Now I don't desire to have you unaware, brothers, that I often planned to come to you, and was hindered so far, that I might have some fruit among you also, even as among the rest of the Gentiles.

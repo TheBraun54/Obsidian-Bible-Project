@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We know that we are of God, and the whole world lieth in the evil one.
+We know that we are of God, and the whole world lies in the power of the evil one.

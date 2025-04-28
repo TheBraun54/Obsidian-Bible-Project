@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is man, that he should be clean? And he that is born of a woman, that he should be righteous?
+What is man, that he should be clean? What is he who is born of a woman, that he should be righteous?

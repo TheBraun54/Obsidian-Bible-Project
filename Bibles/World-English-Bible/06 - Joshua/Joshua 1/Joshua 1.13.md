@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember the word which Moses the servant of Jehovah commanded you, saying, Jehovah your God giveth you rest, and will give you this land.
+"Remember the word which Moses the servant of Yahweh commanded you, saying, 'Yahweh your God gives you rest, and will give you this land.

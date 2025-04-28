@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David received of her hand that which she had brought him: and he said unto her, Go up in peace to thy house; see, I have hearkened to thy voice, and have accepted thy person.
+So David received of her hand that which she had brought him: and he said to her, "Go up in peace to your house. Behold, I have listened to your voice, and have granted your request."

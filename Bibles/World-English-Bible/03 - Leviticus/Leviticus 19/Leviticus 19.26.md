@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not eat anything with the blood: neither shall ye use enchantments, nor practise augury.
+"'You shall not eat any meat with the blood still in it; neither shall you use enchantments, nor practice sorcery.

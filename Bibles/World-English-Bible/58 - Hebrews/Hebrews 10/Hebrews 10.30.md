@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we know him that said, Vengeance belongeth unto me, I will recompense. And again, The Lord shall judge his people.
+For we know him who said, "Vengeance belongs to me," says the Lord, "I will repay." Again, "The Lord will judge his people."

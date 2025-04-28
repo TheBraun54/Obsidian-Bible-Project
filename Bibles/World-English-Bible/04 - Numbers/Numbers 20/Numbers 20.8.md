@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the rod, and assemble the congregation, thou, and Aaron thy brother, and speak ye unto the rock before their eyes, that it give forth its water; and thou shalt bring forth to them water out of the rock; so thou shalt give the congregation and their cattle drink.
+"Take the rod, and assemble the congregation, you, and Aaron your brother, and speak to the rock before their eyes, that it give forth its water; and you shall bring forth to them water out of the rock; so you shall give the congregation and their livestock drink."

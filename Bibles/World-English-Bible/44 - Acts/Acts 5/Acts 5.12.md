@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the hands of the apostles were many signs and wonders wrought among the people; and they were all with one accord in Solomon's porch.
+By the hands of the apostles many signs and wonders were done among the people. They were all with one accord in Solomon's porch.

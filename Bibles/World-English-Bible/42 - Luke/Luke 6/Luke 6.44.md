@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For each tree is known by its own fruit. For of thorns men do not gather figs, nor of a bramble bush gather they grapes.
+For each tree is known by its own fruit. For people don't gather figs from thorns, nor do they gather grapes from a bramble bush.

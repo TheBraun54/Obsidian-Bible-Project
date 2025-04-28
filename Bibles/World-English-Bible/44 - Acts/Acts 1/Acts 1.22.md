@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-beginning from the baptism of John, unto the day that he was received up from us, of these must one become a witness with us of his resurrection.
+beginning from the baptism of John, to the day that he was received up from us, of these one must become a witness with us of his resurrection."

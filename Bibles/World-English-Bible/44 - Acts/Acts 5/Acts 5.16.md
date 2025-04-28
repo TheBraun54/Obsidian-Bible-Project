@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there also came together the multitudes from the cities round about Jerusalem, bring sick folk, and them that were vexed with unclean spirits: and they were healed every one.
+Multitudes also came together from the cities around Jerusalem, bringing sick people, and those who were tormented by unclean spirits: and they were all healed.

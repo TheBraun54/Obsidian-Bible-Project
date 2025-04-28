@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the violence done to Lebanon shall cover thee, and the destruction of the beasts, which made them afraid; because of men's blood, and for the violence done to the land, to the city and to all that dwell therein.
+For the violence done to Lebanon will overwhelm you, and the destruction of the animals, which made them afraid; because of men's blood, and for the violence done to the land, to every city and to those who dwell in them.

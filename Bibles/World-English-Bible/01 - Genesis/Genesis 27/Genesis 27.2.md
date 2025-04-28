@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Behold now, I am old, I know not the day of my death.
+He said, "See now, I am old. I don't know the day of my death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whoso findeth me findeth life, And shall obtain favor of Jehovah.
+For whoever finds me, finds life, and will obtain favor from Yahweh.

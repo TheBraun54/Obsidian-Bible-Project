@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As is thy name, O God, So is thy praise unto the ends of the earth: Thy right hand is full of righteousness.
+As is your name, God, so is your praise to the ends of the earth. Your right hand is full of righteousness.

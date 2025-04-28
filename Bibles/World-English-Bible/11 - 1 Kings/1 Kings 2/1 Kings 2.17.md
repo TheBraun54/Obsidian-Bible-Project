@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Speak, I pray thee, unto Solomon the king (for he will not say thee nay), that he give me Abishag the Shunammite to wife.
+He said, "Please speak to Solomon the king (for he will not tell you 'no'), that he give me Abishag the Shunammite as wife."

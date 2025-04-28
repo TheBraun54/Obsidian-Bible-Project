@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came to Nazareth, where he had been brought up: and he entered, as his custom was, into the synagogue on the sabbath day, and stood up to read.
+He came to Nazareth, where he had been brought up. He entered, as was his custom, into the synagogue on the Sabbath day, and stood up to read.

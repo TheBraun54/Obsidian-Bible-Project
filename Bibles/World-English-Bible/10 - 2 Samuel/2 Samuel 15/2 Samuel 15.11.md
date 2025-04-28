@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with Absalom went two hundred men out of Jerusalem, that were invited, and went in their simplicity; and they knew not anything.
+Two hundred men went with Absalom out of Jerusalem, who were invited, and went in their simplicity; and they didn't know anything.

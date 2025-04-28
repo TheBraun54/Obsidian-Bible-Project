@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forsake her not, and she will preserve thee; Love her, and she will keep thee.
+Don't forsake her, and she will preserve you. Love her, and she will keep you.

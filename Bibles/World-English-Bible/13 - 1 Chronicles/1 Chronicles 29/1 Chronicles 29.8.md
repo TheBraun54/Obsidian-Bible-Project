@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they with whom [precious] stones were found gave them to the treasure of the house of Jehovah, under the hand of Jehiel the Gershonite.
+They with whom [precious] stones were found gave them to the treasure of the house of Yahweh, under the hand of Jehiel the Gershonite.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the soldiers also mocked him, coming to him, offering him vinegar,
+The soldiers also mocked him, coming to him and offering him vinegar,

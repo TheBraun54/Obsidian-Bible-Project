@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Josiah was eight years old when he began to reign; and he reigned thirty and one years in Jerusalem.
+Josiah was eight years old when he began to reign; and he reigned thirty-one years in Jerusalem.

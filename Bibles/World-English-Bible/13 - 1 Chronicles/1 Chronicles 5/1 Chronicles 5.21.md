@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took away their cattle; of their camels fifty thousand, and of sheep two hundred and fifty thousand, and of asses two thousand, and of men a hundred thousand.
+They took away their livestock; of their camels fifty thousand, and of sheep two hundred fifty thousand, and of donkeys two thousand, and of men one hundred thousand.

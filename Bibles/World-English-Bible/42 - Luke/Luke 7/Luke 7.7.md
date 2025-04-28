@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherefore neither thought I myself worthy to come unto thee: but say the word, and my servant shall be healed.
+Therefore I didn't even think myself worthy to come to you; but say the word, and my servant will be healed.

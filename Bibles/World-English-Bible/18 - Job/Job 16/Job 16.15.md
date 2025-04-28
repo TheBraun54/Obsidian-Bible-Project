@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have sewed sackcloth upon my skin, And have laid my horn in the dust.
+I have sewed sackcloth on my skin, and have thrust my horn in the dust.

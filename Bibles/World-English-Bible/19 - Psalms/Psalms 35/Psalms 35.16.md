@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Like the profane mockers in feasts, They gnashed upon me with their teeth.
+Like the profane mockers in feasts, they gnashed their teeth at me.

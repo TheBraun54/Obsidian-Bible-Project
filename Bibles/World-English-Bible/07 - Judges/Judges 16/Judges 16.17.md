@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he told her all his heart, and said unto her, There hath not come a razor upon my head; for I have been a Nazirite unto God from my mother's womb: if I be shaven, then my strength will go from me, and I shall become weak, and be like any other man.
+He told her all his heart, and said to her, "No razor has ever come on my head; for I have been a Nazirite to God from my mother's womb. If I am shaved, then my strength will go from me, and I will become weak, and be like any other man."

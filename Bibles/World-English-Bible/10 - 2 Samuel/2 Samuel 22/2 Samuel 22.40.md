@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast girded me with strength unto the battle; Thou hast subdued under me those that rose up against me.
+For you have armed me with strength for the battle. You have subdued under me those who rose up against me.

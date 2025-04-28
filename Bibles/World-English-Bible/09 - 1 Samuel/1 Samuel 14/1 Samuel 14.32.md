@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the people flew upon the spoil, and took sheep, and oxen, and calves, and slew them on the ground; and the people did eat them with the blood.
+and the people flew on the spoil, and took sheep, and cattle, and calves, and killed them on the ground; and the people ate them with the blood.

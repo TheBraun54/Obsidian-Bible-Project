@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Faithful is the saying, and worthy of all acceptation.
+This saying is faithful and worthy of all acceptance.

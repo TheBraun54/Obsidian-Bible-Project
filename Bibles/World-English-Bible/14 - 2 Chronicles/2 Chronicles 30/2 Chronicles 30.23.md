@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the whole assembly took counsel to keep other seven days; and they kept [other] seven days with gladness.
+The whole assembly took counsel to keep other seven days; and they kept [other] seven days with gladness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the land shall be made like the Arabah, from Geba to Rimmon south of Jerusalem; and she shall be lifted up, and shall dwell in her place, from Benjamin's gate unto the place of the first gate, unto the corner gate, and from the tower of Hananel unto the king's wine-presses.
+All the land will be made like the Arabah, from Geba to Rimmon south of Jerusalem; and she will be lifted up, and will dwell in her place, from Benjamin's gate to the place of the first gate, to the corner gate, and from the tower of Hananel to the king's winepresses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate asked him, Art thou the King of the Jews? And he answering saith unto him, Thou sayest.
+Pilate asked him, "Are you the King of the Jews?" He answered, "So you say."

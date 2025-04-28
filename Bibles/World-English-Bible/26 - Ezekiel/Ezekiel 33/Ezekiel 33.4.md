@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then whosoever heareth the sound of the trumpet, and taketh not warning, if the sword come, and take him away, his blood shall be upon his own head.
+then whoever hears the sound of the trumpet, and doesn't take warning, if the sword come, and take him away, his blood shall be on his own head.

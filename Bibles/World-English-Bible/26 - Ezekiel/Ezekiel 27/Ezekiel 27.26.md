@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy rowers have brought thee into great waters: the east wind hath broken thee in the heart of the seas.
+Your rowers have brought you into great waters: the east wind has broken you in the heart of the seas.

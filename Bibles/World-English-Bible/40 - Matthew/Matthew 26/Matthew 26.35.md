@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter saith unto him, Even if I must die with thee, [yet] will I not deny thee. Likewise also said all the disciples.
+Peter said to him, "Even if I must die with you, I will not deny you." All of the disciples also said likewise.

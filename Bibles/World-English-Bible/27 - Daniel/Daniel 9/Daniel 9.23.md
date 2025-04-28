@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the beginning of thy supplications the commandment went forth, and I am come to tell thee; for thou art greatly beloved: therefore consider the matter, and understand the vision.
+At the beginning of your petitions the commandment went forth, and I have come to tell you; for you are greatly beloved: therefore consider the matter, and understand the vision.

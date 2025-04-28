@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Guide me in thy truth, and teach me; For thou art the God of my salvation; For thee do I wait all the day.
+Guide me in your truth, and teach me, For you are the God of my salvation, I wait for you all day long.

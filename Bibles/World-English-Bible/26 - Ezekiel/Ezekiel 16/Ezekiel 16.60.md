@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless I will remember my covenant with thee in the days of thy youth, and I will establish unto thee an everlasting covenant.
+Nevertheless I will remember my covenant with you in the days of your youth, and I will establish to you an everlasting covenant.

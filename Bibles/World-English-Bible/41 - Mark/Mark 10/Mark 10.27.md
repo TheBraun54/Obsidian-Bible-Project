@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus looking upon them saith, With men it is impossible, but not with God: for all things are possible with God.
+Jesus, looking at them, said, "With men it is impossible, but not with God, for all things are possible with God."

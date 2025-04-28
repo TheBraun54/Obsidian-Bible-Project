@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the soldiers of the governor took Jesus into the Praetorium, and gathered unto him the whole band.
+Then the governor's soldiers took Jesus into the Praetorium, and gathered the whole garrison together against him.

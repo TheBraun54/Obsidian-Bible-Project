@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob said, Nay, I pray thee, if now I have found favor in thy sight, then receive my present at my hand; forasmuch as I have seen thy face, as one seeth the face of God, and thou wast pleased with me.
+Jacob said, "Please, no, if I have now found favor in your sight, then receive my present at my hand, because I have seen your face, as one sees the face of God, and you were pleased with me.

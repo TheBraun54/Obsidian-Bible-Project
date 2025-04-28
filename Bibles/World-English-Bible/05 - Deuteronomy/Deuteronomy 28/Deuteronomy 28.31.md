@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine ox shall be slain before thine eyes, and thou shalt not eat thereof: thine ass shall be violently taken away from before thy face, and shall not be restored to thee: thy sheep shall be given unto thine enemies, and thou shalt have none to save thee.
+Your ox shall be slain before your eyes, and you shall not eat of it: your donkey shall be violently taken away from before your face, and shall not be restored to you: your sheep shall be given to your enemies, and you shall have none to save you.

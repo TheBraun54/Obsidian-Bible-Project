@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day will I cause a horn to bud forth unto the house of Israel, and I will give thee the opening of the mouth in the midst of them; and they shall know that I am Jehovah.
+In that day will I cause a horn to bud forth to the house of Israel, and I will give you the opening of the mouth in the midst of them; and they shall know that I am Yahweh.

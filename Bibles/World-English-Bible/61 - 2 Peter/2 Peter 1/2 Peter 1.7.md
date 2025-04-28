@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in [your] godliness brotherly kindness; and in [your] brotherly kindness love.
+and in godliness brotherly affection; and in brotherly affection, love.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob called the name of the place Peniel: for, [said he], I have seen God face to face, and my life is preserved.
+Jacob called the name of the place Peniel: for, he said, "I have seen God face to face, and my life is preserved."

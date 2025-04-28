@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made a path for his anger; He spared not their soul from death, But gave their life over to the pestilence,
+He made a path for his anger. He didn't spare their soul from death, but gave their life over to the pestilence,

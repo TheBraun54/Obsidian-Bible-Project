@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dost thou know how God layeth [his charge] upon them, And causeth the lightning of his cloud to shine?
+Do you know how God controls them, and causes the lightning of his cloud to shine?

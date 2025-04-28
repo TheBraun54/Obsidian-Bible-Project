@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel said unto Joseph, Behold, I die: but God will be with you, and bring you again unto the land of your fathers.
+Israel said to Joseph, "Behold, I am dying, but God will be with you, and bring you again to the land of your fathers.

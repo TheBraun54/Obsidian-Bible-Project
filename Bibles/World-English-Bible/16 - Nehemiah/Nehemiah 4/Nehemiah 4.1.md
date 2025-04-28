@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it came to pass that, when Sanballat heard that we were building the wall, he was wroth, and took great indignation, and mocked the Jews.
+But it happened that when Sanballat heard that we were building the wall, he was angry, and took great indignation, and mocked the Jews.

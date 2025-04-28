@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye are Christ's; and Christ is God's.
+and you are Christ's, and Christ is God's.

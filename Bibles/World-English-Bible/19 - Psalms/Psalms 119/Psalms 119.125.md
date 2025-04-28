@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am thy servant; Give me understanding, That I may know thy testimonies.
+I am your servant. Give me understanding, that I may know your testimonies.

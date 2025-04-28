@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he led them safely, so that they feared not; But the sea overwhelmed their enemies.
+He led them safely, so that they weren't afraid, but the sea overwhelmed their enemies.

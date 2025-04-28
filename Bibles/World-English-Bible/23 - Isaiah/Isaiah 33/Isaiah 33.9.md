@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The land mourneth and languisheth; Lebanon is confounded and withereth away; Sharon is like a desert; and Bashan and Carmel shake off [their leaves] .
+The land mourns and languishes. Lebanon is confounded and withers away. Sharon is like a desert, and Bashan and Carmel are stripped bare.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The prince that lacketh understanding is also a great oppressor; [But] he that hateth covetousness shall prolong his days.
+A tyrannical ruler lacks judgment. One who hates ill-gotten gain will have long days.

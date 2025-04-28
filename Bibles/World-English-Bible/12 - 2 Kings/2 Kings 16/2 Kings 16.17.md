@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Ahaz cut off the panels of the bases, and removed the laver from off them, and took down the sea from off the brazen oxen that were under it, and put it upon a pavement of stone.
+King Ahaz cut off the panels of the bases, and removed the basin from off them, and took down the sea from off the bronze oxen that were under it, and put it on a pavement of stone.

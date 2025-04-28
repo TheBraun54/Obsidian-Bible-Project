@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said unto him, Blessed art thou, Simon Bar-jonah: for flesh and blood hath not revealed it unto thee, but my Father who is in heaven.
+Jesus answered him, "Blessed are you, Simon Bar Jonah, for flesh and blood has not revealed this to you, but my Father who is in heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he prayed again; and the heaven gave rain, and the earth brought forth her fruit.
+He prayed again, and the sky gave rain, and the earth brought forth its fruit.

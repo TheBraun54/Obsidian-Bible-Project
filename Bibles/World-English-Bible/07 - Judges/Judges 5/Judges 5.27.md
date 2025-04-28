@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At her feet he bowed, he fell, he lay; At her feet he bowed, he fell; Where he bowed, there he fell down dead.
+At her feet he bowed, he fell, he lay. At her feet he bowed, he fell. Where he bowed, there he fell down dead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-those that were numbered of them, of the tribe of Simeon, were fifty and nine thousand and three hundred.
+those who were numbered of them, of the tribe of Simeon, were fifty-nine thousand three hundred.

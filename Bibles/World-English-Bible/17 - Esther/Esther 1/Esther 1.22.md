@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he sent letters into all the king's provinces, into every province according to the writing thereof, and to every people after their language, that every man should bear rule in his own house, and should speak according to the language of his people.
+for he sent letters into all the king's provinces, into every province according to its writing, and to every people in their language, that every man should rule his own house, speaking in the language of his own people.

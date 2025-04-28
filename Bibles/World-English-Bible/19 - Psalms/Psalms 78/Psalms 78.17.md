@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet went they on still to sin against him, To rebel against the Most High in the desert.
+Yet they still went on to sin against him, to rebel against the Most High in the desert.

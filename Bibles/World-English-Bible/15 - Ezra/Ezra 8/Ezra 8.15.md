@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I gathered them together to the river that runneth to Ahava; and there we encamped three days: and I viewed the people, and the priests, and found there none of the sons of Levi.
+I gathered them together to the river that runs to Ahava; and there we encamped three days: and I viewed the people, and the priests, and found there none of the sons of Levi.

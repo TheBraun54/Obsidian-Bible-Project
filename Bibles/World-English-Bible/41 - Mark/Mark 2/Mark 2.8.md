@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway Jesus, perceiving in his spirit that they so reasoned within themselves, saith unto them, Why reason ye these things in your hearts?
+Immediately Jesus, perceiving in his spirit that they so reasoned within themselves, said to them, "Why do you reason these things in your hearts?

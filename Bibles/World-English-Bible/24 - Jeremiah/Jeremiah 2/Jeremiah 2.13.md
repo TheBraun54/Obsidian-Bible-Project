@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my people have committed two evils: they have forsaken me, the fountain of living waters, and hewed them out cisterns, broken cisterns, that can hold no water.
+"For my people have committed two evils: they have forsaken me, the spring of living waters, and cut them out cisterns, broken cisterns, that can hold no water.

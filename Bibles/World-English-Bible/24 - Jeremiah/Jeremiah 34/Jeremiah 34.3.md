@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt not escape out of his hand, but shalt surely be taken, and delivered into his hand; and thine eyes shall behold the eyes of the king of Babylon, and he shall speak with thee mouth to mouth, and thou shalt go to Babylon.
+and you shall not escape out of his hand, but shall surely be taken, and delivered into his hand; and your eyes shall see the eyes of the king of Babylon, and he shall speak with you mouth to mouth, and you shall go to Babylon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is of a greedy spirit stirreth up strife; But he that putteth his trust in Jehovah shall be made fat.
+One who is greedy stirs up strife; but one who trusts in Yahweh will prosper.

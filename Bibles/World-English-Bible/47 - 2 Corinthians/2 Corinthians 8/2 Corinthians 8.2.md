@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how that in much proof of affliction the abundance of their joy and their deep poverty abounded unto the riches of their liberality.
+how that in much proof of affliction the abundance of their joy and their deep poverty abounded to the riches of their liberality.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Serug lived after he begat Nahor two hundred years, and begat sons and daughters.
+Serug lived two hundred years after he became the father of Nahor, and became the father of sons and daughters.

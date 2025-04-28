@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that fed them fled, and went away into the city, and told everything, and what was befallen to them that were possessed with demons.
+Those who fed them fled, and went away into the city, and told everything, including what happened to those who were possessed with demons.

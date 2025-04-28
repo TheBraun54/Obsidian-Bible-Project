@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make two rings of gold, and thou shalt put them upon the two ends of the breastplate, upon the edge thereof, which is toward the side of the ephod inward.
+You shall make two rings of gold, and you shall put them on the two ends of the breastplate, on its edge, which is toward the side of the ephod inward.

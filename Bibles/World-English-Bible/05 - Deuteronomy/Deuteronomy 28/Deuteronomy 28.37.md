@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt become an astonishment, a proverb, and a byword, among all the peoples whither Jehovah shall lead thee away.
+You shall become an astonishment, a proverb, and a byword, among all the peoples where Yahweh shall lead you away.

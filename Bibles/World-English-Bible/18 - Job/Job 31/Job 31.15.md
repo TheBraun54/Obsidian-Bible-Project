@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did not he that made me in the womb make him? And did not one fashion us in the womb?
+Didn't he who made me in the womb make him? Didn't one fashion us in the womb?

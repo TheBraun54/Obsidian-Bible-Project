@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man increased exceedingly, and had large flocks, and maid-servants and men-servants, and camels and asses.
+The man increased exceedingly, and had large flocks, female servants and male servants, and camels and donkeys.

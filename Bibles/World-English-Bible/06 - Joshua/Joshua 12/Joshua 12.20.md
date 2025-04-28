@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the king of Shimron-meron, one; the king of Achshaph, one;
+the king of Shimron Meron, one; the king of Achshaph, one;

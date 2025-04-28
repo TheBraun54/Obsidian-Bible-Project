@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said unto the arrogant, Deal not arrogantly; And to the wicked, Lift not up the horn:
+I said to the arrogant, "Don't boast!" I said to the wicked, "Don't lift up the horn.

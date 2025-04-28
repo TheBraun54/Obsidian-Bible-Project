@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after he had taken leave of them, he departed into the mountain to pray.
+After he had taken leave of them, he went up the mountain to pray.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said his wife unto him, Dost thou still hold fast thine integrity? renounce God, and die.
+Then his wife said to him, "Do you still maintain your integrity? Renounce God, and die."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My beloved spake, and said unto me, Rise up, my love, my fair one, and come away.
+My beloved spoke, and said to me, "Rise up, my love, my beautiful one, and come away.

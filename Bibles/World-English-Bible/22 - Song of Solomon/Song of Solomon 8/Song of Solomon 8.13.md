@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou that dwellest in the gardens, The companions hearken for thy voice: Cause me to hear it.
+You who dwell in the gardens, with friends in attendance, let me hear your voice! Beloved

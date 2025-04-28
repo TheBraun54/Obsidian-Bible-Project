@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The prophets that have been before me and before thee of old prophesied against many countries, and against great kingdoms, of war, and of evil, and of pestilence.
+The prophets who have been before me and before you of old prophesied against many countries, and against great kingdoms, of war, and of evil, and of pestilence.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be glad then, ye children of Zion, and rejoice in Jehovah your God; for he giveth you the former rain in just measure, and he causeth to come down for you the rain, the former rain and the latter rain, in the first [month] .
+"Be glad then, you children of Zion, and rejoice in Yahweh, your God; for he gives you the former rain in just measure, and he causes the rain to come down for you, the former rain and the latter rain, as before.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also of the son of the handmaid will I make a nation, because he is thy seed.
+I will also make a nation of the son of the handmaid, because he is your seed."

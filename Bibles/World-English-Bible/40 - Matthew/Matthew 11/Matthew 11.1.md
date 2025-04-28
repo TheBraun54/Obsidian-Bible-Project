@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass when Jesus had finished commanding his twelve disciples, he departed thence to teach and preach in their cities.
+It happened that when Jesus had finished directing his twelve disciples, he departed from there to teach and preach in their cities.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath the Son hath the life; he that hath not the Son of God hath not the life.
+He who has the Son has the life. He who doesn't have God's Son doesn't have the life.

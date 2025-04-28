@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God of Abraham, and of Isaac, and of Jacob, the God of our fathers, hath glorified his Servant Jesus; whom ye delivered up, and denied before the face of Pilate, when he had determined to release him.
+The God of Abraham, Isaac, and Jacob, the God of our fathers, has glorified his Servant Jesus, whom you delivered up, and denied in the presence of Pilate, when he had determined to release him.

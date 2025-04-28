@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall thy mouth be opened to him that is escaped, and thou shalt speak, and be no more dumb: so shalt thou be a sign unto them; and they shall know that I am Jehovah.
+In that day your mouth will be opened to him who has escaped, and you shall speak, and be no more mute: so you will be a sign to them; and they shall know that I am Yahweh.

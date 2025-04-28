@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore now flee thou to thy place: I thought to promote thee unto great honor; but, lo, Jehovah hath kept thee back from honor.
+Therefore now flee you to your place! I thought to promote you to great honor; but, behold, Yahweh has kept you back from honor."

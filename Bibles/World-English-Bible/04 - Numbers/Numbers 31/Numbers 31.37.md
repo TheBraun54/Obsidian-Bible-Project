@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah's tribute of the sheep was six hundred and threescore and fifteen.
+and Yahweh's tribute of the sheep was six hundred seventy-five.

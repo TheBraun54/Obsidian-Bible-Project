@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had said this, he breathed on them, and saith unto them, Receive ye the Holy Spirit:
+When he had said this, he breathed on them, and said to them, "Receive the Holy Spirit!

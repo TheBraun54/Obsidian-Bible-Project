@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Pilate heard it, he asked whether the man were a Galilaean.
+But when Pilate heard Galilee mentioned, he asked if the man was a Galilean.

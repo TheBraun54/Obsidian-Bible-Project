@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David smote also Hadadezer the son of Rehob, king of Zobah, as he went to recover his dominion at the River.
+David struck also Hadadezer the son of Rehob, king of Zobah, as he went to recover his dominion at the River.

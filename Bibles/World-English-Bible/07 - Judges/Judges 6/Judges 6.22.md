@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon saw that he was the angel of Jehovah; and Gideon said, Alas, O Lord Jehovah! forasmuch as I have seen the angel of Jehovah face to face.
+Gideon saw that he was the angel of Yahweh; and Gideon said, "Alas, Lord Yahweh! Because I have seen the angel of Yahweh face to face!"

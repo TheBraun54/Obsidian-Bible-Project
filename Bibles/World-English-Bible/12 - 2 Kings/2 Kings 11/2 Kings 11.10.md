@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest delivered to the captains over hundreds the spears and shields that had been king David's, which were in the house of Jehovah.
+The priest delivered to the captains over hundreds the spears and shields that had been king David's, which were in the house of Yahweh.

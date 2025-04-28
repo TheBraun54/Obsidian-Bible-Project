@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus said Jehovah my God: Feed the flock of slaughter;
+Thus says Yahweh my God: "Feed the flock of slaughter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take the garments, and put upon Aaron the coat, and the robe of the ephod, and the ephod, and the breastplate, and gird him with the skilfully woven band of the ephod;
+You shall take the garments, and put on Aaron the coat, the robe of the ephod, the ephod, and the breastplate, and clothe him with the skillfully woven band of the ephod;

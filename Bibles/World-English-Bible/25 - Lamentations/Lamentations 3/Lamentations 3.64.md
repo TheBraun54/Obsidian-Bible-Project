@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt render unto them a recompense, O Jehovah, according to the work of their hands.
+You will render to them a recompense, Yahweh, according to the work of their hands.

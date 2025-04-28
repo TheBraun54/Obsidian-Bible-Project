@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw in the night-visions, and, behold, there came with the clouds of heaven one like unto a son of man, and he came even to the ancient of days, and they brought him near before him.
+I saw in the night visions, and behold, there came with the clouds of the sky one like a son of man, and he came even to the ancient of days, and they brought him near before him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it was not an enemy that reproached me; Then I could have borne it: Neither was it he that hated me that did magnify himself against me; Then I would have hid myself from him:
+For it was not an enemy who insulted me, then I could have endured it. Neither was it he who hated me who raised himself up against me, then I would have hidden myself from him.

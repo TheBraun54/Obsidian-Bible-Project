@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the Almighty scattered kings therein, [It was as when] it snoweth in Zalmon.
+When the Almighty scattered kings in her, it snowed on Zalmon.

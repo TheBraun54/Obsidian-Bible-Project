@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who delivered us out of so great a death, and will deliver: on whom we have set our hope that he will also still deliver us;
+who delivered us out of so great a death, and does deliver; on whom we have set our hope that he will also still deliver us;

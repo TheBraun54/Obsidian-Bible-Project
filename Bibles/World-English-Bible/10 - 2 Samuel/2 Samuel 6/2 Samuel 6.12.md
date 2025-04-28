@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told king David, saying, Jehovah hath blessed the house of Obed-edom, and all that pertaineth unto him, because of the ark of God. And David went and brought up the ark of God from the house of Obed-edom into the city of David with joy.
+It was told king David, saying, "Yahweh has blessed the house of Obed-Edom, and all that pertains to him, because of the ark of God." David went and brought up the ark of God from the house of Obed-Edom into the city of David with joy.

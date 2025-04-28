@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They make oil within the walls of these men; They tread [their] winepresses, and suffer thirst.
+They make oil within the walls of these men. They tread wine presses, and suffer thirst.

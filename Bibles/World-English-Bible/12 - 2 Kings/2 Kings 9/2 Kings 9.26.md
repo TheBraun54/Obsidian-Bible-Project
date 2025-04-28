@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely I have seen yesterday the blood of Naboth, and the blood of his sons, saith Jehovah; and I will requite thee in this plat, saith Jehovah. Now therefore take and cast him into the plat [of ground], according to the word of Jehovah.
+'Surely I have seen yesterday the blood of Naboth, and the blood of his sons,' says Yahweh; 'and I will repay you in this plot of ground,' says Yahweh. Now therefore take and cast him onto the plot of ground, according to the word of Yahweh."

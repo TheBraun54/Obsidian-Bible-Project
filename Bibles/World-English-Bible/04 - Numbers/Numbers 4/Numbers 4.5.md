@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when the camp setteth forward, Aaron shall go in, and his sons, and they shall take down the veil of the screen, and cover the ark of the testimony with it,
+When the camp moves forward, Aaron shall go in, and his sons, and they shall take down the veil of the screen, and cover the ark of the Testimony with it,

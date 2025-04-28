@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter therefore went up, and drew the net to land, full of great fishes, a hundred and fifty and three: and for all there were so many, the net was not rent.
+Simon Peter went up, and drew the net to land, full of great fish, one hundred fifty-three; and even though there were so many, the net wasn't torn.

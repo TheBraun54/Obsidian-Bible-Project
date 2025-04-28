@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are the light of the world. A city set on a hill cannot be hid.
+You are the light of the world. A city located on a hill can't be hidden.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They answered and said unto him, If this man were not an evildoer, we should not have delivered him up unto thee.
+They answered him, "If this man weren't an evildoer, we wouldn't have delivered him up to you."

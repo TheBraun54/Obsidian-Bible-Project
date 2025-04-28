@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This day ye go forth in the month Abib.
+This day you go forth in the month Abib.

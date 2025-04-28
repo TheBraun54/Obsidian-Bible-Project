@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the princes said unto them, Let them live: so they became hewers of wood and drawers of water unto all the congregation, as the princes had spoken unto them.
+The princes said to them, "Let them live, so they became wood cutters and drawers of water for all the congregation, as the princes had spoken to them."

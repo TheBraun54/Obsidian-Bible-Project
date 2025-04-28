@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, Neither did this man sin, nor his parents: but that the works of God should be made manifest in him.
+Jesus answered, "Neither did this man sin, nor his parents; but, that the works of God might be revealed in him.

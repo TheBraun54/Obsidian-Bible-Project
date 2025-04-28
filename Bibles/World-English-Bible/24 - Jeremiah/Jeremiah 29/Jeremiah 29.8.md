@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts, the God of Israel: Let not your prophets that are in the midst of you, and your diviners, deceive you; neither hearken ye to your dreams which ye cause to be dreamed.
+For thus says Yahweh of Armies, the God of Israel: Don't let your prophets who are in the midst of you, and your diviners, deceive you; neither listen to your dreams which you cause to be dreamed.

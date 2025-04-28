@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cry aloud and shout, thou inhabitant of Zion; for great in the midst of thee is the Holy One of Israel.
+Cry aloud and shout, you inhabitant of Zion; for the Holy One of Israel is great in the midst of you!"

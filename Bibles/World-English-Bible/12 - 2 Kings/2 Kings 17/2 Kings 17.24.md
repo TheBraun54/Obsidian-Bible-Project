@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Assyria brought men from Babylon, and from Cuthah, and from Avva, and from Hamath and Sepharvaim, and placed them in the cities of Samaria instead of the children of Israel; and they possessed Samaria, and dwelt in the cities thereof.
+The king of Assyria brought men from Babylon, and from Cuthah, and from Avva, and from Hamath and Sepharvaim, and placed them in the cities of Samaria instead of the children of Israel; and they possessed Samaria, and lived in the cities of it.

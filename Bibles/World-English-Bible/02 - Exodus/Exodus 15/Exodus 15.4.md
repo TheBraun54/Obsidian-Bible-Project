@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pharaoh's chariots and his host hath he cast into the sea; And his chosen captains are sunk in the Red Sea.
+He has cast Pharaoh's chariots and his army into the sea. His chosen captains are sunk in the Red Sea.

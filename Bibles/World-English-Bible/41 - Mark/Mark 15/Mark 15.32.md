@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the Christ, the King of Israel, now come down from the cross, that we may see and believe. And they that were crucified with him reproached him.
+Let the Christ, the King of Israel, now come down from the cross, that we may see and believe him." Those who were crucified with him insulted him.

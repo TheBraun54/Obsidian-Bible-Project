@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they became aware of it, and fled unto the cities of Lycaonia, Lystra and Derbe, and the region round about:
+they became aware of it, and fled to the cities of Lycaonia, Lystra, Derbe, and the surrounding region.

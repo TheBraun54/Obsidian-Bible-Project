@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that speaketh in a tongue edifieth himself; but he that prophesieth edifieth the church.
+He who speaks in another language edifies himself, but he who prophesies edifies the assembly.

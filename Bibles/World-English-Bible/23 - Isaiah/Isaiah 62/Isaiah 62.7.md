@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and give him no rest, till he establish, and till he make Jerusalem a praise in the earth.
+and give him no rest, until he establishes, and until he makes Jerusalem a praise in the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto the people, Pass on, and compass the city, and let the armed men pass on before the ark of Jehovah.
+They said to the people, "Advance! March around the city, and let the armed men pass on before Yahweh's ark."

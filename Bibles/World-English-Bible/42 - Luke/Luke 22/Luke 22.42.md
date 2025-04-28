@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done.
+saying, "Father, if you are willing, remove this cup from me. Nevertheless, not my will, but yours, be done."

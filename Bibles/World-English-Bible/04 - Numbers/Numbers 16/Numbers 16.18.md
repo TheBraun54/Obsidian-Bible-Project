@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took every man his censer, and put fire in them, and laid incense thereon, and stood at the door of the tent of meeting with Moses and Aaron.
+They each took his censer, and put fire in them, and laid incense thereon, and stood at the door of the Tent of Meeting with Moses and Aaron.

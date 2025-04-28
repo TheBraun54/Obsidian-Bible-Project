@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is this that cometh up from the wilderness Like pillars of smoke, Perfumed with myrrh and frankincense, With all powders of the merchant?
+Who is this who comes up from the wilderness like pillars of smoke, perfumed with myrrh and frankincense, with all spices of the merchant?

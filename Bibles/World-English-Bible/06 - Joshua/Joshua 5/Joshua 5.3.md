@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua made him knives of flint, and circumcised the children of Israel at the hill of the foreskins.
+Joshua made himself flint knives, and circumcised the children of Israel at the hill of the foreskins.

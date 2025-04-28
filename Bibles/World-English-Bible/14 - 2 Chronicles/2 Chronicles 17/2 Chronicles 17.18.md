@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and next to him Jehozabad and with him a hundred and fourscore thousand ready prepared for war.
+and next to him Jehozabad and with him one hundred eighty thousand ready prepared for war.

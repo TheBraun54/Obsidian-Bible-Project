@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Miriam and Aaron spake against Moses because of the Cushite woman whom he had married; for he had married a Cushite woman.
+Miriam and Aaron spoke against Moses because of the Cushite woman whom he had married; for he had married a Cushite woman.

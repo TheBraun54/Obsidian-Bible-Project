@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called the name of that place Beth-el: but the name of the city was Luz at the first.
+He called the name of that place Bethel, but the name of the city was Luz at the first.

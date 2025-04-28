@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now if thou shalt kill this people as one man, then the nations which have heard the fame of thee will speak, saying,
+Now if you killed this people as one man, then the nations which have heard the fame of you will speak, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of the city went out, and fought with Joab: and there fell some of the people, even of the servants of David; and Uriah the Hittite died also.
+The men of the city went out, and fought with Joab. Some of the people fell, even of the servants of David; and Uriah the Hittite died also.

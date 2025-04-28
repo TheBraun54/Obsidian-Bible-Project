@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things also command, that they may be without reproach.
+Also command these things, that they may be without reproach.

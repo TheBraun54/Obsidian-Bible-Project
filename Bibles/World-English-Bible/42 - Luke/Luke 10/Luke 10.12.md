@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto you, it shall be more tolerable in that day for Sodom, than for that city.
+I tell you, it will be more tolerable in that day for Sodom than for that city.

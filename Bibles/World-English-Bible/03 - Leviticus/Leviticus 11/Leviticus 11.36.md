@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless a fountain or a pit wherein is a gathering of water shall be clean: but that which toucheth their carcass shall be unclean.
+Nevertheless a spring or a cistern in which water is a gathered shall be clean: but that which touches their carcass shall be unclean.

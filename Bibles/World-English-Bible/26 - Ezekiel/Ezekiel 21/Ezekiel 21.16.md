@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gather thee together, go to the right, set thyself in array, go to the left, whithersoever thy face is set.
+Gather yourselves together, go to the right, set yourselves in array, go to the left, wherever your face is set.

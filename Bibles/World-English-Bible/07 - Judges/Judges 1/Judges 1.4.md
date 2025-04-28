@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah went up; and Jehovah delivered the Canaanites and the Perizzites into their hand: and they smote of them in Bezek ten thousand men.
+Judah went up; and Yahweh delivered the Canaanites and the Perizzites into their hand: and they struck of them in Bezek ten thousand men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had mocked him, they took off from him the purple, and put on him his garments. And they lead him out to crucify him.
+When they had mocked him, they took the purple off of him, and put his own garments on him. They led him out to crucify him.

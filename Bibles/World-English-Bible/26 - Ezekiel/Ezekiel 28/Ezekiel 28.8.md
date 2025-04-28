@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall bring thee down to the pit; and thou shalt die the death of them that are slain, in the heart of the seas.
+They shall bring you down to the pit; and you shall die the death of those who are slain, in the heart of the seas.

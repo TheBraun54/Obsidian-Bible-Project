@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will deliver thee out of the hand of the wicked, and I will redeem thee out of the hand of the terrible.
+I will deliver you out of the hand of the wicked, and I will redeem you out of the hand of the terrible.

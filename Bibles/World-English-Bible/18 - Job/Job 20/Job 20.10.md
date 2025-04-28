@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His children shall seek the favor of the poor, And his hands shall give back his wealth.
+His children shall seek the favor of the poor. His hands shall give back his wealth.

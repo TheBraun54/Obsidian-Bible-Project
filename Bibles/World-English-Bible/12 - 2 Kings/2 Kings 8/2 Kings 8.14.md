@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he departed from Elisha, and came to his master; who said to him, What said Elisha to thee? And he answered, He told me that thou wouldest surely recover.
+Then he departed from Elisha, and came to his master, who said to him, "What did Elisha say to you?" He answered, "He told me that you would surely recover."

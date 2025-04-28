@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and build an altar unto Jehovah thy God upon the top of this stronghold, in the orderly manner, and take the second bullock, and offer a burnt-offering with the wood of the Asherah which thou shalt cut down.
+and build an altar to Yahweh your God on the top of this stronghold, in an orderly way, and take the second bull, and offer a burnt offering with the wood of the Asherah which you shall cut down."

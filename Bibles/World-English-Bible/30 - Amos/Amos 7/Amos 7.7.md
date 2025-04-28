@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus he showed me: and, behold, the Lord stood beside a wall made by a plumb-line, with a plumb-line in his hand.
+Thus he showed me and behold, the Lord stood beside a wall made by a plumb line, with a plumb line in his hand.

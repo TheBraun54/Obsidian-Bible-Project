@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this gird you with sackcloth, lament and wail; for the fierce anger of Jehovah is not turned back from us.
+For this clothe yourself with sackcloth, lament and wail; for the fierce anger of Yahweh hasn't turned back from us.

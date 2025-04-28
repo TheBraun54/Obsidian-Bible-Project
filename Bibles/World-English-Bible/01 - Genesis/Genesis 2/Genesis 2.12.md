@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the gold of that land is good: there is bdellium and the onyx stone.
+and the gold of that land is good. There is aromatic resin and the onyx stone.

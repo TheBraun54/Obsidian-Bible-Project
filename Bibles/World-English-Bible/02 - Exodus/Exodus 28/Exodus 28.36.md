@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a plate of pure gold, and grave upon it, like the engravings of a signet, HOLY TO JEHOVAH.
+"You shall make a plate of pure gold, and engrave on it, like the engravings of a signet, 'HOLY TO YAHWEH.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art Jehovah, even thou alone; thou hast made heaven, the heaven of heavens, with all their host, the earth and all things that are thereon, the seas and all that is in them, and thou preservest them all; and the host of heaven worshippeth thee.
+You are Yahweh, even you alone. You have made heaven, the heaven of heavens, with all their army, the earth and all things that are on it, the seas and all that is in them, and you preserve them all. The army of heaven worships you.

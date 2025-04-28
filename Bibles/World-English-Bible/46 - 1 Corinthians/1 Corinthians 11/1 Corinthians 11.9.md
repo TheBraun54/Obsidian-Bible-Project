@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for neither was the man created for the woman; but the woman for the man:
+for neither was man created for the woman, but woman for the man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And immediately he rose up before them, and took up that whereon he lay, and departed to his house, glorifying God.
+Immediately he rose up before them, and took up that which he was laying on, and departed to his house, glorifying God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, the God of Israel, concerning the houses of this city, and concerning the houses of the kings of Judah, which are broken down [to make a defence] against the mounds and against the sword;
+For thus says Yahweh, the God of Israel, concerning the houses of this city, and concerning the houses of the kings of Judah, which are broken down [to make a defense] against the mounds and against the sword;

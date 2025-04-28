@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I speak after the manner of men because of the infirmity of your flesh: for as ye presented your members [as] servants to uncleanness and to iniquity unto iniquity, even so now present your members [as] servants to righteousness unto sanctification.
+I speak in human terms because of the weakness of your flesh, for as you presented your members as servants to uncleanness and to wickedness upon wickedness, even so now present your members as servants to righteousness for sanctification.

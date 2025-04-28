@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.
+Then Jesus said to him, "Get behind me, Satan! For it is written, 'You shall worship the Lord your God, and you shall serve him only.'"

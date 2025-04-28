@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I gave my back to the smiters, and my cheeks to them that plucked off the hair; I hid not my face from shame and spitting.
+I gave my back to the strikers, and my cheeks to those who plucked off the hair; I didn't hide my face from shame and spitting.

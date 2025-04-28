@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto him that saith unto a father, What begettest thou? or to a woman, With what travailest thou?
+Woe to him who says to a father, 'What have you become the father of?' or to a mother, 'To what have you given birth?'"

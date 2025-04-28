@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all Jabesh-gilead heard all that the Philistines had done to Saul,
+When all Jabesh Gilead heard all that the Philistines had done to Saul,

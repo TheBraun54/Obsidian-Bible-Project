@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, he ladeth the thick cloud with moisture; He spreadeth abroad the cloud of his lightning:
+Yes, he loads the thick cloud with moisture. He spreads abroad the cloud of his lightning.

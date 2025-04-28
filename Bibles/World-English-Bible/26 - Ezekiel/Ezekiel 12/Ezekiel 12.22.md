@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, what is this proverb that ye have in the land of Israel, saying, The days are prolonged, and every vision faileth?
+Son of man, what is this proverb that you have in the land of Israel, saying, The days are prolonged, and every vision fails?

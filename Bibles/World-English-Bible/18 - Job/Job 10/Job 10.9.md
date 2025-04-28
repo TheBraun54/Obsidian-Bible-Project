@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, I beseech thee, that thou hast fashioned me as clay; And wilt thou bring me into dust again?
+Remember, I beg you, that you have fashioned me as clay. Will you bring me into dust again?

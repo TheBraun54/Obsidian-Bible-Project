@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the churning of milk bringeth forth butter, And the wringing of the nose bringeth forth blood; So the forcing of wrath bringeth forth strife.
+For as the churning of milk brings forth butter, and the wringing of the nose brings forth blood; so the forcing of wrath brings forth strife."

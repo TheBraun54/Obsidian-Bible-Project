@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he hath inclined his ear unto me, Therefore will I call [upon him] as long as I live.
+Because he has turned his ear to me, therefore I will call on him as long as I live.

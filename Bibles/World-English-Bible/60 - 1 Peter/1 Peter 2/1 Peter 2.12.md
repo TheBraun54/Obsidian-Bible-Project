@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having your behavior seemly among the Gentiles; that, wherein they speak against you as evil-doers, they may by your good works, which they behold, glorify God in the day of visitation.
+having good behavior among the nations, so in that of which they speak against you as evildoers, they may by your good works, which they see, glorify God in the day of visitation.

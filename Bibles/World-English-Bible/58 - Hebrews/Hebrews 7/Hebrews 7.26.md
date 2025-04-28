@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For such a high priest became us, holy, guileless, undefiled, separated from sinners, and made higher than the heavens;
+For such a high priest was fitting for us: holy, guiltless, undefiled, separated from sinners, and made higher than the heavens;

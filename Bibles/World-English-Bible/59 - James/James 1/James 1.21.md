@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore putting away all filthiness and overflowing of wickedness, receive with meekness the implanted word, which is able to save your souls.
+Therefore, putting away all filthiness and overflowing of wickedness, receive with humility the implanted word, which is able to save your souls.

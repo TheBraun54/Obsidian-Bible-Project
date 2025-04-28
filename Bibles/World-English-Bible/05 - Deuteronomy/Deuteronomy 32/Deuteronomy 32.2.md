@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My doctrine shall drop as the rain; My speech shall distil as the dew, As the small rain upon the tender grass, And as the showers upon the herb.
+My doctrine shall drop as the rain. My speech shall condense as the dew, as the small rain on the tender grass, as the showers on the herb.

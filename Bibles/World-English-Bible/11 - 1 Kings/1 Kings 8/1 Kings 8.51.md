@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for they are thy people, and thine inheritance, which thou broughtest forth out of Egypt, from the midst of the furnace of iron);
+(for they are your people, and your inheritance, which you brought forth out of Egypt, from the midst of the furnace of iron);

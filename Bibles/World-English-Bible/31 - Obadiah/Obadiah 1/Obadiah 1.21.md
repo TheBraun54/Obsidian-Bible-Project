@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And saviours shall come up on mount Zion to judge the mount of Esau; and the kingdom shall be Jehovah's.
+Saviors will go up on Mount Zion to judge the mountains of Esau, and the kingdom will be Yahweh's.

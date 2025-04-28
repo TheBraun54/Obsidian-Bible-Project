@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech, and the companies that were with him, rushed forward, and stood in the entrance of the gate of the city: and the two companies rushed upon all that were in the field, and smote them.
+Abimelech, and the companies that were with him, rushed forward, and stood in the entrance of the gate of the city: and the two companies rushed on all who were in the field, and struck them.

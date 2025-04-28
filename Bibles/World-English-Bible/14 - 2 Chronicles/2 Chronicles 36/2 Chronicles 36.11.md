@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zedekiah was twenty and one years old when he began to reign; and he reigned eleven years in Jerusalem:
+Zedekiah was twenty-one years old when he began to reign; and he reigned eleven years in Jerusalem:

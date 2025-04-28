@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sorrow is better than laughter; for by the sadness of the countenance the heart is made glad.
+Sorrow is better than laughter; for by the sadness of the face the heart is made good.

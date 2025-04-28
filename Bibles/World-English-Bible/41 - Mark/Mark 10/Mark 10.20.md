@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Teacher, all these things have I observed from my youth.
+He said to him, "Teacher, I have observed all these things from my youth."

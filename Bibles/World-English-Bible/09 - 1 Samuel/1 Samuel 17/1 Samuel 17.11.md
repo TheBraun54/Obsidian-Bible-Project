@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Saul and all Israel heard those words of the Philistine, they were dismayed, and greatly afraid.
+When Saul and all Israel heard those words of the Philistine, they were dismayed, and greatly afraid.

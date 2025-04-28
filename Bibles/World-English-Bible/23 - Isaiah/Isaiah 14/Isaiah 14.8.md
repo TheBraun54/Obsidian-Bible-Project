@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, the fir-trees rejoice at thee, [and] the cedars of Lebanon, [saying], Since thou art laid low, no hewer is come up against us.
+Yes, the fir trees rejoice with you, with the cedars of Lebanon, saying, "Since you are humbled, no lumberjack has come up against us."

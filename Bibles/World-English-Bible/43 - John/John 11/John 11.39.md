@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith, Take ye away the stone. Martha, the sister of him that was dead, saith unto him, Lord, by this time the body decayeth; for he hath been [dead] four days.
+Jesus said, "Take away the stone." Martha, the sister of him who was dead, said to him, "Lord, by this time there is a stench, for he has been dead four days."

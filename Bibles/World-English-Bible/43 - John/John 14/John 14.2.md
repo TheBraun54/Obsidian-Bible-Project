@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In my Father's house are many mansions; if it were not so, I would have told you; for I go to prepare a place for you.
+In my Father's house are many homes. If it weren't so, I would have told you. I am going to prepare a place for you.

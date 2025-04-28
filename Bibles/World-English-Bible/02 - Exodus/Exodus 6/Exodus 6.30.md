@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said before Jehovah, Behold, I am of uncircumcised lips, and how shall Pharaoh hearken unto me?
+Moses said before Yahweh, "Behold, I am of uncircumcised lips, and how shall Pharaoh listen to me?"

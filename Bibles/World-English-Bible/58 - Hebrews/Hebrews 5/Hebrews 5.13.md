@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every one that partaketh of milk is without experience of the word of righteousness; for he is a babe.
+For everyone who lives on milk is not experienced in the word of righteousness, for he is a baby.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, I will walk in mine integrity: Redeem me, and be merciful unto me.
+But as for me, I will walk in my integrity. Redeem me, and be merciful to me.

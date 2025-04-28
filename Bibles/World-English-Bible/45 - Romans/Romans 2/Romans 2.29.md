@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he is a Jew who is one inwardly; and circumcision is that of the heart, in the spirit not in the letter; whose praise is not of men, but of God.
+but he is a Jew who is one inwardly, and circumcision is that of the heart, in the spirit not in the letter; whose praise is not from men, but from God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all that ye do be done in love.
+Let all that you do be done in love.

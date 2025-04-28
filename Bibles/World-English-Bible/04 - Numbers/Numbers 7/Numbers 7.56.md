@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one golden spoon of ten [shekels], full of incense;
+one golden ladle of ten shekels, full of incense;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Naphtali he said, O Naphtali, satisfied with favor, And full with the blessing of Jehovah, Possess thou the west and the south.
+Of Naphtali he said, "Naphtali, satisfied with favor, full of the blessing of Yahweh, Possess the west and the south."

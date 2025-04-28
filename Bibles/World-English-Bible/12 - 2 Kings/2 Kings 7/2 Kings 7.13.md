@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of his servants answered and said, Let some take, I pray thee, five of the horses that remain, which are left in the city (behold, they are as all the multitude of Israel that are left in it; behold, they are as all the multitude of Israel that are consumed); and let us send and see.
+One of his servants answered, "Please let some take five of the horses that remain, which are left in the city. Behold, they are like all the multitude of Israel who are left in it. Behold, they are like all the multitude of Israel who are consumed. Let us send and see."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Geshur and Aram took the towns of Jair from them, with Kenath, and the villages thereof, even threescore cities. All these were the sons of Machir the father of Gilead.
+Geshur and Aram took the towns of Jair from them, with Kenath, and its villages, even sixty cities. All these were the sons of Machir the father of Gilead.

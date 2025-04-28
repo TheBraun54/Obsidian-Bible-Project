@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab made the Asherah; and Ahab did yet more to provoke Jehovah, the God of Israel, to anger than all the kings of Israel that were before him.
+Ahab made the Asherah; and Ahab did yet more to provoke Yahweh, the God of Israel, to anger than all the kings of Israel who were before him.

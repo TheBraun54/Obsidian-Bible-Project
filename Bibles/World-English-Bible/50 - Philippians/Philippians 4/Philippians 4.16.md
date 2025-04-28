@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for even in Thessalonica ye sent once and again unto my need.
+For even in Thessalonica you sent once and again to my need.

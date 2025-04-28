@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway one of them ran, and took a sponge, and filled it with vinegar, and put it on a reed, and gave him to drink.
+Immediately one of them ran, and took a sponge, and filled it with vinegar, and put it on a reed, and gave him a drink.

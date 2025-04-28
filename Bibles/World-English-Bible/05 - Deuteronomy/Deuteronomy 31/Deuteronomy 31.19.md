@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore write ye this song for you, and teach thou it the children of Israel: put it in their mouths, that this song may be a witness for me against the children of Israel.
+"Now therefore write this song for yourselves, and teach it to the children of Israel: put it in their mouths, that this song may be a witness for me against the children of Israel.

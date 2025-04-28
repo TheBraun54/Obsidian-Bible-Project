@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things therefore the soldiers did. But there were standing by the cross of Jesus his mother, and his mother's sister, Mary the [wife] of Clopas, and Mary Magdalene.
+But there were standing by the cross of Jesus his mother, and his mother's sister, Mary the wife of Clopas, and Mary Magdalene.

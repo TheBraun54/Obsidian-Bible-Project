@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A worthless witness mocketh at justice; And the mouth of the wicked swalloweth iniquity.
+A corrupt witness mocks justice, and the mouth of the wicked gulps down iniquity.

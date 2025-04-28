@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not sin therefore reign in your mortal body, that ye should obey the lusts thereof:
+Therefore don't let sin reign in your mortal body, that you should obey it in its lusts.

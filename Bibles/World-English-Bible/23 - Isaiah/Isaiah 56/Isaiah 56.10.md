@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His watchmen are blind, they are all without knowledge; they are all dumb dogs, they cannot bark; dreaming, lying down, loving to slumber.
+His watchmen are blind, they are all without knowledge; they are all mute dogs, they can't bark; dreaming, lying down, loving to slumber.

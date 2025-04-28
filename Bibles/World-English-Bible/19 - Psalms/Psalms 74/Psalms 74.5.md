@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They seemed as men that lifted up Axes upon a thicket of trees.
+They behaved like men wielding axes, cutting through a thicket of trees.

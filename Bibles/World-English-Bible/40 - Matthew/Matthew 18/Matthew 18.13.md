@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if so be that he find it, verily I say unto you, he rejoiceth over it more than over the ninety and nine which have not gone astray.
+If he finds it, most certainly I tell you, he rejoices over it more than over the ninety-nine which have not gone astray.

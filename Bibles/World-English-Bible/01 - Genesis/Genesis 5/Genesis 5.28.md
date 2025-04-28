@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lamech lived a hundred eighty and two years, and begat a son:
+Lamech lived one hundred eighty-two years, and became the father of a son,

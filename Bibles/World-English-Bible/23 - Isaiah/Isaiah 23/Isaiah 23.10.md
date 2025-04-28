@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pass through thy land as the Nile, O daughter of Tarshish; there is no restraint any more.
+Pass through your land like the Nile, daughter of Tarshish. There is no restraint any more.

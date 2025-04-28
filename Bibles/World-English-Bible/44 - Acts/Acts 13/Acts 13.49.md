@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of the Lord was spread abroad throughout all the region.
+The Lord's word was spread abroad throughout all the region.

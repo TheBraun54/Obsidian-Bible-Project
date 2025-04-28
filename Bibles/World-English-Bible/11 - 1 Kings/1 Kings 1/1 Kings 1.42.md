@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While he yet spake, behold, Jonathan the son of Abiathar the priest came: and Adonijah said, Come in; for thou art a worthy man, and bringest good tidings.
+While he yet spoke, behold, Jonathan the son of Abiathar the priest came: and Adonijah said, "Come in; for you are a worthy man, and bring good news."

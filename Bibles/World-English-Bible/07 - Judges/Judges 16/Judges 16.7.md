@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson said unto her, If they bind me with seven green withes that were never dried, then shall I become weak, and be as another man.
+Samson said to her, "If they bind me with seven green cords that were never dried, then shall I become weak, and be as another man."

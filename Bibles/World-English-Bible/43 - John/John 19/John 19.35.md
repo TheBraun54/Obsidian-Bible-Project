@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that hath seen hath borne witness, and his witness is true: and he knoweth that he saith true, that ye also may believe.
+He who has seen has testified, and his testimony is true. He knows that he tells the truth, that you may believe.

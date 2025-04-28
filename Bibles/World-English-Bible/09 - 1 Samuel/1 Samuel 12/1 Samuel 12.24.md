@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only fear Jehovah, and serve him in truth with all your heart; for consider how great things he hath done for you.
+Only fear Yahweh, and serve him in truth with all your heart; for consider how great things he has done for you.

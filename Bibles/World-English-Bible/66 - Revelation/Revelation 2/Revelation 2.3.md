@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou hast patience and didst bear for my name's sake, and hast not grown weary.
+You have perseverance and have endured for my name's sake, and have not grown weary.

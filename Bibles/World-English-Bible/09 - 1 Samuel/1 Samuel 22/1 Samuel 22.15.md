@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have I to-day begun to inquire of God for him? be it far from me: let not the king impute anything unto his servant, nor to all the house of my father; for thy servant knoweth nothing of all this, less or more.
+Have I today begun to inquire of God for him? Be it far from me! Don't let the king impute anything to his servant, nor to all the house of my father; for your servant knows nothing of all this, less or more."

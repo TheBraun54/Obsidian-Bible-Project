@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of Ephraim [came down] they whose root is in Amalek; After thee, Benjamin, among thy peoples; Out of Machir came down governors, And out of Zebulun they that handle the marshal's staff.
+Those whose root is in Amalek came out of Ephraim, after you, Benjamin, among your peoples. Governors come down out of Machir. Those who handle the marshal's staff came out of Zebulun.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the princes and all the people rejoiced, and brought in, and cast into the chest, until they had made an end.
+All the princes and all the people rejoiced, and brought in, and cast into the chest, until they had made an end.

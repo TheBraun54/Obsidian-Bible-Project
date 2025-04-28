@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to Titus, my true child after a common faith: Grace and peace from God the Father and Christ Jesus our Saviour.
+to Titus, my true child according to a common faith: Grace, mercy, and peace from God the Father and the Lord Jesus Christ our Savior.

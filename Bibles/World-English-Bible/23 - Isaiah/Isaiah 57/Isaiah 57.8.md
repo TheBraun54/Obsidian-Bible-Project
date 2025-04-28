@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behind the doors and the posts hast thou set up thy memorial: for thou hast uncovered [thyself] to another than me, and art gone up; thou hast enlarged thy bed, and made thee a covenant with them: thou lovedst their bed where thou sawest it.
+Behind the doors and the posts you have set up your memorial: for you have uncovered to someone besides me, and have gone up; you have enlarged your bed, and made you a covenant with them: you loved their bed where you saw it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus said Jehovah: Go down to the house of the king of Judah, and speak there this word,
+Thus said Yahweh: Go down to the house of the king of Judah, and speak there this word,

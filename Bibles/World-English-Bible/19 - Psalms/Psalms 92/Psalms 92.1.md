@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm, a Song for the sabbath day]. It is a good thing to give thanks unto Jehovah, And to sing praises unto thy name, O Most High;
+It is a good thing to give thanks to Yahweh, to sing praises to your name, Most High;

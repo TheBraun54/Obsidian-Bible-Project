@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they said to the woman, Now we believe, not because of thy speaking: for we have heard for ourselves, and know that this is indeed the Saviour of the world.
+They said to the woman, "Now we believe, not because of your speaking; for we have heard for ourselves, and know that this is indeed the Christ, the Savior of the world."

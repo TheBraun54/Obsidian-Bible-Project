@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people shall know, [even] Ephraim and the inhabitant of Samaria, that say in pride and in stoutness of heart,
+All the people will know, including Ephraim and the inhabitants of Samaria, who say in pride and in arrogance of heart,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, when I cry, and call for help, he shutteth out my prayer.
+Yes, when I cry, and call for help, he shuts out my prayer.

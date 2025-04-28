@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, O Jehovah; for I am in distress; my heart is troubled; My heart is turned within me; for I have grievously rebelled: Abroad the sword bereaveth, at home there is as death.
+See, Yahweh; for I am in distress; my heart is troubled; My heart is turned within me; for I have grievously rebelled: Abroad the sword bereaves, at home there is as death.

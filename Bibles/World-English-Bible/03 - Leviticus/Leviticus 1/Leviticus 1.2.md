@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, When any man of you offereth an oblation unto Jehovah, ye shall offer your oblation of the cattle, [even] of the herd and of the flock.
+"Speak to the children of Israel, and tell them, 'When anyone of you offers an offering to Yahweh, you shall offer your offering of the livestock, from the herd and from the flock.

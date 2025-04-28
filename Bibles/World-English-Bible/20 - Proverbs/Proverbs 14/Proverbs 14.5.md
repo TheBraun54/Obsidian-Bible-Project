@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A faithful witness will not lie; But a false witness uttereth lies.
+A truthful witness will not lie, but a false witness pours out lies.

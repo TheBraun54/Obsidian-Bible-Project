@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his sons, Saddle me the ass. So they saddled him the ass; and he rode thereon.
+He said to his sons, "Saddle the donkey for me." So they saddled the donkey for him; and he rode on it.

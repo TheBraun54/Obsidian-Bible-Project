@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a lad here, who hath five barley loaves, and two fishes: but what are these among so many?
+"There is a boy here who has five barley loaves and two fish, but what are these among so many?"

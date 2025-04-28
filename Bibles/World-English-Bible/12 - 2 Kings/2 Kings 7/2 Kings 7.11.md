@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called the porters; and they told it to the king's household within.
+He called the porters; and they told it to the king's household within.

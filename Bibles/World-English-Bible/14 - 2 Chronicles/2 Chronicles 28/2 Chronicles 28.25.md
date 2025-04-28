@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in every city of Judah he made high places to burn incense unto other gods, and provoked to anger Jehovah, the God of his fathers.
+In every city of Judah he made high places to burn incense to other gods, and provoked to anger Yahweh, the God of his fathers.

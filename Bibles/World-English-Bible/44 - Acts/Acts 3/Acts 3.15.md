@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and killed the Prince of life; whom God raised from the dead; whereof we are witnesses.
+and killed the Prince of life, whom God raised from the dead, to which we are witnesses.

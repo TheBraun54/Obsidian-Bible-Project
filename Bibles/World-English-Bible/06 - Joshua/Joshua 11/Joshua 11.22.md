@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was none of the Anakim left in the land of the children of Israel: only in Gaza, in Gath, and in Ashdod, did some remain.
+There were none of the Anakim left in the land of the children of Israel. Only in Gaza, in Gath, and in Ashdod, did some remain.

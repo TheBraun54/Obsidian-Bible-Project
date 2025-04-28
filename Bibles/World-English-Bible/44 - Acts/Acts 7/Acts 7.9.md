@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the patriarchs, moved with jealousy against Joseph, sold him into Egypt: and God was with him,
+"The patriarchs, moved with jealousy against Joseph, sold him into Egypt. God was with him,

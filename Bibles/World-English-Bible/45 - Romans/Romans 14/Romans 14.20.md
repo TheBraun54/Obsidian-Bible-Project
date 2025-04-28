@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Overthrow not for meat's sake the work of God. All things indeed are clean; howbeit it is evil for that man who eateth with offence.
+Don't overthrow God's work for food's sake. All things indeed are clean, however it is evil for that man who creates a stumbling block by eating.

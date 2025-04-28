@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had breastplates, as it were breastplates of iron; and the sound of their wings was as the sound of chariots, of many horses rushing to war.
+They had breastplates, like breastplates of iron. The sound of their wings was like the sound of chariots, or of many horses rushing to war.

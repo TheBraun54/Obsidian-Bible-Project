@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let everything that hath breath praise Jehovah. Praise ye Jehovah.
+Let everything that has breath praise Yah! Praise Yah!

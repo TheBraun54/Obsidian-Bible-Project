@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of the wicked, it shall come upon him; And the desire of the righteous shall be granted.
+What the wicked fear, will overtake them, but the desire of the righteous will be granted.

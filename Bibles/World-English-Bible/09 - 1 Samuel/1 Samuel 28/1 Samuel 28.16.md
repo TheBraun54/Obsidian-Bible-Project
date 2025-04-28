@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, Wherefore then dost thou ask of me, seeing Jehovah is departed from thee, and is become thine adversary?
+Samuel said, "Why then do you ask of me, since Yahweh has departed from you and has become your adversary?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have therefore my glorifying in Christ Jesus in things pertaining to God.
+I have therefore my boasting in Christ Jesus in things pertaining to God.

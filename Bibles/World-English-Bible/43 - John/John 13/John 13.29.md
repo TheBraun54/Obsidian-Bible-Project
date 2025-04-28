@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For some thought, because Judas had the bag, that Jesus said unto him, Buy what things we have need of for the feast; or, that he should give something to the poor.
+For some thought, because Judas had the money box, that Jesus said to him, "Buy what things we need for the feast," or that he should give something to the poor.

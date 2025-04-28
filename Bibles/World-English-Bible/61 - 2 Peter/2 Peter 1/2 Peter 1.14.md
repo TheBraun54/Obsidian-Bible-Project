@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing that the putting off of my tabernacle cometh swiftly, even as our Lord Jesus Christ signified unto me.
+knowing that the putting off of my tent comes swiftly, even as our Lord Jesus Christ made clear to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the time that he reigned over Israel was forty years; seven years reigned he in Hebron, and thirty and three [years] reigned he in Jerusalem.
+The time that he reigned over Israel was forty years; he reigned seven years in Hebron, and thirty-three [years] reigned he in Jerusalem.

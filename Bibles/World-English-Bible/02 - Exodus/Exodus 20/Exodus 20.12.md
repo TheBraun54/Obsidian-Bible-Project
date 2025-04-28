@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor thy father and thy mother, that thy days may be long in the land which Jehovah thy God giveth thee.
+"Honor your father and your mother, that your days may be long in the land which Yahweh your God gives you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of the men: Of the tribe of Judah, Caleb the son of Jephunneh.
+These are the names of the men: Of the tribe of Judah, Caleb the son of Jephunneh.

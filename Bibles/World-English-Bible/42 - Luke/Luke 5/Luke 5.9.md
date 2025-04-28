@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he was amazed, and all that were with him, at the draught of the fishes which they had taken;
+For he was amazed, and all who were with him, at the catch of fish which they had caught;

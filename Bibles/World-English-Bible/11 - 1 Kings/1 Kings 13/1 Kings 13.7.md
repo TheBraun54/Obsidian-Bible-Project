@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto the man of God, Come home with me, and refresh thyself, and I will give thee a reward.
+The king said to the man of God, "Come home with me, and refresh yourself, and I will give you a reward."

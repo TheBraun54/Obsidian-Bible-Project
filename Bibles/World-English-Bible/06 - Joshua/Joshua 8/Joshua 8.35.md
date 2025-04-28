@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was not a word of all that Moses commanded, which Joshua read not before all the assembly of Israel, and the women, and the little ones, and the sojourners that were among them.
+There was not a word of all that Moses commanded, which Joshua didn't read before all the assembly of Israel, with the women, the little ones, and the foreigners who were among them.

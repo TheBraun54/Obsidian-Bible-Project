@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh spake unto Joseph, In my dream, behold, I stood upon the brink of the river:
+Pharaoh spoke to Joseph, "In my dream, behold, I stood on the brink of the river:

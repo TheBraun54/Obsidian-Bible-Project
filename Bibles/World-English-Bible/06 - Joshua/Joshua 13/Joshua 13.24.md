@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses gave unto the tribe of Gad, unto the children of Gad, according to their families.
+Moses gave to the tribe of Gad, to the children of Gad, according to their families.

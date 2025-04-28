@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only, as the Lord hath distributed to each man, as God hath called each, so let him walk. And so ordain I in all the churches.
+Only, as the Lord has distributed to each man, as God has called each, so let him walk. So I command in all the assemblies.

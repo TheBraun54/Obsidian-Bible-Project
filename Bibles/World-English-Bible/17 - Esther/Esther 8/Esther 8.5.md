@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, If it please the king, and if I have found favor in his sight, and the thing seem right before the king, and I be pleasing in his eyes, let it be written to reverse the letters devised by Haman, the son of Hammedatha the Agagite, which he wrote to destroy the Jews that are in all the king's provinces:
+She said, "If it pleases the king, and if I have found favor in his sight, and the thing seem right to the king, and I am pleasing in his eyes, let it be written to reverse the letters devised by Haman, the son of Hammedatha the Agagite, which he wrote to destroy the Jews who are in all the king's provinces.

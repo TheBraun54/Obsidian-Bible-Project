@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None of you shall approach to any that are near of kin to him, to uncover [their] nakedness: I am Jehovah.
+"'None of you shall approach anyone who are his close relatives, to uncover their nakedness: I am Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had been sent from the Pharisees.
+The ones who had been sent were from the Pharisees.

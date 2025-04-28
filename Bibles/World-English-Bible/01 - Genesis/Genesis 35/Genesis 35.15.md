@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob called the name of the place where God spake with him, Beth-el.
+Jacob called the name of the place where God spoke with him "Bethel."

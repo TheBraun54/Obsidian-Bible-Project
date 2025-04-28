@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king was much moved, and went up to the chamber over the gate, and wept: and as he went, thus he said, O my son Absalom, my son, my son Absalom! would I had died for thee, O Absalom, my son, my son!
+The king was much moved, and went up to the room over the gate, and wept. As he went, he said, "My son Absalom! My son, my son Absalom! I wish I had died for you, Absalom, my son, my son!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they say, Jehovah will not see, Neither will the God of Jacob consider.
+They say, "Yah will not see, neither will Jacob's God consider."

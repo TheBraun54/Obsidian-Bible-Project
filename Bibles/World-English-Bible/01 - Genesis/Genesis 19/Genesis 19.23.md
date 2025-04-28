@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun was risen upon the earth when Lot came unto Zoar.
+The sun had risen on the earth when Lot came to Zoar.

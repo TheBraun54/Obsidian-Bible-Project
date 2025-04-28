@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the great trials which thine eyes saw, the signs, and those great wonders:
+the great trials which your eyes saw, the signs, and those great wonders:

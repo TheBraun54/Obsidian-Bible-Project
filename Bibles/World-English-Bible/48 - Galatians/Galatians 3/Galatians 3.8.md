@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand unto Abraham, [saying], In thee shall all the nations be blessed.
+The Scripture, foreseeing that God would justify the Gentiles by faith, preached the Good News beforehand to Abraham, saying, "In you all the nations will be blessed."

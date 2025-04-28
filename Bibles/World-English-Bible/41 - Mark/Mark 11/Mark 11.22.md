@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answering saith unto them, Have faith in God.
+Jesus answered them, "Have faith in God.

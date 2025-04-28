@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the days of the afflicted are evil; But he that is of a cheerful heart [hath] a continual feast.
+All the days of the afflicted are wretched, but one who has a cheerful heart enjoys a continual feast.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, He put all things in subjection under his feet. But when he saith, All things are put in subjection, it is evident that he is excepted who did subject all things unto him.
+For, "He put all things in subjection under his feet." But when he says, "All things are put in subjection," it is evident that he is excepted who subjected all things to him.

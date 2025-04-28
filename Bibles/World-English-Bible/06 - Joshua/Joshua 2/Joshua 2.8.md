@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And before they were laid down, she came up unto them upon the roof;
+Before they had laid down, she came up to them on the roof;

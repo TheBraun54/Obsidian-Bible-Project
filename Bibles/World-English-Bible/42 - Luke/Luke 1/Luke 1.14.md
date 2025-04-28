@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt have joy and gladness; and many shall rejoice at his birth.
+You will have joy and gladness; and many will rejoice at his birth.

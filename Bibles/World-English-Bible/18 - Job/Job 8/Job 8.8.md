@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For inquire, I pray thee, of the former age, And apply thyself to that which their fathers have searched out:
+"Please inquire of past generations. Find out about the learning of their fathers.

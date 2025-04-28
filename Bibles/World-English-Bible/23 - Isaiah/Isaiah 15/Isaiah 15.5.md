@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart crieth out for Moab; her nobles [flee] unto Zoar, to Eglath-shelishi-yah: for by the ascent of Luhith with weeping they go up; for in the way of Horonaim they raise up a cry of destruction.
+My heart cries out for Moab! Her nobles flee to Zoar, to Eglath Shelishiyah; for they go up by the ascent of Luhith with weeping; for in the way of Horonaim, they raise up a cry of destruction.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shalt thou not be put to shame for all thy doings, wherein thou hast transgressed against me; for then I will take away out of the midst of thee thy proudly exulting ones, and thou shalt no more be haughty in my holy mountain.
+In that day you will not be disappointed for all your doings, in which you have transgressed against me; for then I will take away out of the midst of you your proudly exulting ones, and you will no more be haughty in my holy mountain.

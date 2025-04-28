@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall take all the vessels of ministry, wherewith they minister in the sanctuary, and put them in a cloth of blue, and cover them with a covering of sealskin, and shall put them on the frame.
+"They shall take all the vessels of ministry, with which they minister in the sanctuary, and put them in a blue cloth, and cover them with a covering of sealskin, and shall put them on the frame.

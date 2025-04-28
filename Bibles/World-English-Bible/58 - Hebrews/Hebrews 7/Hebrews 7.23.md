@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they indeed have been made priests many in number, because that by death they are hindered from continuing:
+Many, indeed, have been made priests, because they are hindered from continuing by death.

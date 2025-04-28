@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses told Aaron all the words of Jehovah wherewith he had sent him, and all the signs wherewith he had charged him.
+Moses told Aaron all the words of Yahweh with which he had sent him, and all the signs with which he had instructed him.

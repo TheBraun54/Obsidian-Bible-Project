@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah [tendeth] to life; And he [that hath it] shall abide satisfied; He shall not be visited with evil.
+The fear of Yahweh leads to life, then contentment; he rests and will not be touched by trouble.

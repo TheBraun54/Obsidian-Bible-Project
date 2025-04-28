@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The beginning of the gospel of Jesus Christ, the Son of God.
+The beginning of the Good News of Jesus Christ, the Son of God.

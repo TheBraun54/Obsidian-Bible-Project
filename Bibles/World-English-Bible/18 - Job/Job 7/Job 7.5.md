@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My flesh is clothed with worms and clods of dust; My skin closeth up, and breaketh out afresh.
+My flesh is clothed with worms and clods of dust. My skin closes up, and breaks out afresh.

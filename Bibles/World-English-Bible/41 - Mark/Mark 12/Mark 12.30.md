@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength.
+you shall love the Lord your God with all your heart, and with all your soul, and with all your mind, and with all your strength.' This is the first commandment.

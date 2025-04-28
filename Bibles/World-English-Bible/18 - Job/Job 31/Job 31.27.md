@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my heart hath been secretly enticed, And my mouth hath kissed my hand:
+and my heart has been secretly enticed, and my hand threw a kiss from my mouth,

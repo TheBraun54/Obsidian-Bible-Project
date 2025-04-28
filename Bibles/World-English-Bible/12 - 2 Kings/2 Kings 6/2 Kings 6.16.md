@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered, Fear not; for they that are with us are more than they that are with them.
+He answered, "Don't be afraid; for those who are with us are more than those who are with them."

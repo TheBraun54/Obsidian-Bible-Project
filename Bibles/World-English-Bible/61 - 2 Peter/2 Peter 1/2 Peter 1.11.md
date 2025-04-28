@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for thus shall be richly supplied unto you the entrance into the eternal kingdom of our Lord and Saviour Jesus Christ.
+For thus you will be richly supplied with the entrance into the eternal Kingdom of our Lord and Savior, Jesus Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make bars of acacia wood; five for the boards of the one side of the tabernacle,
+"You shall make bars of acacia wood: five for the boards of the one side of the tabernacle,

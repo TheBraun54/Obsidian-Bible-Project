@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Philip opened his mouth, and beginning from this Scripture, preached unto him Jesus.
+Philip opened his mouth, and beginning from this Scripture, preached to him Jesus.

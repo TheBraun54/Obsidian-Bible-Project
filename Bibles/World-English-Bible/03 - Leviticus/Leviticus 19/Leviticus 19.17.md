@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not hate thy brother in thy heart: thou shalt surely rebuke thy neighbor, and not bear sin because of him.
+"'You shall not hate your brother in your heart. You shall surely rebuke your neighbor, and not bear sin because of him.

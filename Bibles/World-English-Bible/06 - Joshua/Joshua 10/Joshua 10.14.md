@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was no day like that before it or after it, that Jehovah hearkened unto the voice of a man: for Jehovah fought for Israel.
+There was no day like that before it or after it, that Yahweh listened to the voice of a man; for Yahweh fought for Israel.

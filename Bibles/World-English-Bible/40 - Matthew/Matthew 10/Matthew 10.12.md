@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as ye enter into the house, salute it.
+As you enter into the household, greet it.

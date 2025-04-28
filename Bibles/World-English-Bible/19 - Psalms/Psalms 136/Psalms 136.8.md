@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun to rule by day; For his lovingkindness [endureth] for ever;
+The sun to rule by day; for his loving kindness endures forever;

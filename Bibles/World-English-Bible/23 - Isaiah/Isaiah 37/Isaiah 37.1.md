@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when king Hezekiah heard it, that he rent his clothes, and covered himself with sackcloth, and went into the house of Jehovah.
+It happened, when king Hezekiah heard it, that he tore his clothes, covered himself with sackcloth, and went into Yahweh's house.

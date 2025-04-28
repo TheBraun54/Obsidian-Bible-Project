@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One shall say, I am Jehovah's; and another shall call [himself] by the name of Jacob; and another shall subscribe with his hand unto Jehovah, and surname [himself] by the name of Israel.
+One will say, 'I am Yahweh's;' and another will be called by the name of Jacob; and another will write with his hand 'to Yahweh,' and honor the name of Israel."

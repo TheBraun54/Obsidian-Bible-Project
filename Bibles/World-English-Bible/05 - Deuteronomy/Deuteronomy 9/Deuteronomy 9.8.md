@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also in Horeb ye provoked Jehovah to wrath, and Jehovah was angry with you to destroy you.
+Also in Horeb you provoked Yahweh to wrath, and Yahweh was angry with you to destroy you.

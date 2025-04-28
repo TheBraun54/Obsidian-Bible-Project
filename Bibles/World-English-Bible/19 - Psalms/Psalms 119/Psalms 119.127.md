@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I love thy commandments Above gold, yea, above fine gold.
+Therefore I love your commandments more than gold, yes, more than pure gold.

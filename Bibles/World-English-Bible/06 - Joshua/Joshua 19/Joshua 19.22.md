@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border reached to Tabor, and Shahazumah, and Beth-shemesh; and the goings out of their border were at the Jordan: sixteen cities with their villages.
+The border reached to Tabor, Shahazumah, and Beth Shemesh. Their border ended at the Jordan: sixteen cities with their villages.

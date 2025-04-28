@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, two blind men sitting by the way side, when they heard that Jesus was passing by, cried out, saying, Lord, have mercy on us, thou son of David.
+Behold, two blind men sitting by the road, when they heard that Jesus was passing by, cried out, "Lord, have mercy on us, you son of David!"

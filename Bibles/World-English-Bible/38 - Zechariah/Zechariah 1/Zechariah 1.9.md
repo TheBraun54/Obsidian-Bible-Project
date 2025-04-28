@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, O my lord, what are these? And the angel that talked with me said unto me, I will show thee what these are.
+Then I asked, 'My lord, what are these?'" The angel who talked with me said to me, "I will show you what these are."

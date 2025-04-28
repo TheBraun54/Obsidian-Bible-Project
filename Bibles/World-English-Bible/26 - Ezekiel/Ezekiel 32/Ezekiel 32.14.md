@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will I make their waters clear, and cause their rivers to run like oil, saith the Lord Jehovah.
+Then will I make their waters clear, and cause their rivers to run like oil, says the Lord Yahweh.

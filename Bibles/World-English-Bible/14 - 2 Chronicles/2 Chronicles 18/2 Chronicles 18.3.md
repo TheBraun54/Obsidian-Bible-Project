@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab king of Israel said unto Jehoshaphat king of Judah, Wilt thou go with me to Ramoth-gilead? And he answered him, I am as thou art, and my people as thy people; and [we will be] with thee in the war.
+Ahab king of Israel said to Jehoshaphat king of Judah, "Will you go with me to Ramoth Gilead?" He answered him, "I am as you are, and my people as your people. We will be with you in the war."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the Spirit of Jehovah departed from Saul, and an evil spirit from Jehovah troubled him.
+Now the Spirit of Yahweh departed from Saul, and an evil spirit from Yahweh troubled him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the thought of him that is at ease there is contempt for misfortune; It is ready for them whose foot slippeth.
+In the thought of him who is at ease there is contempt for misfortune. It is ready for them whose foot slips.

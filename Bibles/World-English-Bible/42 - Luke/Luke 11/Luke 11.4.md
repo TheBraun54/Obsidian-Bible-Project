@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And forgive us our sins; for we ourselves also forgive every one that is indebted to us. And bring us not into temptation.
+Forgive us our sins, for we ourselves also forgive everyone who is indebted to us. Bring us not into temptation, but deliver us from the evil one.'"

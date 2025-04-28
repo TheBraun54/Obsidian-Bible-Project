@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, when he was come, and had seen the grace of God, was glad; and he exhorted them all, that with purpose of heart they would cleave unto the Lord:
+who, when he had come, and had seen the grace of God, was glad. He exhorted them all, that with purpose of heart they should remain near to the Lord.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For not he that commendeth himself is approved, but whom the Lord commendeth.
+For it isn't he who commends himself who is approved, but whom the Lord commends.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to all the assembly, Now bless Jehovah your God. And all the assembly blessed Jehovah, the God of their fathers, and bowed down their heads, and worshipped Jehovah, and the king.
+David said to all the assembly, "Now bless Yahweh your God!" All the assembly blessed Yahweh, the God of their fathers, and bowed down their heads and prostrated themselves before Yahweh and the king.

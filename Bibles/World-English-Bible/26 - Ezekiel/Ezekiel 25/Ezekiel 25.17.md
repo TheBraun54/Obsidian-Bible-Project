@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will execute great vengeance upon them with wrathful rebukes; and they shall know that I am Jehovah, when I shall lay my vengeance upon them.
+I will execute great vengeance on them with wrathful rebukes; and they shall know that I am Yahweh, when I shall lay my vengeance on them.

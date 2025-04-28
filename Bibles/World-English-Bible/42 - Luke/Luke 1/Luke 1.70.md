@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(As he spake by the mouth of his holy prophets that have been from of old),
+(as he spoke by the mouth of his holy prophets who have been from of old),

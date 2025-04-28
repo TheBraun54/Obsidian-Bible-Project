@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Commit thy way unto Jehovah; Trust also in him, and he will bring it to pass.
+Commit your way to Yahweh. Trust also in him, and he will do this:

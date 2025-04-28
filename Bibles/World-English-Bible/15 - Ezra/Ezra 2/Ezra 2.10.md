@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Bani, six hundred forty and two.
+The children of Bani, six hundred forty-two.

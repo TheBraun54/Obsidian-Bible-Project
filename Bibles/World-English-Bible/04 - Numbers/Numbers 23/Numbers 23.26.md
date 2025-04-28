@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Balaam answered and said unto Balak, Told not I thee, saying, All that Jehovah speaketh, that I must do?
+But Balaam answered Balak, "Didn't I tell you, saying, 'All that Yahweh speaks, that I must do?'"

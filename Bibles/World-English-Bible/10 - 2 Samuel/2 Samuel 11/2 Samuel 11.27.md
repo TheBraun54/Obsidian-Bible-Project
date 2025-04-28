@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the mourning was past, David sent and took her home to his house, and she became his wife, and bare him a son. But the thing that David had done displeased Jehovah.
+When the mourning was past, David sent and took her home to his house, and she became his wife, and bore him a son. But the thing that David had done displeased Yahweh.

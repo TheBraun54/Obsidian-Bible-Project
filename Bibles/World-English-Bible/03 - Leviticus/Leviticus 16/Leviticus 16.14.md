@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall take of the blood of the bullock, and sprinkle it with his finger upon the mercy-seat on the east; and before the mercy-seat shall he sprinkle of the blood with his finger seven times.
+He shall take some of the blood of the bull, and sprinkle it with his finger on the mercy seat on the east; and before the mercy seat he shall sprinkle some of the blood with his finger seven times.

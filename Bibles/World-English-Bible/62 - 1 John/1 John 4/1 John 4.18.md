@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no fear in love: but perfect love casteth out fear, because fear hath punishment; and he that feareth is not made perfect in love.
+There is no fear in love; but perfect love casts out fear, because fear has punishment. He who fears is not made perfect in love.

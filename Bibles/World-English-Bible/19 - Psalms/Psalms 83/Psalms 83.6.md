@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tents of Edom and the Ishmaelites; Moab, and the Hagarenes;
+The tents of Edom and the Ishmaelites; Moab, and the Hagrites;

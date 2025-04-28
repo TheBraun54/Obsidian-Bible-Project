@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou art holy, O thou that inhabitest the praises of Israel.
+But you are holy, you who inhabit the praises of Israel.

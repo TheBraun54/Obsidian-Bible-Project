@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he, when he is come, will convict the world in respect of sin, and of righteousness, and of judgment:
+When he has come, he will convict the world about sin, about righteousness, and about judgment;

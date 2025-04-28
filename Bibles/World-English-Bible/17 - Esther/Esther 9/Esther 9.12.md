@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Esther the queen, The Jews have slain and destroyed five hundred men in Shushan the palace, and the ten sons of Haman; what then have they done in the rest of the king's provinces! Now what is thy petition? and it shall be granted thee: or what is thy request further? and it shall be done.
+The king said to Esther the queen, "The Jews have slain and destroyed five hundred men in the citadel of Susa, including the ten sons of Haman; what then have they done in the rest of the king's provinces! Now what is your petition? It shall be granted you. What is your further request? It shall be done."

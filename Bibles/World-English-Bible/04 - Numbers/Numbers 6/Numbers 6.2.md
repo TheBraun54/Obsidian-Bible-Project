@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, When either man or woman shall make a special vow, the vow of a Nazirite, to separate himself unto Jehovah,
+"Speak to the children of Israel, and tell them: 'When either man or woman shall make a special vow, the vow of a Nazirite, to separate himself to Yahweh,

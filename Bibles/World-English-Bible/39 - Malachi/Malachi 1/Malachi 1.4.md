@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereas Edom saith, We are beaten down, but we will return and build the waste places; thus saith Jehovah of hosts, They shall build, but I will throw down; and men shall call them The border of wickedness, and The people against whom Jehovah hath indignation for ever.
+Whereas Edom says, "We are beaten down, but we will return and build the waste places;" thus says Yahweh of Armies, "They shall build, but I will throw down; and men will call them 'The Wicked Land,' even the people against whom Yahweh shows wrath forever."

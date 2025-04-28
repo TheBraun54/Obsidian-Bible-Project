@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah; For Jehovah is good: Sing praises unto his name; For it is pleasant.
+Praise Yah, for Yahweh is good. Sing praises to his name, for that is pleasant.

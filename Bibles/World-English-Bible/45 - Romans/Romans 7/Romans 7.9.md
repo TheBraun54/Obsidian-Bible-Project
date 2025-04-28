@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I was alive apart from the law once: but when the commandment came, sin revived, and I died;
+I was alive apart from the law once, but when the commandment came, sin revived, and I died.

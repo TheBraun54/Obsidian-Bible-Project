@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let him that is in the field not return back to take his cloak.
+Let him who is in the field not return back to get his clothes.

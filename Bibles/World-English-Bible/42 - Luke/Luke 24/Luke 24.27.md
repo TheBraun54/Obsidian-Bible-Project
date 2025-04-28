@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And beginning from Moses and from all the prophets, he interpreted to them in all the scriptures the things concerning himself.
+Beginning from Moses and from all the prophets, he explained to them in all the Scriptures the things concerning himself.

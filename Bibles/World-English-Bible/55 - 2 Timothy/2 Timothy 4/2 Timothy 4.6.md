@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am already being offered, and the time of my departure is come.
+For I am already being offered, and the time of my departure has come.

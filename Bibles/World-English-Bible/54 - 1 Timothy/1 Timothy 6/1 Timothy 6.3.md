@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man teacheth a different doctrine, and consenteth not to sound words, [even] the words of our Lord Jesus Christ, and to the doctrine which is according to godliness;
+If anyone teaches a different doctrine, and doesn't consent to sound words, the words of our Lord Jesus Christ, and to the doctrine which is according to godliness,

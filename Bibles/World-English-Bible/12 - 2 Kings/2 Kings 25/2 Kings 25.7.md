@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they slew the sons of Zedekiah before his eyes, and put out the eyes of Zedekiah, and bound him in fetters, and carried him to Babylon.
+They killed the sons of Zedekiah before his eyes, and put out the eyes of Zedekiah, and bound him in fetters, and carried him to Babylon.

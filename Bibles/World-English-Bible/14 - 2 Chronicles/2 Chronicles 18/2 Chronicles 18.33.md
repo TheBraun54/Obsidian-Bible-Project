@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain man drew his bow at a venture, and smote the king of Israel between the joints of the armor: wherefore he said to the driver of the chariot, Turn thy hand, and carry me out of the host; for I am sore wounded.
+A certain man drew his bow at random, and struck the king of Israel between the joints of the armor. Therefore he said to the driver of the chariot, "Turn your hand, and carry me out of the army; for I am severely wounded."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he overlaid it with pure gold, and made thereto a crown of gold round about.
+He overlaid it with pure gold, and made a gold molding around it.

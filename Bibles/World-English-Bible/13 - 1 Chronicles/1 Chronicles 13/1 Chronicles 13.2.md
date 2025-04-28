@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto all the assembly of Israel, If it seem good unto you, and if it be of Jehovah our God, let us send abroad every where unto our brethren that are left in all the land of Israel, with whom the priests and Levites are in their cities that have suburbs, that they may gather themselves unto us;
+David said to all the assembly of Israel, "If it seems good to you, and if it is of Yahweh our God, let us send abroad everywhere to our brothers who are left in all the land of Israel, with whom the priests and Levites are in their cities that have suburbs, that they may gather themselves to us;

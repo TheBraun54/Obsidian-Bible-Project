@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hiram sent to the king sixscore talents of gold.
+Hiram sent to the king one hundred twenty talents of gold.

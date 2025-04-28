@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I came out from the Father, and am come into the world: again, I leave the world, and go unto the Father.
+I came out from the Father, and have come into the world. Again, I leave the world, and go to the Father."

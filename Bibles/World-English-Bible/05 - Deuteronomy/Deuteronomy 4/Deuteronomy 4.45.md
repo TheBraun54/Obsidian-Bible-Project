@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-these are the testimonies, and the statutes, and the ordinances, which Moses spake unto the children of Israel, when they came forth out of Egypt,
+these are the testimonies, and the statutes, and the ordinances, which Moses spoke to the children of Israel, when they came forth out of Egypt,

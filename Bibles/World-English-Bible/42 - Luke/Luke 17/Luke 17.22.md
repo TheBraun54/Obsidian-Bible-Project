@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto the disciples, The days will come, when ye shall desire to see one of the days of the Son of man, and ye shall not see it.
+He said to the disciples, "The days will come, when you will desire to see one of the days of the Son of Man, and you will not see it.

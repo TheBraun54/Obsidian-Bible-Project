@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as touching the matter which thou and I have spoken of, behold, Jehovah is between thee and me for ever.
+Concerning the matter which you and I have spoken of, behold, Yahweh is between you and me forever."

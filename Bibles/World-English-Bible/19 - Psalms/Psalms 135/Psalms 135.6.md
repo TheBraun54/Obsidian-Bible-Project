@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whatsoever Jehovah pleased, that hath he done, In heaven and in earth, in the seas and in all deeps;
+Whatever Yahweh pleased, that he has done, in heaven and in earth, in the seas and in all deeps;

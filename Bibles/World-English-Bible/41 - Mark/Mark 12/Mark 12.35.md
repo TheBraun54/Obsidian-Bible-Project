@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said, as he taught in the temple, How say the scribes that the Christ is the son of David?
+Jesus responded, as he taught in the temple, "How is it that the scribes say that the Christ is the son of David?

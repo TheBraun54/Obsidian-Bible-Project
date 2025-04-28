@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, seven other kine came up after them out of the river, ill-favored and lean-fleshed, and stood by the other kine upon the brink of the river.
+Behold, seven other cattle came up after them out of the river, ugly and thin, and stood by the other cattle on the brink of the river.

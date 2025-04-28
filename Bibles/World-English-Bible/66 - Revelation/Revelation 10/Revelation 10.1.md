@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw another strong angel coming down out of heaven, arrayed with a cloud; and the rainbow was upon his head, and his face was as the sun, and his feet as pillars of fire;
+I saw a mighty angel coming down out of the sky, clothed with a cloud. A rainbow was on his head. His face was like the sun, and his feet like pillars of fire.

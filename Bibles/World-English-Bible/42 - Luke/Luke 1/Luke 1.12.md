@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zacharias was troubled when he saw [him], and fear fell upon him.
+Zacharias was troubled when he saw him, and fear fell upon him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So there went up thither of the people about three thousand men: and they fled before the men of Ai.
+So about three thousand men of the people went up there, and they fled before the men of Ai.

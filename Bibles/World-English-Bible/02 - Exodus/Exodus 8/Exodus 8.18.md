@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the magicians did so with their enchantments to bring forth lice, but they could not: and there were lice upon man, and upon beast.
+The magicians tried with their enchantments to bring forth lice, but they couldn't. There were lice on man, and on animal.

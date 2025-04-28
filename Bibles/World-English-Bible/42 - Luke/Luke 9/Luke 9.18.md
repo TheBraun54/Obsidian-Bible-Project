@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as he was praying apart, the disciples were with him: and he asked them, saying, Who do the multitudes say that I am?
+It happened, as he was praying alone, that the disciples were with him, and he asked them, "Who do the multitudes say that I am?"

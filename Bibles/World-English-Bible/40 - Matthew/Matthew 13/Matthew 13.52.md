@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Therefore every scribe who hath been made a disciple to the kingdom of heaven is like unto a man that is a householder, who bringeth forth out of his treasure things new and old.
+He said to them, "Therefore, every scribe who has been made a disciple in the Kingdom of Heaven is like a man who is a householder, who brings out of his treasure new and old things."

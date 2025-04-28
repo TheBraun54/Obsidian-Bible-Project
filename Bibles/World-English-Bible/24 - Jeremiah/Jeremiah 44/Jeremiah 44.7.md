@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore now thus saith Jehovah, the God of hosts, the God of Israel: Wherefore commit ye [this] great evil against your own souls, to cut off from you man and woman, infant and suckling, out of the midst of Judah, to leave you none remaining;
+Therefore now thus says Yahweh, the God of Armies, the God of Israel: Why do you commit great evil against your own souls, to cut off from yourselves man and woman, infant and nursing child out of the midst of Judah, to leave yourselves none remaining;

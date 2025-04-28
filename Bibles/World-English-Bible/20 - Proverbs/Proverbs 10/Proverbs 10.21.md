@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lips of the righteous feed many; But the foolish die for lack of understanding.
+The lips of the righteous feed many, but the foolish die for lack of understanding.

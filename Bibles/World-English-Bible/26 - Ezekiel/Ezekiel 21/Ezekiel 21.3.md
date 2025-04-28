@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say to the land of Israel, Thus saith Jehovah: Behold, I am against thee, and will draw forth my sword out of its sheath, and will cut off from thee the righteous and the wicked.
+and tell the land of Israel, Thus says Yahweh: Behold, I am against you, and will draw forth my sword out of its sheath, and will cut off from you the righteous and the wicked.

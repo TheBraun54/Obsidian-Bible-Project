@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehoshaphat made ships of Tarshish to go to Ophir for gold: but they went not; for the ships were broken at Ezion-geber.
+Jehoshaphat made ships of Tarshish to go to Ophir for gold: but they didn't go; for the ships were broken at Ezion Geber.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Philip saith unto him, Lord, show us the Father, and it sufficeth us.
+Philip said to him, "Lord, show us the Father, and that will be enough for us."

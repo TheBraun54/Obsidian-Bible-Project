@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua commanded the people, saying, Ye shall not shout, nor let your voice be heard, neither shall any word proceed out of your mouth, until the day I bid you shout; then shall ye shout.
+Joshua commanded the people, saying, "You shall not shout, nor let your voice be heard, neither shall any word proceed out of your mouth, until the day I tell you to shout. Then you shall shout."

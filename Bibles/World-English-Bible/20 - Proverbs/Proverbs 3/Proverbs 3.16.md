@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Length of days is in her right hand; In her left hand are riches and honor.
+Length of days is in her right hand. In her left hand are riches and honor.

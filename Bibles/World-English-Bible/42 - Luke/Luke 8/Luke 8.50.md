@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus hearing it, answered him, Fear not: only believe, and she shall be made whole.
+But Jesus hearing it, answered him, "Don't be afraid. Only believe, and she will be healed."

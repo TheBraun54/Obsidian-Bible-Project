@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And what one nation in the earth is like thy people Israel, whom God went to redeem unto himself for a people, to make thee a name by great and terrible things, in driving out nations from before thy people, whom thou redeemest out of Egypt?
+What one nation in the earth is like your people Israel, whom God went to redeem to himself for a people, to make you a name by great and awesome things, in driving out nations from before your people, whom you redeem out of Egypt?

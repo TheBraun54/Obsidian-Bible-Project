@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever hateth his brother is a murderer: and ye know that no murderer hath eternal life abiding in him.
+Whoever hates his brother is a murderer, and you know that no murderer has eternal life remaining in him.

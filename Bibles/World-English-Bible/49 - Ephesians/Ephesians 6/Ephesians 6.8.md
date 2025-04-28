@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing that whatsoever good thing each one doeth, the same shall he receive again from the Lord, whether [he be] bond or free.
+knowing that whatever good thing each one does, he will receive the same again from the Lord, whether he is bound or free.

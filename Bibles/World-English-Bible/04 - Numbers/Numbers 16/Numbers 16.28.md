@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, Hereby ye shall know that Jehovah hath sent me to do all these works; for [I have] not [done them] of mine own mind.
+Moses said, "Hereby you shall know that Yahweh has sent me to do all these works; for [I have] not [done them] of my own mind.

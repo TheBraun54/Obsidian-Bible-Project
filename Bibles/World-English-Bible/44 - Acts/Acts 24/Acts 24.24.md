@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But after certain days, Felix came with Drusilla, his wife, who was a Jewess, and sent for Paul, and heard him concerning the faith in Christ Jesus.
+But after some days, Felix came with Drusilla, his wife, who was a Jewess, and sent for Paul, and heard him concerning the faith in Christ Jesus.

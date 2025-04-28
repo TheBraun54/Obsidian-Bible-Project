@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto him that buildeth his house by unrighteousness, and his chambers by injustice; that useth his neighbor's service without wages, and giveth him not his hire;
+Woe to him who builds his house by unrighteousness, and his rooms by injustice; who uses his neighbor's service without wages, and doesn't give him his hire;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, I count not myself yet to have laid hold: but one thing [I do], forgetting the things which are behind, and stretching forward to the things which are before,
+Brothers, I don't regard myself as yet having taken hold, but one thing I do. Forgetting the things which are behind, and stretching forward to the things which are before,

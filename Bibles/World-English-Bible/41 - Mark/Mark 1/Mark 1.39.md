@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went into their synagogues throughout all Galilee, preaching and casting out demons.
+He went into their synagogues throughout all Galilee, preaching and casting out demons.

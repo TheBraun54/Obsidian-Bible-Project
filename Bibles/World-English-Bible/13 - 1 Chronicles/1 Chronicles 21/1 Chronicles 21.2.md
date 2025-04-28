@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Joab and to the princes of the people, Go, number Israel from Beer-sheba even to Dan; and bring me word, that I may know the sum of them.
+David said to Joab and to the princes of the people, "Go, number Israel from Beersheba even to Dan; and bring me word, that I may know the sum of them."

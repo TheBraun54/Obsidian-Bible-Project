@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To make known to the sons of men his mighty acts, And the glory of the majesty of his kingdom.
+to make known to the sons of men his mighty acts, the glory of the majesty of his kingdom.

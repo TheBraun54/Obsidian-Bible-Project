@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So these nations feared Jehovah, and served their graven images; their children likewise, and their children's children, as did their fathers, so do they unto this day.
+So these nations feared Yahweh, and served their engraved images. Their children likewise, and their children's children, as their fathers did, so they do to this day.

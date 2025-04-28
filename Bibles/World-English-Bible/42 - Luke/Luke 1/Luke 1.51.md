@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath showed strength with his arm; He hath scattered the proud in the imagination of their heart.
+He has shown strength with his arm. He has scattered the proud in the imagination of their hearts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let heaven and earth praise him, The seas, and everything that moveth therein.
+Let heaven and earth praise him; the seas, and everything that moves therein!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as they journeyed east, that they found a plain in the land of Shinar; and they dwelt there.
+It happened, as they traveled east, that they found a plain in the land of Shinar, and they lived there.

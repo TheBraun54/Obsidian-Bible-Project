@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who goeth in company with the workers of iniquity, And walketh with wicked men?
+Who goes in company with the workers of iniquity, and walks with wicked men?

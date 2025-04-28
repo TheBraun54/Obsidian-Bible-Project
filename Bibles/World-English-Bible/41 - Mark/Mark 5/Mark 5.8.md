@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he said unto him, Come forth, thou unclean spirit, out of the man.
+For he said to him, "Come out of the man, you unclean spirit!"

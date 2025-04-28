@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, I have brought the first of the fruit of the ground, which thou, O Jehovah, hast given me. And thou shalt set it down before Jehovah thy God, and worship before Jehovah thy God:
+Now, behold, I have brought the first of the fruit of the ground, which you, Yahweh, have given me." You shall set it down before Yahweh your God, and worship before Yahweh your God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the lamps thereof, seven, and the snuffers thereof, and the snuffdishes thereof, of pure gold.
+He made its seven lamps, and its snuffers, and its snuff dishes, of pure gold.

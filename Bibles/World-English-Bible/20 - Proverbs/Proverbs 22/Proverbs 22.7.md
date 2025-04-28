@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rich ruleth over the poor; And the borrower is servant to the lender.
+The rich rule over the poor. The borrower is servant to the lender.

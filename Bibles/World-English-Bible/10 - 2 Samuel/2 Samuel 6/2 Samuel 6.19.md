@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he dealt among all the people, even among the whole multitude of Israel, both to men and women, to every one a cake of bread, and a portion [of flesh], and a cake of raisins. So all the people departed every one to his house.
+He dealt among all the people, even among the whole multitude of Israel, both to men and women, to everyone a cake of bread, and a portion [of flesh], and a cake of raisins. So all the people departed everyone to his house.

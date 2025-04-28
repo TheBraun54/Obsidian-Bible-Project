@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am come a light into the world, that whosoever believeth on me may not abide in the darkness.
+I have come as a light into the world, that whoever believes in me may not remain in the darkness.

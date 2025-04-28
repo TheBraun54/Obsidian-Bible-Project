@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the sons of Benjamin after their families; and they that were numbered of them were forty and five thousand and six hundred.
+These are the sons of Benjamin after their families; and those who were numbered of them were forty-five thousand six hundred.

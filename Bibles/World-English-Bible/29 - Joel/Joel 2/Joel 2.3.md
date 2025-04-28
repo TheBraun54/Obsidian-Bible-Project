@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fire devoureth before them; and behind them a flame burneth: the land is as the garden of Eden before them, and behind them a desolate wilderness; yea, and none hath escaped them.
+A fire devours before them, and behind them, a flame burns. The land is as the garden of Eden before them, and behind them, a desolate wilderness. Yes, and no one has escaped them.

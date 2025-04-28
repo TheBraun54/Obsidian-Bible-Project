@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came out, and went, as his custom was, unto the mount of Olives; and the disciples also followed him.
+He came out, and went, as his custom was, to the Mount of Olives. His disciples also followed him.

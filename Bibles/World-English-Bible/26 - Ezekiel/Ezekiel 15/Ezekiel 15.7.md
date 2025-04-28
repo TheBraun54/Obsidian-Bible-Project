@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set my face against them; they shall go forth from the fire, but the fire shall devour them; and ye shall know that I am Jehovah, when I set my face against them.
+I will set my face against them; they shall go forth from the fire, but the fire shall devour them; and you shall know that I am Yahweh, when I set my face against them.

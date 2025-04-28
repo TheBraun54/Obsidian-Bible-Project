@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Philistines heard the noise of the shout, they said, What meaneth the noise of this great shout in the camp of the Hebrews? And they understood that the ark of Jehovah was come into the camp.
+When the Philistines heard the noise of the shout, they said, "What does the noise of this great shout in the camp of the Hebrews mean?" They understood that the ark of Yahweh had come into the camp.

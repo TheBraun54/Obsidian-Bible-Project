@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said, Make the people sit down. Now there was much grass in the place. So the men sat down, in number about five thousand.
+Jesus said, "Have the people sit down." Now there was much grass in that place. So the men sat down, in number about five thousand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now is the judgment of this world: now shall the prince of this world be cast out.
+Now is the judgment of this world. Now the prince of this world will be cast out.

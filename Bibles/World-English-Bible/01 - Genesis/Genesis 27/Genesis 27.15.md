@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rebekah took the goodly garments of Esau her elder son, which were with her in the house, and put them upon Jacob her younger son;
+Rebekah took the good clothes of Esau, her elder son, which were with her in the house, and put them on Jacob, her younger son.

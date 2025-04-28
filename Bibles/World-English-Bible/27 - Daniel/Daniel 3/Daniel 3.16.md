@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shadrach, Meshach, and Abed-nego answered and said to the king, O Nebuchadnezzar, we have no need to answer thee in this matter.
+Shadrach, Meshach, and Abednego answered the king, Nebuchadnezzar, we have no need to answer you in this matter.

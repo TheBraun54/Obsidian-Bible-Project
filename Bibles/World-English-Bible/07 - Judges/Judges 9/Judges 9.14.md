@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said all the trees unto the bramble, Come thou, and reign over us.
+"Then all the trees said to the bramble, 'Come and reign over us.'

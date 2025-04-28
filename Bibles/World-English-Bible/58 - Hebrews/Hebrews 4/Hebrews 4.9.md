@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There remaineth therefore a sabbath rest for the people of God.
+There remains therefore a Sabbath rest for the people of God.

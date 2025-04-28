@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will lay it waste; it shall not be pruned nor hoed; but there shall come up briers and thorns: I will also command the clouds that they rain no rain upon it.
+I will lay it a wasteland. It won't be pruned nor hoed, but it will grow briers and thorns. I will also command the clouds that they rain no rain on it."

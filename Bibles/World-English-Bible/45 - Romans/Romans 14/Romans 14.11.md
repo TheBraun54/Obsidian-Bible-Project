@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is written, As I live, saith the Lord, to me every knee shall bow, And every tongue shall confess to God.
+For it is written, "'As I live,' says the Lord, 'to me every knee will bow. Every tongue will confess to God.'"

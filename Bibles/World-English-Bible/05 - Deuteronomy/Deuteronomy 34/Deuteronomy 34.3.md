@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the South, and the Plain of the valley of Jericho the city of palm-trees, unto Zoar.
+and the South, and the Plain of the valley of Jericho the city of palm trees, to Zoar.

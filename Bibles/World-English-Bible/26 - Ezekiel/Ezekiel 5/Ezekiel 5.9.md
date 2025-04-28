@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will do in thee that which I have not done, and whereunto I will not do any more the like, because of all thine abominations.
+I will do in you that which I have not done, and whereunto I will not do any more the like, because of all your abominations.

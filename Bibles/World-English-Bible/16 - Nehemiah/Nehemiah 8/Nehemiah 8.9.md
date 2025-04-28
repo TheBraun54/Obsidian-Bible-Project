@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nehemiah, who was the governor, and Ezra the priest the scribe, and the Levites that taught the people, said unto all the people, This day is holy unto Jehovah your God; mourn not, nor weep. For all the people wept, when they heard the words of the law.
+Nehemiah, who was the governor, and Ezra the priest the scribe, and the Levites who taught the people, said to all the people, "This day is holy to Yahweh your God. Don't mourn, nor weep." For all the people wept, when they heard the words of the law.

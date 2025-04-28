@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be the man that maketh a graven or molten image, an abomination unto Jehovah, the work of the hands of the craftsman, and setteth it up in secret. And all the people shall answer and say, Amen.
+'Cursed is the man who makes an engraved or molten image, an abomination to Yahweh, the work of the hands of the craftsman, and sets it up in secret.' All the people shall answer and say, 'Amen.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all these evil things proceed from within, and defile the man.
+All these evil things come from within, and defile the man."

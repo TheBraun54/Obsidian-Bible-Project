@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the second lot came out for Simeon, even for the tribe of the children of Simeon according to their families: and their inheritance was in the midst of the inheritance of the children of Judah.
+The second lot came out for Simeon, even for the tribe of the children of Simeon according to their families. Their inheritance was in the midst of the inheritance of the children of Judah.

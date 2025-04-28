@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak said unto him, Come, I pray thee, with me unto another place, from whence thou mayest see them; thou shalt see but the utmost part of them, and shalt not see them all: and curse me them from thence.
+Balak said to him, "Please come with me to another place, where you may see them; you shall see but the utmost part of them, and shall not see them all: and curse me them from there."

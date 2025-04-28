@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As keepers of a field are they against her round about, because she hath been rebellious against me, saith Jehovah.
+As keepers of a field, they are against her all around, because she has been rebellious against me,'" says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate answered them, saying, Will ye that I release unto you the King of the Jews?
+Pilate answered them, saying, "Do you want me to release to you the King of the Jews?"

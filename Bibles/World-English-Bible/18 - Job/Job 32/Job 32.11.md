@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I waited for your words, I listened for your reasonings, Whilst ye searched out what to say.
+"Behold, I waited for your words, and I listened for your reasoning, while you searched out what to say.

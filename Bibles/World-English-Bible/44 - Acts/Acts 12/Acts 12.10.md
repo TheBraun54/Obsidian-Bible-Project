@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were past the first and the second guard, they came unto the iron gate that leadeth into the city; which opened to them of its own accord: and they went out, and passed on through one street; and straightway the angel departed from him.
+When they were past the first and the second guard, they came to the iron gate that leads into the city, which opened to them by itself. They went out, and went down one street, and immediately the angel departed from him.

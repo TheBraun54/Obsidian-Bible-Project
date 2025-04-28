@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not according to the covenant that I made with their fathers In the day that I took them by the hand to lead them forth out of the land of Egypt; For they continued not in my covenant, And I regarded them not, saith the Lord.
+not according to the covenant that I made with their fathers, in the day that I took them by the hand to lead them out of the land of Egypt; for they didn't continue in my covenant, and I disregarded them," says the Lord.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Pharaoh saw that there was respite, he hardened his heart, and hearkened not unto them; as Jehovah had spoken.
+But when Pharaoh saw that there was a respite, he hardened his heart, and didn't listen to them, as Yahweh had spoken.

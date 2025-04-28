@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the fifteenth to Jeremoth, his sons and his brethren, twelve:
+for the fifteenth to Jeremoth, his sons and his brothers, twelve:

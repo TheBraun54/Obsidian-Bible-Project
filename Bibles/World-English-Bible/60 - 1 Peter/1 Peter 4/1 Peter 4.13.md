@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but insomuch as ye are partakers of Christ's sufferings, rejoice; that at the revelation of his glory also ye may rejoice with exceeding joy.
+But because you are partakers of Christ's sufferings, rejoice; that at the revelation of his glory you also may rejoice with exceeding joy.

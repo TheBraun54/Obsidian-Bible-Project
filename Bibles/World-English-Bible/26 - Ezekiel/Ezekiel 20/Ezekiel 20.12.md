@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover also I gave them my sabbaths, to be a sign between me and them, that they might know that I am Jehovah that sanctifieth them.
+Moreover also I gave them my Sabbaths, to be a sign between me and them, that they might know that I am Yahweh who sanctifies them.

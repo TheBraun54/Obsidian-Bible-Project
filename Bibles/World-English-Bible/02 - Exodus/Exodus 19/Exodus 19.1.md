@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the third month after the children of Israel were gone forth out of the land of Egypt, the same day came they into the wilderness of Sinai.
+In the third month after the children of Israel had gone forth out of the land of Egypt, on that same day they came into the wilderness of Sinai.

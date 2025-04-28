@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I beseech you to confirm [your] love toward him.
+Therefore I beg you to confirm your love toward him.

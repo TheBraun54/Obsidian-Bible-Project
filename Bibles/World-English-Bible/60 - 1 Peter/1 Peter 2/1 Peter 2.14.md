@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or unto governors, as sent by him for vengeance on evil-doers and for praise to them that do well.
+or to governors, as sent by him for vengeance on evildoers and for praise to those who do well.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And hast thou not there with thee Zadok and Abiathar the priests? therefore it shall be, that what thing soever thou shalt hear out of the king's house, thou shalt tell it to Zadok and Abiathar the priests.
+Don't you have Zadok and Abiathar the priests there with you? Therefore it shall be, that whatever thing you shall hear out of the king's house, you shall tell it to Zadok and Abiathar the priests.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-holding forth the word of life; that I may have whereof to glory in the day of Christ, that I did not run in vain neither labor in vain.
+holding up the word of life; that I may have something to boast in the day of Christ, that I didn't run in vain nor labor in vain.

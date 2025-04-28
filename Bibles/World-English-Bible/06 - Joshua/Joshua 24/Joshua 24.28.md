@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua sent the people away, every man unto his inheritance.
+So Joshua sent the people away, every man to his inheritance.

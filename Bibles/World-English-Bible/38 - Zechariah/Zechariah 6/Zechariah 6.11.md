@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, take [of them] silver and gold, and make crowns, and set them upon the head of Joshua the son of Jehozadak, the high priest;
+Yes, take silver and gold, and make crowns, and set them on the head of Joshua the son of Jehozadak, the high priest;

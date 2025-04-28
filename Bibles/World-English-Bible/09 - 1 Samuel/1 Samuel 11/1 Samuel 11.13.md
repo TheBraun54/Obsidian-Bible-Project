@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, There shall not a man be put to death this day; for to-day Jehovah hath wrought deliverance in Israel.
+Saul said, "There shall not a man be put to death this day; for today Yahweh has worked deliverance in Israel."

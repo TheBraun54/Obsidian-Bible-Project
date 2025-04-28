@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they went in to Hezekiah the king within [the palace], and said, We have cleansed all the house of Jehovah, and the altar of burnt-offering, with all the vessels thereof, and the table of showbread, with all the vessels thereof.
+Then they went in to Hezekiah the king within [the palace], and said, "We have cleansed all the house of Yahweh, and the altar of burnt offering, with all its vessels, and the table of show bread, with all its vessels.

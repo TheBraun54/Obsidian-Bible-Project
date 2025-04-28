@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the cities of the tribe of the children of Benjamin according to their families were Jericho, and Beth-hoglah, and Emek-keziz,
+Now the cities of the tribe of the children of Benjamin according to their families were Jericho, Beth Hoglah, Emek Keziz,

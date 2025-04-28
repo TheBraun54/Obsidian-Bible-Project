@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-store-houses also for the increase of grain and new wine and oil; and stalls for all manner of beasts, and flocks in folds.
+storehouses also for the increase of grain and new wine and oil; and stalls for all kinds of animals, and flocks in folds.

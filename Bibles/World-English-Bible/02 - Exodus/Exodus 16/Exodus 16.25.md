@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, Eat that to-day; for to-day is a sabbath unto Jehovah: to-day ye shall not find it in the field.
+Moses said, "Eat that today, for today is a Sabbath to Yahweh. Today you shall not find it in the field.

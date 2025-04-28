@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, then would I wander far off, I would lodge in the wilderness. {{Selah
+Behold, then I would wander far off. I would lodge in the wilderness." Selah.

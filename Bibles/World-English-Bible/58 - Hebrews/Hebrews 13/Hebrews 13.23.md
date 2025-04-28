@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know ye that our brother Timothy hath been set at liberty; with whom, if he come shortly, I will see you.
+Know that our brother Timothy has been freed, with whom, if he comes shortly, I will see you.

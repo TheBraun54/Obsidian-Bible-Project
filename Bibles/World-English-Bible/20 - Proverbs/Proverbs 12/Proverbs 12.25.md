@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Heaviness in the heart of a man maketh it stoop; But a good word maketh it glad.
+Anxiety in a man's heart weighs it down, but a kind word makes it glad.

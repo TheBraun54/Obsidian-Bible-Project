@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun also ariseth, and the sun goeth down, and hasteth to its place where it ariseth.
+The sun also rises, and the sun goes down, and hurries to its place where it rises.

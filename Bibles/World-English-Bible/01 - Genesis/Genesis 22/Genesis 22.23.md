@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bethuel begat Rebekah: these eight did Milcah bear to Nahor, Abraham's brother.
+Bethuel became the father of Rebekah. These eight Milcah bore to Nahor, Abraham's brother.

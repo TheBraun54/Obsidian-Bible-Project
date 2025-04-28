@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sanctify yourselves therefore, and be ye holy; for I am Jehovah your God.
+"'Sanctify yourselves therefore, and be holy; for I am Yahweh your God.

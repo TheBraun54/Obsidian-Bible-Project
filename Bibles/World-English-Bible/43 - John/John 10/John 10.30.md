@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I and the Father are one.
+I and the Father are one."

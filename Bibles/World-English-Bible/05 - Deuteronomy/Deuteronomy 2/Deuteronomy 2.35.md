@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-only the cattle we took for a prey unto ourselves, with the spoil of the cities which we had taken.
+only the livestock we took for a prey to ourselves, with the spoil of the cities which we had taken.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Uzzi begat Zerahiah, and Zerahiah begat Meraioth,
+and Uzzi became the father of Zerahiah, and Zerahiah became the father of Meraioth,

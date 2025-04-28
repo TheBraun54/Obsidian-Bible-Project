@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(as it is written in the law of the Lord, Every male that openeth the womb shall be called holy to the Lord),
+(as it is written in the law of the Lord, "Every male who opens the womb shall be called holy to the Lord"),

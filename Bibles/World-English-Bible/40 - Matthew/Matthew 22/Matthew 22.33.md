@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the multitudes heard it, they were astonished at his teaching.
+When the multitudes heard it, they were astonished at his teaching.

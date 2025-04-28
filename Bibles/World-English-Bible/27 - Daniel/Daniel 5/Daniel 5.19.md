@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and because of the greatness that he gave him, all the peoples, nations, and languages trembled and feared before him: whom he would he slew, and whom he would he kept alive; and whom he would he raised up, and whom he would he put down.
+and because of the greatness that he gave him, all the peoples, nations, and languages trembled and feared before him: whom he would he killed, and whom he would he kept alive; and whom he would he raised up, and whom he would he put down.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou have gone aside, being under thy husband, and if thou be defiled, and some man have lain with thee besides thy husband:
+But if you have gone astray, being under your husband, and if you are defiled, and some man has lain with you besides your husband:"

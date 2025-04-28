@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, [my] little children, abide in him; that, if he shall be manifested, we may have boldness, and not be ashamed before him at his coming.
+Now, little children, remain in him, that when he appears, we may have boldness, and not be ashamed before him at his coming.

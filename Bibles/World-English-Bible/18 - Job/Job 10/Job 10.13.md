@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet these things thou didst hide in thy heart; I know that this is with thee:
+Yet you hid these things in your heart. I know that this is with you:

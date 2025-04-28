@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My bread also which I gave thee, fine flour, and oil, and honey, wherewith I fed thee, thou didst even set it before them for a sweet savor; and [thus] it was, saith the Lord Jehovah.
+My bread also which I gave you, fine flour, and oil, and honey, with which I fed you, you even set it before them for a pleasant aroma; and [thus] it was, says the Lord Yahweh.

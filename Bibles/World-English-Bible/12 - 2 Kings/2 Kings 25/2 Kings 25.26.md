@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people, both small and great, and the captains of the forces, arose, and came to Egypt; for they were afraid of the Chaldeans.
+All the people, both small and great, and the captains of the forces, arose, and came to Egypt; for they were afraid of the Chaldeans.

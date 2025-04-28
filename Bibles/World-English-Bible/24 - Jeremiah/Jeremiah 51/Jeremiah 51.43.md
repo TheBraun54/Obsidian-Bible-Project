@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her cities are become a desolation, a dry land, and a desert, a land wherein no man dwelleth, neither doth any son of man pass thereby.
+Her cities are become a desolation, a dry land, and a desert, a land in which no man dwells, neither does any son of man pass thereby.

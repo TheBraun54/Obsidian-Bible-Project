@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For from you hath sounded forth the word of the Lord, not only in Macedonia and Achaia, but in every place your faith to God-ward is gone forth; so that we need not to speak anything.
+For from you the word of the Lord has been declared, not only in Macedonia and Achaia, but also in every place your faith toward God has gone out; so that we need not to say anything.

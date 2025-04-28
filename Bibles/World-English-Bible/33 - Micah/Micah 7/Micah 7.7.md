@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, I will look unto Jehovah; I will wait for the God of my salvation: my God will hear me.
+But as for me, I will look to Yahweh. I will wait for the God of my salvation. My God will hear me.

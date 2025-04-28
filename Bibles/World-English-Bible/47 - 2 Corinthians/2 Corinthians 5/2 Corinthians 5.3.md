@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if so be that being clothed we shall not be found naked.
+if so be that being clothed we will not be found naked.

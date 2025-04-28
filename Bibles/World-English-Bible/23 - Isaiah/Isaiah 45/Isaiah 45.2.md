@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will go before thee, and make the rough places smooth; I will break in pieces the doors of brass, and cut in sunder the bars of iron;
+"I will go before you, and make the rough places smooth. I will break the doors of brass in pieces, and cut apart the bars of iron.

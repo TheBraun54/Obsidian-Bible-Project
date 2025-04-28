@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our fathers trusted in thee: They trusted, and thou didst deliver them.
+Our fathers trusted in you. They trusted, and you delivered them.

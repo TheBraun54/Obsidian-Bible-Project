@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech dwelt at Arumah: and Zebul drove out Gaal and his brethren, that they should not dwell in Shechem.
+Abimelech lived at Arumah: and Zebul drove out Gaal and his brothers, that they should not dwell in Shechem.

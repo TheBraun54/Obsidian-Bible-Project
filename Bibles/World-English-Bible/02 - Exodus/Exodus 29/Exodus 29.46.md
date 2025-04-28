@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall know that I am Jehovah their God, that brought them forth out of the land of Egypt, that I might dwell among them: I am Jehovah their God.
+They shall know that I am Yahweh their God, who brought them forth out of the land of Egypt, that I might dwell among them: I am Yahweh their God.

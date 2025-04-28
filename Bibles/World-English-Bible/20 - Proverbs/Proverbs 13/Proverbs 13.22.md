@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A good man leaveth an inheritance to his children's children; And the wealth of the sinner is laid up for the righteous.
+A good man leaves an inheritance to his children's children, but the wealth of the sinner is stored for the righteous.

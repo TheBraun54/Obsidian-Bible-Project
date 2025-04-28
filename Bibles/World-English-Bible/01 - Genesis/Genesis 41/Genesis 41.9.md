@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake the chief butler unto Pharaoh, saying, I do remember my faults this day:
+Then the chief cupbearer spoke to Pharaoh, saying, "I remember my faults today.

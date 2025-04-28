@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Rehoboam was come to Jerusalem, he assembled the house of Judah and Benjamin, a hundred and fourscore thousand chosen men, that were warriors, to fight against Israel, to bring the kingdom again to Rehoboam.
+When Rehoboam was come to Jerusalem, he assembled the house of Judah and Benjamin, one hundred eighty thousand chosen men, who were warriors, to fight against Israel, to bring the kingdom again to Rehoboam.

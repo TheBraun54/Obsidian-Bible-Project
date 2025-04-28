@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man's hair be fallen off his head, he is bald; [yet] is he clean.
+"If a man's hair has fallen from his head, he is bald. He is clean.

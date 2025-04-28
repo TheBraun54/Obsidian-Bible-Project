@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who also said, Ye men of Galilee, why stand ye looking into heaven? this Jesus, who was received up from you into heaven shall so come in like manner as ye beheld him going into heaven.
+who also said, "You men of Galilee, why do you stand looking into the sky? This Jesus, who was received up from you into the sky will come back in the same way as you saw him going into the sky."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have hoped for thy salvation, O Jehovah, And have done thy commandments.
+I have hoped for your salvation, Yahweh. I have done your commandments.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put him in ward, that it might be declared unto them at the mouth of Jehovah.
+They put him in custody, until the will of Yahweh should be declared to them.

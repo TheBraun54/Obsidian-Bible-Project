@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye fools and blind: for which is greater, the gold, or the temple that hath sanctified the gold?
+You blind fools! For which is greater, the gold, or the temple that sanctifies the gold?

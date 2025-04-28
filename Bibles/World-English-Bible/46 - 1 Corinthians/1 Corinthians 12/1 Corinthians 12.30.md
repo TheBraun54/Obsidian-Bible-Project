@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-have all gifts of healings? do all speak with tongues? do all interpret?
+Do all have gifts of healings? Do all speak with various languages? Do all interpret?

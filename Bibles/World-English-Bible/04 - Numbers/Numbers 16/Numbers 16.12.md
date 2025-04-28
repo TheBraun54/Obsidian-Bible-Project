@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses sent to call Dathan and Abiram, the sons of Eliab; and they said, We will not come up:
+Moses sent to call Dathan and Abiram, the sons of Eliab; and they said, "We won't come up:

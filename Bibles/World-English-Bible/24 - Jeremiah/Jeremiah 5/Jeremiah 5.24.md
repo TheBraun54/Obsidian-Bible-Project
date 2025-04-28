@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither say they in their heart, Let us now fear Jehovah our God, that giveth rain, both the former and the latter, in its season; that preserveth unto us the appointed weeks of the harvest.
+Neither do they say in their heart, 'Let us now fear Yahweh our God, who gives rain, both the former and the latter, in its season; who preserves to us the appointed weeks of the harvest.'

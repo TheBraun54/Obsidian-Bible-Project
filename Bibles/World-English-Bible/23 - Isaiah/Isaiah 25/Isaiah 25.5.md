@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the heat in a dry place wilt thou bring down the noise of strangers; as the heat by the shade of a cloud, the song of the terrible ones shall be brought low.
+As the heat in a dry place will you bring down the noise of strangers; as the heat by the shade of a cloud, the song of the dreaded ones will be brought low.

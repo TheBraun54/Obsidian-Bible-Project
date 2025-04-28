@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these were they that went up from Tel-melah, Tel-harsha, Cherub, Addan, [and] Immer; but they could not show their fathers' houses, and their seed, whether they were of Israel:
+These were those who went up from Tel Melah, Tel Harsha, Cherub, Addan, [and] Immer; but they could not show their fathers' houses, and their seed, whether they were of Israel:

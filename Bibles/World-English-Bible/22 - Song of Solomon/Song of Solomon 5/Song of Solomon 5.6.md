@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I opened to my beloved; But my beloved had withdrawn himself, [and] was gone. My soul had failed me when he spake: I sought him, but I could not find him; I called him, but he gave me no answer.
+I opened to my beloved; but my beloved left; and had gone away. My heart went out when he spoke. I looked for him, but I didn't find him. I called him, but he didn't answer.

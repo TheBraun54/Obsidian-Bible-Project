@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they poured out the blood of the saints and the prophets, and blood hast thou given them to drink: they are worthy.
+For they poured out the blood of the saints and the prophets, and you have given them blood to drink. They deserve this."

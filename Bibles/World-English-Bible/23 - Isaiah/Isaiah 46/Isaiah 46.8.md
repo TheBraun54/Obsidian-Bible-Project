@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember this, and show yourselves men; bring it again to mind, O ye transgressors.
+"Remember this, and show yourselves men; bring it again to mind, you transgressors.

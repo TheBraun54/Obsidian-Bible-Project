@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How precious is thy lovingkindness, O God! And the children of men take refuge under the shadow of thy wings.
+How precious is your loving kindness, God! The children of men take refuge under the shadow of your wings.

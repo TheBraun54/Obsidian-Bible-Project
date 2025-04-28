@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though thou, Israel, play the harlot, yet let not Judah offend; and come not ye unto Gilgal, neither go ye up to Beth-aven, nor swear, As Jehovah liveth.
+"Though you, Israel, play the prostitute, yet don't let Judah offend; and don't come to Gilgal, neither go up to Beth Aven, nor swear, 'As Yahweh lives.'

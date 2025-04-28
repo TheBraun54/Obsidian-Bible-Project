@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet I had planted thee a noble vine, wholly a right seed: how then art thou turned into the degenerate branches of a foreign vine unto me?
+Yet I had planted you a noble vine, wholly a right seed. How then have you turned into the degenerate branches of a foreign vine to me?

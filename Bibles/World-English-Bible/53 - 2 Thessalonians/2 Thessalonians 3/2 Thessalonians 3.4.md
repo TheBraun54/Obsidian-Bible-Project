@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we have confidence in the Lord touching you, that ye both do and will do the things which we command.
+We have confidence in the Lord concerning you, that you both do and will do the things we command.

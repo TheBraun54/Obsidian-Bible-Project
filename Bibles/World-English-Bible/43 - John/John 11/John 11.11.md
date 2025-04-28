@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things spake he: and after this he saith unto them, Our friend Lazarus is fallen asleep; but I go, that I may awake him out of sleep.
+He said these things, and after that, he said to them, "Our friend, Lazarus, has fallen asleep, but I am going so that I may awake him out of sleep."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the Philistines were subdued, and they came no more within the border of Israel: and the hand of Jehovah was against the Philistines all the days of Samuel.
+So the Philistines were subdued, and they came no more within the border of Israel. The hand of Yahweh was against the Philistines all the days of Samuel.

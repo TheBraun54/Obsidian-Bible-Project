@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall come from the east and west, and from the north and south, and shall sit down in the kingdom of God.
+They will come from the east, west, north, and south, and will sit down in the Kingdom of God.

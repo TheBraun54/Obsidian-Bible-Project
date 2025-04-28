@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the sons of Aaron they gave the cities of refuge, Hebron; Libnah also with its suburbs, and Jattir, and Eshtemoa with its suburbs,
+To the sons of Aaron they gave the cities of refuge, Hebron; Libnah also with its suburbs, and Jattir, and Eshtemoa with its suburbs,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king answered unto Daniel, and said, Of a truth your God is the God of gods, and the Lord of kings, and a revealer of secrets, seeing thou hast been able to reveal this secret.
+The king answered to Daniel, and said, Of a truth your God is the God of gods, and the Lord of kings, and a revealer of secrets, since you have been able to reveal this secret.

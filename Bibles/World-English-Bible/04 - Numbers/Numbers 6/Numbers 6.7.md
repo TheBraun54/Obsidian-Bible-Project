@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not make himself unclean for his father, or for his mother, for his brother, or for his sister, when they die; because his separation unto God is upon his head.
+He shall not make himself unclean for his father, or for his mother, for his brother, or for his sister, when they die; because his separation to God is on his head.

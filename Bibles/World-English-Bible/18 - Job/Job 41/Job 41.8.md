@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lay thy hand upon him; Remember the battle, and do so no more.
+Lay your hand on him. Remember the battle, and do so no more.

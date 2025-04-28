@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto them the third day, This do, and live; for I fear God:
+Joseph said to them the third day, "Do this, and live, for I fear God.

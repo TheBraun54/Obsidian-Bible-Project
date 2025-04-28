@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And lay thou [thy] treasure in the dust, And [the gold of] Ophir among the stones of the brooks;
+Lay your treasure in the dust, the gold of Ophir among the stones of the brooks.

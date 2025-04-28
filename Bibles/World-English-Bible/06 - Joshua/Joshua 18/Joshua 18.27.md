@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Rekem, and Irpeel, and Taralah,
+Rekem, Irpeel, Taralah,

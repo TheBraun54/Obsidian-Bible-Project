@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw an angel coming down out of heaven, having the key of the abyss and a great chain in his hand.
+I saw an angel coming down out of heaven, having the key of the abyss and a great chain in his hand.

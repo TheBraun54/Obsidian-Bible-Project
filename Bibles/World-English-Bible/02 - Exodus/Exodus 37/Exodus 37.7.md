@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made two cherubim of gold; of beaten work made he them, at the two ends of the mercy-seat;
+He made two cherubim of gold. He made them of beaten work, at the two ends of the mercy seat;

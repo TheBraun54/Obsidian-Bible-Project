@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say unto him, Jehovah, the God of the Hebrews, hath sent me unto thee, saying, Let my people go, that they may serve me in the wilderness: and, behold, hitherto thou hast not hearkened.
+You shall tell him, 'Yahweh, the God of the Hebrews, has sent me to you, saying, "Let my people go, that they may serve me in the wilderness:" and behold, until now you haven't listened.

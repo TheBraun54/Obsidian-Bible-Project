@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will cast out nations before thee, and enlarge thy borders: neither shall any man desire thy land, when thou goest up to appear before Jehovah thy God three times in the year.
+For I will drive out nations before you and enlarge your borders; neither shall any man desire your land when you go up to appear before Yahweh, your God, three times in the year.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if Satan hath risen up against himself, and is divided, he cannot stand, but hath an end.
+If Satan has risen up against himself, and is divided, he can't stand, but has an end.

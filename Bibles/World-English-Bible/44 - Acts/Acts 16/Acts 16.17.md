@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The same following after Paul and us cried out, saying, These men are servants of the Most High God, who proclaim unto you the way of salvation.
+Following Paul and us, she cried out, "These men are servants of the Most High God, who proclaim to us a way of salvation!"

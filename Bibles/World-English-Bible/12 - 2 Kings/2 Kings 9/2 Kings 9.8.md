@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the whole house of Ahab shall perish; and I will cut off from Ahab every man-child, and him that is shut up and him that is left at large in Israel.
+For the whole house of Ahab shall perish. I will cut off from Ahab everyone who urinates against a wall, both him who is shut up and him who is left at large in Israel.

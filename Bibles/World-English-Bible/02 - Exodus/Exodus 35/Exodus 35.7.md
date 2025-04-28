@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and rams' skins dyed red, and sealskins, and acacia wood,
+rams' skins dyed red, sea cow hides, acacia wood,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And say ye, Save us, O God of our salvation, And gather us together and deliver us from the nations, To give thanks unto thy holy name, And to triumph in thy praise.
+Say, "Save us, God of our salvation! Gather us together and deliver us from the nations, to give thanks to your holy name, to triumph in your praise."

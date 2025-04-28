@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell [of it], ye that ride on white asses, Ye that sit on rich carpets, And ye that walk by the way.
+"Tell [of it], you who ride on white donkeys, you who sit on rich carpets, and you who walk by the way.

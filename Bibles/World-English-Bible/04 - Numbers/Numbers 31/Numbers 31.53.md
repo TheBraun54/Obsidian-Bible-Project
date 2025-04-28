@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-([ For] the men of war had taken booty, every man for himself.)
+([For] the men of war had taken booty, every man for himself.)

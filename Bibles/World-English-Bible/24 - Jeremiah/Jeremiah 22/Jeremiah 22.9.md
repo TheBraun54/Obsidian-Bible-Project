@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they shall answer, Because they forsook the covenant of Jehovah their God, and worshipped other gods, and served them.
+Then they shall answer, Because they forsook the covenant of Yahweh their God, and worshiped other gods, and served them.

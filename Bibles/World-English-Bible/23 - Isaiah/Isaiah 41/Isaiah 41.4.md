@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath wrought and done it, calling the generations from the beginning? I, Jehovah, the first, and with the last, I am he.
+Who has worked and done it, calling the generations from the beginning? I, Yahweh, the first, and with the last, I am he."

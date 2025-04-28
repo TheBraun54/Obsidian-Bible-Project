@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel that were present kept the passover at that time, and the feast of unleavened bread seven days.
+The children of Israel who were present kept the Passover at that time, and the feast of unleavened bread seven days.

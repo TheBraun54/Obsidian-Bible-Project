@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they shall blow them, all the congregation shall gather themselves unto thee at the door of the tent of meeting.
+When they blow them, all the congregation shall gather themselves to you at the door of the Tent of Meeting.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king spake and said, Is not this great Babylon, which I have built for the royal dwelling-place, by the might of my power and for the glory of my majesty?
+The king spoke and said, Is not this great Babylon, which I have built for the royal dwelling place, by the might of my power and for the glory of my majesty?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All we like sheep have gone astray; we have turned every one to his own way; and Jehovah hath laid on him the iniquity of us all.
+All we like sheep have gone astray. Everyone has turned to his own way; and Yahweh has laid on him the iniquity of us all.

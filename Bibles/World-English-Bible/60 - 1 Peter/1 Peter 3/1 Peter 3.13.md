@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And who is he that will harm you, if ye be zealous of that which is good?
+Now who is he who will harm you, if you become imitators of that which is good?

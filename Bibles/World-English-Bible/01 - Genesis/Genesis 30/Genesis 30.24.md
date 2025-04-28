@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she called his name Joseph, saying, Jehovah add to me another son.
+She named him Joseph, saying, "May Yahweh add another son to me."

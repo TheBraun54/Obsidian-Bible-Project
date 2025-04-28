@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah that created the heavens, the God that formed the earth and made it, that established it and created it not a waste, that formed it to be inhabited: I am Jehovah; and there is none else.
+For thus says Yahweh who created the heavens, the God who formed the earth and made it, who established it and didn't create it a waste, who formed it to be inhabited: "I am Yahweh; and there is no other.

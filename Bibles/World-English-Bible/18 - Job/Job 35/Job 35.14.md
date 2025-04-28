@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much less when thou sayest thou beholdest him not, The cause is before him, and thou waitest for him!
+How much less when you say you don't see him. The cause is before him, and you wait for him!

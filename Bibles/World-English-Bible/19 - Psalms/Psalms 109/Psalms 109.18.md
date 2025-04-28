@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He clothed himself also with cursing as with his garment, And it came into his inward parts like water, And like oil into his bones.
+He clothed himself also with cursing as with his garment. It came into his inward parts like water, like oil into his bones.

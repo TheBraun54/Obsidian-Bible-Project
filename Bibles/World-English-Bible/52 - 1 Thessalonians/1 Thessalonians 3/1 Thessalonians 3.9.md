@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what thanksgiving can we render again unto God for you, for all the joy wherewith we joy for your sakes before our God;
+For what thanksgiving can we render again to God for you, for all the joy with which we rejoice for your sakes before our God;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set my jealousy against thee, and they shall deal with thee in fury; they shall take away thy nose and thine ears; and thy residue shall fall by the sword: they shall take thy sons and thy daughters; and thy residue shall be devoured by the fire.
+I will set my jealousy against you, and they shall deal with you in fury; they shall take away your nose and your ears; and your residue shall fall by the sword: they shall take your sons and your daughters; and your residue shall be devoured by the fire.

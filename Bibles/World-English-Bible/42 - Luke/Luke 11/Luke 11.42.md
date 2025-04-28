@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But woe unto you Pharisees! for ye tithe mint and rue and every herb, and pass over justice and the love of God: but these ought ye to have done, and not to leave the other undone.
+But woe to you Pharisees! For you tithe mint and rue and every herb, but you bypass justice and the love of God. You ought to have done these, and not to have left the other undone.

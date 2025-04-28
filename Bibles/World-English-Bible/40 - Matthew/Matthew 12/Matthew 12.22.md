@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was brought unto him one possessed with a demon, blind and dumb: and he healed him, insomuch that the dumb man spake and saw.
+Then one possessed by a demon, blind and mute, was brought to him and he healed him, so that the blind and mute man both spoke and saw.

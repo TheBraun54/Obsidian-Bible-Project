@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them praise the name of Jehovah; For his name alone is exalted; His glory is above the earth and the heavens.
+let them praise the name of Yahweh, for his name alone is exalted. His glory is above the earth and the heavens.

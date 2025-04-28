@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let, I pray thee, thy lovingkindness be for my comfort, According to thy word unto thy servant.
+Please let your loving kindness be for my comfort, according to your word to your servant.

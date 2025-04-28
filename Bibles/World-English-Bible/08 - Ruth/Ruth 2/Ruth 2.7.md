@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Let me glean, I pray you, and gather after the reapers among the sheaves. So she came, and hath continued even from the morning until now, save that she tarried a little in the house.
+She said, 'Please let me glean and gather after the reapers among the sheaves.' So she came, and has continued even from the morning until now, except that she stayed a little in the house."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Saul's anger was kindled against Jonathan, and he said unto him, Thou son of a perverse rebellious woman, do not I know that thou hast chosen the son of Jesse to thine own shame, and unto the shame of thy mother's nakedness?
+Then Saul's anger was kindled against Jonathan, and he said to him, "You son of a perverse rebellious woman, don't I know that you have chosen the son of Jesse to your own shame, and to the shame of your mother's nakedness?

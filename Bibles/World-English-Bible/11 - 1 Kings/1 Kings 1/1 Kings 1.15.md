@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bath-sheba went in unto the king into the chamber: and the king was very old; and Abishag the Shunammite was ministering unto the king.
+Bathsheba went in to the king into the room. The king was very old; and Abishag the Shunammite was ministering to the king.

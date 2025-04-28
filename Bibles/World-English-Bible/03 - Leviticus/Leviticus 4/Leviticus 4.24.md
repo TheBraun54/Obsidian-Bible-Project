@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall lay his hand upon the head of the goat, and kill it in the place where they kill the burnt-offering before Jehovah: it is a sin-offering.
+He shall lay his hand on the head of the goat, and kill it in the place where they kill the burnt offering before Yahweh. It is a sin offering.

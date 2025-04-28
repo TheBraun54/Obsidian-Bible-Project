@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people came up after him, and the people piped with pipes, and rejoiced with great joy, so that the earth rent with the sound of them.
+All the people came up after him, and the people piped with pipes, and rejoiced with great joy, so that the earth shook with the sound of them.

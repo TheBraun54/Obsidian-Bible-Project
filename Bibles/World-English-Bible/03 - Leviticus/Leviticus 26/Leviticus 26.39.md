@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that are left of you shall pine away in their iniquity in your enemies' lands; and also in the iniquities of their fathers shall they pine away with them.
+Those of you who are left will pine away in their iniquity in your enemies' lands; and also in the iniquities of their fathers shall they pine away with them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan said unto David, Jehovah, the God of Israel, [be witness] : when I have sounded my father about this time to-morrow, [or] the third day, behold, if there be good toward David, shall I not then send unto thee, and disclose it unto thee?
+Jonathan said to David, "Yahweh, the God of Israel, [be witness]: when I have sounded my father about this time tomorrow, [or] the third day, behold, if there be good toward David, shall I not then send to you, and disclose it to you?

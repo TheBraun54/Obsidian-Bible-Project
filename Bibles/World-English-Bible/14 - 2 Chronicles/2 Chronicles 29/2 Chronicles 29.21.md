@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought seven bullocks, and seven rams, and seven lambs, and seven he-goats, for a sin-offering for the kingdom and for the sanctuary and for Judah. And he commanded the priests the sons of Aaron to offer them on the altar of Jehovah.
+They brought seven bulls, and seven rams, and seven lambs, and seven male goats, for a sin offering for the kingdom and for the sanctuary and for Judah. He commanded the priests the sons of Aaron to offer them on the altar of Yahweh.

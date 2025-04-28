@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson said, With the jawbone of an ass, heaps upon heaps, With the jawbone of an ass have I smitten a thousand men.
+Samson said, "With the jawbone of a donkey, heaps on heaps; with the jawbone of a donkey I have struck a thousand men."

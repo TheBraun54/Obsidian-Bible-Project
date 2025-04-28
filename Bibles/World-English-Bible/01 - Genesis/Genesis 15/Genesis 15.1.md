@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things the word of Jehovah came unto Abram in a vision, saying, Fear not, Abram: I am thy shield, [and] thy exceeding great reward.
+After these things the word of Yahweh came to Abram in a vision, saying, "Don't be afraid, Abram. I am your shield, your exceedingly great reward."

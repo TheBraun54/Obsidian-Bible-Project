@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, the hind also in the field calveth, and forsaketh [her young], because there is no grass.
+Yes, the hind also in the field calves, and forsakes [her young], because there is no grass.

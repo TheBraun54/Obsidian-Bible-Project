@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Jehovah spake unto me, saying,
+that Yahweh spoke to me, saying,

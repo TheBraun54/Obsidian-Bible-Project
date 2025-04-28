@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cut off the chariot from Ephraim, and the horse from Jerusalem; and the battle bow shall be cut off; and he shall speak peace unto the nations: and his dominion shall be from sea to sea, and from the River to the ends of the earth.
+I will cut off the chariot from Ephraim, and the horse from Jerusalem; and the battle bow will be cut off; and he will speak peace to the nations: and his dominion will be from sea to sea, and from the River to the ends of the earth.

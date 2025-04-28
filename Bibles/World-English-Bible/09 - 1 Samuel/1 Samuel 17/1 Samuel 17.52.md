@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel and of Judah arose, and shouted, and pursued the Philistines, until thou comest to Gai, and to the gates of Ekron. And the wounded of the Philistines fell down by the way to Shaaraim, even unto Gath, and unto Ekron.
+The men of Israel and of Judah arose, and shouted, and pursued the Philistines, until you come to Gai, and to the gates of Ekron. The wounded of the Philistines fell down by the way to Shaaraim, even to Gath, and to Ekron.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ezra the priest stood up, and said unto them, Ye have trespassed, and have married foreign women, to increase the guilt of Israel.
+Ezra the priest stood up, and said to them, "You have trespassed, and have married foreign women, to increase the guilt of Israel.

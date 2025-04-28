@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye lust, and have not: ye kill, and covet, and cannot obtain: ye fight and war; ye have not, because ye ask not.
+You lust, and don't have. You kill, covet, and can't obtain. You fight and make war. You don't have, because you don't ask.

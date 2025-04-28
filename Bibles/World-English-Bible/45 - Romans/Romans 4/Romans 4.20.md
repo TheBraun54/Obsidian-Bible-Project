@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet, looking unto the promise of God, he wavered not through unbelief, but waxed strong through faith, giving glory to God,
+Yet, looking to the promise of God, he didn't waver through unbelief, but grew strong through faith, giving glory to God,

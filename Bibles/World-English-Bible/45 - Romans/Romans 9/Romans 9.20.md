@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay but, O man, who art thou that repliest against God? Shall the thing formed say to him that formed it, Why didst thou make me thus?
+But indeed, O man, who are you to reply against God? Will the thing formed ask him who formed it, "Why did you make me like this?"

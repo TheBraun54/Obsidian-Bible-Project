@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah took a wife for Er his first-born, and her name was Tamar.
+Judah took a wife for Er, his firstborn, and her name was Tamar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that standeth stedfast in his heart, having no necessity, but hath power as touching in his own heart, to keep his own virgin [daughter], shall do well.
+But he who stands steadfast in his heart, having no necessity, but has power over his own heart, to keep his own virgin, does well.

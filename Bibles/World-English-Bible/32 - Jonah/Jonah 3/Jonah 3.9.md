@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who knoweth whether God will not turn and repent, and turn away from his fierce anger, that we perish not?
+Who knows whether God will not turn and relent, and turn away from his fierce anger, so that we might not perish?"

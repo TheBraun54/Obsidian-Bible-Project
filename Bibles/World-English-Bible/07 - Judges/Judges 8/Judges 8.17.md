@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brake down the tower of Penuel, and slew the men of the city.
+He broke down the tower of Penuel, and killed the men of the city.

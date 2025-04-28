@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rulers ceased in Israel, they ceased, Until that I Deborah arose, That I arose a mother in Israel.
+The rulers ceased in Israel. They ceased until I, Deborah, arose; Until I arose a mother in Israel.

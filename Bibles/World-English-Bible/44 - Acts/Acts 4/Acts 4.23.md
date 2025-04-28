@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And being let go, they came to their own company, and reported all that the chief priests and the elders had said unto them.
+Being let go, they came to their own company, and reported all that the chief priests and the elders had said to them.

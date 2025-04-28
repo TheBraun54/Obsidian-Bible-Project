@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, Draw nigh hither, all ye chiefs of the people; and know and see wherein this sin hath been this day.
+Saul said, "Draw near here, all you chiefs of the people; and know and see in which this sin has been this day.

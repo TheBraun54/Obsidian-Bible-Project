@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Esther, and said, My petition and my request is:
+Then Esther answered and said, "My petition and my request is this.

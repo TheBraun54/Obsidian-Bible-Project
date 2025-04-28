@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when that year was ended, they came unto him the second year, and said unto him, We will not hide from my lord, how that our money is all spent; and the herds of cattle are my lord's; there is nought left in the sight of my lord, but our bodies, and our lands:
+When that year was ended, they came to him the second year, and said to him, "We will not hide from my lord how our money is all spent, and the herds of livestock are my lord's. There is nothing left in the sight of my lord, but our bodies, and our lands.

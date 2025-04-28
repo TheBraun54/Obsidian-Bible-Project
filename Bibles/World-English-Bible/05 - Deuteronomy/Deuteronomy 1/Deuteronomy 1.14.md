@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye answered me, and said, The thing which thou hast spoken is good [for us] to do.
+You answered me, and said, "The thing which you have spoken is good [for us] to do."

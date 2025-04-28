@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses made haste, and bowed his head toward the earth, and worshipped.
+Moses hurried and bowed his head toward the earth, and worshiped.

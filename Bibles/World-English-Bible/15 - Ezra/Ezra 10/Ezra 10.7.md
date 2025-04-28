@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made proclamation throughout Judah and Jerusalem unto all the children of the captivity, that they should gather themselves together unto Jerusalem;
+They made proclamation throughout Judah and Jerusalem to all the children of the captivity, that they should gather themselves together to Jerusalem;

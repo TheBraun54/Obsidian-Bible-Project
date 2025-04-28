@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their brethren, heads of their fathers' houses, a thousand and seven hundred and threescore; very able men for the work of the service of the house of God.
+and their brothers, heads of their fathers' houses, one thousand seven hundred sixty; very able men for the work of the service of the house of God.

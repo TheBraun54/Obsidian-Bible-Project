@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whilst their children remember their altars and their Asherim by the green trees upon the high hills.
+while their children remember their altars and their Asherim by the green trees on the high hills.

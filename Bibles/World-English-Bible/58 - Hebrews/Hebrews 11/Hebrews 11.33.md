@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who through faith subdued kingdoms, wrought righteousness, obtained promises, stopped the mouths of lions,
+who, through faith subdued kingdoms, worked out righteousness, obtained promises, stopped the mouths of lions,

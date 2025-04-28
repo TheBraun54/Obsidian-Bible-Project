@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the law is slacked, and justice doth never go forth; for the wicked doth compass about the righteous; therefore justice goeth forth perverted.
+Therefore the law is paralyzed, and justice never goes forth; for the wicked surround the righteous; therefore justice goes forth perverted.

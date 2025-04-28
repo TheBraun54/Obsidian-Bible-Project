@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the anger of God went up against them, And slew of the fattest of them, And smote down the young men of Israel.
+when the anger of God went up against them, killed some of the fattest of them, and struck down the young men of Israel.

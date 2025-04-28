@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, all these things doth God work, Twice, [yea] thrice, with a man,
+"Behold, God works all these things, twice, yes three times, with a man,

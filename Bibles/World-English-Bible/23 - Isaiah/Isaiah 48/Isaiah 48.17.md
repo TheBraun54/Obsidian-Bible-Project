@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, thy Redeemer, the Holy One of Israel: I am Jehovah thy God, who teacheth thee to profit, who leadeth thee by the way that thou shouldest go.
+Thus says Yahweh, your Redeemer, the Holy One of Israel: I am Yahweh your God, who teaches you to profit, who leads you by the way that you should go.

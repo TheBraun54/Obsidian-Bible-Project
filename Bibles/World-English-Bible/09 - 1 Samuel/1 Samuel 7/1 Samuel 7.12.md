@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Samuel took a stone, and set it between Mizpah and Shen, and called the name of it Eben-ezer, saying, Hitherto hath Jehovah helped us.
+Then Samuel took a stone, and set it between Mizpah and Shen, and called its name Ebenezer, saying, "Yahweh helped us until now."

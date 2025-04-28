@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel journeyed, and encamped in Oboth.
+The children of Israel traveled, and encamped in Oboth.

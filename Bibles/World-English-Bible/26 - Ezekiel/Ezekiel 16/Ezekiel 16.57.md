@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-before thy wickedness was uncovered, as at the time of the reproach of the daughters of Syria, and of all that are round about her, the daughters of the Philistines, that do despite unto thee round about.
+before your wickedness was uncovered, as at the time of the reproach of the daughters of Syria, and of all who are around her, the daughters of the Philistines, who do despite to you all around.

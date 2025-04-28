@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that were numbered of the camp of Judah were a hundred thousand and fourscore thousand and six thousand and four hundred, according to their hosts. They shall set forth first.
+All who were numbered of the camp of Judah were one hundred eighty-six thousand four hundred, according to their divisions. They shall set out first.

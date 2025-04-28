@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things are full of weariness; man cannot utter [it] : the eye is not satisfied with seeing, nor the ear filled with hearing.
+All things are full of weariness beyond uttering. The eye is not satisfied with seeing, nor the ear filled with hearing.

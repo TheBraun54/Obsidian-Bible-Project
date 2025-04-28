@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I went, and hid it by the Euphrates, as Jehovah commanded me.
+So I went, and hid it by the Euphrates, as Yahweh commanded me.

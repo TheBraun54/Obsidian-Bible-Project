@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Behold, they are one people, and they have all one language; and this is what they begin to do: and now nothing will be withholden from them, which they purpose to do.
+Yahweh said, "Behold, they are one people, and they have all one language, and this is what they begin to do. Now nothing will be withheld from them, which they intend to do.

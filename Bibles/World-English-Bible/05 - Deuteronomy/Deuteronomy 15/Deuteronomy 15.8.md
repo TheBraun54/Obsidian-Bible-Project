@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thou shalt surely open thy hand unto him, and shalt surely lend him sufficient for his need [in that] which he wanteth.
+but you shall surely open your hand to him, and shall surely lend him sufficient for his need [in that] which he wants.

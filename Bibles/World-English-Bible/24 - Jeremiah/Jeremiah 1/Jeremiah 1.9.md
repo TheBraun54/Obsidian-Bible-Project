@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehovah put forth his hand, and touched my mouth; and Jehovah said unto me, Behold, I have put my words in thy mouth:
+Then Yahweh put forth his hand, and touched my mouth; and Yahweh said to me, "Behold, I have put my words in your mouth.

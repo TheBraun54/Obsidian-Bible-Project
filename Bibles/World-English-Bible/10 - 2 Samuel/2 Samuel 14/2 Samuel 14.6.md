@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy handmaid had two sons, and they two strove together in the field, and there was none to part them, but the one smote the other, and killed him.
+Your handmaid had two sons, and they both fought together in the field, and there was no one to part them, but the one struck the other, and killed him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron did so; as Jehovah commanded them, so did they.
+Moses and Aaron did so. As Yahweh commanded them, so they did.

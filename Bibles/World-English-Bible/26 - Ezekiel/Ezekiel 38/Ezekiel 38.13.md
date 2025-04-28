@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sheba, and Dedan, and the merchants of Tarshish, with all the young lions thereof, shall say unto thee, Art thou come to take the spoil? hast thou assembled thy company to take the prey? to carry away silver and gold, to take away cattle and goods, to take great spoil?
+Sheba, and Dedan, and the merchants of Tarshish, with all the young lions of it, shall tell you, Have you come to take the spoil? have you assembled your company to take the prey? to carry away silver and gold, to take away livestock and goods, to take great spoil?

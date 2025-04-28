@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are severed from Christ, ye who would be justified by the law; ye are fallen away from grace.
+You are alienated from Christ, you who desire to be justified by the law. You have fallen away from grace.

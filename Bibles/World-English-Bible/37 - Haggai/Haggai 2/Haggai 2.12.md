@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If one bear holy flesh in the skirt of his garment, and with his skirt do touch bread, or pottage, or wine, or oil, or any food, shall it become holy? And the priests answered and said, No.
+'If someone carries holy meat in the fold of his garment, and with his fold touches bread, stew, wine, oil, or any food, will it become holy?'" The priests answered, "No."

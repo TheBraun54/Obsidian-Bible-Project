@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the word of Jehovah came to Jeremiah from Jehovah, saying,
+Therefore the word of Yahweh came to Jeremiah from Yahweh, saying,

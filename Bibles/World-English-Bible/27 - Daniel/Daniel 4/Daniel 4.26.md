@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whereas they commanded to leave the stump of the roots of the tree; thy kingdom shall be sure unto thee, after that thou shalt have known that the heavens do rule.
+Whereas they commanded to leave the stump of the roots of the tree; your kingdom shall be sure to you, after that you shall have known that the heavens do rule.

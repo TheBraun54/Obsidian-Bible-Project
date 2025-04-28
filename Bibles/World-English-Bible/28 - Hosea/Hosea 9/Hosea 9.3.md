@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not dwell in Jehovah's land; but Ephraim shall return to Egypt, and they shall eat unclean food in Assyria.
+They won't dwell in Yahweh's land; but Ephraim will return to Egypt, and they will eat unclean food in Assyria.

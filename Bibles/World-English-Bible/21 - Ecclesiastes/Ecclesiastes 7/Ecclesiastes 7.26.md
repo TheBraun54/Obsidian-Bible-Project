@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I find more bitter than death the woman whose heart is snares and nets, [and] whose hands are bands: whoso pleaseth God shall escape from her; but the sinner shall be taken by her. [
+I find more bitter than death the woman whose heart is snares and traps, whose hands are chains. Whoever pleases God shall escape from her; but the sinner will be ensnared by her.

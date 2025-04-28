@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy substance and thy treasures will I give for a spoil without price, and that for all thy sins, even in all thy borders.
+Your substance and your treasures will I give for a spoil without price, and that for all your sins, even in all your borders.

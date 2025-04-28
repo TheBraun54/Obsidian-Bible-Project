@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-making known unto us the mystery of his will, according to his good pleasure which he purposed in him
+making known to us the mystery of his will, according to his good pleasure which he purposed in him

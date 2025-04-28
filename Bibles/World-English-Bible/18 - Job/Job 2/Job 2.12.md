@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they lifted up their eyes afar off, and knew him not, they lifted up their voice, and wept; and they rent every one his robe, and sprinkled dust upon their heads toward heaven.
+When they lifted up their eyes from a distance, and didn't recognize him, they raised their voices, and wept; and they each tore his robe, and sprinkled dust on their heads toward the sky.

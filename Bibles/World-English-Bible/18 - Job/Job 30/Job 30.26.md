@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I looked for good, then evil came; And when I waited for light, there came darkness.
+When I looked for good, then evil came; When I waited for light, there came darkness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel answered and said unto the women, Fear not ye; for I know that ye seek Jesus, who hath been crucified.
+The angel answered the women, "Don't be afraid, for I know that you seek Jesus, who has been crucified.

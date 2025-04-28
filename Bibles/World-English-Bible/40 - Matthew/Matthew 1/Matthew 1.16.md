@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jacob begat Joseph the husband of Mary, of whom was born Jesus, who is called Christ.
+Jacob became the father of Joseph, the husband of Mary, from whom was born Jesus, who is called Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he whom God raised up saw no corruption.
+But he whom God raised up saw no decay.

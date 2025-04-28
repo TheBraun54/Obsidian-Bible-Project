@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Herod had laid hold on John, and bound him, and put him in prison for the sake of Herodias, his brother Philip's wife.
+For Herod had laid hold of John, and bound him, and put him in prison for the sake of Herodias, his brother Philip's wife.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he do not these three things unto her, then shall she go out for nothing, without money.
+If he doesn't do these three things for her, she may go free without paying any money.

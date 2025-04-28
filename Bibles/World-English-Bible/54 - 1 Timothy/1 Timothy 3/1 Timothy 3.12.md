@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let deacons be husbands of one wife, ruling [their] children and their own houses well.
+Let servants be husbands of one wife, ruling their children and their own houses well.

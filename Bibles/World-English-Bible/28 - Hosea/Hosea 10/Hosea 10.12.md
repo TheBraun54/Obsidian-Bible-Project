@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sow to yourselves in righteousness, reap according to kindness; break up your fallow ground; for it is time to seek Jehovah, till he come and rain righteousness upon you.
+Sow to yourselves in righteousness, reap according to kindness. Break up your fallow ground; for it is time to seek Yahweh, until he comes and rains righteousness on you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they will salute thee, and give thee two loaves of bread, which thou shalt receive of their hand.
+and they will greet you, and give you two loaves of bread, which you shall receive of their hand.

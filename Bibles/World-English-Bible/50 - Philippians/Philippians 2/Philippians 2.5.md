@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have this mind in you, which was also in Christ Jesus:
+Have this in your mind, which was also in Christ Jesus,

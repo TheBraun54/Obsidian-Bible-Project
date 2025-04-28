@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And you, being dead through your trespasses and the uncircumcision of your flesh, you, [I say], did he make alive together with him, having forgiven us all our trespasses;
+You were dead through your trespasses and the uncircumcision of your flesh. He made you alive together with him, having forgiven us all our trespasses,

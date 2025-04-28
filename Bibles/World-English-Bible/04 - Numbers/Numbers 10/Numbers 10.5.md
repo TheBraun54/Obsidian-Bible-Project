@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye blow an alarm, the camps that lie on the east side shall take their journey.
+When you blow an alarm, the camps that lie on the east side shall go forward.

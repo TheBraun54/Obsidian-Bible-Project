@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit I believed not their words, until I came, and mine eyes had seen it; and, behold, the half of the greatness of thy wisdom was not told me: thou exceedest the fame that I heard.
+However I didn't believe their words, until I came, and my eyes had seen it; and behold, the half of the greatness of your wisdom was not told me: you exceed the fame that I heard.

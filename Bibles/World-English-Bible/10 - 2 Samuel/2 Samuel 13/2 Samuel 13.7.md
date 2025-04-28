@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David sent home to Tamar, saying, Go now to thy brother Amnon's house, and dress him food.
+Then David sent home to Tamar, saying, "Go now to your brother Amnon's house, and prepare food for him."

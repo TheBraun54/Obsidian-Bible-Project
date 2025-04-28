@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hath not the scripture said that the Christ cometh of the seed of David, and from Bethlehem, the village where David was?
+Hasn't the Scripture said that the Christ comes of the seed of David, and from Bethlehem, the village where David was?"

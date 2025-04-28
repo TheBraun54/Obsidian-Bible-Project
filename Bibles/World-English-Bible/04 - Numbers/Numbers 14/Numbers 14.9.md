@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only rebel not against Jehovah, neither fear ye the people of the land; for they are bread for us: their defence is removed from over them, and Jehovah is with us: fear them not.
+Only don't rebel against Yahweh, neither fear the people of the land; for they are bread for us: their defense is removed from over them, and Yahweh is with us. Don't fear them."

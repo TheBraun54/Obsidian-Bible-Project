@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither murmur ye, as some of them murmured, and perished by the destroyer.
+Neither grumble, as some of them also grumbled, and perished by the destroyer.

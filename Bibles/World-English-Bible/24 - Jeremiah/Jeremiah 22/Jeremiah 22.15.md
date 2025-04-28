@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shalt thou reign, because thou strivest to excel in cedar? Did not thy father eat and drink, and do justice and righteousness? then it was well with him.
+Shall you reign, because you strive to excel in cedar? Didn't your father eat and drink, and do justice and righteousness? then it was well with him.

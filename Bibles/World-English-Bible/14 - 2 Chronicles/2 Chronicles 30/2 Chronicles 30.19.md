@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that setteth his heart to seek God, Jehovah, the God of his fathers, though [he be] not [cleansed] according to the purification of the sanctuary.
+who sets his heart to seek God, Yahweh, the God of his fathers, even if they aren't clean according to the purification of the sanctuary."

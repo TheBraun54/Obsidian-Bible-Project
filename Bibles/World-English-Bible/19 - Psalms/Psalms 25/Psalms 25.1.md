@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Unto thee, O Jehovah, do I lift up my soul.
+To you, Yahweh, do I lift up my soul.

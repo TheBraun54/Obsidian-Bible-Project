@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We will go three days' journey into the wilderness, and sacrifice to Jehovah our God, as he shall command us.
+We will go three days' journey into the wilderness, and sacrifice to Yahweh our God, as he shall command us."

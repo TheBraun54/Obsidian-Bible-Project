@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I sought for a man among them, that should build up the wall, and stand in the gap before me for the land, that I should not destroy it; but I found none.
+I sought for a man among them, who should build up the wall, and stand in the gap before me for the land, that I should not destroy it; but I found none.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Helem his brother: Zophah, and Imna, and Shelesh, and Amal.
+The sons of Helem his brother: Zophah, and Imna, and Shelesh, and Amal.

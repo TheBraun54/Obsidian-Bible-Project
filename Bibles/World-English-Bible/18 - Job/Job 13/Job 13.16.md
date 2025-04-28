@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This also shall be my salvation, That a godless man shall not come before him.
+This also shall be my salvation, that a godless man shall not come before him.

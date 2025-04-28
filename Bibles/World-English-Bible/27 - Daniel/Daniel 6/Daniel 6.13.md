@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered they and said before the king, That Daniel, who is of the children of the captivity of Judah, regardeth not thee, O king, nor the interdict that thou hast signed, but maketh his petition three times a day.
+Then answered they and said before the king, That Daniel, who is of the children of the captivity of Judah, doesn't respect you, O king, nor the decree that you have signed, but makes his petition three times a day.

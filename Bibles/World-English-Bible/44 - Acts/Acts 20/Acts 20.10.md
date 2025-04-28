@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul went down, and fell on him, and embracing him said, Make ye no ado; for his life is in him.
+Paul went down, and fell upon him, and embracing him said, "Don't be troubled, for his life is in him."

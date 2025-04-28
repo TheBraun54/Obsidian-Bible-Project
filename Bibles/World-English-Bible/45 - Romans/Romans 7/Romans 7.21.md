@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I find then the law, that, to me who would do good, evil is present.
+I find then the law, that, to me, while I desire to do good, evil is present.

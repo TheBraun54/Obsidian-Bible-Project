@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the altars that were on the roof of the upper chamber of Ahaz, which the kings of Judah had made, and the altars which Manasseh had made in the two courts of the house of Jehovah, did the king break down, and beat [them] down from thence, and cast the dust of them into the brook Kidron.
+The altars that were on the roof of the upper room of Ahaz, which the kings of Judah had made, and the altars which Manasseh had made in the two courts of the house of Yahweh, did the king break down, and beat [them] down from there, and cast the dust of them into the brook Kidron.

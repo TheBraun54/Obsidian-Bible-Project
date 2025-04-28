@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, whensoever the stronger of the flock did conceive, that Jacob laid the rods before the eyes of the flock in the gutters, that they might conceive among the rods;
+It happened, whenever the stronger of the flock conceived, that Jacob laid the rods before the eyes of the flock in the gutters, that they might conceive among the rods;

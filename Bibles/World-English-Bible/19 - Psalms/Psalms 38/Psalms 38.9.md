@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lord, all my desire is before thee; And my groaning is not hid from thee.
+Lord, all my desire is before you. My groaning is not hidden from you.

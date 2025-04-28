@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he refused the tent of Joseph, And chose not the tribe of Ephraim,
+Moreover he rejected the tent of Joseph, and didn't choose the tribe of Ephraim,

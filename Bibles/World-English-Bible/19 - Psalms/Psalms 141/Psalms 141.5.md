@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the righteous smite me, [it shall be] a kindness; And let him reprove me, [it shall be as] oil upon the head; Let not my head refuse it: For even in their wickedness shall my prayer continue.
+Let the righteous strike me, it is kindness; let him reprove me, it is like oil on the head; don't let my head refuse it; Yet my prayer is always against evil deeds.

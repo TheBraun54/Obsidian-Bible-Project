@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But solid food is for fullgrown men, [even] those who by reason of use have their senses exercised to discern good and evil.
+But solid food is for those who are full grown, who by reason of use have their senses exercised to discern good and evil.

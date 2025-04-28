@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there shall arise after them seven years of famine; and all the plenty shall be forgotten in the land of Egypt; and the famine shall consume the land;
+There will arise after them seven years of famine, and all the plenty will be forgotten in the land of Egypt. The famine will consume the land,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Amorite, and the Canaanite, and the Girgashite, and the Jebusite.
+the Amorites, the Canaanites, the Girgashites, and the Jebusites."

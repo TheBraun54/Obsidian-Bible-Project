@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, O Jehovah, the God of Israel, why is this come to pass in Israel, that there should be to-day one tribe lacking in Israel?
+They said, "Yahweh, the God of Israel, why has this happened in Israel, that there should be today one tribe lacking in Israel?"

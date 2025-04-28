@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to bring Vashti the queen before the king with the crown royal, to show the peoples and the princes her beauty; for she was fair to look on.
+to bring Vashti the queen before the king with the royal crown, to show the people and the princes her beauty; for she was beautiful.

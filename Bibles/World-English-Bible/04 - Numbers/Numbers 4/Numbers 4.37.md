@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they that were numbered of the families of the Kohathites, all that did serve in the tent of meeting, whom Moses and Aaron numbered according to the commandment of Jehovah by Moses.
+These are those who were numbered of the families of the Kohathites, all who served in the Tent of Meeting, whom Moses and Aaron numbered according to the commandment of Yahweh by Moses.

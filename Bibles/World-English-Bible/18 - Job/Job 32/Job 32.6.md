@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elihu the son of Barachel the Buzite answered and said, I am young, and ye are very old; Wherefore I held back, and durst not show you mine opinion.
+Elihu the son of Barachel the Buzite answered, "I am young, and you are very old; Therefore I held back, and didn't dare show you my opinion.

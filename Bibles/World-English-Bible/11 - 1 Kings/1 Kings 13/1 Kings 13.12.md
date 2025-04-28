@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their father said unto them, What way went he? Now his sons had seen what way the man of God went, that came from Judah.
+Their father said to them, "Which way did he go?" Now his sons had seen which way the man of God went, who came from Judah.

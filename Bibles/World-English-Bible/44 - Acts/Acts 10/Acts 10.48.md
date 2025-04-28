@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded them to be baptized in the name of Jesus Christ. Then prayed they him to tarry certain days.
+He commanded them to be baptized in the name of Jesus Christ. Then they asked him to stay some days.

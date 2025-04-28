@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put it under the ledge round the altar beneath, that the net may reach halfway up the altar.
+You shall put it under the ledge around the altar beneath, that the net may reach halfway up the altar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shechem the son of Hamor the Hivite, the prince of the land, saw her; and he took her, and lay with her, and humbled her.
+Shechem the son of Hamor the Hivite, the prince of the land, saw her. He took her, lay with her, and humbled her.

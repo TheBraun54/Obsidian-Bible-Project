@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that followeth after righteousness and kindness Findeth life, righteousness, and honor.
+He who follows after righteousness and kindness finds life, righteousness, and honor.

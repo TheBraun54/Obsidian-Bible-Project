@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn thee unto me, and have mercy upon me; For I am desolate and afflicted.
+Turn to me, and have mercy on me, for I am desolate and afflicted.

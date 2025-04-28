@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall command that they take out the stones in which the plague is, and cast them into an unclean place without the city:
+then the priest shall command that they take out the stones in which is the plague, and cast them into an unclean place outside of the city:

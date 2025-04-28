@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou preparest a table before me in the presence of mine enemies: Thou hast anointed my head with oil; My cup runneth over.
+You prepare a table before me in the presence of my enemies. You anoint my head with oil. My cup runs over.

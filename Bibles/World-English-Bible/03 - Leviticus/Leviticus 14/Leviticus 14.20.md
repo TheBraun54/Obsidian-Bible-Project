@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall offer the burnt-offering and the meal-offering upon the altar: and the priest shall make atonement for him, and he shall be clean.
+and the priest shall offer the burnt offering and the meal offering on the altar. The priest shall make atonement for him, and he shall be clean.

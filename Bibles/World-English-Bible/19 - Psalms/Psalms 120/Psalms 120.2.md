@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver my soul, O Jehovah, from lying lips, [And] from a deceitful tongue.
+Deliver my soul, Yahweh, from lying lips, from a deceitful tongue.

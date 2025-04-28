@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Bigvai, two thousand threescore and seven.
+The children of Bigvai, two thousand sixty-seven.

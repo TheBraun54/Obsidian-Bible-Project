@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This poor man cried, and Jehovah heard him, And saved him out of all his troubles.
+This poor man cried, and Yahweh heard him, and saved him out of all his troubles.

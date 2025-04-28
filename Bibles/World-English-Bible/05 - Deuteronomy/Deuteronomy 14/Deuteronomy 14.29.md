@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Levite, because he hath no portion nor inheritance with thee, and the sojourner, and the fatherless, and the widow, that are within thy gates, shall come, and shall eat and be satisfied; that Jehovah thy God may bless thee in all the work of thy hand which thou doest.
+and the Levite, because he has no portion nor inheritance with you, and the foreigner living among you, and the fatherless, and the widow, who are within your gates, shall come, and shall eat and be satisfied; that Yahweh your God may bless you in all the work of your hand which you do.

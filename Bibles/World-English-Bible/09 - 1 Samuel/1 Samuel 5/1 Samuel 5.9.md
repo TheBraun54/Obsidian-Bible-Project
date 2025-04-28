@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, after they had carried it about, the hand of Jehovah was against the city with a very great discomfiture: and he smote the men of the city, both small and great; and tumors brake out upon them.
+It was so, that after they had carried it about, the hand of Yahweh was against the city with a very great confusion: and he struck the men of the city, both small and great; and tumors broke out on them.

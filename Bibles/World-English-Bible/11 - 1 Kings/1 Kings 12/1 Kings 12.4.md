@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy father made our yoke grievous: now therefore make thou the grievous service of thy father, and his heavy yoke which he put upon us, lighter, and we will serve thee.
+"Your father made our yoke grievous: now therefore make you the grievous service of your father, and his heavy yoke which he put on us, lighter, and we will serve you."

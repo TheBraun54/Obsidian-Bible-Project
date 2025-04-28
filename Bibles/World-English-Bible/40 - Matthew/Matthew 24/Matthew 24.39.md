@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they knew not until the flood came, and took them all away; so shall be the coming of the Son of man.
+and they didn't know until the flood came, and took them all away, so will be the coming of the Son of Man.

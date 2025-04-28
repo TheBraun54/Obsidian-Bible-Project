@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah commanded the angel; and he put up his sword again into the sheath thereof.
+Yahweh commanded the angel; and he put up his sword again into its sheath.

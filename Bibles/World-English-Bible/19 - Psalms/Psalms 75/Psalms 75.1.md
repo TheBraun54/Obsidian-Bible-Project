@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; [set to] Al-tashheth. A Psalm of Asaph, a Song]. We give thanks unto thee, O God; We give thanks, for thy name is near: Men tell of thy wondrous works.
+We give thanks to you, God. We give thanks, for your Name is near. Men tell about your wondrous works.

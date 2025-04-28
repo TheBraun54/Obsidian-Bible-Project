@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman said unto the serpent, Of the fruit of the trees of the garden we may eat:
+The woman said to the serpent, "Of the fruit of the trees of the garden we may eat,

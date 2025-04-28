@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David and all Israel went to Jerusalem (the same is Jebus); and the Jebusites, the inhabitants of the land, were there.
+David and all Israel went to Jerusalem (the same is Jebus); and the Jebusites, the inhabitants of the land, were there.

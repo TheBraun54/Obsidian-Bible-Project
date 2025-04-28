@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Samuel ministered before Jehovah, being a child, girded with a linen ephod.
+But Samuel ministered before Yahweh, being a child, clothed with a linen ephod.

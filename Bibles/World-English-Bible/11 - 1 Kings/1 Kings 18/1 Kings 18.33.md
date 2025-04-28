@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the wood in order, and cut the bullock in pieces, and laid it on the wood. And he said, Fill four jars with water, and pour it on the burnt-offering, and on the wood.
+He put the wood in order, and cut the bull in pieces, and laid it on the wood. He said, "Fill four jars with water, and pour it on the burnt offering, and on the wood."

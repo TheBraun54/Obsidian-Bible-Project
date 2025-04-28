@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But be ye strong, and let not your hands be slack; for your work shall be rewarded.
+But you be strong, and don't let your hands be slack; for your work shall be rewarded."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For which cause I put thee in remembrance that thou stir up the gift of God, which is in thee through the laying on of my hands.
+For this cause, I remind you that you should stir up the gift of God which is in you through the laying on of my hands.

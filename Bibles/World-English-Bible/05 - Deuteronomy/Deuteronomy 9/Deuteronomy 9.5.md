@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not for thy righteousness, or for the uprightness of thy heart, dost thou go in to possess their land; but for the wickedness of these nations Jehovah thy God doth drive them out from before thee, and that he may establish the word which Jehovah sware unto thy fathers, to Abraham, to Isaac, and to Jacob.
+Not for your righteousness, or for the uprightness of your heart, do you go in to possess their land; but for the wickedness of these nations Yahweh your God does drive them out from before you, and that he may establish the word which Yahweh swore to your fathers, to Abraham, to Isaac, and to Jacob.

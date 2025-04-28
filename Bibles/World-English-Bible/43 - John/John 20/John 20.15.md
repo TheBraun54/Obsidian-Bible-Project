@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto her, Woman, why weepest thou? whom seekest thou? She, supposing him to be the gardener, saith unto him, Sir, if thou hast borne him hence, tell me where thou hast laid him, and I will take him away.
+Jesus said to her, "Woman, why are you weeping? Who are you looking for?" She, supposing him to be the gardener, said to him, "Sir, if you have carried him away, tell me where you have laid him, and I will take him away."

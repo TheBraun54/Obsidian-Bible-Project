@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while they still disbelieved for joy, and wondered, he said unto them, Have ye here anything to eat?
+While they still didn't believe for joy, and wondered, he said to them, "Do you have anything here to eat?"

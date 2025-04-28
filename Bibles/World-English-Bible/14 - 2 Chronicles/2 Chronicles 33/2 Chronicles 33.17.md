@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless the people sacrificed still in the high places, but only unto Jehovah their God.
+Nevertheless the people sacrificed still in the high places, but only to Yahweh their God.

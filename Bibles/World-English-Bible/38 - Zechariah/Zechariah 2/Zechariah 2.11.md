@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many nations shall join themselves to Jehovah in that day, and shall be my people; and I will dwell in the midst of thee, and thou shalt know that Jehovah of hosts has sent me unto thee.
+Many nations shall join themselves to Yahweh in that day, and shall be my people; and I will dwell in the midst of you, and you shall know that Yahweh of Armies has sent me to you.

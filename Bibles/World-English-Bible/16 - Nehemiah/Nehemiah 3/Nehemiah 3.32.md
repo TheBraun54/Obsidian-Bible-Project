@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And between the ascent of the corner and the sheep gate repaired the goldsmiths and the merchants.
+Between the ascent of the corner and the sheep gate repaired the goldsmiths and the merchants.

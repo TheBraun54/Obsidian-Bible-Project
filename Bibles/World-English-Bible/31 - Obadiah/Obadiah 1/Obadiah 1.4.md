@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though thou mount on high as the eagle, and though thy nest be set among the stars, I will bring thee down from thence, saith Jehovah.
+Though you mount on high as the eagle, and though your nest is set among the stars, I will bring you down from there," says Yahweh.

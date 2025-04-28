@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ten men were found among them that said unto Ishmael, Slay us not; for we have stores hidden in the field, of wheat, and of barley, and of oil, and of honey. So he forbare, and slew them not among their brethren.
+But ten men were found among those who said to Ishmael, Don't kill us; for we have stores hidden in the field, of wheat, and of barley, and of oil, and of honey. So he stopped, and didn't kill them among their brothers.

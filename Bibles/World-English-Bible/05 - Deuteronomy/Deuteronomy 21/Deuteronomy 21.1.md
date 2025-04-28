@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If one be found slain in the land which Jehovah thy God giveth thee to possess it, lying in the field, and it be not known who hath smitten him;
+If one be found slain in the land which Yahweh your God gives you to possess it, lying in the field, and it isn't known who has struck him;

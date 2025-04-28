@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as it came to pass in the days of Noah, even so shall it be also in the days of the Son of man.
+As it happened in the days of Noah, even so will it be also in the days of the Son of Man.

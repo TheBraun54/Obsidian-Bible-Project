@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter, a servant and apostle of Jesus Christ, to them that have obtained a like precious faith with us in the righteousness of our God and [the] Saviour Jesus Christ:
+Simon Peter, a servant and apostle of Jesus Christ, to those who have obtained a like precious faith with us in the righteousness of our God and Savior, Jesus Christ:

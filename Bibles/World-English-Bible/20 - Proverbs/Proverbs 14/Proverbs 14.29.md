@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is slow to anger is of great understanding; But he that is hasty of spirit exalteth folly.
+He who is slow to anger has great understanding, but he who has a quick temper displays folly.

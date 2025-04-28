@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peleg lived thirty years, and begat Reu:
+Peleg lived thirty years, and became the father of Reu.

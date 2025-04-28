@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the high priest said, Are these things so?
+The high priest said, "Are these things so?"

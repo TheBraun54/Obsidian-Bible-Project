@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say unto him, Why then did Moses command to give a bill of divorcement, and to put [her] away?
+They asked him, "Why then did Moses command us to give her a bill of divorce, and divorce her?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gilead abode beyond the Jordan: And Dan, why did he remain in ships? Asher sat still at the haven of the sea, And abode by his creeks.
+Gilead lived beyond the Jordan. Why did Dan remain in ships? Asher sat still at the haven of the sea, and lived by his creeks.

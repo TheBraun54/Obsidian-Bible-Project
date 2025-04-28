@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We being Jews by nature, and not sinners of the Gentiles,
+"We, being Jews by nature, and not Gentile sinners,

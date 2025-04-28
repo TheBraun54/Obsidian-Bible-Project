@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice not, O Philistia, all of thee, because the rod that smote thee is broken; for out of the serpent's root shall come forth an adder, and his fruit shall be a fiery flying serpent.
+Don't rejoice, O Philistia, all of you, because the rod that struck you is broken; for out of the serpent's root an adder will emerge, and his fruit will be a fiery flying serpent.

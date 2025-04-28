@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one went in, and told his lord, saying, Thus and thus said the maiden that is of the land of Israel.
+Someone went in, and told his lord, saying, "The maiden who is from the land of Israel said this."

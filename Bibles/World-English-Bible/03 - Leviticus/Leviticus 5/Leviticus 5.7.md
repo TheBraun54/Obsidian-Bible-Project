@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if his means suffice not for a lamb, then he shall bring his trespass-offering for that wherein he hath sinned, two turtle-doves, or two young pigeons, unto Jehovah; one for a sin-offering, and the other for a burnt-offering.
+"'If he can't afford a lamb, then he shall bring his trespass offering for that in which he has sinned, two turtledoves, or two young pigeons, to Yahweh; one for a sin offering, and the other for a burnt offering.

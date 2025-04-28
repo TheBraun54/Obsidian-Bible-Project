@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will lay sinews upon you, and will bring up flesh upon you, and cover you with skin, and put breath in you, and ye shall live; and ye shall know that I am Jehovah.
+I will lay sinews on you, and will bring up flesh on you, and cover you with skin, and put breath in you, and you shall live; and you shall know that I am Yahweh.

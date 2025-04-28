@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This man led them forth, having wrought wonders and signs in Egypt, and in the Red Sea, and in the wilderness forty years.
+This man led them out, having worked wonders and signs in Egypt, in the Red Sea, and in the wilderness for forty years.

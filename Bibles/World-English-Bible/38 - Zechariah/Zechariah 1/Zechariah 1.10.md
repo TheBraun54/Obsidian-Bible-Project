@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man that stood among the myrtle-trees answered and said, These are they whom Jehovah hath sent to walk to and fro through the earth.
+The man who stood among the myrtle trees answered, "They are the ones Yahweh has sent to go back and forth through the earth."

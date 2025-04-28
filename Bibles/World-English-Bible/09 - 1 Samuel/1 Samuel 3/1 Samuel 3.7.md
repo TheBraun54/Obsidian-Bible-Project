@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Samuel did not yet know Jehovah, neither was the word of Jehovah yet revealed unto him.
+Now Samuel didn't yet know Yahweh, neither was the word of Yahweh yet revealed to him.

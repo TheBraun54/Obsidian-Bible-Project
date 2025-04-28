@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They answered and said unto him, Art thou also of Galilee? Search, and see that out of Galilee ariseth no prophet.
+They answered him, "Are you also from Galilee? Search, and see that no prophet has arisen out of Galilee."

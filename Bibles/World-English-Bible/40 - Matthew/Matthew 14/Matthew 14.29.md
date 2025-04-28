@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Come. And Peter went down from the boat, and walked upon the waters to come to Jesus.
+He said, "Come!" Peter stepped down from the boat, and walked on the waters to come to Jesus.

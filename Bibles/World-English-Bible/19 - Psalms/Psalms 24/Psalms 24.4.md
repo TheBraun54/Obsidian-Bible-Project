@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath clean hands, and a pure heart; Who hath not lifted up his soul unto falsehood, And hath not sworn deceitfully.
+He who has clean hands and a pure heart; who has not lifted up his soul to falsehood, and has not sworn deceitfully.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Jehovah, before whom I walk, will send his angel with thee, and prosper thy way; and thou shalt take a wife for my son of my kindred, and of my father's house:
+He said to me, 'Yahweh, before whom I walk, will send his angel with you, and prosper your way. You shall take a wife for my son of my relatives, and of my father's house.

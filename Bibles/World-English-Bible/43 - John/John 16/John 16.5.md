@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now I go unto him that sent me; and none of you asketh me, Whither goest thou?
+But now I am going to him who sent me, and none of you asks me, 'Where are you going?'

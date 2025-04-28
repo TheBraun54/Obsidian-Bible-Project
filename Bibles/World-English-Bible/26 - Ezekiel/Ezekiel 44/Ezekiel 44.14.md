@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet will I make them keepers of the charge of the house, for all the service thereof, and for all that shall be done therein.
+Yet will I make them performers of the duty of the house, for all its service, and for all that shall be done therein.

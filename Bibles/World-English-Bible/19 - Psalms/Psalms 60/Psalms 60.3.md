@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast showed thy people hard things: Thou hast made us to drink the wine of staggering.
+You have shown your people hard things. You have made us drink the wine that makes us stagger.

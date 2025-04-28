@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when her days to be delivered were fulfilled, behold, there were twins in her womb.
+When her days to be delivered were fulfilled, behold, there were twins in her womb.

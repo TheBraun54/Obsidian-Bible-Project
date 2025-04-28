@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherein God, being minded to show more abundantly unto the heirs of the promise the immutability of his counsel, interposed with an oath;
+In this way God, being determined to show more abundantly to the heirs of the promise the immutability of his counsel, interposed with an oath;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said, Suffer her to keep it against the day of my burying.
+But Jesus said, "Leave her alone. She has kept this for the day of my burial.

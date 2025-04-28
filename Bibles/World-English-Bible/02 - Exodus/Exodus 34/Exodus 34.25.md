@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not offer the blood of my sacrifice with leavened bread; neither shall the sacrifice of the feast of the passover be left unto the morning.
+"You shall not offer the blood of my sacrifice with leavened bread; neither shall the sacrifice of the feast of the Passover be left to the morning.

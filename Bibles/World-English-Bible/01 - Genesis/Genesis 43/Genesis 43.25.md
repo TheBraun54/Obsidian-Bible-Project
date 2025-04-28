@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made ready the present against Joseph's coming at noon: for they heard that they should eat bread there.
+They prepared the present for Joseph's coming at noon, for they heard that they should eat bread there.

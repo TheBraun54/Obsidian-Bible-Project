@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David was the youngest; and the three eldest followed Saul.
+David was the youngest; and the three eldest followed Saul.

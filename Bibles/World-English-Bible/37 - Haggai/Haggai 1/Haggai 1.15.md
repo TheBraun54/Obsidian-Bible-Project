@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in the four and twentieth day of the month, in the sixth [month], in the second year of Darius the king.
+in the twenty-fourth day of the month, in the sixth month, in the second year of Darius the king.

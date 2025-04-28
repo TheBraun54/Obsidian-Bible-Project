@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And certain of the scribes answering said, Teacher, thou hast well said.
+Some of the scribes answered, "Teacher, you speak well."

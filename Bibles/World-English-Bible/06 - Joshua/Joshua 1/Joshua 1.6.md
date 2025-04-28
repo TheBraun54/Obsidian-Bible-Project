@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be strong and of good courage; for thou shalt cause this people to inherit the land which I sware unto their fathers to give them.
+"Be strong and courageous; for you shall cause this people to inherit the land which I swore to their fathers to give them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul shall make her boast in Jehovah: The meek shall hear thereof, and be glad.
+My soul shall boast in Yahweh. The humble shall hear of it, and be glad.

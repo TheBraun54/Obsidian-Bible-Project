@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he commanded the people that dwelt in Jerusalem to give the portion of the priests and the Levites, that they might give themselves to the law of Jehovah.
+Moreover he commanded the people who lived in Jerusalem to give the portion of the priests and the Levites, that they might give themselves to the law of Yahweh.

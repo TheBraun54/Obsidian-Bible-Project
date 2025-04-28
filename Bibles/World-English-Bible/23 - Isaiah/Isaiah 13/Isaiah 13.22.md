@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And wolves shall cry in their castles, and jackals in the pleasant palaces: and her time is near to come, and her days shall not be prolonged.
+Wolves will cry in their castles, and jackals in the pleasant palaces. Her time is near to come, and her days will not be prolonged.

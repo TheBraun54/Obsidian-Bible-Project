@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah said unto Isaiah, What shall be the sign that Jehovah will heal me, and that I shall go up unto the house of Jehovah the third day?
+Hezekiah said to Isaiah, "What shall be the sign that Yahweh will heal me, and that I shall go up to the house of Yahweh the third day?"

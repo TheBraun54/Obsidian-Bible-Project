@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I bought a girdle according to the word of Jehovah, and put it upon my loins.
+So I bought a belt according to the word of Yahweh, and put it on my waist.

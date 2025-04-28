@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore also he is able to save to the uttermost them that draw near unto God through him, seeing he ever liveth to make intercession for them.
+Therefore he is also able to save to the uttermost those who draw near to God through him, seeing that he lives forever to make intercession for them.

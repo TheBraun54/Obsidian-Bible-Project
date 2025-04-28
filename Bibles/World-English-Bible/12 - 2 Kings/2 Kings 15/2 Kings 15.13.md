@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shallum the son of Jabesh began to reign in the nine and thirtieth year of Uzziah king of Judah; and he reigned the space of a month in Samaria.
+Shallum the son of Jabesh began to reign in the thirty-ninth year of Uzziah king of Judah; and he reigned for a month in Samaria.

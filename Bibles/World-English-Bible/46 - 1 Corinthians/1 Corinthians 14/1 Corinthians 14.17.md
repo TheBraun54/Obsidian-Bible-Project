@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou verily givest thanks well, but the other is not edified.
+For you most certainly give thanks well, but the other person is not built up.

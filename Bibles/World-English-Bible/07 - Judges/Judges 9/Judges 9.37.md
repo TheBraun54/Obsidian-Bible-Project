@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gaal spake again and said, See, there come people down by the middle of the land, and one company cometh by the way of the oak of Meonenim.
+Gaal spoke again and said, "Behold, people are coming down by the middle of the land, and one company comes by the way of the oak of Meonenim."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the great day of their wrath is come; and who is able to stand?
+for the great day of his wrath has come; and who is able to stand?"

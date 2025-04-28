@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Commit [thyself] unto Jehovah; Let him deliver him: Let him rescue him, seeing he delighteth in him.
+"He trusts in Yahweh; let him deliver him. Let him rescue him, since he delights in him."

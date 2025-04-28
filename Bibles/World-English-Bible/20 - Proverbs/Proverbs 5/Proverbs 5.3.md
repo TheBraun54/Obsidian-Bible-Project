@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the lips of a strange woman drop honey, And her mouth is smoother than oil:
+For the lips of an adulteress drip honey. Her mouth is smoother than oil,

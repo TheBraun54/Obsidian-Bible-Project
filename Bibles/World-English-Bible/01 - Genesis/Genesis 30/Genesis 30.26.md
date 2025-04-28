@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give me my wives and my children for whom I have served thee, and let me go: for thou knowest my service wherewith I have served thee.
+Give me my wives and my children for whom I have served you, and let me go; for you know my service with which I have served you."

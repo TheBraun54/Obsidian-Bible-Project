@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whom will he teach knowledge? and whom will he make to understand the message? them that are weaned from the milk, and drawn from the breasts?
+Whom will he teach knowledge? To whom will he explain the message? Those who are weaned from the milk, and drawn from the breasts?

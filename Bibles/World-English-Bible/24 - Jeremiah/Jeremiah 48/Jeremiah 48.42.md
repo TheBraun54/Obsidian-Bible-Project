@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moab shall be destroyed from being a people, because he hath magnified himself against Jehovah.
+Moab shall be destroyed from being a people, because he has magnified himself against Yahweh.

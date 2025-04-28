@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the burnt-offering that the prince shall offer unto Jehovah shall be on the sabbath day six lambs without blemish and a ram without blemish;
+The burnt offering that the prince shall offer to Yahweh shall be on the Sabbath day six lambs without blemish and a ram without blemish;

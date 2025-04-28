@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel came to Saul; and Saul said unto him, Blessed be thou of Jehovah: I have performed the commandment of Jehovah.
+Samuel came to Saul; and Saul said to him, "You are blessed by Yahweh! I have performed the commandment of Yahweh."

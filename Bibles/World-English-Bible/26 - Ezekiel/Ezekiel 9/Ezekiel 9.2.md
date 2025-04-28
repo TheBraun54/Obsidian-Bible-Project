@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, six men came from the way of the upper gate, which lieth toward the north, every man with his slaughter weapon in his hand; and one man in the midst of them clothed in linen, with a writer's inkhorn by his side. And they went in, and stood beside the brazen altar.
+Behold, six men came from the way of the upper gate, which lies toward the north, every man with his slaughter weapon in his hand; and one man in the midst of them clothed in linen, with a writer's inkhorn by his side. They went in, and stood beside the bronze altar.

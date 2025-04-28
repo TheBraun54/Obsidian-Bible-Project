@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel, unto all the captivity, whom I have caused to be carried away captive from Jerusalem unto Babylon:
+Thus says Yahweh of Armies, the God of Israel, to all the captivity, whom I have caused to be carried away captive from Jerusalem to Babylon:

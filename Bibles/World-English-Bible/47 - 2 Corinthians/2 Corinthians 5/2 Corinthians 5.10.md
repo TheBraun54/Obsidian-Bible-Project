@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we must all be made manifest before the judgment-seat of Christ; that each one may receive the things [done] in the body, according to what he hath done, whether [it be] good or bad.
+For we must all be revealed before the judgment seat of Christ; that each one may receive the things in the body, according to what he has done, whether good or bad.

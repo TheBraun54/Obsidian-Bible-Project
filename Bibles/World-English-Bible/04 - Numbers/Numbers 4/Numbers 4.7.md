@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon the table of showbread they shall spread a cloth of blue, and put thereon the dishes, and the spoons, and the bowls and the cups wherewith to pour out; and the continual bread shall be thereon:
+"On the table of show bread they shall spread a blue cloth, and put on it the dishes, the spoons, the bowls, and the cups with which to pour out; and the continual bread shall be on it.

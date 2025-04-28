@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Think not that I came to send peace on the earth: I came not to send peace, but a sword.
+"Don't think that I came to send peace on the earth. I didn't come to send peace, but a sword.

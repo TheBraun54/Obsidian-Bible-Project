@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Go ye into all the world, and preach the gospel to the whole creation.
+He said to them, "Go into all the world, and preach the Good News to the whole creation.

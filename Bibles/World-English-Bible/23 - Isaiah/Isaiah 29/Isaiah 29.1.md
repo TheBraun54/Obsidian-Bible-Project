@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ho Ariel, Ariel, the city where David encamped! add ye year to year; let the feasts come round:
+Woe to Ariel! Ariel, the city where David encamped! Add year to year; let the feasts come around;

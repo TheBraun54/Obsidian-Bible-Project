@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border extended from the top of the mountain unto the fountain of the waters of Nephtoah, and went out to the cities of mount Ephron; and the border extended to Baalah (the same is Kiriath-jearim);
+The border extended from the top of the mountain to the spring of the waters of Nephtoah, and went out to the cities of Mount Ephron; and the border extended to Baalah (the same is Kiriath Jearim);

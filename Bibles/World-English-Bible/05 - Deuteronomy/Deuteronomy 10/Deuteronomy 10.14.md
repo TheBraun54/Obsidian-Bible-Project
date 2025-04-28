@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, unto Jehovah thy God belongeth heaven and the heaven of heavens, the earth, with all that is therein.
+Behold, to Yahweh your God belongs heaven and the heaven of heavens, the earth, with all that is therein.

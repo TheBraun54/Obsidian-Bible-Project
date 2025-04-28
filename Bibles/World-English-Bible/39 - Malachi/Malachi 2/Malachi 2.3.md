@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will rebuke your seed, and will spread dung upon your faces, even the dung of your feasts; and ye shall be taken away with it.
+Behold, I will rebuke your seed, and will spread dung on your faces, even the dung of your feasts; and you will be taken away with it.

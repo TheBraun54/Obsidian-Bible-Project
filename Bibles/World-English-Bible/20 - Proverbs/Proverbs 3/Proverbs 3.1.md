@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, forget not my law; But let thy heart keep my commandments:
+My son, don't forget my teaching; but let your heart keep my commandments:

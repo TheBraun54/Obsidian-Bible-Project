@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Saying], Surely they that did rise up against us are cut off, And the remnant of them the fire hath consumed.
+saying, 'Surely those who rose up against us are cut off. The fire has consumed the remnant of them.'

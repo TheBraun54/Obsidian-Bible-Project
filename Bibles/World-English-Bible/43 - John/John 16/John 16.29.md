@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His disciples say, Lo, now speakest thou plainly, and speakest no dark saying.
+His disciples said to him, "Behold, now you speak plainly, and speak no figures of speech.

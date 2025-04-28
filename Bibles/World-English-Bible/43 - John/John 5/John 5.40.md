@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye will not come to me, that ye may have life.
+Yet you will not come to me, that you may have life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long wilt thou sleep, O sluggard? When wilt thou arise out of thy sleep?
+How long will you sleep, sluggard? When will you arise out of your sleep?

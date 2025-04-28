@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abishai, the brother of Joab, the son of Zeruiah, was chief of the three. And he lifted up his spear against three hundred and slew them, and had a name among the three.
+Abishai, the brother of Joab, the son of Zeruiah, was chief of the three. He lifted up his spear against three hundred and killed them, and had a name among the three.

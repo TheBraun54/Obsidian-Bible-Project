@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David arose from the earth, and washed, and anointed himself, and changed his apparel; and he came into the house of Jehovah, and worshipped: then he came to his own house; and when he required, they set bread before him, and he did eat.
+Then David arose from the earth, and washed, and anointed himself, and changed his clothing; and he came into the house of Yahweh, and worshiped: then he came to his own house; and when he required, they set bread before him, and he ate.

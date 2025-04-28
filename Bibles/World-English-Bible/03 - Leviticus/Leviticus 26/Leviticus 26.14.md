@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye will not hearken unto me, and will not do all these commandments;
+"'But if you will not listen to me, and will not do all these commandments;

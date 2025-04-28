@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto him, As soon as I am gone out of the city, I will spread abroad my hands unto Jehovah; the thunders shall cease, neither shall there be any more hail; that thou mayest know that the earth is Jehovah's.
+Moses said to him, "As soon as I have gone out of the city, I will spread abroad my hands to Yahweh. The thunders shall cease, neither shall there be any more hail; that you may know that the earth is Yahweh's.

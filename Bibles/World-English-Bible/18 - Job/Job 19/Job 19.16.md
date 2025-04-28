@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I call unto my servant, and he giveth me no answer, [Though] I entreat him with my mouth.
+I call to my servant, and he gives me no answer. I beg him with my mouth.

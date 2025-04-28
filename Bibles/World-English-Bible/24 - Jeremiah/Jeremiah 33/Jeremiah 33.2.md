@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah that doeth it, Jehovah that formeth it to establish it; Jehovah is his name:
+Thus says Yahweh who does it, Yahweh who forms it to establish it; Yahweh is his name:

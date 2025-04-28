@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he laid his hands upon her: and immediately she was made straight, and glorified God.
+He laid his hands on her, and immediately she stood up straight, and glorified God.

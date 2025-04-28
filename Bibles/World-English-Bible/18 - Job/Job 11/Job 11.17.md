@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [thy] life shall be clearer than the noonday; Though there be darkness, it shall be as the morning.
+Life shall be clearer than the noonday. Though there is darkness, it shall be as the morning.

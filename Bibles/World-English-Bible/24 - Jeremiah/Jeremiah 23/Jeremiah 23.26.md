@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long shall this be in the heart of the prophets that prophesy lies, even the prophets of the deceit of their own heart?
+How long shall this be in the heart of the prophets who prophesy lies, even the prophets of the deceit of their own heart?

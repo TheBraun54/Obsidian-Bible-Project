@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as it is written, Jacob I loved, but Esau I hated.
+Even as it is written, "Jacob I loved, but Esau I hated."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they reasoned with themselves, saying, If we shall say, From heaven; He will say, Why then did ye not believe him?
+They reasoned with themselves, saying, "If we should say, 'From heaven;' he will say, 'Why then did you not believe him?'

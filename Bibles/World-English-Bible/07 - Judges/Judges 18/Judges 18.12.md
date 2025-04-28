@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went up, and encamped in Kiriath-jearim, in Judah: wherefore they called that place Mahaneh-dan, unto this day; behold, it is behind Kiriath-jearim.
+They went up, and encamped in Kiriath Jearim, in Judah: therefore they called that place Mahaneh Dan, to this day; behold, it is behind Kiriath Jearim.

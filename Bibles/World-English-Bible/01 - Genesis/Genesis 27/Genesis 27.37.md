@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac answered and said unto Esau, Behold, I have made him thy lord, and all his brethren have I given to him for servants; and with grain and new wine have I sustained him: and what then shall I do for thee, my son?
+Isaac answered Esau, "Behold, I have made him your lord, and all his brothers have I given to him for servants. With grain and new wine have I sustained him. What then will I do for you, my son?"

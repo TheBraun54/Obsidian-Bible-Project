@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of Moab and the elders of Midian departed with the rewards of divination in their hand; and they came unto Balaam, and spake unto him the words of Balak.
+The elders of Moab and the elders of Midian departed with the rewards of divination in their hand; and they came to Balaam, and spoke to him the words of Balak.

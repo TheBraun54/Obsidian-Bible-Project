@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mordecai came again to the king's gate. But Haman hasted to his house, mourning and having his head covered.
+Mordecai came back to the king's gate, but Haman hurried to his house, mourning and having his head covered.

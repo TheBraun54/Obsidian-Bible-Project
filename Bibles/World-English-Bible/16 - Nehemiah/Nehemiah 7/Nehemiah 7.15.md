@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Binnui, six hundred forty and eight.
+The children of Binnui, six hundred forty-eight.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will hear thee fully, said he, when thine accusers also are come: and he commanded him to be kept in Herod's palace.
+"I will hear you fully when your accusers also arrive." He commanded that he be kept in Herod's palace.

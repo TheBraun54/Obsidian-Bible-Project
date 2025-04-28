@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when certain days were passed, Agrippa the King and Bernice arrived at Caesarea, and saluted Festus.
+Now when some days had passed, King Agrippa and Bernice arrived at Caesarea, and greeted Festus.

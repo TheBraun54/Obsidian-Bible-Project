@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, saith Jehovah of hosts, that I will break his yoke from off thy neck, and will burst thy bonds; and strangers shall no more make him their bondman;
+It shall come to pass in that day, says Yahweh of Armies, that I will break his yoke from off your neck, and will burst your bonds; and strangers shall no more make him their bondservant;

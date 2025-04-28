@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall be thy spokesman unto the people; and it shall come to pass, that he shall be to thee a mouth, and thou shalt be to him as God.
+He will be your spokesman to the people; and it will happen, that he will be to you a mouth, and you will be to him as God.

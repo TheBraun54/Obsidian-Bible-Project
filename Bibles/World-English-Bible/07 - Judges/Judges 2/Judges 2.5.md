@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they called the name of that place Bochim: and they sacrificed there unto Jehovah.
+They called the name of that place Bochim: and they sacrificed there to Yahweh.

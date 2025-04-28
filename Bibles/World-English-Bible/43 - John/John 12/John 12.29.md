@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The multitude therefore, that stood by, and heard it, said that it had thundered: others said, An angel hath spoken to him.
+The multitude therefore, who stood by and heard it, said that it had thundered. Others said, "An angel has spoken to him."

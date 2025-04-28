@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And immediately he received his sight, and followed him, glorifying God: and all the people, when they saw it, gave praise unto God.
+Immediately he received his sight, and followed him, glorifying God. All the people, when they saw it, praised God.

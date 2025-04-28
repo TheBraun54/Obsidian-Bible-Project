@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in giving you this charge, I praise you not, that ye come together not for the better but for the worse.
+But in giving you this command, I don't praise you, that you come together not for the better but for the worse.

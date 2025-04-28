@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They bow themselves, they bring forth their young, They cast out their pains.
+They bow themselves, they bring forth their young, they end their labor pains.

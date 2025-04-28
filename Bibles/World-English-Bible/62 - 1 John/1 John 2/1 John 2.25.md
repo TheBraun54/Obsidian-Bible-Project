@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the promise which he promised us, [even] the life eternal.
+This is the promise which he promised us, the eternal life.

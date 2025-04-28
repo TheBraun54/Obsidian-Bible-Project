@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forty stripes he may give him, he shall not exceed; lest, if he should exceed, and beat him above these with many stripes, then thy brother should seem vile unto thee.
+Forty stripes he may give him, he shall not exceed; lest, if he should exceed, and beat him above these with many stripes, then your brother should seem vile to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I would not hearken unto Balaam; therefore he blessed you still: so I delivered you out of his hand.
+but I would not listen to Balaam; therefore he blessed you still. So I delivered you out of his hand.

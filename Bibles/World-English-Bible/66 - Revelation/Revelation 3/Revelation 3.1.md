@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the angel of the church in Sardis write: These things saith he that hath the seven Spirits of God, and the seven stars: I know thy works, that thou hast a name that thou livest, and thou art dead.
+"And to the angel of the assembly in Sardis write: "He who has the seven Spirits of God, and the seven stars says these things: "I know your works, that you have a reputation of being alive, but you are dead.

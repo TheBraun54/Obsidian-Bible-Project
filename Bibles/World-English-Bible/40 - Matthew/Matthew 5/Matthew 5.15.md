@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither do [men] light a lamp, and put it under the bushel, but on the stand; and it shineth unto all that are in the house.
+Neither do you light a lamp, and put it under a measuring basket, but on a stand; and it shines to all who are in the house.

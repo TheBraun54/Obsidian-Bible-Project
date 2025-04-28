@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed, regard not iniquity: For this hast thou chosen rather than affliction.
+Take heed, don't regard iniquity; for you have chosen this rather than affliction.

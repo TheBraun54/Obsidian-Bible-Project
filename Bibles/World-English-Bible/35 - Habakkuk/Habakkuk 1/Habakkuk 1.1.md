@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden which Habakkuk the prophet did see.
+The oracle which Habakkuk the prophet saw.

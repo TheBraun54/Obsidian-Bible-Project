@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest the avenger of blood pursue the manslayer, while his heart is hot, and overtake him, because the way is long, and smite him mortally; whereas he was not worthy of death, inasmuch as he hated him not in time past.
+lest the avenger of blood pursue the manslayer, while his heart is hot, and overtake him, because the way is long, and strike him mortally; whereas he was not worthy of death, inasmuch as he didn't hate him in time past.

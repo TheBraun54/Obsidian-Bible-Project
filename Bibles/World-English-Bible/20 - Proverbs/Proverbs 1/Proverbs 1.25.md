@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye have set at nought all my counsel, And would none of my reproof:
+but you have ignored all my counsel, and wanted none of my reproof;

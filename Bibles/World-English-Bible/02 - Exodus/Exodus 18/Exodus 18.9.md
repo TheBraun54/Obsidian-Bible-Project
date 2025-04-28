@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jethro rejoiced for all the goodness which Jehovah had done to Israel, in that he had delivered them out of the hand of the Egyptians.
+Jethro rejoiced for all the goodness which Yahweh had done to Israel, in that he had delivered them out of the hand of the Egyptians.

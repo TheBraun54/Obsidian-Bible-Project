@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince shall enter by the way of the porch of the gate without, and shall stand by the post of the gate; and the priests shall prepare his burnt-offering and his peace-offerings, and he shall worship at the threshold of the gate: then he shall go forth; but the gate shall not be shut until the evening.
+The prince shall enter by the way of the porch of the gate outside, and shall stand by the post of the gate; and the priests shall prepare his burnt offering and his peace offerings, and he shall worship at the threshold of the gate: then he shall go forth; but the gate shall not be shut until the evening.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of them that afflicted thee shall come bending unto thee; and all they that despised thee shall bow themselves down at the soles of thy feet; and they shall call thee The city of Jehovah, The Zion of the Holy One of Israel.
+The sons of those who afflicted you shall come bending to you; and all those who despised you shall bow themselves down at the soles of your feet; and they shall call you The city of Yahweh, The Zion of the Holy One of Israel.

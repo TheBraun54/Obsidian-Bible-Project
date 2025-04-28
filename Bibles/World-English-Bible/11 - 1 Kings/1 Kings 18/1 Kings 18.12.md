@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it will come to pass, as soon as I am gone from thee, that the Spirit of Jehovah will carry thee whither I know not; and so when I come and tell Ahab, and he cannot find thee, he will slay me: but I thy servant fear Jehovah from my youth.
+It will happen, as soon as I am gone from you, that the Spirit of Yahweh will carry you I don't know where; and so when I come and tell Ahab, and he can't find you, he will kill me. But I, your servant, have feared Yahweh from my youth.

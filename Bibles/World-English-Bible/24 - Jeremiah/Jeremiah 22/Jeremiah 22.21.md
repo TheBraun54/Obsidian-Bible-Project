@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I spake unto thee in thy prosperity; but thou saidst, I will not hear. This hath been thy manner from thy youth, that thou obeyedst not my voice.
+I spoke to you in your prosperity; but you said, I will not hear. This has been your way from your youth, that you didn't obey my voice.

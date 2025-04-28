@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or as a hidden untimely birth I had not been, As infants that never saw light.
+or as a hidden untimely birth I had not been, as infants who never saw light.

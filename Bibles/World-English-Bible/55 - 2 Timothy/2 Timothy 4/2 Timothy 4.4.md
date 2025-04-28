@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and will turn away their ears from the truth, and turn aside unto fables.
+and will turn away their ears from the truth, and turn aside to fables.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [Micaiah] said, Therefore hear thou the word of Jehovah: I saw Jehovah sitting on his throne, and all the host of heaven standing by him on his right hand and on his left.
+Micaiah said, "Therefore hear the word of Yahweh. I saw Yahweh sitting on his throne, and all the army of heaven standing by him on his right hand and on his left.

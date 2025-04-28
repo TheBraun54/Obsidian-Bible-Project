@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shechem said unto her father and unto her brethren, Let me find favor in your eyes, and what ye shall say unto me I will give.
+Shechem said to her father and to her brothers, "Let me find favor in your eyes, and whatever you will tell me I will give.

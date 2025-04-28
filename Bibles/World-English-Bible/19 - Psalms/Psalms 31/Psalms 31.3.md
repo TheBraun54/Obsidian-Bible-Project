@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art my rock and my fortress; Therefore for thy name's sake lead me and guide me.
+For you are my rock and my fortress, therefore for your name's sake lead me and guide me.

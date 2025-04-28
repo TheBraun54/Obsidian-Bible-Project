@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let them offer the sacrifices of thanksgiving, And declare his works with singing.
+Let them offer the sacrifices of thanksgiving, and declare his works with singing.

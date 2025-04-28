@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Rissah, and encamped in Kehelathah.
+They traveled from Rissah, and encamped in Kehelathah.

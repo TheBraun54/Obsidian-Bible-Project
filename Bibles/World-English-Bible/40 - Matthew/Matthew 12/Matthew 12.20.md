@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A bruised reed shall he not break, And smoking flax shall he not quench, Till he send forth judgment unto victory.
+He won't break a bruised reed. He won't quench a smoking flax, until he leads justice to victory.

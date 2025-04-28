@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What profit is there in my blood, when I go down to the pit? Shall the dust praise thee? shall it declare thy truth?
+"What profit is there in my destruction, if I go down to the pit? Shall the dust praise you? Shall it declare your truth?

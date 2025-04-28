@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(now the congregation's half was three hundred thousand and thirty thousand, seven thousand and five hundred sheep,
+(now the congregation's half was three hundred thirty-seven thousand five hundred sheep,

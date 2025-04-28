@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou comest into thy neighbor's vineyard, then thou mayest eat of grapes thy fill at thine own pleasure; but thou shalt not put any in thy vessel.
+When you come into your neighbor's vineyard, then you may eat of grapes your fill at your own pleasure; but you shall not put any in your vessel.

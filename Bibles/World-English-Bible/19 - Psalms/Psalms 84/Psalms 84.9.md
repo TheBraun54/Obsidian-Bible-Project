@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, O God our shield, And look upon the face of thine anointed.
+Behold, God our shield, look at the face of your anointed.

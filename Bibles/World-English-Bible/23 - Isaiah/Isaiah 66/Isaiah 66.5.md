@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear the word of Jehovah, ye that tremble at his word: Your brethren that hate you, that cast you out for my name's sake, have said, Let Jehovah be glorified, that we may see your joy; but it is they that shall be put to shame.
+Hear the word of Yahweh, you who tremble at his word: "Your brothers who hate you, who cast you out for my name's sake, have said, 'Let Yahweh be glorified, that we may see your joy;' but it is those who shall be disappointed.

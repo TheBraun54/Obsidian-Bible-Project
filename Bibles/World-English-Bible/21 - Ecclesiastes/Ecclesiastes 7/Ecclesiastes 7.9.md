@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not hasty in thy spirit to be angry; for anger resteth in the bosom of fools.
+Don't be hasty in your spirit to be angry, for anger rests in the bosom of fools.

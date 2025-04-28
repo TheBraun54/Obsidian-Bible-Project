@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-amidst which they found me purified in the temple, with no crowd, nor yet with tumult: but [there were] certain Jews from Asia--
+amid which certain Jews from Asia found me purified in the temple, not with a mob, nor with turmoil.

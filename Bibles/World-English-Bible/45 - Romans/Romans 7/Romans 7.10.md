@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the commandment, which [was] unto life, this I found [to be] unto death:
+The commandment, which was for life, this I found to be for death;

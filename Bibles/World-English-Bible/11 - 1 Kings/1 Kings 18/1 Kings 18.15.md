@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah said, As Jehovah of hosts liveth, before whom I stand, I will surely show myself unto him to-day.
+Elijah said, "As Yahweh of Armies lives, before whom I stand, I will surely show myself to him today."

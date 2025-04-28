@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If to others I am not an apostle, yet at least I am to you; for the seal of mine apostleship are ye in the Lord.
+If to others I am not an apostle, yet at least I am to you; for you are the seal of my apostleship in the Lord.

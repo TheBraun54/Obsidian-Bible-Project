@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And being moved with compassion, he stretched forth his hand, and touched him, and saith unto him, I will; be thou made clean.
+Being moved with compassion, he stretched out his hand, and touched him, and said to him, "I want to. Be made clean."

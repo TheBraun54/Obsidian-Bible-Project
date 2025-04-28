@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I would have you all speak with tongues, but rather that ye should prophesy: and greater is he that prophesieth than he that speaketh with tongues, except he interpret, that the church may receive edifying.
+Now I desire to have you all speak with other languages, but rather that you would prophesy. For he is greater who prophesies than he who speaks with other languages, unless he interprets, that the assembly may be built up.

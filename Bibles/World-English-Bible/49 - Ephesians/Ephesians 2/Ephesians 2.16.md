@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and might reconcile them both in one body unto God through the cross, having slain the enmity thereby:
+and might reconcile them both in one body to God through the cross, having killed the hostility thereby.

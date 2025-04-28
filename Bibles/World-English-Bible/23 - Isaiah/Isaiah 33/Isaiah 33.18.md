@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy heart shall muse on the terror: Where is he that counted, where is he that weighed [the tribute] ? where is he that counted the towers?
+Your heart will meditate on the terror. Where is he who counted? Where is he who weighed? Where is he who counted the towers?

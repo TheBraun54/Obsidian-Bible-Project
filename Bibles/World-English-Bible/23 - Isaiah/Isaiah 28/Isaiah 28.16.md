@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith the Lord Jehovah, Behold, I lay in Zion for a foundation a stone, a tried stone, a precious corner-[ stone] of sure foundation: he that believeth shall not be in haste.
+Therefore thus says the Lord Yahweh, "Behold, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes shall not act hastily.

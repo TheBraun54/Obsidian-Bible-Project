@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil in the sight of Jehovah, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, wherein he made Israel to sin.
+He did that which was evil in the sight of Yahweh, and walked in the way of his father, and in the way of his mother, and in the way of Jeroboam the son of Nebat, in which he made Israel to sin.

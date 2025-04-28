@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Behold, when ye are entered into the city, there shall meet you a man bearing a pitcher of water; follow him into the house whereinto he goeth.
+He said to them, "Behold, when you have entered into the city, a man carrying a pitcher of water will meet you. Follow him into the house which he enters.

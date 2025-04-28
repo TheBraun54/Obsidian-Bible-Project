@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And desiring to know the cause wherefore they accused him, I brought him down unto their council:
+Desiring to know the cause why they accused him, I brought him down to their council.

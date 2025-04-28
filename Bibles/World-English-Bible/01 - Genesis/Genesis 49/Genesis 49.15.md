@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saw a resting-place that it was good, And the land that it was pleasant; And he bowed his shoulder to bear, And became a servant under taskwork.
+He saw a resting place, that it was good, the land, that it was pleasant. He bows his shoulder to the burden, and becomes a servant doing forced labor.

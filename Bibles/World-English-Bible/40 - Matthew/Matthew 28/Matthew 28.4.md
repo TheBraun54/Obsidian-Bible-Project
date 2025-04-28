@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for fear of him the watchers did quake, and became as dead men.
+For fear of him, the guards shook, and became like dead men.

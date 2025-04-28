@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou sayest, My doctrine is pure, And I am clean in thine eyes.
+For you say, 'My doctrine is pure. I am clean in your eyes.'

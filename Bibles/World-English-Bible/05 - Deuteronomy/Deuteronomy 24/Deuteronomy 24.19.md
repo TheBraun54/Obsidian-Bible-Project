@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou reapest thy harvest in thy field, and hast forgot a sheaf in the field, thou shalt not go again to fetch it: it shall be for the sojourner, for the fatherless, and for the widow; that Jehovah thy God may bless thee in all the work of thy hands.
+When you reap your harvest in your field, and have forgot a sheaf in the field, you shall not go again to get it: it shall be for the foreigner, for the fatherless, and for the widow; that Yahweh your God may bless you in all the work of your hands.

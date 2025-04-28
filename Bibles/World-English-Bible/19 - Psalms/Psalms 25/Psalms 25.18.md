@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider mine affliction and my travail; And forgive all my sins.
+Consider my affliction and my travail. Forgive all my sins.

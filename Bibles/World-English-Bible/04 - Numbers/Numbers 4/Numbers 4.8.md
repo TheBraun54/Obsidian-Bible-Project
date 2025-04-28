@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall spread upon them a cloth of scarlet, and cover the same with a covering of sealskin, and shall put in the staves thereof.
+They shall spread on them a scarlet cloth, and cover the same with a covering of sealskin, and shall put in its poles.

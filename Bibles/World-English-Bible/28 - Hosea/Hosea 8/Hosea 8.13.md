@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the sacrifices of mine offerings, they sacrifice flesh and eat it; but Jehovah accepteth them not: now will he remember their iniquity, and visit their sins; they shall return to Egypt.
+As for the sacrifices of my offerings, they sacrifice flesh and eat it; But Yahweh doesn't accept them. Now he will remember their iniquity, and punish their sins. They will return to Egypt.

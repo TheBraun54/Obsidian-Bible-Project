@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he saw many of the Pharisees and Sadducees coming to his baptism, he said unto them, Ye offspring of vipers, who warned you to flee from the wrath to come?
+But when he saw many of the Pharisees and Sadducees coming for his baptism, he said to them, "You offspring of vipers, who warned you to flee from the wrath to come?

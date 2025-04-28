@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Jehovah of hosts is exalted in justice, and God the Holy One is sanctified in righteousness.
+but Yahweh of Armies is exalted in justice, and God the Holy One is sanctified in righteousness.

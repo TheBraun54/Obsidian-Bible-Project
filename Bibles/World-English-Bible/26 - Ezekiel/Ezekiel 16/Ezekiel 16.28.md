@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast played the harlot also with the Assyrians, because thou wast insatiable; yea, thou hast played the harlot with them, and yet thou wast not satisfied.
+You have played the prostitute also with the Assyrians, because you were insatiable; yes, you have played the prostitute with them, and yet you weren't satisfied.

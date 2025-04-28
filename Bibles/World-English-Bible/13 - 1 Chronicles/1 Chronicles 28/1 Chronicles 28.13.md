@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-also for the courses of the priests and the Levites, and for all the work of the service of the house of Jehovah, and for all the vessels of service in the house of Jehovah;
+also for the divisions of the priests and the Levites, and for all the work of the service of the house of Yahweh, and for all the vessels of service in the house of Yahweh;

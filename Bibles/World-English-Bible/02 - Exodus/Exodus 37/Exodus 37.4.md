@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made staves of acacia wood, and overlaid them with gold.
+He made poles of acacia wood, and overlaid them with gold.

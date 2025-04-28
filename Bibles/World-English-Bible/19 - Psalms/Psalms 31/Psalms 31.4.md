@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pluck me out of the net that they have laid privily for me; For thou art my stronghold.
+Pluck me out of the net that they have laid secretly for me, for you are my stronghold.

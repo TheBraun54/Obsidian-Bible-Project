@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul called unto him one of the centurions, and said, Bring this young man unto the chief captain; for he hath something to tell him.
+Paul summoned one of the centurions, and said, "Bring this young man to the commanding officer, for he has something to tell him."

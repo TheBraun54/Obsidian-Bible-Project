@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come out from thence, the scribes and the Pharisees began to press upon [him] vehemently, and to provoke him to speak of many things;
+As he said these things to them, the scribes and the Pharisees began to be terribly angry, and to draw many things out of him;

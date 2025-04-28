@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, I will surely go with thee: notwithstanding, the journey that thou takest shall not be for thine honor; for Jehovah will sell Sisera into the hand of a woman. And Deborah arose, and went with Barak to Kedesh.
+She said, "I will surely go with you: nevertheless, the journey that you take shall not be for your honor; for Yahweh will sell Sisera into the hand of a woman." Deborah arose, and went with Barak to Kedesh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wounds and dishonor shall he get; And his reproach shall not be wiped away.
+He will get wounds and dishonor. His reproach will not be wiped away.

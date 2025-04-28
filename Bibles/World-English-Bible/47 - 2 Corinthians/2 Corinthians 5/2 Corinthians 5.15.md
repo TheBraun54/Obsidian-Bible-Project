@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he died for all, that they that live should no longer live unto themselves, but unto him who for their sakes died and rose again.
+He died for all, that those who live should no longer live to themselves, but to him who for their sakes died and rose again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake three thousand proverbs; and his songs were a thousand and five.
+He spoke three thousand proverbs; and his songs were one thousand five.

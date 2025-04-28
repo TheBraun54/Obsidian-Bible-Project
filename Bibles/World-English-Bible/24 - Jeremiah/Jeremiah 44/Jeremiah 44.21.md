@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The incense that ye burned in the cities of Judah, and in the streets of Jerusalem, ye and your fathers, your kings and your princes, and the people of the land, did not Jehovah remember them, and came it not into his mind?
+The incense that you burned in the cities of Judah, and in the streets of Jerusalem, you and your fathers, your kings and your princes, and the people of the land, didn't Yahweh remember them, and didn't it come into his mind?

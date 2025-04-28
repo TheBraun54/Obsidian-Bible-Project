@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, the God of Israel: Like these good figs, so will I regard the captives of Judah, whom I have sent out of this place into the land of the Chaldeans, for good.
+Thus says Yahweh, the God of Israel: Like these good figs, so will I regard the captives of Judah, whom I have sent out of this place into the land of the Chaldeans, for good.

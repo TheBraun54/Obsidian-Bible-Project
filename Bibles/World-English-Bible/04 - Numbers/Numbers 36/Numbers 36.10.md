@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as Jehovah commanded Moses, so did the daughters of Zelophehad:
+The daughters of Zelophehad did as Yahweh commanded Moses:

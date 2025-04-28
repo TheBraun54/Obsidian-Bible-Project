@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will preserve him, and keep him alive, And he shall be blessed upon the earth; And deliver not thou him unto the will of his enemies.
+Yahweh will preserve him, and keep him alive. He shall be blessed on the earth, and he will not surrender him to the will of his enemies.

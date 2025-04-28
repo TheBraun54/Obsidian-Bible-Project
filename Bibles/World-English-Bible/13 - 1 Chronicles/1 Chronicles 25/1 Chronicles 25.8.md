@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they cast lots for their offices, all alike, as well the small as the great, the teacher as the scholar.
+They cast lots for their offices, all alike, as well the small as the great, the teacher as the scholar.

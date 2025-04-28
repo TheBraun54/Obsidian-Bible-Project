@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He measured on the north side five hundred reeds with the measuring reed round about.
+He measured on the north side five hundred reeds with the measuring reed all around.

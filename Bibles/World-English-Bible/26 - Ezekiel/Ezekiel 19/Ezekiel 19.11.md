@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it had strong rods for the sceptres of them that bare rule, and their stature was exalted among the thick boughs, and they were seen in [ their height with the multitude of their branches.
+It had strong rods for the scepters of those who bore rule, and their stature was exalted among the thick boughs, and they were seen in their height with the multitude of their branches.

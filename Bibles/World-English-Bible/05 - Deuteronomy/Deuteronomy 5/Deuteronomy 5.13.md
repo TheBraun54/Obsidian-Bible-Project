@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six days shalt thou labor, and do all thy work;
+You shall labor six days, and do all your work;

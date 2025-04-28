@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-at that time Jehovah spake by Isaiah the son of Amoz, saying, Go, and loose the sackcloth from off thy loins, and put thy shoe from off thy foot. And he did so, walking naked and barefoot.
+at that time Yahweh spoke by Isaiah the son of Amoz, saying, "Go, and loosen the sackcloth from off your waist, and take your shoes from off your feet." He did so, walking naked and barefoot.

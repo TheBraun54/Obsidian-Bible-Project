@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even a heritage unto Israel his servant; For his lovingkindness [endureth] for ever:
+Even a heritage to Israel his servant; for his loving kindness endures forever:

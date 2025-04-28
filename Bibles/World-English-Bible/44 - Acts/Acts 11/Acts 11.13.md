@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he told us how he had seen the angel standing in his house, and saying, Send to Joppa, and fetch Simon, whose surname is Peter;
+He told us how he had seen the angel standing in his house, and saying to him, 'Send to Joppa, and get Simon, whose surname is Peter,

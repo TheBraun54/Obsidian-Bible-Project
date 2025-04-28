@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Joram saw Jehu, that he said, Is it peace, Jehu? And he answered, What peace, so long as the whoredoms of thy mother Jezebel and her witchcrafts are so many?
+It happened, when Joram saw Jehu, that he said, "Is it peace, Jehu?" He answered, "What peace, so long as the prostitution of your mother Jezebel and her witchcraft abound?"

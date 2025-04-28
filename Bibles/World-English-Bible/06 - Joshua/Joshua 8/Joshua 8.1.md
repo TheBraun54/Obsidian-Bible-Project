@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Joshua, Fear not, neither be thou dismayed: take all the people of war with thee, and arise, go up to Ai; see, I have given into thy hand the king of Ai, and his people, and his city, and his land;
+Yahweh said to Joshua, "Don't be afraid, neither be dismayed. Take all the people of war with you, and arise, go up to Ai. Behold, I have given into your hand the king of Ai, with his people, his city, and his land.

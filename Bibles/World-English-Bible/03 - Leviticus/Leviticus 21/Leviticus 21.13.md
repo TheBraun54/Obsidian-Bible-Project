@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall take a wife in her virginity.
+"'He shall take a wife in her virginity.

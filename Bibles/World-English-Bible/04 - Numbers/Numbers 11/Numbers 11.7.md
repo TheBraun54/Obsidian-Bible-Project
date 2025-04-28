@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the manna was like coriander seed, and the appearance thereof as the appearance of bdellium.
+The manna was like coriander seed, and its appearance like the appearance of bdellium.

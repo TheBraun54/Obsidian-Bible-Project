@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were certain men, who were unclean by reason of the dead body of a man, so that they could not keep the passover on that day: and they came before Moses and before Aaron on that day:
+There were certain men, who were unclean because of the dead body of a man, so that they could not keep the Passover on that day, and they came before Moses and before Aaron on that day.

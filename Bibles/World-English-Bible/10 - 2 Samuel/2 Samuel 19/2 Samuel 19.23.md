@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Shimei, Thou shalt not die. And the king sware unto him.
+The king said to Shimei, "You shall not die." The king swore to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of him that is laden with guilt is exceeding crooked; But as for the pure, his work is right.
+The way of the guilty is devious, but the conduct of the innocent is upright.

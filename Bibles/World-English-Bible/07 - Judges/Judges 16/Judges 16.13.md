@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Delilah said unto Samson, Hitherto thou hast mocked me, and told me lies: tell me wherewith thou mightest be bound. And he said unto her, If thou weavest the seven locks of my head with the web.
+Delilah said to Samson, "Until now, you have mocked me and told me lies. Tell me with what you might be bound." He said to her, "If you weave the seven locks of my head with the web."

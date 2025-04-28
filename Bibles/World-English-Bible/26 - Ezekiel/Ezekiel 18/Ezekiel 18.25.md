@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet ye say, The way of the Lord is not equal. Hear now, O house of Israel: Is not my way equal? are not your ways unequal?
+Yet you say, The way of the Lord is not equal. Hear now, house of Israel: Is my way not equal? Aren't your ways unequal?

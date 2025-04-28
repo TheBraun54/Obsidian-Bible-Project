@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Noah begat three sons, Shem, Ham, and Japheth.
+Noah became the father of three sons: Shem, Ham, and Japheth.

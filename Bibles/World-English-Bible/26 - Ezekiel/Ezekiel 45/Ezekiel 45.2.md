@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of this there shall be for the holy place five hundred [in length] by five hundred [in breadth], square round about; and fifty cubits for the suburbs thereof round about.
+Of this there shall be for the holy place five hundred [in length] by five hundred [in breadth], square all around; and fifty cubits for its suburbs all around.

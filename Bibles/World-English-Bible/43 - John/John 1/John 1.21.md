@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they asked him, What then? Art thou Elijah? And he saith, I am not. Art thou the prophet? And he answered, No.
+They asked him, "What then? Are you Elijah?" He said, "I am not." "Are you the prophet?" He answered, "No."

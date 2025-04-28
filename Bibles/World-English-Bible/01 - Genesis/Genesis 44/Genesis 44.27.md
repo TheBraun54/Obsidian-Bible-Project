@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy servant my father said unto us, Ye know that my wife bare me two sons:
+Your servant, my father, said to us, 'You know that my wife bore me two sons:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And about that time there arose no small stir concerning the Way.
+About that time there arose no small stir concerning the Way.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I walk in the way of righteousness, In the midst of the paths of justice;
+I walk in the way of righteousness, in the midst of the paths of justice;

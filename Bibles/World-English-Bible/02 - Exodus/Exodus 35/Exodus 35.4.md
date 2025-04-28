@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake unto all the congregation of the children of Israel, saying, This is the thing which Jehovah commanded, saying,
+Moses spoke to all the congregation of the children of Israel, saying, "This is the thing which Yahweh commanded, saying,

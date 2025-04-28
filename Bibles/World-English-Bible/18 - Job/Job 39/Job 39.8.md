@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The range of the mountains is his pasture, And he searcheth after every green thing.
+The range of the mountains is his pasture, He searches after every green thing.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The roaring of the lion, and the voice of the fierce lion, And the teeth of the young lions, are broken.
+The roaring of the lion, and the voice of the fierce lion, the teeth of the young lions, are broken.

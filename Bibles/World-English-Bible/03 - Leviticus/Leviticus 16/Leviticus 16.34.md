@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be an everlasting statute unto you, to make atonement for the children of Israel because of all their sins once in the year. And he did as Jehovah commanded Moses.
+"This shall be an everlasting statute for you, to make atonement for the children of Israel once in the year because of all their sins." It was done as Yahweh commanded Moses.

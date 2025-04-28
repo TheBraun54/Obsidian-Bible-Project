@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to whom ye forgive anything, I [forgive] also: for what I also have forgiven, if I have forgiven anything, for your sakes [have I forgiven it] in the presence of Christ;
+Now I also forgive whomever you forgive anything. For if indeed I have forgiven anything, I have forgiven that one for your sakes in the presence of Christ,

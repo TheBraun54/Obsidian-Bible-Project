@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a land which Jehovah thy God careth for: the eyes of Jehovah thy God are always upon it, from the beginning of the year even unto the end of the year.
+a land which Yahweh your God cares for: the eyes of Yahweh your God are always on it, from the beginning of the year even to the end of the year.

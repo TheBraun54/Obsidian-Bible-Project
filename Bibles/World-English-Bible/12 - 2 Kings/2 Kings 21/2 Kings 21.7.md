@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the graven image of Asherah, that he had made, in the house of which Jehovah said to David and to Solomon his son, In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, will I put my name for ever;
+He set the engraved image of Asherah, that he had made, in the house of which Yahweh said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, will I put my name forever;

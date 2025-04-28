@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall keep all the furniture of the tent of meeting, and the charge of the children of Israel, to do the service of the tabernacle.
+They shall keep all the furnishings of the Tent of Meeting, and the obligations of the children of Israel, to do the service of the tabernacle.

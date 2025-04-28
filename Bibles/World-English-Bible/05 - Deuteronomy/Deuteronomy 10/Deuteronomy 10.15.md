@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only Jehovah had a delight in thy fathers to love them, and he chose their seed after them, even you above all peoples, as at this day.
+Only Yahweh had a delight in your fathers to love them, and he chose their seed after them, even you above all peoples, as at this day.

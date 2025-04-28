@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cleanse their blood, that I have not cleansed: for Jehovah dwelleth in Zion.
+I will cleanse their blood, that I have not cleansed: for Yahweh dwells in Zion."

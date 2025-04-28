@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as the duty of every day required, offering according to the commandment of Moses, on the sabbaths, and on the new moons, and on the set feasts, three times in the year, [even] in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles.
+even as the duty of every day required, offering according to the commandment of Moses, on the Sabbaths, and on the new moons, and on the set feasts, three times in the year, [even] in the feast of unleavened bread, and in the feast of weeks, and in the feast of tents.

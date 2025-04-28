@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have sent also unto you all my servants the prophets, rising up early and sending them, saying, Return ye now every man from his evil way, and amend your doings, and go not after other gods to serve them, and ye shall dwell in the land which I have given to you and to your fathers: but ye have not inclined your ear, nor hearkened unto me.
+I have sent also to you all my servants the prophets, rising up early and sending them, saying, Return now every man from his evil way, and amend your doings, and don't go after other gods to serve them, and you shall dwell in the land which I have given to you and to your fathers: but you have not inclined your ear, nor listened to me.

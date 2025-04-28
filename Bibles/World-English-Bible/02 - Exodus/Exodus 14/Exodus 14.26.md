@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Stretch out thy hand over the sea, that the waters may come again upon the Egyptians, upon their chariots, and upon their horsemen.
+Yahweh said to Moses, "Stretch out your hand over the sea, that the waters may come again on the Egyptians, on their chariots, and on their horsemen."

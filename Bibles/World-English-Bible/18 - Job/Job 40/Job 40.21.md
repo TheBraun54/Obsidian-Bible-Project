@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He lieth under the lotus-trees, In the covert of the reed, and the fen.
+He lies under the lotus trees, in the covert of the reed, and the marsh.

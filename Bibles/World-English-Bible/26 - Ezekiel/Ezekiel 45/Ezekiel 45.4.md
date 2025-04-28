@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is a holy portion of the land; it shall be for the priests, the ministers of the sanctuary, that come near to minister unto Jehovah; and it shall be a place for their houses, and a holy place for the sanctuary.
+It is a holy portion of the land; it shall be for the priests, the ministers of the sanctuary, who come near to minister to Yahweh; and it shall be a place for their houses, and a holy place for the sanctuary.

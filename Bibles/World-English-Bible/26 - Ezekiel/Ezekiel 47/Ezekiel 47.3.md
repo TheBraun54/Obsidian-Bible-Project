@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the man went forth eastward with the line in his hand, he measured a thousand cubits, and he caused me to pass through the waters, waters that were to the ankles.
+When the man went forth eastward with the line in his hand, he measured one thousand cubits, and he caused me to pass through the waters, waters that were to the ankles.

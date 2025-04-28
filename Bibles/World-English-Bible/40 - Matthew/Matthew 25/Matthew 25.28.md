@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye away therefore the talent from him, and give it unto him that hath the ten talents.
+Take away therefore the talent from him, and give it to him who has the ten talents.

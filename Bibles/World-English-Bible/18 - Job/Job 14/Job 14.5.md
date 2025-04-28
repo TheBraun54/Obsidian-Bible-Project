@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing his days are determined, The number of his months is with thee, And thou hast appointed his bounds that he cannot pass;
+Seeing his days are determined, the number of his months is with you, and you have appointed his bounds that he can't pass;

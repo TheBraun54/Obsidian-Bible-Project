@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then she said, I ask one small petition of thee; deny me not. And the king said unto her, Ask on, my mother; for I will not deny thee.
+Then she said, "I ask one small petition of you; don't deny me." The king said to her, "Ask on, my mother; for I will not deny you."

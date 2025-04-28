@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah your God, he is God of gods, and Lord of lords, the great God, the mighty, and the terrible, who regardeth not persons, nor taketh reward.
+For Yahweh your God, he is God of gods, and Lord of lords, the great God, the mighty, and the awesome, who doesn't respect persons, nor takes reward.

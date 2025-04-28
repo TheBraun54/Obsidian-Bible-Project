@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things, when the wrath of king Ahasuerus was pacified, he remembered Vashti, and what she had done, and what was decreed against her.
+After these things, when the wrath of King Ahasuerus was pacified, he remembered Vashti, and what she had done, and what was decreed against her.

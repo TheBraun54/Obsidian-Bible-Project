@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in Shushan the palace the Jews slew and destroyed five hundred men.
+In the citadel of Susa, the Jews killed and destroyed five hundred men.

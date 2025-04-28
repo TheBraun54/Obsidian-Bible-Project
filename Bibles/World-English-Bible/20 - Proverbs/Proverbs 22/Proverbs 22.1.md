@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A [good] name is rather to be chosen than great riches, [And] loving favor rather than silver and gold.
+A good name is more desirable than great riches, and loving favor is better than silver and gold.

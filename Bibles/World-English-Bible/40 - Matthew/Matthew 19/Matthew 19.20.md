@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The young man saith unto him, All these things have I observed: what lack I yet?
+The young man said to him, "All these things I have observed from my youth. What do I still lack?"

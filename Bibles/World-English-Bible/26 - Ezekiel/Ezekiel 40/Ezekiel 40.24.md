@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he led me toward the south; and, behold, a gate toward the south: and he measured the posts thereof and the arches thereof according to these measures.
+He led me toward the south; and behold, a gate toward the south: and he measured its posts and its arches according to these measures.

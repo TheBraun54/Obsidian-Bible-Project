@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the houses of the villages which have no wall round about them shall be reckoned with the fields of the country: they may be redeemed, and they shall go out in the jubilee.
+But the houses of the villages which have no wall around them shall be reckoned with the fields of the country: they may be redeemed, and they shall be released in the Jubilee.

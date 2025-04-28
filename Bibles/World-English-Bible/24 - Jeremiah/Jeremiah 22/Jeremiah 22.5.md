@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye will not hear these words, I swear by myself, saith Jehovah, that this house shall become a desolation.
+But if you will not hear these words, I swear by myself, says Yahweh, that this house shall become a desolation.

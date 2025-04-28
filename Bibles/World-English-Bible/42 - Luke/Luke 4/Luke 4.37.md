@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went forth a rumor concerning him into every place of the region round about.
+News about him went out into every place of the surrounding region.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made the coats of fine linen of woven work for Aaron, and for his sons,
+They made the coats of fine linen of woven work for Aaron, and for his sons,

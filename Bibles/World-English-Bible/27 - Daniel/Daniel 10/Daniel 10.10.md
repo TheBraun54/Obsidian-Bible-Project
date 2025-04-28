@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, a hand touched me, which set me upon my knees and upon the palms of my hands.
+Behold, a hand touched me, which set me on my knees and on the palms of my hands.

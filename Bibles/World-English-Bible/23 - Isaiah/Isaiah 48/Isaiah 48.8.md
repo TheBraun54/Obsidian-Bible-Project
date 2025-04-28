@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, thou heardest not; yea, thou knewest not; yea, from of old thine ear was not opened: for I knew that thou didst deal very treacherously, and wast called a transgressor from the womb.
+Yes, you didn't hear; yes, you didn't know; yes, from of old your ear was not opened: for I knew that you did deal very treacherously, and was called a transgressor from the womb.

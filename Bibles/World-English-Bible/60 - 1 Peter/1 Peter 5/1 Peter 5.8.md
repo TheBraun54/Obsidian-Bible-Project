@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be sober, be watchful: your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour,
+Be sober and self-controlled. Be watchful. Your adversary, the devil, walks around like a roaring lion, seeking whom he may devour.

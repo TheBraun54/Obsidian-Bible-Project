@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, I loose thee this day from the chains which are upon thy hand. If it seem good unto thee to come with me into Babylon, come, and I will look well unto thee; but if it seem ill unto thee to come with me into Babylon, forbear: behold, all the land is before thee; whither it seemeth good and right unto thee to go, thither go.
+Now, behold, I release you this day from the chains which are on your hand. If it seems good to you to come with me into Babylon, come, and I will take care of you; but if it seems bad to you to come with me into Babylon, don't: behold, all the land is before you; where it seems good and right to you to go, there go.

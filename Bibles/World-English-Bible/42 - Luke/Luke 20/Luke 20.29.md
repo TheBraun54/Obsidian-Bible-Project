@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There were therefore seven brethren: and the first took a wife, and died childless;
+There were therefore seven brothers. The first took a wife, and died childless.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And who is he that overcometh the world, but he that believeth that Jesus is the Son of God?
+Who is he who overcomes the world, but he who believes that Jesus is the Son of God?

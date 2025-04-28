@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The waters compassed me about, even to the soul; The deep was round about me; The weeds were wrapped about my head.
+The waters surrounded me, even to the soul. The deep was around me. The weeds were wrapped around my head.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the angel of the church in Ephesus write: These things saith he that holdeth the seven stars in his right hand, he that walketh in the midst of the seven golden candlesticks:
+"To the angel of the assembly in Ephesus write: "He who holds the seven stars in his right hand, he who walks among the seven golden lampstands says these things:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again shalt thou plant vineyards upon the mountains of Samaria; the planters shall plant, and shall enjoy [the fruit thereof] .
+Again you shall plant vineyards on the mountains of Samaria; the planters shall plant, and shall enjoy [its fruit].

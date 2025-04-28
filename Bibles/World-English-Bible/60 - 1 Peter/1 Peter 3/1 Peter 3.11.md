@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let him turn away from evil, and do good; Let him seek peace, and pursue it.
+Let him turn away from evil, and do good. Let him seek peace, and pursue it.

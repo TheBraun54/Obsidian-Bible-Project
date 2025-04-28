@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came down to Capernaum, a city of Galilee. And he was teaching them on the sabbath day:
+He came down to Capernaum, a city of Galilee. He was teaching them on the Sabbath day,

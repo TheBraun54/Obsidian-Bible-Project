@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever the unclean person toucheth shall be unclean; and the soul that toucheth it shall be unclean until even.
+"Whatever the unclean person touches shall be unclean; and the soul that touches it shall be unclean until evening."

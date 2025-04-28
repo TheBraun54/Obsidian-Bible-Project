@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain man found him, and, behold, he was wandering in the field: and the man asked him, saying, What seekest thou?
+A certain man found him, and behold, he was wandering in the field. The man asked him, "What are you looking for?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-henceforth there is laid up for me the crown of righteousness, which the Lord, the righteous judge, shall give to me at that day; and not to me only, but also to all them that have loved his appearing.
+From now on, there is stored up for me the crown of righteousness, which the Lord, the righteous judge, will give to me on that day; and not to me only, but also to all those who have loved his appearing.

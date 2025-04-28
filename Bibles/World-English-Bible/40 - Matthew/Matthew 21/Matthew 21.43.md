@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore say I unto you, The kingdom of God shall be taken away from you, and shall be given to a nation bringing forth the fruits thereof.
+"Therefore I tell you, the Kingdom of God will be taken away from you, and will be given to a nation bringing forth its fruit.

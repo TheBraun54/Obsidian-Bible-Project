@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that believeth on the Son of God hath the witness in him: he that believeth not God hath made him a liar; because he hath not believed in the witness that God hath borne concerning his Son.
+He who believes in the Son of God has the testimony in himself. He who doesn't believe God has made him a liar, because he has not believed in the testimony that God has given concerning his Son.

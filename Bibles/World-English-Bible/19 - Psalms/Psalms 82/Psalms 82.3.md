@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judge the poor and fatherless: Do justice to the afflicted and destitute.
+"Defend the weak, the poor, and the fatherless. Maintain the rights of the poor and oppressed.

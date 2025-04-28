@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he arose, and straightway took up the bed, and went forth before them all; insomuch that they were all amazed, and glorified God, saying, We never saw it on this fashion.
+He arose, and immediately took up the mat, and went out in front of them all; so that they were all amazed, and glorified God, saying, "We never saw anything like this!"

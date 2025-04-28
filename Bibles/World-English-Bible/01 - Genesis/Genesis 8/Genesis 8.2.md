@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the fountains also of the deep and the windows of heaven were stopped, and the rain from heaven was restrained;
+The deep's fountains and the sky's windows were also stopped, and the rain from the sky was restrained.

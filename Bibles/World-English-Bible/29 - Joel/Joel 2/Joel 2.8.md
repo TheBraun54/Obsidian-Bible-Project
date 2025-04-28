@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither doth one thrust another; they march every one in his path; and they burst through the weapons, and break not off [their course] .
+Neither does one jostle another; they march everyone in his path, and they burst through the defenses, and don't break ranks.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye hypocrites, well did Isaiah prophesy of you, saying,
+You hypocrites! Well did Isaiah prophesy of you, saying,

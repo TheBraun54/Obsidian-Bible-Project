@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then? are we better than they? No, in no wise: for we before laid to the charge both of Jews and Greeks, that they are all under sin;
+What then? Are we better than they? No, in no way. For we previously warned both Jews and Greeks, that they are all under sin.

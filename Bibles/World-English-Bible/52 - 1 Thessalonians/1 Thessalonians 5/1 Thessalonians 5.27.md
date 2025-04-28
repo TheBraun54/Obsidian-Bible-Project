@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I adjure you by the Lord that this epistle be read unto all the brethren.
+I solemnly command you by the Lord that this letter be read to all the holy brothers.

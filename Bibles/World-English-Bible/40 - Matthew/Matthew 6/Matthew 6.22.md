@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lamp of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light.
+"The lamp of the body is the eye. If therefore your eye is sound, your whole body will be full of light.

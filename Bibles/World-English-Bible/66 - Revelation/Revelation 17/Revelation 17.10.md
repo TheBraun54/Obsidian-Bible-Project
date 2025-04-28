@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they are seven kings; the five are fallen, the one is, the other is not yet come; and when he cometh, he must continue a little while.
+They are seven kings. Five have fallen, the one is, the other has not yet come. When he comes, he must continue a little while.

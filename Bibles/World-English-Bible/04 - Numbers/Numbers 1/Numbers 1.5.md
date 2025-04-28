@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of the men that shall stand with you. Of Reuben: Elizur the son of Shedeur.
+These are the names of the men who shall stand with you: Of Reuben: Elizur the son of Shedeur.

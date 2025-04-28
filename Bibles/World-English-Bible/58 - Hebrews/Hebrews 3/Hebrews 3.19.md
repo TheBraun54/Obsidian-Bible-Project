@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we see that they were not able to enter in because of unbelief.
+We see that they were not able to enter in because of unbelief.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and next to him Jehohanan the captain, and with him two hundred and fourscore thousand;
+and next to him Jehohanan the captain, and with him two hundred eighty thousand;

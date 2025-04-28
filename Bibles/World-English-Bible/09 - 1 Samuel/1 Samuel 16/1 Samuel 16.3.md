@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And call Jesse to the sacrifice, and I will show thee what thou shalt do: and thou shalt anoint unto me him whom I name unto thee.
+Call Jesse to the sacrifice, and I will show you what you shall do. You shall anoint to me him whom I name to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not for your sake do I [this], saith the Lord Jehovah, be it known unto you: be ashamed and confounded for your ways, O house of Israel.
+Nor for your sake do I [this], says the Lord Yahweh, be it known to you: be ashamed and confounded for your ways, house of Israel.

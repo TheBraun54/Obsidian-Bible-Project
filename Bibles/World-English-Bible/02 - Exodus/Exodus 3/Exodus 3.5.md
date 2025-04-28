@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Draw not nigh hither: put off thy shoes from off thy feet, for the place whereon thou standest is holy ground.
+He said, "Don't come close. Take your sandals off of your feet, for the place you are standing on is holy ground."

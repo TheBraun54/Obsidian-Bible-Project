@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that led them through the depths, as a horse in the wilderness, so that they stumbled not?
+who led them through the depths, as a horse in the wilderness, so that they didn't stumble?

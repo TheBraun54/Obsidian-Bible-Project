@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they arose and took away the altars that were in Jerusalem, and all the altars for incense took they away, and cast them into the brook Kidron.
+They arose and took away the altars that were in Jerusalem, and all the altars for incense took they away, and cast them into the brook Kidron.

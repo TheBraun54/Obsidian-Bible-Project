@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my soul shall be joyful in Jehovah: It shall rejoice in his salvation.
+My soul shall be joyful in Yahweh. It shall rejoice in his salvation.

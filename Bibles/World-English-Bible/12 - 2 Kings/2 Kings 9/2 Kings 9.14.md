@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehu the son of Jehoshaphat the son of Nimshi conspired against Joram. (Now Joram was keeping Ramoth-gilead, he and all Israel, because of Hazael king of Syria;
+So Jehu the son of Jehoshaphat the son of Nimshi conspired against Joram. (Now Joram was keeping Ramoth Gilead, he and all Israel, because of Hazael king of Syria;

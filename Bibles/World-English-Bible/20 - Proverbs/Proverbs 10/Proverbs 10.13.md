@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the lips of him that hath discernment wisdom is found; But a rod is for the back of him that is void of understanding.
+Wisdom is found on the lips of him who has discernment, but a rod is for the back of him who is void of understanding.

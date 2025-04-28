@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or I only and Barnabas, have we not a right to forbear working?
+Or have only Barnabas and I no right to not work?

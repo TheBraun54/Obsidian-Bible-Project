@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he speaketh fair, believe him not; For there are seven abominations in his heart:
+When his speech is charming, don't believe him; for there are seven abominations in his heart.

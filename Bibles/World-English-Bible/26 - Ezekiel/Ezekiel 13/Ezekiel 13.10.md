@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because, even because they have seduced my people, saying, Peace; and there is no peace; and when one buildeth up a wall, behold, they daub it with untempered [mortar] :
+Because, even because they have seduced my people, saying, Peace; and there is no peace; and when one builds up a wall, behold, they plaster it with whitewash:

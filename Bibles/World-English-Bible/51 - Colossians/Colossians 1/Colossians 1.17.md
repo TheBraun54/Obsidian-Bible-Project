@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he is before all things, and in him all things consist.
+He is before all things, and in him all things are held together.

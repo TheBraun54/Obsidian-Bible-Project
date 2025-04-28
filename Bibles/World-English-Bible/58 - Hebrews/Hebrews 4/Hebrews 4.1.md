@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us fear therefore, lest haply, a promise being left of entering into his rest, any one of you should seem to have come short of it.
+Let us fear therefore, lest perhaps anyone of you should seem to have come short of a promise of entering into his rest.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put in the breastplate of judgment the Urim and the Thummim; and they shall be upon Aaron's heart, when he goeth in before Jehovah: and Aaron shall bear the judgment of the children of Israel upon his heart before Jehovah continually.
+You shall put in the breastplate of judgment the Urim and the Thummim; and they shall be on Aaron's heart, when he goes in before Yahweh: and Aaron shall bear the judgment of the children of Israel on his heart before Yahweh continually.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses commanded the children of Israel according to the word of Jehovah, saying, The tribe of the sons of Joseph speaketh right.
+Moses commanded the children of Israel according to the word of Yahweh, saying, "The tribe of the sons of Joseph speaks right.

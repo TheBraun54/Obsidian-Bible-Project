@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of the Philistines brought Jehoshaphat presents, and silver for tribute; the Arabians also brought him flocks, seven thousand and seven hundred rams, and seven thousand and seven hundred he-goats.
+Some of the Philistines brought Jehoshaphat presents, and silver for tribute; the Arabians also brought him flocks, seven thousand and seven hundred rams, and seven thousand and seven hundred male goats.

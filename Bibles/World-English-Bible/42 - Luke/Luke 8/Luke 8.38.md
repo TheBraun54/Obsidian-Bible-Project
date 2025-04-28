@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the man from whom the demons were gone out prayed him that he might be with him: but he sent him away, saying,
+But the man from whom the demons had gone out begged him that he might go with him, but Jesus sent him away, saying,

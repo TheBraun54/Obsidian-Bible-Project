@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the enemy pursue my soul, and overtake it; Yea, let him tread my life down to the earth, And lay my glory in the dust. {{Selah
+let the enemy pursue my soul, and overtake it; yes, let him tread my life down to the earth, and lay my glory in the dust. Selah.

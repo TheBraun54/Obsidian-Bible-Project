@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, all Israel have transgressed thy law, even turning aside, that they should not obey thy voice: therefore hath the curse been poured out upon us, and the oath that is written in the law of Moses the servant of God; for we have sinned against him.
+Yes, all Israel have transgressed your law, turning aside, that they should not obey your voice: therefore the curse and the oath written in the law of Moses the servant of God has been poured out on us; for we have sinned against him.

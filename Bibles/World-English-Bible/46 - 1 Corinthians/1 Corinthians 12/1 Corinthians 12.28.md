@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God hath set some in the church, first apostles, secondly prophets, thirdly teachers, then miracles, then gifts of healings, helps, governments, [divers] kinds of tongues.
+God has set some in the assembly: first apostles, second prophets, third teachers, then miracle workers, then gifts of healings, helps, governments, and various kinds of languages.

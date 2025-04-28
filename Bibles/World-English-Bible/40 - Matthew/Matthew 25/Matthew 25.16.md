@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Straightway he that received the five talents went and traded with them, and made other five talents.
+Immediately he who received the five talents went and traded with them, and made another five talents.

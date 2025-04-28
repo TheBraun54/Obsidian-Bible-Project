@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the city hath no need of the sun, neither of the moon, to shine upon it: for the glory of God did lighten it, and the lamp thereof [is] the Lamb.
+The city has no need for the sun, neither of the moon, to shine, for the very glory of God illuminated it, and its lamp is the Lamb.

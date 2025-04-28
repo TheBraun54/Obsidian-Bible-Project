@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no man shall come up with thee; neither let any man be seen throughout all the mount; neither let the flocks nor herds feed before that mount.
+No one shall come up with you; neither let anyone be seen throughout all the mountain; neither let the flocks nor herds feed before that mountain."

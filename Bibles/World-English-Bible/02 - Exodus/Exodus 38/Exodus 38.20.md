@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the pins of the tabernacle, and of the court round about, were of brass.
+All the pins of the tabernacle, and around the court, were of brass.

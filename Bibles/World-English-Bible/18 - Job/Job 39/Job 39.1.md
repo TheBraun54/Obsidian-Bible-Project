@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Knowest thou the time when the wild goats of the rock bring forth? [Or] canst thou mark when the hinds do calve?
+"Do you know the time when the mountain goats give birth? Do you watch when the doe bears fawns?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall dwell on high; his place of defence shall be the munitions of rocks; his bread shall be given [him] ; his waters shall be sure.
+he will dwell on high. His place of defense will be the fortress of rocks. His bread will be supplied. His waters will be sure.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put pure frankincense upon each row, that it may be to the bread for a memorial, even an offering made by fire unto Jehovah.
+You shall put pure frankincense on each row, that it may be to the bread for a memorial, even an offering made by fire to Yahweh.

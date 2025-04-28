@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye have regard to him that weareth the fine clothing, and say, Sit thou here in a good place; and ye say to the poor man, Stand thou there, or sit under my footstool;
+and you pay special attention to him who wears the fine clothing, and say, "Sit here in a good place;" and you tell the poor man, "Stand there," or "Sit by my footstool;"

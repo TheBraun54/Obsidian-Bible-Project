@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the angel that talked with me answered and said unto me, Knowest thou not what these are? And I said, No, my lord.
+Then the angel who talked with me answered me, "Don't you know what these are?" I said, "No, my lord."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they cried out all together, saying, Away with this man, and release unto us Barabbas:--
+But they all cried out together, saying, "Away with this man! Release to us Barabbas!"--

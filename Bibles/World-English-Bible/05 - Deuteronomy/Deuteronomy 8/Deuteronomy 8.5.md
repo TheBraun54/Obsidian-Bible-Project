@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt consider in thy heart, that, as a man chasteneth his son, so Jehovah thy God chasteneth thee.
+You shall consider in your heart that as a man chastens his son, so Yahweh your God chastens you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that doeth the truth cometh to the light, that his works may be made manifest, that they have been wrought in God.
+But he who does the truth comes to the light, that his works may be revealed, that they have been done in God."

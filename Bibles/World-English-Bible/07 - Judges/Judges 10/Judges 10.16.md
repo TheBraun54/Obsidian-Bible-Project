@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put away the foreign gods from among them, and served Jehovah; and his soul was grieved for the misery of Israel.
+They put away the foreign gods from among them, and served Yahweh; and his soul was grieved for the misery of Israel.

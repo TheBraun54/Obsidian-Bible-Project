@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he took it, and the king thereof, and all the cities thereof; and they smote them with the edge of the sword, and utterly destroyed all the souls that were therein; he left none remaining: as he had done to Hebron, so he did to Debir, and to the king thereof; as he had done also to Libnah, and to the king thereof.
+He took it, with its king and all its cities. They struck them with the edge of the sword, and utterly destroyed all the souls who were in it. He left none remaining. As he had done to Hebron, so he did to Debir, and to its king; as he had done also to Libnah, and to its king.

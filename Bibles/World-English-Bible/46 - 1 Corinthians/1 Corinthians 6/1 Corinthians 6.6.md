@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but brother goeth to law with brother, and that before unbelievers?
+But brother goes to law with brother, and that before unbelievers!

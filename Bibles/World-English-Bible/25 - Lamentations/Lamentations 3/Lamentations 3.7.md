@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath walled me about, that I cannot go forth; he hath made my chain heavy.
+He has walled me about, that I can't go forth; he has made my chain heavy.

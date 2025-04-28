@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if men contend, and one smite the other with a stone, or with his fist, and he die not, but keep his bed;
+"If men quarrel and one strikes the other with a stone, or with his fist, and he doesn't die, but is confined to bed;

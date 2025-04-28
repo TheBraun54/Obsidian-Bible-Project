@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is not for kings, O Lemuel, it is not for kings to drink wine; Nor for princes [to say], Where is strong drink?
+It is not for kings, Lemuel; it is not for kings to drink wine; nor for princes to say, 'Where is strong drink?'

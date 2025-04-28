@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say thou, Thus saith the Lord Jehovah: Shall it prosper? shall he not pull up the roots thereof, and cut off the fruit thereof, that it may wither; that all its fresh springing leaves may wither? and not by a strong arm or much people can it be raised from the roots thereof.
+Say, Thus says the Lord Yahweh: Shall it prosper? shall he not pull up its roots, and cut off its fruit, that it may wither; that all its fresh springing leaves may wither? and not by a strong arm or many people can it be raised from its roots.

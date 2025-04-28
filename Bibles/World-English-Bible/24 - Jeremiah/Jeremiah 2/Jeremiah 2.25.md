@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Withhold thy foot from being unshod, and thy throat from thirst: but thou saidst, It is in vain; no, for I have loved strangers, and after them will I go.
+"Withhold your foot from being unshod, and your throat from thirst. But you said, 'It is in vain. No, for I have loved strangers, and I will go after them.'

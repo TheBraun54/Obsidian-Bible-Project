@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, if thou wilt hearken unto all that I command thee, and wilt walk in my ways, and do that which is right in mine eyes, to keep my statutes and my commandments, as David my servant did; that I will be with thee, and will build thee a sure house, as I built for David, and will give Israel unto thee.
+It shall be, if you will listen to all that I command you, and will walk in my ways, and do that which is right in my eyes, to keep my statutes and my commandments, as David my servant did; that I will be with you, and will build you a sure house, as I built for David, and will give Israel to you.

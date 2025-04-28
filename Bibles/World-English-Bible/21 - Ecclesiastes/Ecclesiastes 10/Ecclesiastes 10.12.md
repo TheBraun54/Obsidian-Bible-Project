@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of a wise man's mouth are gracious; but the lips of a fool will swallow up himself.
+The words of a wise man's mouth are gracious; but a fool is swallowed by his own lips.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah smote the Ethiopians before Asa, and before Judah; and the Ethiopians fled.
+So Yahweh struck the Ethiopians before Asa, and before Judah; and the Ethiopians fled.

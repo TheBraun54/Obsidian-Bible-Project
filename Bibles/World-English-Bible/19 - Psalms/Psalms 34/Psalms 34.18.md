@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is nigh unto them that are of a broken heart, And saveth such as are of a contrite spirit.
+Yahweh is near to those who have a broken heart, and saves those who have a crushed spirit.

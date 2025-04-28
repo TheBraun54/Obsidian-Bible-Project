@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a woman who was in the city, a sinner; and when she knew that he was sitting at meat in the Pharisee's house, she brought an alabaster cruse of ointment, [
+Behold, a woman in the city who was a sinner, when she knew that he was reclining in the Pharisee's house, she brought an alabaster jar of ointment.

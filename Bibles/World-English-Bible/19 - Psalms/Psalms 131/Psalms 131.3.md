@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Israel, hope in Jehovah From this time forth and for evermore.
+Israel, hope in Yahweh, from this time forth and forevermore. A Song of Ascents.

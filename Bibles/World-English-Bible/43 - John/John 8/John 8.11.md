@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, No man, Lord. And Jesus said, Neither do I condemn thee: go thy way; from henceforth sin no more.}}
+She said, "No one, Lord." Jesus said, "Neither do I condemn you. Go your way. From now on, sin no more."

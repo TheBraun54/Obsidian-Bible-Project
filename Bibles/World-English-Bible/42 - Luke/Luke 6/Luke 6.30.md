@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give to every one that asketh thee; and of him that taketh away thy goods ask them not again.
+Give to everyone who asks you, and don't ask him who takes away your goods to give them back again.

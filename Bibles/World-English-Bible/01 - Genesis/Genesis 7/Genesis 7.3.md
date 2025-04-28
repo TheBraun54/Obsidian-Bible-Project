@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the birds also of the heavens, seven and seven, male and female, to keep seed alive upon the face of all the earth.
+Also of the birds of the sky, seven and seven, male and female, to keep seed alive on the surface of all the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he made an altar of brass, twenty cubits the length thereof, and twenty cubits the breadth thereof, and ten cubits the height thereof.
+Then he made an altar of brass, twenty cubits its length, and twenty cubits its breadth, and ten cubits its height.

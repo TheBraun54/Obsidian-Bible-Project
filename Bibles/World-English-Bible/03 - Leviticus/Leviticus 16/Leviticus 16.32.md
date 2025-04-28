@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest, who shall be anointed and who shall be consecrated to be priest in his father's stead, shall make the atonement, and shall put on the linen garments, even the holy garments:
+The priest, who is anointed and who is consecrated to be priest in his father's place, shall make the atonement, and shall put on the linen garments, even the holy garments.

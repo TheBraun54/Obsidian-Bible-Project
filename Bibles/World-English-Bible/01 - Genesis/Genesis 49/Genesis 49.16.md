@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dan shall judge his people, As one of the tribes of Israel.
+"Dan will judge his people, as one of the tribes of Israel.

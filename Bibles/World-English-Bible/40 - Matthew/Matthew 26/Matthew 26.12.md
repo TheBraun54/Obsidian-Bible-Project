@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in that she poured this ointment upon my body, she did it to prepare me for burial.
+For in pouring this ointment on my body, she did it to prepare me for burial.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he knoweth not that which shall be; for who can tell him how it shall be?
+For he doesn't know that which will be; for who can tell him how it will be?

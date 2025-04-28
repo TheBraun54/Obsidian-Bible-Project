@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord Jehovah hath given me the tongue of them that are taught, that I may know how to sustain with words him that is weary: he wakeneth morning by morning, he wakeneth mine ear to hear as they that are taught.
+The Lord Yahweh has given me the tongue of those who are taught, that I may know how to sustain with words him who is weary: he wakens morning by morning, he wakens my ear to hear as those who are taught.

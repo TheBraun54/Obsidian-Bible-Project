@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at meal-time Boaz said unto her, Come hither, and eat of the bread, and dip thy morsel in the vinegar. And she sat beside the reapers, and they reached her parched grain, and she did eat, and was sufficed, and left thereof.
+At meal time Boaz said to her, "Come here, and eat of the bread, and dip your morsel in the vinegar." She sat beside the reapers, and they reached her parched grain, and she ate, and was satisfied, and left some of it.

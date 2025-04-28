@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Oh, Lord, send, I pray thee, by the hand of him whom thou wilt send.
+He said, "Oh, Lord, please send someone else."

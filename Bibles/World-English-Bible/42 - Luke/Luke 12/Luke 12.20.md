@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God said unto him, Thou foolish one, this night is thy soul required of thee; and the things which thou hast prepared, whose shall they be?
+"But God said to him, 'You foolish one, tonight your soul is required of you. The things which you have prepared--whose will they be?'

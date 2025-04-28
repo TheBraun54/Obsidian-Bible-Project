@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The keeper of the prison looked not to anything that was under his hand, because Jehovah was with him; and that which he did, Jehovah made it to prosper.
+The keeper of the prison didn't look after anything that was under his hand, because Yahweh was with him; and that which he did, Yahweh made it prosper.

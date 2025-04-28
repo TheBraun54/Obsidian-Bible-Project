@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the king came in to behold the guests, he saw there a man who had not on a wedding-garment:
+But when the king came in to see the guests, he saw there a man who didn't have on wedding clothing,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe [unto you], when all men shall speak well of you! for in the same manner did their fathers to the false prophets.
+Woe, when men speak well of you, for their fathers did the same thing to the false prophets.

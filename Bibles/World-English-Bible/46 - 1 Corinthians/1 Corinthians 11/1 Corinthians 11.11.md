@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless, neither is the woman without the man, nor the man without the woman, in the Lord.
+Nevertheless, neither is the woman independent of the man, nor the man independent of the woman, in the Lord.

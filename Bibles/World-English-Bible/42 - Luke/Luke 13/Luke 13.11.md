@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a woman that had a spirit of infirmity eighteen years; and she was bowed together, and could in no wise lift herself up.
+Behold, there was a woman who had a spirit of infirmity eighteen years, and she was bent over, and could in no way straighten herself up.

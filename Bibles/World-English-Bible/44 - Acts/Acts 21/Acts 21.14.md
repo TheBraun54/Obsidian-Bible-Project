@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he would not be persuaded, we ceased, saying, The will of the Lord be done.
+When he would not be persuaded, we ceased, saying, "The Lord's will be done."

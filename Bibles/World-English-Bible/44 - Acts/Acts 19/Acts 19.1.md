@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that, while Apollos was at Corinth, Paul having passed through the upper country came to Ephesus, and found certain disciples:
+It happened that, while Apollos was at Corinth, Paul, having passed through the upper country, came to Ephesus, and found certain disciples.

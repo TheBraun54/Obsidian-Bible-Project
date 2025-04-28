@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gad, a troop shall press upon him; But he shall press upon their heel.
+"A troop will press on Gad, but he will press on their heel.

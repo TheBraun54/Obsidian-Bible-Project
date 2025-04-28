@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Haman said moreover, Yea, Esther the queen did let no man come in with the king unto the banquet that she had prepared but myself; and to-morrow also am I invited by her together with the king.
+Haman also said, "Yes, Esther the queen let no man come in with the king to the banquet that she had prepared but myself; and tomorrow I am also invited by her together with the king.

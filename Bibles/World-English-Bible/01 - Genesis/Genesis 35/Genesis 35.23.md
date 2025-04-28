@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the sons of Leah: Reuben, Jacob's first-born, and Simeon, and Levi, and Judah, and Issachar, and Zebulun;
+The sons of Leah: Reuben (Jacob's firstborn), Simeon, Levi, Judah, Issachar, and Zebulun.

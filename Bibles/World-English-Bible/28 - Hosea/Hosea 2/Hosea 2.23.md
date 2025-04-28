@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will sow her unto me in the earth; and I will have mercy upon her that had not obtained mercy; and I will say to them that were not my people, Thou art my people; and they shall say, [Thou art] my God.
+I will sow her to me in the earth; and I will have mercy on her who had not obtained mercy; and I will tell those who were not my people, 'You are my people;' and they will say, 'My God!'"

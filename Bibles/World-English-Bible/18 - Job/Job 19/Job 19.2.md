@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long will ye vex my soul, And break me in pieces with words?
+"How long will you torment me, and crush me with words?

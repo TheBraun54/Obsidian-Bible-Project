@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their idols are silver and gold, The work of men's hands.
+Their idols are silver and gold, the work of men's hands.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have taught you statutes and ordinances, even as Jehovah my God commanded me, that ye should do so in the midst of the land whither ye go in to possess it.
+Behold, I have taught you statutes and ordinances, even as Yahweh my God commanded me, that you should do so in the midst of the land where you go in to possess it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God of Abraham, and the God of Nahor, the God of their father, judge betwixt us. And Jacob sware by the Fear of his father Isaac.
+The God of Abraham, and the God of Nahor, the God of their father, judge between us." Then Jacob swore by the fear of his father, Isaac.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had so said, there arose a dissension between the Pharisees and Sadducees; and the assembly was divided.
+When he had said this, an argument arose between the Pharisees and Sadducees, and the assembly was divided.

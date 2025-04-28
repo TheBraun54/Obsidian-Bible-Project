@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the upright shall dwell in the land, And the perfect shall remain in it.
+For the upright will dwell in the land. The perfect will remain in it.

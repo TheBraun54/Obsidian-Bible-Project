@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shall there be for Egypt any work, which head or tail, palm-branch or rush, may do.
+Neither shall there be for Egypt any work, which head or tail, palm branch or rush, may do.

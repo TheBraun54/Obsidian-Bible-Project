@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, He that would love life, And see good days, Let him refrain his tongue from evil, And his lips that they speak no guile:
+For, "He who would love life, and see good days, let him keep his tongue from evil, and his lips from speaking deceit.

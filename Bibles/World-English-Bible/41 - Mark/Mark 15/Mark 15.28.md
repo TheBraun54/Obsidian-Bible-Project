@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+The Scripture was fulfilled, which says, "He was numbered with transgressors."

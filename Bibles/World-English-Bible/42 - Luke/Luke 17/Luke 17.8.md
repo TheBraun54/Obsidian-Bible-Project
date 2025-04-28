@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and will not rather say unto him, Make ready wherewith I may sup, and gird thyself, and serve me, till I have eaten and drunken; and afterward thou shalt eat and drink?
+and will not rather tell him, 'Prepare my supper, clothe yourself properly, and serve me, while I eat and drink. Afterward you shall eat and drink'?

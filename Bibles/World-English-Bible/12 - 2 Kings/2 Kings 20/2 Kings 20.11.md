@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaiah the prophet cried unto Jehovah; and he brought the shadow ten steps backward, by which it had gone down on the dial of Ahaz.
+Isaiah the prophet cried to Yahweh; and he brought the shadow ten steps backward, by which it had gone down on the dial of Ahaz.

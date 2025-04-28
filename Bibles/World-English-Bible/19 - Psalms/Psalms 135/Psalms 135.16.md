@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have mouths, but they speak not; Eyes have they, but they see not;
+They have mouths, but they can't speak. They have eyes, but they can't see.

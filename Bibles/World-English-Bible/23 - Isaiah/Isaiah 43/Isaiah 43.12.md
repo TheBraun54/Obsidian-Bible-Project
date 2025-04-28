@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have declared, and I have saved, and I have showed; and there was no strange [god] among you: therefore ye are my witnesses, saith Jehovah, and I am God.
+I have declared, I have saved, and I have shown; and there was no strange god among you. Therefore you are my witnesses," says Yahweh, "and I am God.

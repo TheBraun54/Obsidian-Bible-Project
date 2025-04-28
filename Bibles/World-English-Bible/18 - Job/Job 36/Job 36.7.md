@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He withdraweth not his eyes from the righteous: But with kings upon the throne He setteth them for ever, and they are exalted.
+He doesn't withdraw his eyes from the righteous, but with kings on the throne, he sets them forever, and they are exalted.

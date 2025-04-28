@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the field and the cave that is therein, which was purchased from the children of Heth.
+the field and the cave that is therein, which was purchased from the children of Heth."

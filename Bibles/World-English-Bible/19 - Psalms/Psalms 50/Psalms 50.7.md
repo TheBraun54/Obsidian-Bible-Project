@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O my people, and I will speak; O Israel, and I will testify unto thee: I am God, [even] thy God.
+"Hear, my people, and I will speak; Israel, and I will testify against you. I am God, your God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His own iniquities shall take the wicked, And he shall be holden with the cords of his sin.
+The evil deeds of the wicked ensnare him. The cords of his sin hold him firmly.

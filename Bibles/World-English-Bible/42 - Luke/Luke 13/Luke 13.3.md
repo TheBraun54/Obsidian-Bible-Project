@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I tell you, Nay: but, except ye repent, ye shall all in like manner perish.
+I tell you, no, but unless you repent, you will all perish in the same way.

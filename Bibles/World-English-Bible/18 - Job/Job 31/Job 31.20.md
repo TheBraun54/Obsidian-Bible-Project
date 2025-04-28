@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If his loins have not blessed me, And if he hath not been warmed with the fleece of my sheep;
+if his heart hasn't blessed me, if he hasn't been warmed with my sheep's fleece;

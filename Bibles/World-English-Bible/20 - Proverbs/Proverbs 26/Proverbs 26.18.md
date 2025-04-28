@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a madman who casteth firebrands, Arrows, and death,
+Like a madman who shoots torches, arrows, and death,

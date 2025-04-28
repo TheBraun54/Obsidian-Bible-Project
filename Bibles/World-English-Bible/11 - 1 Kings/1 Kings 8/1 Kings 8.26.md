@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, O God of Israel, let thy word, I pray thee, be verified, which thou spakest unto thy servant David my father.
+"Now therefore, God of Israel, please let your word be verified, which you spoke to your servant David my father.

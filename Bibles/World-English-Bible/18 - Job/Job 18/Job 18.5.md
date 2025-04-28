@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, the light of the wicked shall be put out, And the spark of his fire shall not shine.
+"Yes, the light of the wicked shall be put out, The spark of his fire shall not shine.

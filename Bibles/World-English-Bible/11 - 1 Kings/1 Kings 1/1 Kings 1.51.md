@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Solomon, saying, Behold, Adonijah feareth king Solomon; for, lo, he hath laid hold on the horns of the altar, saying, Let king Solomon swear unto me first that he will not slay his servant with the sword.
+It was told Solomon, saying, "Behold, Adonijah fears king Solomon; for, behold, he has laid hold on the horns of the altar, saying, 'Let king Solomon swear to me first that he will not kill his servant with the sword.'"

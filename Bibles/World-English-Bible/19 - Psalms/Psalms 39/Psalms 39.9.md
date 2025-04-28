@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was dumb, I opened not my mouth; Because thou didst it.
+I was mute. I didn't open my mouth, because you did it.

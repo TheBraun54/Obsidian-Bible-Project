@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was a stranger, and ye took me not in; naked, and ye clothed me not; sick, and in prison, and ye visited me not.
+I was a stranger, and you didn't take me in; naked, and you didn't clothe me; sick, and in prison, and you didn't visit me.'

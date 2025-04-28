@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We made a raid upon the South of the Cherethites, and upon that which belongeth to Judah, and upon the South of Caleb; and we burned Ziklag with fire.
+We made a raid on the South of the Cherethites, and on that which belongs to Judah, and on the South of Caleb; and we burned Ziklag with fire."

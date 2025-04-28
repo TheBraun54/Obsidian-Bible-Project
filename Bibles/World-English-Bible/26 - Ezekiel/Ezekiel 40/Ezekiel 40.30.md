@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were arches round about, five and twenty cubits long, and five cubits broad.
+There were arches all around, twenty-five cubits long, and five cubits broad.

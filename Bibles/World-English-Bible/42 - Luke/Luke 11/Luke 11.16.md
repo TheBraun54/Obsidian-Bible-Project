@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And others, trying [him], sought of him a sign from heaven.
+Others, testing him, sought from him a sign from heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lay down and slept under a juniper-tree; and, behold, an angel touched him, and said unto him, Arise and eat.
+He lay down and slept under a juniper tree; and behold, an angel touched him, and said to him, "Arise and eat!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Enter into his gates with thanksgiving, And into his courts with praise: Give thanks unto him, and bless his name.
+Enter into his gates with thanksgiving, into his courts with praise. Give thanks to him, and bless his name.

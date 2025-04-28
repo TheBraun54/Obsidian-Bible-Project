@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard the voice from heaven saying, Write, Blessed are the dead who die in the Lord from henceforth: yea, saith the Spirit, that they may rest from their labors; for their works follow with them.
+I heard the voice from heaven saying, "Write, 'Blessed are the dead who die in the Lord from now on.'" "Yes," says the Spirit, "that they may rest from their labors; for their works follow with them."

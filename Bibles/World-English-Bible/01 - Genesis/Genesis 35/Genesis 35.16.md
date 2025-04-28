@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Beth-el; and there was still some distance to come to Ephrath: and Rachel travailed, and she had hard labor.
+They traveled from Bethel. There was still some distance to come to Ephrath, and Rachel travailed. She had hard labor.

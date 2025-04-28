@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They therefore that were scattered abroad, went about preaching the word.
+Therefore those who were scattered abroad went around preaching the word.

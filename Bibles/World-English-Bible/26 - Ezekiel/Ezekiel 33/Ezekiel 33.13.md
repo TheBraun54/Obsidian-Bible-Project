@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I say to the righteous, that he shall surely live; if he trust to his righteousness, and commit iniquity, none of his righteous deeds shall be remembered; but in his iniquity that he hath committed, therein shall he die.
+When I tell the righteous, that he shall surely live; if he trust to his righteousness, and commit iniquity, none of his righteous deeds shall be remembered; but in his iniquity that he has committed, therein shall he die.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They mount up to the heavens, they go down again to the depths: Their soul melteth away because of trouble.
+They mount up to the sky; they go down again to the depths. Their soul melts away because of trouble.

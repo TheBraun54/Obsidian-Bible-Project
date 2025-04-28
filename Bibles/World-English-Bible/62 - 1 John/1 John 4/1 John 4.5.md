@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are of the world: therefore speak they [as] of the world, and the world heareth them.
+They are of the world. Therefore they speak of the world, and the world hears them.

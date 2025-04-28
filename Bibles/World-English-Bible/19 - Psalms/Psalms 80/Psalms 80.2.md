@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before Ephraim and Benjamin and Manasseh, stir up thy might, And come to save us.
+Before Ephraim and Benjamin and Manasseh, stir up your might! Come to save us!

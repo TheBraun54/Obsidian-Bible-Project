@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men marvelled, saying, What manner of man is this, that even the winds and the sea obey him?
+The men marveled, saying, "What kind of man is this, that even the wind and the sea obey him?"

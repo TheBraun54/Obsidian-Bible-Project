@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not that which entereth into the mouth defileth the man; but that which proceedeth out of the mouth, this defileth the man.
+That which enters into the mouth doesn't defile the man; but that which proceeds out of the mouth, this defiles the man."

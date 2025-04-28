@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell them therefore, Thus saith the Lord Jehovah: I will make this proverb to cease, and they shall no more use it as a proverb in Israel; but say unto them, The days are at hand, and the fulfilment of every vision.
+Tell them therefore, Thus says the Lord Yahweh: I will make this proverb to cease, and they shall no more use it as a proverb in Israel; but tell them, The days are at hand, and the fulfillment of every vision.

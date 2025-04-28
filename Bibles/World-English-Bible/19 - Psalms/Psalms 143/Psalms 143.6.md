@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I spread forth my hands unto thee: My soul [thirsteth] after thee, as a weary land. {{Selah
+I spread forth my hands to you. My soul thirsts for you, like a parched land. Selah.

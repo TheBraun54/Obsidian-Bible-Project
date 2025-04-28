@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put the staves into the rings on the sides of the ark, wherewith to bear the ark.
+You shall put the poles into the rings on the sides of the ark to carry the ark.

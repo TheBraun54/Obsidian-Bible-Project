@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou takest the sum of the children of Israel, according to those that are numbered of them, then shall they give every man a ransom for his soul unto Jehovah, when thou numberest them; that there be no plague among them, when thou numberest them.
+"When you take a census of the children of Israel, according to those who are numbered among them, then each man shall give a ransom for his soul to Yahweh, when you number them; that there be no plague among them when you number them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Joahaz was twenty and three years old when he began to reign; and he reigned three months in Jerusalem.
+Joahaz was twenty-three years old when he began to reign; and he reigned three months in Jerusalem.

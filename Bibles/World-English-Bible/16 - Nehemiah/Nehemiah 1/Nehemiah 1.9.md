@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if ye return unto me, and keep my commandments and do them, though your outcasts were in the uttermost part of the heavens, yet will I gather them from thence, and will bring them unto the place that I have chosen, to cause my name to dwell there.
+but if you return to me, and keep my commandments and do them, though your outcasts were in the uttermost part of the heavens, yet will I gather them from there, and will bring them to the place that I have chosen, to cause my name to dwell there.'

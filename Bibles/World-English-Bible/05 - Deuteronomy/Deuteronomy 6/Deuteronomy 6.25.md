@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be righteousness unto us, if we observe to do all this commandment before Jehovah our God, as he hath commanded us.
+It shall be righteousness to us, if we observe to do all this commandment before Yahweh our God, as he has commanded us."

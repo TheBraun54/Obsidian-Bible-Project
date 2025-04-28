@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say before Jehovah thy God, I have put away the hallowed things out of my house, and also have given them unto the Levite, and unto the sojourner, to the fatherless, and to the widow, according to all thy commandment which thou hast commanded me: I have not transgressed any of thy commandments, neither have I forgotten them:
+You shall say before Yahweh your God, "I have put away the holy things out of my house, and also have given them to the Levite, and to the foreigner, to the fatherless, and to the widow, according to all your commandment which you have commanded me: I have not transgressed any of your commandments, neither have I forgotten them:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day, saith Jehovah, will I assemble that which is lame, and I will gather that which is driven away, and that which I have afflicted;
+"In that day," says Yahweh, "I will assemble that which is lame, and I will gather that which is driven away, and that which I have afflicted;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from thence he went against the inhabitants of Debir. (Now the name of Debir beforetime was Kiriath-sepher.)
+From there he went against the inhabitants of Debir. (Now the name of Debir before was Kiriath Sepher.)

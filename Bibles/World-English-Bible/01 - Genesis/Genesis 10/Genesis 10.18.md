@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Arvadite, and the Zemarite, and the Hamathite: and afterward were the families of the Canaanite spread abroad.
+the Arvadite, the Zemarite, and the Hamathite. Afterward the families of the Canaanites were spread abroad.

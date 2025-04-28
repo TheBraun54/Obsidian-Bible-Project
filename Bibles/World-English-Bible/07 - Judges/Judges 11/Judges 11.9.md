@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jephthah said unto the elders of Gilead, If ye bring me home again to fight with the children of Ammon, and Jehovah deliver them before me, shall I be your head?
+Jephthah said to the elders of Gilead, "If you bring me home again to fight with the children of Ammon, and Yahweh deliver them before me, shall I be your head?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing praises unto Jehovah with the harp; With the harp and the voice of melody.
+Sing praises to Yahweh with the harp, with the harp and the voice of melody.

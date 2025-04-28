@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the tribe of Reuben, Bezer with its suburbs, and Jahaz with its suburbs,
+Out of the tribe of Reuben, Bezer with its suburbs, Jahaz with its suburbs,

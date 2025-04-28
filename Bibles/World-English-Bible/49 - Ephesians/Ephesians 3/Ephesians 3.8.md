@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto me, who am less than the least of all saints, was this grace given, to preach unto the Gentiles the unsearchable riches of Christ;
+To me, the very least of all saints, was this grace given, to preach to the Gentiles the unsearchable riches of Christ,

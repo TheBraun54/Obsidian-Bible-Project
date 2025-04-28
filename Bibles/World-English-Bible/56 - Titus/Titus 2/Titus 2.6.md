@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the younger men likewise exhort to be sober-minded:
+Likewise, exhort the younger men to be sober minded;

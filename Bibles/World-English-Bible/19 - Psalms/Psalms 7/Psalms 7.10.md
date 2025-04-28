@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My shield is with God, Who saveth the upright in heart.
+My shield is with God, who saves the upright in heart.

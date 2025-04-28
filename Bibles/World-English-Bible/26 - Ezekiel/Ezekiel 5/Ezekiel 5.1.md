@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, take thee a sharp sword; [as] a barber's razor shalt thou take it unto thee, and shalt cause it to pass upon thy head and upon thy beard: then take thee balances to weigh, and divide the hair.
+You, son of man, take a sharp sword; You shall take it as a barber's razor to you, and shall cause it to pass on your head and on your beard: then take balances to weigh, and divide the hair.

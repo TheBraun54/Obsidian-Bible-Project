@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Daniel knew that the writing was signed, he went into his house (now his windows were open in his chamber toward Jerusalem) and he kneeled upon his knees three times a day, and prayed, and gave thanks before his God, as he did aforetime.
+When Daniel knew that the writing was signed, he went into his house (now his windows were open in his room toward Jerusalem) and he kneeled on his knees three times a day, and prayed, and gave thanks before his God, as he did before.

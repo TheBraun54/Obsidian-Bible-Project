@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep thee far from a false matter; and the innocent and righteous slay thou not: for I will not justify the wicked.
+"Keep far from a false charge, and don't kill the innocent and righteous: for I will not justify the wicked.

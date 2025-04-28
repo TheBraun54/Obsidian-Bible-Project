@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And John also was baptizing in Enon near to Salim, because there was much water there: and they came, and were baptized.
+John also was baptizing in Enon near Salim, because there was much water there. They came, and were baptized.

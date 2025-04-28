@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people of Judah took Azariah, who was sixteen years old, and made him king in the room of his father Amaziah.
+All the people of Judah took Azariah, who was sixteen years old, and made him king in the place of his father Amaziah.

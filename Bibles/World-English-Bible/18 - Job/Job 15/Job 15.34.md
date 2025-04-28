@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the company of the godless shall be barren, And fire shall consume the tents of bribery.
+For the company of the godless shall be barren, and fire shall consume the tents of bribery.

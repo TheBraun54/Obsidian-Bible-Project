@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he suffered no man to follow with him, save Peter, and James, and John the brother of James.
+He allowed no one to follow him, except Peter, James, and John the brother of James.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the earth is the Lord's, and the fulness thereof.
+for "the earth is the Lord's, and its fullness."

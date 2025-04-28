@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Depart from evil, and do good; And dwell for evermore.
+Depart from evil, and do good. Live securely forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that are home-born shall do these things after this manner, in offering an offering made by fire, of a sweet savor unto Jehovah.
+"'All who are native-born shall do these things in this way, in offering an offering made by fire, of a pleasant aroma to Yahweh.

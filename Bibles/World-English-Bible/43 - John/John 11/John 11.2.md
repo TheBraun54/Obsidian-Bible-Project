@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was that Mary who anointed the Lord with ointment, and wiped his feet with her hair, whose brother Lazarus was sick.
+It was that Mary who had anointed the Lord with ointment, and wiped his feet with her hair, whose brother, Lazarus, was sick.

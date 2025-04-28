@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, Son of man, dig now in the wall: and when I had digged in the wall, behold, a door.
+Then he said to me, Son of man, dig now in the wall: and when I had dug in the wall, behold, a door.

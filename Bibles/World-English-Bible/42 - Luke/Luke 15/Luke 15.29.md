@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said to his father, Lo, these many years do I serve thee, and I never transgressed a commandment of thine; and [yet] thou never gavest me a kid, that I might make merry with my friends:
+But he answered his father, 'Behold, these many years I have served you, and I never disobeyed a commandment of yours, but you never gave me a goat, that I might celebrate with my friends.

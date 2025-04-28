@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall observe to do all the statutes and the ordinances which I set before you this day.
+You shall observe to do all the statutes and the ordinances which I set before you this day.

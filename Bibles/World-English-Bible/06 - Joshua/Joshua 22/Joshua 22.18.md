@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye must turn away this day from following Jehovah? and it will be, seeing ye rebel to-day against Jehovah, that to-morrow he will be wroth with the whole congregation of Israel.
+that you must turn away this day from following Yahweh? It will be, since you rebel today against Yahweh, that tomorrow he will be angry with the whole congregation of Israel.

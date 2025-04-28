@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore said, Behold how he loved him!
+The Jews therefore said, "See how much affection he had for him!"

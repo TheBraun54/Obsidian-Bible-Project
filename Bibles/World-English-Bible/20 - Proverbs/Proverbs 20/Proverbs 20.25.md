@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is a snare to a man rashly to say, [It is] holy, And after vows to make inquiry.
+It is a snare to a man to make a rash dedication, then later to consider his vows.

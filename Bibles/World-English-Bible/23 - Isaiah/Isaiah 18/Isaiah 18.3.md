@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All ye inhabitants of the world, and ye dwellers on the earth, when an ensign is lifted up on the mountains, see ye; and when the trumpet is blown, hear ye.
+All you inhabitants of the world, and you dwellers on the earth, when a banner is lifted up on the mountains, look! When the trumpet is blown, listen!

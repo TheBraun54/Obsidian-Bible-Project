@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will strengthen them in Jehovah; and they shall walk up and down in his name, saith Jehovah.
+I will strengthen them in Yahweh; and they will walk up and down in his name," says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man turn not, he will whet his sword; He hath bent his bow, and made it ready.
+If a man doesn't relent, he will sharpen his sword; he has bent and strung his bow.

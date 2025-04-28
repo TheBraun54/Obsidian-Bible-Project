@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but whosoever shall blaspheme against the Holy Spirit hath never forgiveness, but is guilty of an eternal sin:
+but whoever may blaspheme against the Holy Spirit never has forgiveness, but is guilty of an eternal sin"

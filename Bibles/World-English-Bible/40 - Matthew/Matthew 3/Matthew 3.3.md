@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is he that was spoken of through Isaiah the prophet, saying, The voice of one crying in the wilderness, Make ye ready the way of the Lord, make his paths straight.
+For this is he who was spoken of by Isaiah the prophet, saying, "The voice of one crying in the wilderness, make ready the way of the Lord. Make his paths straight."

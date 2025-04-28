@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took his land in possession, and the land of Og king of Bashan, the two kings of the Amorites, who were beyond the Jordan toward the sunrising;
+They took his land in possession, and the land of Og king of Bashan, the two kings of the Amorites, who were beyond the Jordan toward the sunrise;

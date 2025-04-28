@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered them, and said, He is; behold, [he is] before thee: make haste now, for he is come to-day into the city; for the people have a sacrifice to-day in the high place:
+They answered them, and said, "He is. Behold, he is before you. Hurry now, for he has come today into the city; for the people have a sacrifice today in the high place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And forty and one years reigned he in Jerusalem: and his mother's name was Maacah the daughter of Abishalom.
+Forty-one years reigned he in Jerusalem: and his mother's name was Maacah the daughter of Abishalom.

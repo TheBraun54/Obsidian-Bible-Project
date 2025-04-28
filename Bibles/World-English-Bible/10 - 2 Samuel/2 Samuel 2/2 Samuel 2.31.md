@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the servants of David had smitten of Benjamin, and of Abner's men, [so that] three hundred and threescore men died.
+But the servants of David had struck of Benjamin, and of Abner's men, [so that] three hundred sixty men died.

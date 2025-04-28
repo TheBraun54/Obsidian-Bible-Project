@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought it. And he saith unto them, Whose is this image and superscription? And they said unto him, Caesar's.
+They brought it. He said to them, "Whose is this image and inscription?" They said to him, "Caesar's."

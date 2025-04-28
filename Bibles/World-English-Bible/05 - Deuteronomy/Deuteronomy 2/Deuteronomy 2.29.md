@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as the children of Esau that dwell in Seir, and the Moabites that dwell in Ar, did unto me; until I shall pass over the Jordan into the land which Jehovah our God giveth us.
+as the children of Esau who dwell in Seir, and the Moabites who dwell in Ar, did to me; until I shall pass over the Jordan into the land which Yahweh our God gives us."

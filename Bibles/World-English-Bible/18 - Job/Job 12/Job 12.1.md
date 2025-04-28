@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Job answered and said,
+Then Job answered,

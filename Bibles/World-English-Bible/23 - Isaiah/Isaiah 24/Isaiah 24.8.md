@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mirth of tabrets ceaseth, the noise of them that rejoice endeth, the joy of the harp ceaseth.
+The mirth of tambourines ceases. The sound of those who rejoice ends. The joy of the harp ceases.

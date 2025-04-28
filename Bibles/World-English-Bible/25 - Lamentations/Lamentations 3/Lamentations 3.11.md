@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath turned aside my ways, and pulled me in pieces; he hath made me desolate.
+He has turned aside my ways, and pulled me in pieces; he has made me desolate.

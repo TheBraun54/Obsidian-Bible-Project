@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, another beast, a second, like to a bear; and it was raised up on one side, and three ribs were in its mouth between its teeth: and they said thus unto it, Arise, devour much flesh. [
+Behold, another animal, a second, like a bear; and it was raised up on one side, and three ribs were in its mouth between its teeth: and they said thus to it, Arise, devour much flesh.

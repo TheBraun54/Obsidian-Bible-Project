@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And our elders and all the inhabitants of our country spake to us, saying, Take provision in your hand for the journey, and go to meet them, and say unto them, We are your servants: and now make ye a covenant with us.
+Our elders and all the inhabitants of our country spoke to us, saying, 'Take provision in your hand for the journey, and go to meet them, and tell them, "We are your servants. Now make a covenant with us."'

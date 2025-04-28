@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joktan begat Almodad, and Sheleph, and Hazarmaveth, and Jerah,
+Joktan became the father of Almodad, and Sheleph, and Hazarmaveth, and Jerah,

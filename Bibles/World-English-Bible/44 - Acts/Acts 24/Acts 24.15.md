@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having hope toward God, which these also themselves look for, that there shall be a resurrection both of the just and unjust.
+having hope toward God, which these also themselves look for, that there will be a resurrection of the dead, both of the just and unjust.

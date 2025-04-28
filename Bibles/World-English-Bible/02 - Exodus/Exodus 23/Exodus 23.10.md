@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And six years thou shalt sow thy land, and shalt gather in the increase thereof:
+"For six years you shall sow your land, and shall gather in its increase,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man that beareth false witness against his neighbor Is a maul, and a sword, and a sharp arrow.
+A man who gives false testimony against his neighbor is like a club, a sword, or a sharp arrow.

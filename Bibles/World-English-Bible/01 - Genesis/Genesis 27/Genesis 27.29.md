@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let peoples serve thee, And nations bow down to thee: Be lord over thy brethren, And let thy mother's sons bow down to thee: Cursed be every one that curseth thee, And blessed be every one that blesseth thee.
+Let peoples serve you, and nations bow down to you. Be lord over your brothers. Let your mother's sons bow down to you. Cursed be everyone who curses you. Blessed be everyone who blesses you."

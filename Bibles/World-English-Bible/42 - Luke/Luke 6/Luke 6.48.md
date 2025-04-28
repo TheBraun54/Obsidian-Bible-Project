@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he is like a man building a house, who digged and went deep, and laid a foundation upon the rock: and when a flood arose, the stream brake against that house, and could not shake it: because it had been well builded.
+He is like a man building a house, who dug and went deep, and laid a foundation on the rock. When a flood arose, the stream broke against that house, and could not shake it, because it was founded on the rock.

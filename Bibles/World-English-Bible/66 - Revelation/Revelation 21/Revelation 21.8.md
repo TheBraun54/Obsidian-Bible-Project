@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But for the fearful, and unbelieving, and abominable, and murderers, and fornicators, and sorcerers, and idolaters, and all liars, their part [shall be] in the lake that burneth with fire and brimstone; which is the second death.
+But for the cowardly, unbelieving, sinners, abominable, murderers, sexually immoral, sorcerers, idolaters, and all liars, their part is in the lake that burns with fire and sulfur, which is the second death."

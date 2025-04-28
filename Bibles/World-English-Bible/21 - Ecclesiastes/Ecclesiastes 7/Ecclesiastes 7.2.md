@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is better to go to the house of mourning than to go to the house of feasting: for that is the end of all men; and the living will lay it to his heart.
+It is better to go to the house of mourning than to go to the house of feasting: for that is the end of all men, and the living should take this to heart.

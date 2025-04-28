@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto Joseph, Forasmuch as God hath showed thee all of this, there is none so discreet and wise as thou:
+Pharaoh said to Joseph, "Because God has shown you all of this, there is none so discreet and wise as you.

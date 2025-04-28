@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There were they in great fear, where no fear was; For God hath scattered the bones of him that encampeth against thee: Thou hast put them to shame, because of God hath rejected them.
+There they were in great fear, where no fear was, for God has scattered the bones of him who encamps against you. You have put them to shame, because God has rejected them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the generations of Noah. Noah was a righteous man, [and] perfect in his generations: Noah walked with God.
+This is the history of the generations of Noah. Noah was a righteous man, blameless among the people of his time. Noah walked with God.

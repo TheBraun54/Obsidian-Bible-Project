@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Eber lived after he begat Peleg four hundred and thirty years, and begat sons and daughters.
+Eber lived four hundred thirty years after he became the father of Peleg, and became the father of sons and daughters.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he shall never be moved; The righteous shall be had in everlasting remembrance.
+For he will never be shaken. The righteous will be remembered forever.

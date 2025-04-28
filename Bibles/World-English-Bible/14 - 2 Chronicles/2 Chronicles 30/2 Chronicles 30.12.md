@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also upon Judah came the hand of God to give them one heart, to do the commandment of the king and of the princes by the word of Jehovah.
+Also on Judah came the hand of God to give them one heart, to do the commandment of the king and of the princes by the word of Yahweh.

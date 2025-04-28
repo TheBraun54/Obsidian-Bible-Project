@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go and cry unto the gods which ye have chosen; let them save you in the time of your distress.
+Go and cry to the gods which you have chosen. Let them save you in the time of your distress!"

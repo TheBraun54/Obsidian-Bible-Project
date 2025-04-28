@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is a night to be much observed unto Jehovah for bringing them out from the land of Egypt: this is that night of Jehovah, to be much observed of all the children of Israel throughout their generations.
+It is a night to be much observed to Yahweh for bringing them out from the land of Egypt. This is that night of Yahweh, to be much observed of all the children of Israel throughout their generations.

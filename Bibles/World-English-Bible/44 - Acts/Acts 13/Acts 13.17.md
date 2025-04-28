@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God of this people Israel chose our fathers, and exalted the people when they sojourned in the land of Egypt, and with a high arm led he them forth out of it.
+The God of this people chose our fathers, and exalted the people when they stayed as aliens in the land of Egypt, and with an uplifted arm, he led them out of it.

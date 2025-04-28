@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this, Thou shalt not commit adultery, Thou shalt not kill, Thou shalt not steal, Thou shalt not covet, and if there be any other commandment, it is summed up in this word, namely, Thou shalt love thy neighbor as thyself.
+For the commandments, "You shall not commit adultery," "You shall not murder," "You shall not steal," "You shall not give false testimony," "You shall not covet," and whatever other commandments there are, are all summed up in this saying, namely, "You shall love your neighbor as yourself."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then will I cause you to dwell in this place, in the land that I gave to your fathers, from of old even for evermore.
+then will I cause you to dwell in this place, in the land that I gave to your fathers, from of old even forevermore.

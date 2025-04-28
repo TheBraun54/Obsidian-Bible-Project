@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel went to his house heavy and displeased, and came to Samaria.
+The king of Israel went to his house sullen and angry, and came to Samaria.

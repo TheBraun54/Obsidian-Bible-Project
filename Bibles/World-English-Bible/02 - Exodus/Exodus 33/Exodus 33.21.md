@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Behold, there is a place by me, and thou shalt stand upon the rock:
+Yahweh also said, "Behold, there is a place by me, and you shall stand on the rock.

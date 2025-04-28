@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they turned and departed, and put the little ones and the cattle and the goods before them.
+So they turned and departed, and put the little ones and the livestock and the goods before them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wife that committeth adultery! that taketh strangers instead of her husband!
+A wife who commits adultery! who takes strangers instead of her husband!

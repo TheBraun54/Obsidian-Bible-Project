@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that heareth you heareth me; and he that rejecteth you rejecteth me; and he that rejecteth me rejecteth him that sent me.
+Whoever listens to you listens to me, and whoever rejects you rejects me. Whoever rejects me rejects him who sent me."

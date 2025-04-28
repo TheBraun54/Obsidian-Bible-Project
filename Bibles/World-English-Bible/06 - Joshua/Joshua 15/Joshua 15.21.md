@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the uttermost cities of the tribe of the children of Judah toward the border of Edom in the South were Kabzeel, and Eder, and Jagur,
+The farthest cities of the tribe of the children of Judah toward the border of Edom in the South were Kabzeel, Eder, Jagur,

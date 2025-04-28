@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the wilderness, where thou hast seen how that Jehovah thy God bare thee, as a man doth bear his son, in all the way that ye went, until ye came unto this place.
+and in the wilderness, where you have seen how that Yahweh your God bore you, as a man does bear his son, in all the way that you went, until you came to this place."

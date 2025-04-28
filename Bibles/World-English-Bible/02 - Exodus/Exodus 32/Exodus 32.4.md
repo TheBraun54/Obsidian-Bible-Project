@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he received it at their hand, and fashioned it with a graving tool, and made it a molten calf: and they said, These are thy gods, O Israel, which brought thee up out of the land of Egypt. [
+He received what they handed him, and fashioned it with an engraving tool, and made it a molten calf; and they said, "These are your gods, Israel, which brought you up out of the land of Egypt."

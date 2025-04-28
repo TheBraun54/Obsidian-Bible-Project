@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he saw the wind, he was afraid; and beginning to sink, he cried out, saying, Lord, save me.
+But when he saw that the wind was strong, he was afraid, and beginning to sink, he cried out, saying, "Lord, save me!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Joshua was old and well stricken in years; and Jehovah said unto him, Thou art old and well stricken in years, and there remaineth yet very much land to be possessed.
+Now Joshua was old and well advanced in years. Yahweh said to him, "You are old and advanced in years, and there remains yet very much land to be possessed.

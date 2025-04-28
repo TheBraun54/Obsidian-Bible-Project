@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not them that wait for thee be put to shame through me, O Lord Jehovah of hosts: Let not those that seek thee be brought to dishonor through me, O God of Israel.
+Don't let those who wait for you be shamed through me, Lord Yahweh of Armies. Don't let those who seek you be brought to dishonor through me, God of Israel.

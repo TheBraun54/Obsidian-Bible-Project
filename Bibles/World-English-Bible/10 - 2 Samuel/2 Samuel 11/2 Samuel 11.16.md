@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Joab kept watch upon the city, that he assigned Uriah unto the place where he knew that valiant men were.
+It happened, when Joab kept watch on the city, that he assigned Uriah to the place where he knew that valiant men were.

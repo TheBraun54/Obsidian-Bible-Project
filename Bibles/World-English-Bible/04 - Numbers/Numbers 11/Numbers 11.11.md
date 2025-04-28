@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Jehovah, Wherefore hast thou dealt ill with thy servant? and wherefore have I not found favor in thy sight, that thou layest the burden of all this people upon me?
+Moses said to Yahweh, "Why have you treated with your servant so badly? Why haven't I found favor in your sight, that you lay the burden of all this people on me?

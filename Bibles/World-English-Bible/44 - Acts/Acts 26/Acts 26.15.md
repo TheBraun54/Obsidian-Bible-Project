@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, Who art thou, Lord? And the Lord said, I am Jesus whom thou persecutest.
+"I said, 'Who are you, Lord?' "He said, 'I am Jesus, whom you are persecuting.

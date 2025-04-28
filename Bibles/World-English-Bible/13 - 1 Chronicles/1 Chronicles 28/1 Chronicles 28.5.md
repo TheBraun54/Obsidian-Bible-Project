@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of all my sons (for Jehovah hath given me many sons), he hath chosen Solomon my son to sit upon the throne of the kingdom of Jehovah over Israel.
+Of all my sons (for Yahweh has given me many sons), he has chosen Solomon my son to sit on the throne of Yahweh's kingdom over Israel.

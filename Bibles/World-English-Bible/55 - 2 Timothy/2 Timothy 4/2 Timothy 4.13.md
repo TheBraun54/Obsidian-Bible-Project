@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The cloak that I left at Troas with Carpus, bring when thou comest, and the books, especially the parchments.
+Bring the cloak that I left at Troas with Carpus when you come, and the books, especially the parchments.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt also decree a thing, and it shall be established unto thee; And light shall shine upon thy ways.
+You shall also decree a thing, and it shall be established to you. Light shall shine on your ways.

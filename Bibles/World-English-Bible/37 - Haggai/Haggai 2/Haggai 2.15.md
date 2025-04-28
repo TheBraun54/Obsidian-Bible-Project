@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, I pray you, consider from this day and backward, before a stone was laid upon a stone in the temple of Jehovah.
+Now, please consider from this day and backward, before a stone was laid on a stone in the temple of Yahweh.

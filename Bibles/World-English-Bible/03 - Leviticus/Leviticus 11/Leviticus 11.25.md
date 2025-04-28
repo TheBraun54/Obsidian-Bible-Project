@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever beareth [aught] of the carcass of them shall wash his clothes, and be unclean until the even.
+Whoever carries any part of their carcass shall wash his clothes, and be unclean until the evening.

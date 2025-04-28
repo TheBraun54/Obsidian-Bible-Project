@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Oh let not the Lord be angry, and I will speak: peradventure there shall thirty be found there. And he said, I will not do it, if I find thirty there.
+He said, "Oh don't let the Lord be angry, and I will speak. What if there are thirty found there?" He said, "I will not do it, if I find thirty there."

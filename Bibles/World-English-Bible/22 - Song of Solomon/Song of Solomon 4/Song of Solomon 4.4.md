@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy neck is like the tower of David builded for an armory, Whereon there hang a thousand bucklers, All the shields of the mighty men.
+Your neck is like David's tower built for an armory, whereon a thousand shields hang, all the shields of the mighty men.

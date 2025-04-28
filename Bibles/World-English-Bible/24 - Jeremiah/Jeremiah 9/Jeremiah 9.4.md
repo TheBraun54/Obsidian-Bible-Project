@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye heed every one of his neighbor, and trust ye not in any brother; for every brother will utterly supplant, and every neighbor will go about with slanders.
+Take heed everyone of his neighbor, and don't trust in any brother; for every brother will utterly supplant, and every neighbor will go about with slanders.

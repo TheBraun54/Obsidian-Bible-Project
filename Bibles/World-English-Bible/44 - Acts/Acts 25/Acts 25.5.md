@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them therefore, saith he, that are of power among you go down with me, and if there is anything amiss in the man, let them accuse him.
+"Let them therefore," said he, "that are in power among you go down with me, and if there is anything wrong in the man, let them accuse him."

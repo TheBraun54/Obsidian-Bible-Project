@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Simon Peter was standing and warming himself. They said therefore unto him, Art thou also [one] of his disciples? He denied, and said, I am not.
+Now Simon Peter was standing and warming himself. They said therefore to him, "You aren't also one of his disciples, are you?" He denied it, and said, "I am not."

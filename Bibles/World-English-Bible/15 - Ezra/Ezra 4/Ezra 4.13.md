@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be it known now unto the king, that, if this city be builded, and the walls finished, they will not pay tribute, custom, or toll, and in the end it will be hurtful unto the kings.
+Be it known now to the king that if this city is built, and the walls finished, they will not pay tribute, custom, or toll, and in the end it will be hurtful to the kings.

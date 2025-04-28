@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these were the sons of Oholibamah the daughter of Anah, the daughter of Zibeon, Esau's wife: and she bare to Esau Jeush, and Jalam, and Korah.
+These were the sons of Oholibamah, the daughter of Anah, the daughter of Zibeon, Esau's wife: she bore to Esau Jeush, Jalam, and Korah.

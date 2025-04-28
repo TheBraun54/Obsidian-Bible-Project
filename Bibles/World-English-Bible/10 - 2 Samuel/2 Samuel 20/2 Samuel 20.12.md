@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Amasa lay wallowing in his blood in the midst of the highway. And when the man saw that all the people stood still, he carried Amasa out of the highway into the field, and cast a garment over him, when he saw that every one that came by him stood still.
+Amasa lay wallowing in his blood in the midst of the highway. When the man saw that all the people stood still, he carried Amasa out of the highway into the field, and cast a garment over him, when he saw that everyone who came by him stood still.

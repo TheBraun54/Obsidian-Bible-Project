@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was no deliverer, because it was far from Sidon, and they had no dealings with any man; and it was in the valley that lieth by Beth-rehob. And they built the city, and dwelt therein.
+There was no deliverer, because it was far from Sidon, and they had no dealings with any man; and it was in the valley that lies by Beth Rehob. They built the city, and lived therein.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is little, with the fear of Jehovah, Than great treasure and trouble therewith.
+Better is little, with the fear of Yahweh, than great treasure with trouble.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For out of much affliction and anguish of heart I wrote unto you with many tears; not that ye should be made sorry, but that ye might know the love that I have more abundantly unto you.
+For out of much affliction and anguish of heart I wrote to you with many tears, not that you should be made sorry, but that you might know the love that I have so abundantly for you.

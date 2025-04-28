@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jephthah passed over unto the children of Ammon to fight against them; and Jehovah delivered them into his hand.
+So Jephthah passed over to the children of Ammon to fight against them; and Yahweh delivered them into his hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The young men of Aven and of Pi-beseth shall fall by the sword; and these [cities] shall go into captivity.
+The young men of Aven and of Pibeseth shall fall by the sword; and these [cities] shall go into captivity.

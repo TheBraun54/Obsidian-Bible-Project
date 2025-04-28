@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are wet with the showers of the mountains, And embrace the rock for want of a shelter.
+They are wet with the showers of the mountains, and embrace the rock for lack of a shelter.

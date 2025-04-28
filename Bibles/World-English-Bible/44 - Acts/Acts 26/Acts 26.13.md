@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-at midday, O king, I saw on the way a light from heaven, above the brightness of the sun, shining round about me and them that journeyed with me.
+at noon, O king, I saw on the way a light from the sky, brighter than the sun, shining around me and those who traveled with me.

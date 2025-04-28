@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam said unto Balak, Spake I not also to thy messengers that thou sentest unto me, saying,
+Balaam said to Balak, "Didn't I also tell your messengers who you sent to me, saying,

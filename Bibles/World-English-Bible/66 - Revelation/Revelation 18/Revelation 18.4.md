@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard another voice from heaven, saying, Come forth, my people, out of her, that ye have no fellowship with her sins, and that ye receive not of her plagues:
+I heard another voice from heaven, saying, "Come out of her, my people, that you have no participation in her sins, and that you don't receive of her plagues,

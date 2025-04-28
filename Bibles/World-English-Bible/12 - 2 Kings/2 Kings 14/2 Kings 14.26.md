@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah saw the affliction of Israel, that it was very bitter; for there was none shut up nor left at large, neither was there any helper for Israel.
+For Yahweh saw the affliction of Israel, that it was very bitter; for there was none shut up nor left at large, neither was there any helper for Israel.

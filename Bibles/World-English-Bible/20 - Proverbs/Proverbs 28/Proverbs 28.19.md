@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that tilleth his land shall have plenty of bread; But he that followeth after vain [persons] shall have poverty enough.
+One who works his land will have an abundance of food; but one who chases fantasies will have his fill of poverty.

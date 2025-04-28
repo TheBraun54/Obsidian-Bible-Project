@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was war in heaven: Michael and his angels [going forth] to war with the dragon; and the dragon warred and his angels;
+There was war in the sky. Michael and his angels made war on the dragon. The dragon and his angels made war.

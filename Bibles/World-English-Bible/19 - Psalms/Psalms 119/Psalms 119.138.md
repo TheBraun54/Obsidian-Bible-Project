@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast commanded thy testimonies in righteousness And very faithfulness.
+You have commanded your statutes in righteousness. They are fully trustworthy.

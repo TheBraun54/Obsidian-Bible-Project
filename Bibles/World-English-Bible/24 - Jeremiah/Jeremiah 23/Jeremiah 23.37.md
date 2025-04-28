@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shalt thou say to the prophet, What hath Jehovah answered thee? and, What hath Jehovah spoken?
+You shall say to the prophet, What has Yahweh answered you? and, What has Yahweh spoken?

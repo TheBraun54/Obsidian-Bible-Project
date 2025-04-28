@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn thou us unto thee, O Jehovah, and we shall be turned; Renew our days as of old.
+Turn us to yourself, Yahweh, and we shall be turned. Renew our days as of old.

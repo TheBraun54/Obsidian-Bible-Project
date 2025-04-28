@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though he be fruitful among his brethren, an east wind shall come, the breath of Jehovah coming up from the wilderness; and his spring shall become dry, and his fountain shall be dried up: [ he shall make spoil of the treasure of all goodly vessels.
+Though he is fruitful among his brothers, an east wind will come, the breath of Yahweh coming up from the wilderness; and his spring will become dry, and his fountain will be dried up. He will plunder the storehouse of treasure.

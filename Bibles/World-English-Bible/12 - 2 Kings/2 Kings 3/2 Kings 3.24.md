@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came to the camp of Israel, the Israelites rose up and smote the Moabites, so that they fled before them; and they went forward into the land smiting the Moabites.
+When they came to the camp of Israel, the Israelites rose up and struck the Moabites, so that they fled before them; and they went forward into the land smiting the Moabites.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come forth upon the land, there met him a certain man out of the city, who had demons; and for a long time he had worn no clothes, and abode not in [any] house, but in the tombs.
+When Jesus stepped ashore, a certain man out of the city who had demons for a long time met him. He wore no clothes, and didn't live in a house, but in the tombs.

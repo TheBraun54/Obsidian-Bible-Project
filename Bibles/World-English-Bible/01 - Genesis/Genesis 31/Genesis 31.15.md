@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are we not accounted by him as foreigners? for he hath sold us, and hath also quite devoured our money.
+Aren't we accounted by him as foreigners? For he has sold us, and has also quite devoured our money.

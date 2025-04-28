@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the kings of the earth, who committed fornication and lived wantonly with her, shall weep and wail over her, when they look upon the smoke of her burning,
+The kings of the earth, who committed sexual immorality and lived wantonly with her, will weep and wail over her, when they look at the smoke of her burning,

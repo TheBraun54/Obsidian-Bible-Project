@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he saith also in another [psalm], Thou wilt not give Thy Holy One to see corruption.
+Therefore he says also in another psalm, 'You will not allow your Holy One to see decay.'

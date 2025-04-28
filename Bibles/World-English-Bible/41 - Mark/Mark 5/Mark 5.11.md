@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there was there on the mountain side a great herd of swine feeding.
+Now on the mountainside there was a great herd of pigs feeding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say ye not, A conspiracy, concerning all whereof this people shall say, A conspiracy; neither fear ye their fear, nor be in dread [thereof] .
+"Don't say, 'A conspiracy!' concerning all about which this people say, 'A conspiracy!' neither fear their threats, nor be terrorized.

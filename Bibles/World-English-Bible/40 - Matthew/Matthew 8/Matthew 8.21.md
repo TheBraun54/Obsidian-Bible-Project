@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another of the disciples said unto him, Lord, suffer me first to go and bury my father.
+Another of his disciples said to him, "Lord, allow me first to go and bury my father."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to make their land an astonishment, and a perpetual hissing; every one that passeth thereby shall be astonished, and shake his head.
+to make their land an astonishment, and a perpetual hissing; everyone who passes thereby shall be astonished, and shake his head.

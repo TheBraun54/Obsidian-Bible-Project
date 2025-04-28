@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prophet took up the body of the man of God, and laid it upon the ass, and brought it back; and he came to the city of the old prophet, to mourn, and to bury him.
+The prophet took up the body of the man of God, and laid it on the donkey, and brought it back. He came to the city of the old prophet to mourn, and to bury him.

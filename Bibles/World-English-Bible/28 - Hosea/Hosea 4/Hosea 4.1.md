@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear the word of Jehovah, ye children of Israel; for Jehovah hath a controversy with the inhabitants of the land, because there is no truth, nor goodness, nor knowledge of God in the land.
+Hear the word of Yahweh, you children of Israel; for Yahweh has a charge against the inhabitants of the land: "Indeed there is no truth, nor goodness, nor knowledge of God in the land.

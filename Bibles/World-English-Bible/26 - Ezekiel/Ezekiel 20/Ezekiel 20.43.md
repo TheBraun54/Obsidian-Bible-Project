@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall ye remember your ways, and all your doings, wherein ye have polluted yourselves; and ye shall loathe yourselves in your own sight for all your evils that ye have committed.
+There you shall remember your ways, and all your doings, in which you have polluted yourselves; and you shall loathe yourselves in your own sight for all your evils that you have committed.

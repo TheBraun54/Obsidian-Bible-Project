@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As long as it lieth desolate it shall have rest, even the rest which it had not in your sabbaths, when ye dwelt upon it.
+As long as it lies desolate it shall have rest, even the rest which it didn't have in your sabbaths, when you lived on it.

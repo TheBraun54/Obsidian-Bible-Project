@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had destroyed seven nations in the land of Canaan, he gave [them] their land for an inheritance, for about four hundred and fifty years:
+When he had destroyed seven nations in the land of Canaan, he gave them their land for an inheritance, for about four hundred fifty years.

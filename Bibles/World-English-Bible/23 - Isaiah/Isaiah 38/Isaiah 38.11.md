@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, I shall not see Jehovah, [even] Jehovah in the land of the living: I shall behold man no more with the inhabitants of the world.
+I said, "I won't see Yah, Yah in the land of the living. I will see man no more with the inhabitants of the world.

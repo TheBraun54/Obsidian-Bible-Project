@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which I speak, I speak not after the Lord, but as in foolishness, in this confidence of glorying.
+That which I speak, I don't speak according to the Lord, but as in foolishness, in this confidence of boasting.

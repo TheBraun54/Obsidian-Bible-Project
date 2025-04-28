@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stripped him, and took his head, and his armor, and sent into the land of the Philistines round about, to carry the tidings unto their idols, and to the people.
+They stripped him, and took his head, and his armor, and sent into the land of the Philistines all around, to carry the news to their idols, and to the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Noah was six hundred years old when the flood of waters was upon the earth.
+Noah was six hundred years old when the flood of waters came on the earth.

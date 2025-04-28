@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso stoppeth his ears at the cry of the poor, He also shall cry, but shall not be heard.
+Whoever stops his ears at the cry of the poor, he will also cry out, but shall not be heard.

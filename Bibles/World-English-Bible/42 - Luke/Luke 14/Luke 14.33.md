@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So therefore whosoever he be of you that renounceth not all that he hath, he cannot be my disciple.
+So therefore whoever of you who doesn't renounce all that he has, he can't be my disciple.

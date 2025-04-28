@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet they tempted and rebelled against the Most High God, And kept not his testimonies;
+Yet they tempted and rebelled against the Most High God, and didn't keep his testimonies;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and his breath is as an overflowing stream, that reacheth even unto the neck, to sift the nations with the sieve of destruction: and a bridle that causeth to err [shall be] in the jaws of the peoples.
+His breath is as an overflowing stream that reaches even to the neck, to sift the nations with the sieve of destruction; and a bridle that leads to ruin will be in the jaws of the peoples.

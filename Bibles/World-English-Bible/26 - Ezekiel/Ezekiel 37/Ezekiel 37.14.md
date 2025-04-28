@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will put my Spirit in you, and ye shall live, and I will place you in your own land: and ye shall know that I, Jehovah, have spoken it and performed it, saith Jehovah.
+I will put my Spirit in you, and you shall live, and I will place you in your own land: and you shall know that I, Yahweh, have spoken it and performed it, says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall I have an answer for him that reproacheth me; For I trust in thy word.
+So I will have an answer for him who reproaches me, for I trust in your word.

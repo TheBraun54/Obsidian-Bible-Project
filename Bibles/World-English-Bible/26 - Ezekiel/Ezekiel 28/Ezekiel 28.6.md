@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith the Lord Jehovah: Because thou hast set thy heart as the heart of God,
+therefore thus says the Lord Yahweh: Because you have set your heart as the heart of God,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This mystery is great: but I speak in regard of Christ and of the church.
+This mystery is great, but I speak concerning Christ and of the assembly.

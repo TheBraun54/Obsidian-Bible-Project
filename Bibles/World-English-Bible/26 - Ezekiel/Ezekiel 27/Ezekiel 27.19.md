@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Vedan and Javan traded with yarn for thy wares: bright iron, cassia, and calamus, were among thy merchandise.
+Vedan and Javan traded with yarn for your wares: bright iron, cassia, and calamus, were among your merchandise.

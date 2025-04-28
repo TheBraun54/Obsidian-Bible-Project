@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took the captains of hundreds, and the nobles, and the governors of the people, and all the people of the land, and brought down the king from the house of Jehovah: and they came through the upper gate unto the king's house, and set the king upon the throne of the kingdom.
+He took the captains of hundreds, and the nobles, and the governors of the people, and all the people of the land, and brought down the king from the house of Yahweh: and they came through the upper gate to the king's house, and set the king on the throne of the kingdom.

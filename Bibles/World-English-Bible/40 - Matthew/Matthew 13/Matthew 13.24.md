@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Another parable set he before them, saying, The kingdom of heaven is likened unto a man that sowed good seed in his field:
+He set another parable before them, saying, "The Kingdom of Heaven is like a man who sowed good seed in his field,

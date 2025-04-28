@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Eleazar the priest did as Jehovah commanded Moses.
+Moses and Eleazar the priest did as Yahweh commanded Moses.

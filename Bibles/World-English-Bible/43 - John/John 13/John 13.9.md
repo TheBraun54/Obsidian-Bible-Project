@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter saith unto him, Lord, not my feet only, but also my hands and my head.
+Simon Peter said to him, "Lord, not my feet only, but also my hands and my head!"

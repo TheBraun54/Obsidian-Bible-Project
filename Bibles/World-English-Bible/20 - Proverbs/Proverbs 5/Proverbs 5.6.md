@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that she findeth not the level path of life: Her ways are unstable, [and] she knoweth [it] not.
+She gives no thought to the way of life. Her ways are crooked, and she doesn't know it.

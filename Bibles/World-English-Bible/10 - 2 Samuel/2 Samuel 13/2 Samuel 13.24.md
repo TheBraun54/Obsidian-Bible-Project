@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom came to the king, and said, Behold now, thy servant hath sheep-shearers; let the king, I pray thee, and his servants go with thy servant.
+Absalom came to the king, and said, "See now, your servant has sheepshearers. Please let the king and his servants go with your servant."

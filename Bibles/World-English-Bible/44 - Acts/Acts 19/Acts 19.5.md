@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they heard this, they were baptized into the name of the Lord Jesus.
+When they heard this, they were baptized in the name of the Lord Jesus.

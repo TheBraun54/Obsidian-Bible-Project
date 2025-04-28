@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they began to beseech him to depart from their borders.
+They began to beg him to depart from their region.

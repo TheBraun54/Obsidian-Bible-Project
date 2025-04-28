@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But give for alms those things which are within; and behold, all things are clean unto you.
+But give for gifts to the needy those things which are within, and behold, all things will be clean to you.

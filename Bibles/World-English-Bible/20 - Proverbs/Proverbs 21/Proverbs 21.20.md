@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is precious treasure and oil in the dwelling of the wise; But a foolish man swalloweth it up.
+There is precious treasure and oil in the dwelling of the wise; but a foolish man swallows it up.

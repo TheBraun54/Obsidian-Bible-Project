@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the man that is clean, and is not on a journey, and forbeareth to keep the passover, that soul shall be cut off from his people; because he offered not the oblation of Jehovah in its appointed season, that man shall bear his sin.
+But the man who is clean, and is not on a journey, and fails to keep the Passover, that soul shall be cut off from his people. Because he didn't offer the offering of Yahweh in its appointed season, that man shall bear his sin.

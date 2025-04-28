@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-would ye therefore tarry till they were grown? would ye therefore stay from having husbands? nay, my daughters, for it grieveth me much for your sakes, for the hand of Jehovah is gone forth against me.
+would you then wait until they were grown? Would you then refrain from having husbands? No, my daughters, for it grieves me much for your sakes, for the hand of Yahweh has gone out against me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look on him again the seventh day; and, behold, if the plague be dim, and the plague be not spread in the skin, then the priest shall pronounce him clean: it is a scab: and he shall wash his clothes, and be clean.
+The priest shall examine him again on the seventh day; and behold, if the plague has faded, and the plague hasn't spread in the skin, then the priest shall pronounce him clean. It is a scab. He shall wash his clothes, and be clean.

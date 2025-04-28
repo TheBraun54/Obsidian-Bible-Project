@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What do ye devise against Jehovah? he will make a full end; affliction shall not rise up the second time.
+What do you plot against Yahweh? He will make a full end. Affliction won't rise up the second time.

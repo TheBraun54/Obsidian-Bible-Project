@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will encamp about my house against the army, that none pass through or return; and no oppressor shall pass through them any more: for now have I seen with mine eyes.
+I will encamp around my house against the army, that none pass through or return; and no oppressor will pass through them any more: for now I have seen with my eyes.

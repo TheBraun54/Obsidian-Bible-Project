@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not this the fast that I have chosen: to loose the bonds of wickedness, to undo the bands of the yoke, and to let the oppressed go free, and that ye break every yoke?
+"Isn't this the fast that I have chosen: to release the bonds of wickedness, to undo the bands of the yoke, and to let the oppressed go free, and that you break every yoke?

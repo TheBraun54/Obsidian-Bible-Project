@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore David blessed Jehovah before all the assembly; and David said, Blessed be thou, O Jehovah, the God of Israel our father, for ever and ever.
+Therefore David blessed Yahweh before all the assembly; and David said, "You are blessed, Yahweh, the God of Israel our father, forever and ever.

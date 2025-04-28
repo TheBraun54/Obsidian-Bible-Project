@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Hathach went forth to Mordecai unto the broad place of the city, which was before the king's gate.
+So Hathach went out to Mordecai, to city square which was before the king's gate.

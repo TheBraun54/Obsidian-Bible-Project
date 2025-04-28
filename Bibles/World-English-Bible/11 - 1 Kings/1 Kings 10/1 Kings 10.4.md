@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the queen of Sheba had seen all the wisdom of Solomon, and the house that he had built,
+When the queen of Sheba had seen all the wisdom of Solomon, and the house that he had built,

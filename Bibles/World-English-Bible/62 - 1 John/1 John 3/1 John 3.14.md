@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We know that we have passed out of death into life, because we love the brethren. He that loveth not abideth in death.
+We know that we have passed out of death into life, because we love the brothers. He who doesn't love his brother remains in death.

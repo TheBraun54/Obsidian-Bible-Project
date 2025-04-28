@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, Jehovah commandeth, and the great house shall be smitten with breaches, and the little house with clefts.
+"For, behold, Yahweh commands, and the great house will be smashed to pieces, and the little house into bits.

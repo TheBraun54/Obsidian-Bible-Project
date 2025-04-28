@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I went down to the potter's house, and, behold, he was making a work on the wheels.
+Then I went down to the potter's house, and behold, he was making a work on the wheels.

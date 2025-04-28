@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even to the carpenters and to the builders gave they it, to buy hewn stone, and timber for couplings, and to make beams for the houses which the kings of Judah had destroyed.
+even to the carpenters and to the builders gave they it, to buy cut stone, and timber for couplings, and to make beams for the houses which the kings of Judah had destroyed.

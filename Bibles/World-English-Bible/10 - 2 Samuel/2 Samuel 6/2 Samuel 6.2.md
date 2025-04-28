@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David arose, and went with all the people that were with him, from Baale-judah, to bring up from thence the ark of God, which is called by the Name, even the name of Jehovah of hosts that [ sitteth [above] the cherubim.
+David arose, and went with all the people who were with him, from Baale Judah, to bring up from there the ark of God, which is called by the Name, even the name of Yahweh of Armies who sits [above] the cherubim.

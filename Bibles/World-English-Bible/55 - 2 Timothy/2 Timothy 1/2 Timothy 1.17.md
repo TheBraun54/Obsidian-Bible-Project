@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but, when he was in Rome, he sought me diligently, and found me
+but when he was in Rome, he sought me diligently, and found me

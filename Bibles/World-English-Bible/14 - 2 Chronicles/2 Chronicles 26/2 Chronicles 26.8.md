@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Ammonites gave tribute to Uzziah: and his name spread abroad even to the entrance of Egypt; for he waxed exceeding strong.
+The Ammonites gave tribute to Uzziah: and his name spread abroad even to the entrance of Egypt; for he grew exceeding strong.

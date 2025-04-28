@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So are the ways of every one that is greedy of gain; It taketh away the life of the owners thereof.
+So are the ways of everyone who is greedy for gain. It takes away the life of its owners.

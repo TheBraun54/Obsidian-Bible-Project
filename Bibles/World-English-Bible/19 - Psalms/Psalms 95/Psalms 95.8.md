@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Harden not your heart, as at Meribah, As in the day of Massah in the wilderness;
+Don't harden your heart, as at Meribah, as in the day of Massah in the wilderness,

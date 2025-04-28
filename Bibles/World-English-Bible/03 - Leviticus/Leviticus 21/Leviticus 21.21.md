@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-no man of the seed of Aaron the priest, that hath a blemish, shall come nigh to offer the offerings of Jehovah made by fire: he hath a blemish; he shall not come nigh to offer the bread of his God.
+no man of the seed of Aaron the priest who has a blemish, shall come near to offer the offerings of Yahweh made by fire. Since he has a blemish, he shall not come near to offer the bread of his God.

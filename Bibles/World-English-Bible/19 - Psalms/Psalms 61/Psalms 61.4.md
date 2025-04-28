@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will dwell in thy tabernacle for ever: I will take refuge in the covert of thy wings. {{Selah
+I will dwell in your tent forever. I will take refuge in the shelter of your wings. Selah.

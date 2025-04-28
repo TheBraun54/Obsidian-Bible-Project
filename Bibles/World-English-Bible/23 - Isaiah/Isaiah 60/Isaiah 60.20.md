@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy sun shall no more go down, neither shall thy moon withdraw itself; for Jehovah will be thine everlasting light, and the days of thy mourning shall be ended.
+Your sun shall no more go down, neither shall your moon withdraw itself; for Yahweh will be your everlasting light, and the days of your mourning shall be ended.

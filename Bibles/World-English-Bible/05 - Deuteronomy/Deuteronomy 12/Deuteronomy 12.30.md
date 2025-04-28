@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-take heed to thyself that thou be not ensnared to follow them, after that they are destroyed from before thee; and that thou inquire not after their gods, saying, How do these nations serve their gods? even so will I do likewise.
+take heed to yourself that you not be ensnared to follow them, after that they are destroyed from before you; and that you not inquire after their gods, saying, "How do these nations serve their gods? I will do likewise."

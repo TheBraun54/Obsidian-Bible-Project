@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard also a voice saying unto me, Rise, Peter; kill and eat.
+I also heard a voice saying to me, 'Rise, Peter, kill and eat!'

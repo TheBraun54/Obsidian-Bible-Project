@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that cometh from above is above all: he that is of the earth is of the earth, and of the earth he speaketh: he that cometh from heaven is above all.
+He who comes from above is above all. He who is from the Earth belongs to the Earth, and speaks of the Earth. He who comes from heaven is above all.

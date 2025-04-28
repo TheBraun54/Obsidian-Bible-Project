@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-until Jehovah removed Israel out of his sight, as he spake by all his servants the prophets. So Israel was carried away out of their own land to Assyria unto this day.
+until Yahweh removed Israel out of his sight, as he spoke by all his servants the prophets. So Israel was carried away out of their own land to Assyria to this day.

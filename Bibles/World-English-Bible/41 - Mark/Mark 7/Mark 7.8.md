@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye leave the commandment of God, and hold fast the tradition of men.
+"For you set aside the commandment of God, and hold tightly to the tradition of men--the washing of pitchers and cups, and you do many other such things."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore also it was reckoned unto him for righteousness.
+Therefore it also was "reckoned to him for righteousness."

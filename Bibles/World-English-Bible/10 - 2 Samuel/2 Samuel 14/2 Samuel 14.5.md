@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto her, What aileth thee? And she answered, Of a truth I am a widow, and my husband is dead.
+The king said to her, "What ails you?" She answered, "Truly I am a widow, and my husband is dead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thought it necessary therefore to entreat the brethren, that they would go before unto you, and make up beforehand your aforepromised bounty, that the same might be ready as a matter of bounty, and not of extortion.
+I thought it necessary therefore to entreat the brothers that they would go before to you, and arrange ahead of time the generous gift that you promised before, that the same might be ready as a matter of generosity, and not of greediness.

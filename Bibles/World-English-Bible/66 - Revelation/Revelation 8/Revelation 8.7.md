@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the first sounded, and there followed hail and fire, mingled with blood, and they were cast upon the earth: and the third part of the earth was burnt up, and the third part of the trees was burnt up, and all green grass was burnt up.
+The first sounded, and there followed hail and fire, mixed with blood, and they were thrown to the earth. One third of the earth was burnt up, and one third of the trees were burnt up, and all green grass was burnt up.

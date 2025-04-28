@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put not your trust in princes, Nor in the son of man, in whom there is no help.
+Don't put your trust in princes, each a son of man in whom there is no help.

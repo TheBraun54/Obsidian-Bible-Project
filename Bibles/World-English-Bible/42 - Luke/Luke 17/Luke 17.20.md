@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And being asked by the Pharisees, when the kingdom of God cometh, he answered them and said, The kingdom of God cometh not with observation:
+Being asked by the Pharisees when the Kingdom of God would come, he answered them, "The Kingdom of God doesn't come with observation;

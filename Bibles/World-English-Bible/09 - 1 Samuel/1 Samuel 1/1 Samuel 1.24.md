@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she had weaned him, she took him up with her, with three bullocks, and one ephah of meal, and a bottle of wine, and brought him unto the house of Jehovah in Shiloh: and the child was young.
+When she had weaned him, she took him up with her, with three bulls, and one ephah of meal, and a bottle of wine, and brought him to Yahweh's house in Shiloh. The child was young.

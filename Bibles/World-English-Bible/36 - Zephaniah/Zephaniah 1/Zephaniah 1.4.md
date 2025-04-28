@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will stretch out my hand upon Judah, and upon all the inhabitants of Jerusalem; and I will cut off the remnant of Baal from this place, [and] the name of the Chemarim with the priests;
+I will stretch out my hand against Judah, and against all the inhabitants of Jerusalem. I will cut off the remnant of Baal from this place: the name of the idolatrous and pagan priests,

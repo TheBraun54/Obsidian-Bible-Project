@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This same Hezekiah also stopped the upper spring of the waters of Gihon, and brought them straight down on the west side of the city of David. And Hezekiah prospered in all his works.
+This same Hezekiah also stopped the upper spring of the waters of Gihon, and brought them straight down on the west side of the city of David. Hezekiah prospered in all his works.

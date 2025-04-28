@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they shall sit every man under his vine and under his fig-tree; and none shall make them afraid: for the mouth of Jehovah of hosts hath spoken it.
+But they will sit every man under his vine and under his fig tree; and no one will make them afraid: For the mouth of Yahweh of Armies has spoken.

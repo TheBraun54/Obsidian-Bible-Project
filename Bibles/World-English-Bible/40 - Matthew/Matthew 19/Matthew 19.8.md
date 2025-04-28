@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith unto them, Moses for your hardness of heart suffered you to put away your wives: but from the beginning it hath not been so.
+He said to them, "Moses, because of the hardness of your hearts, allowed you to divorce your wives, but from the beginning it has not been so.

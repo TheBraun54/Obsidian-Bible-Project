@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, this have I found, saith the Preacher, [laying] one thing to another, to find out the account;
+"Behold, I have found this," says the Preacher, "one to another, to find out the scheme;

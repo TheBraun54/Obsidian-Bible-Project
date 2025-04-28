@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when a stronger than he shall come upon him, and overcome him, he taketh from him his whole armor wherein he trusted, and divideth his spoils.
+But when someone stronger attacks him and overcomes him, he takes from him his whole armor in which he trusted, and divides his spoils.

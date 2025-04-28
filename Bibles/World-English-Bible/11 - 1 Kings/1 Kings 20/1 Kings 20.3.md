@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy silver and thy gold is mine; thy wives also and thy children, even the goodliest, are mine.
+'Your silver and your gold is mine. Your wives also and your children, even the best, are mine.'"

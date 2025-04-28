@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long will ye hunt for words? Consider, and afterwards we will speak.
+"How long will you hunt for words? Consider, and afterwards we will speak.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when it was the good pleasure of God, who separated me, [even] from my mother's womb, and called me through his grace,
+But when it was the good pleasure of God, who separated me from my mother's womb, and called me through his grace,

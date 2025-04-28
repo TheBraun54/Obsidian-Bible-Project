@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So she wrote letters in Ahab's name, and sealed them with his seal, and sent the letters unto the elders and to the nobles that were in his city, [and] that dwelt with Naboth.
+So she wrote letters in Ahab's name, and sealed them with his seal, and sent the letters to the elders and to the nobles who were in his city, who lived with Naboth.

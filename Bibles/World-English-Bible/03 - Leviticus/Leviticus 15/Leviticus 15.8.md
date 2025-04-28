@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he that hath the issue spit upon him that is clean, then he shall wash his clothes, and bathe himself in water, and be unclean until the even.
+"'If he who has the discharge spits on him who is clean, then he shall wash his clothes, and bathe himself in water, and be unclean until the evening.

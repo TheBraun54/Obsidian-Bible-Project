@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are ye not as the children of the Ethiopians unto me, O children of Israel? saith Jehovah. Have not I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir?
+Are you not like the children of the Ethiopians to me, children of Israel?" says Yahweh. "Haven't I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir?

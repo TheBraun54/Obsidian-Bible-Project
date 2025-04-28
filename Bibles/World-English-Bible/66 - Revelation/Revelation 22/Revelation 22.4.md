@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall see his face; and his name [shall be] on their foreheads.
+They will see his face, and his name will be on their foreheads.

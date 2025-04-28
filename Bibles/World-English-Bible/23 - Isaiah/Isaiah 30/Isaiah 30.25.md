@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be upon every lofty mountain, and upon every high hill, brooks [and] streams of waters, in the day of the great slaughter, when the towers fall.
+There shall be brooks and streams of water on every lofty mountain and on every high hill in the day of the great slaughter, when the towers fall.

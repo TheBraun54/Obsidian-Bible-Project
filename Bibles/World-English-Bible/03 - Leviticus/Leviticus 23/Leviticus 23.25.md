@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall do no servile work; and ye shall offer an offering made by fire unto Jehovah.
+You shall do no regular work; and you shall offer an offering made by fire to Yahweh.'"

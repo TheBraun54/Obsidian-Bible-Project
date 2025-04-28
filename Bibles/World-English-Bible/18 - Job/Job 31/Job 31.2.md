@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what is the portion from God above, And the heritage from the Almighty on high?
+For what is the portion from God above, and the heritage from the Almighty on high?

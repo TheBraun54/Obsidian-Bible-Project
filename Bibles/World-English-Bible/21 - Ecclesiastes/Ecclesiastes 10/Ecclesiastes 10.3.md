@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea also, when the fool walketh by the way, his understanding faileth him, and he saith to every one [that] he is a fool.
+Yes also, when the fool walks by the way, his understanding fails him, and he says to everyone that he is a fool.

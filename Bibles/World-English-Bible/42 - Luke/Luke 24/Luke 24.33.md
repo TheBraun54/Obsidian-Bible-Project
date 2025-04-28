@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rose up that very hour, and returned to Jerusalem, and found the eleven gathered together, and them that were with them,
+They rose up that very hour, returned to Jerusalem, and found the eleven gathered together, and those who were with them,

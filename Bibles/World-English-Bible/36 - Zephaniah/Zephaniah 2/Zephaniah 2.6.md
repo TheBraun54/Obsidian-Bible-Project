@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sea-coast shall be pastures, with cottages for shepherds and folds for flocks.
+The sea coast will be pastures, with cottages for shepherds and folds for flocks.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing that he that raised up the Lord Jesus shall raise up us also with Jesus, and shall present us with you.
+knowing that he who raised the Lord Jesus will raise us also with Jesus, and will present us with you.

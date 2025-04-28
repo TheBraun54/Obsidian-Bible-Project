@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said unto them, Ye know not what ye ask. Are ye able to drink the cup that I drink? or to be baptized with the baptism that I am baptized with?
+But Jesus said to them, "You don't know what you are asking. Are you able to drink the cup that I drink, and to be baptized with the baptism that I am baptized with?"

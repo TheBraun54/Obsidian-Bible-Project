@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, having received such a charge, cast them into the inner prison, and made their feet fast in the stocks.
+who, having received such a command, threw them into the inner prison, and secured their feet in the stocks.

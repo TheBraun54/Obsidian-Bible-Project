@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I should be a minister of Christ Jesus unto the Gentiles, ministering the gospel of God, that the offering up of the Gentiles might be made acceptable, being sanctified by the Holy Spirit.
+that I should be a servant of Christ Jesus to the Gentiles, serving as a priest the Good News of God, that the offering up of the Gentiles might be made acceptable, sanctified by the Holy Spirit.

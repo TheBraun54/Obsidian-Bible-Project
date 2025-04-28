@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when I, even I Daniel, had seen the vision, that I sought to understand it; and, behold, there stood before me as the appearance of a man.
+It happened, when I, even I Daniel, had seen the vision, that I sought to understand it; and behold, there stood before me as the appearance of a man.

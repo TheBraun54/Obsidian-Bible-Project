@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that pass by clap their hands at thee; They hiss and wag their head at the daughter of Jerusalem, [saying], Is this the city that men called The perfection of beauty, The joy of the whole earth?
+All that pass by clap their hands at you. They hiss and wag their head at the daughter of Jerusalem, [saying], Is this the city that men called The perfection of beauty, The joy of the whole earth?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, O deadly wounded wicked one, the prince of Israel, whose day is come, in the time of the iniquity of the end,
+You, deadly wounded wicked one, the prince of Israel, whose day is come, in the time of the iniquity of the end,

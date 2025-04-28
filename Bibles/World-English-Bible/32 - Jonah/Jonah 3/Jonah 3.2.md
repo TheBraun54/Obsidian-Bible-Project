@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, go unto Nineveh, that great city, and preach unto it the preaching that I bid thee.
+"Arise, go to Nineveh, that great city, and preach to it the message that I give you."

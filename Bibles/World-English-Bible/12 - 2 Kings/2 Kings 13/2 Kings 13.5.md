@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(And Jehovah gave Israel a saviour, so that they went out from under the hand of the Syrians; and the children of Israel dwelt in their tents as beforetime.
+(Yahweh gave Israel a savior, so that they went out from under the hand of the Syrians; and the children of Israel lived in their tents as before.

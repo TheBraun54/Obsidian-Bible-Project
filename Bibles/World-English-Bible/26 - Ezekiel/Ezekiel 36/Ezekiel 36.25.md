@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will sprinkle clean water upon you, and ye shall be clean: from all your filthiness, and from all your idols, will I cleanse you.
+I will sprinkle clean water on you, and you shall be clean: from all your filthiness, and from all your idols, will I cleanse you.

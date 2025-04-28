@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But be it so, I did not myself burden you; but, being crafty, I caught you with guile.
+But be it so, I did not myself burden you. But, being crafty, I caught you with deception.

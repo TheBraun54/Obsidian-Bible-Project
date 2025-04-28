@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the twenty and seventh year of Asa king of Judah did Zimri reign seven days in Tirzah. Now the people were encamped against Gibbethon, which belonged to the Philistines.
+In the twenty-seventh year of Asa king of Judah did Zimri reign seven days in Tirzah. Now the people were encamped against Gibbethon, which belonged to the Philistines.

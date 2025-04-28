@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto Abram, Know of a surety that thy seed shall be sojourners in a land that is not theirs, and shall serve them; and they shall afflict them four hundred years;
+He said to Abram, "Know for sure that your seed will live as foreigners in a land that is not theirs, and will serve them. They will afflict them four hundred years.

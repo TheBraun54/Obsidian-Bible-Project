@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for in an hour so great riches is made desolate. And every shipmaster, and every one that saileth any whither, and mariners, and as many as gain their living by sea, stood afar off,
+For in an hour such great riches are made desolate.' Every shipmaster, and everyone who sails anywhere, and mariners, and as many as gain their living by sea, stood far away,

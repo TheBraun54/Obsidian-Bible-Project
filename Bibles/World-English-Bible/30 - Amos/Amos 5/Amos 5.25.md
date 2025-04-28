@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Did ye bring unto me sacrifices and offerings in the wilderness forty years, O house of Israel?
+"Did you bring to me sacrifices and offerings in the wilderness forty years, house of Israel?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be any unclean beast, of which they do not offer an oblation unto Jehovah, then he shall set the beast before the priest;
+If it is any unclean animal, of which they do not offer as an offering to Yahweh, then he shall set the animal before the priest;

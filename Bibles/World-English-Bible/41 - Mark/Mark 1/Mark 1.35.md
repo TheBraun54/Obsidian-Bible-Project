@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the morning, a great while before day, he rose up and went out, and departed into a desert place, and there prayed.
+Early in the morning, while it was still dark, he rose up and went out, and departed into a deserted place, and prayed there.

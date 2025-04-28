@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Hurt not the earth, neither the sea, nor the trees, till we shall have sealed the servants of our God on their foreheads.
+saying, "Don't harm the earth, neither the sea, nor the trees, until we have sealed the bondservants of our God on their foreheads!"

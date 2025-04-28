@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be as when the harvestman gathereth the standing grain, and his arm reapeth the ears; yea, it shall be as when one gleaneth ears in the valley of Rephaim.
+It will be like when the harvester gathers the wheat, and his arm reaps the grain. Yes, it will be like when one gleans grain in the valley of Rephaim.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All thy garments [smell of] myrrh, and aloes, [and] cassia; Out of ivory palaces stringed instruments have made thee glad.
+All your garments smell like myrrh, aloes, and cassia. Out of ivory palaces stringed instruments have made you glad.

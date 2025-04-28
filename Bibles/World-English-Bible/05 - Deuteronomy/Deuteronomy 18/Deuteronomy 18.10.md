@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall not be found with thee any one that maketh his son or his daughter to pass through the fire, one that useth divination, one that practiseth augury, or an enchanter, or a sorcerer,
+There shall not be found with you anyone who makes his son or his daughter to pass through the fire, one who uses divination, one who practices sorcery, or an enchanter, or a sorcerer,

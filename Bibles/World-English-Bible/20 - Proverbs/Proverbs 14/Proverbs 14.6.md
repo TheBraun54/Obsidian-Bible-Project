@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A scoffer seeketh wisdom, and [findeth it] not; But knowledge is easy unto him that hath understanding.
+A scoffer seeks wisdom, and doesn't find it, but knowledge comes easily to a discerning person.

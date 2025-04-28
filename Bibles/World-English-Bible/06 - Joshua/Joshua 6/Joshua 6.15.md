@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the seventh day, that they rose early at the dawning of the day, and compassed the city after the same manner seven times: only on that day they compassed the city seven times.
+It happened on the seventh day, that they rose early at the dawning of the day, and marched around the city in the same way seven times. Only on this day they marched around the city seven times.

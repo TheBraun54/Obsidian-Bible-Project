@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Live joyfully with the wife whom thou lovest all the days of thy life of vanity, which he hath given thee under the sun, all thy days of vanity: for that is thy portion in life, and in thy labor wherein thou laborest under the sun.
+Live joyfully with the wife whom you love all the days of your life of vanity, which he has given you under the sun, all your days of vanity: for that is your portion in life, and in your labor in which you labor under the sun.

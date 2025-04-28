@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the blue, and purple, and scarlet, they made finely wrought garments, for ministering in the holy place, and made the holy garments for Aaron; as Jehovah commanded Moses.
+Of the blue, purple, and scarlet, they made finely worked garments, for ministering in the holy place, and made the holy garments for Aaron; as Yahweh commanded Moses.

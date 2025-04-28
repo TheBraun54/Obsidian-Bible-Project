@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the heart of Pharaoh was hardened, and he did not let the children of Israel go; as Jehovah had spoken by Moses.
+The heart of Pharaoh was hardened, and he didn't let the children of Israel go, just as Yahweh had spoken through Moses.

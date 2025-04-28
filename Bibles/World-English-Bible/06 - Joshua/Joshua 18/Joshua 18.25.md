@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gibeon, and Ramah, and Beeroth,
+Gibeon, Ramah, Beeroth,

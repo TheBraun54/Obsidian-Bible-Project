@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he from within shall answer and say, Trouble me not: the door is now shut, and my children are with me in bed; I cannot rise and give thee?
+and he from within will answer and say, 'Don't bother me. The door is now shut, and my children are with me in bed. I can't get up and give it to you'?

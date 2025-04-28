@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The length of each curtain shall be eight and twenty cubits, and the breadth of each curtain four cubits: all the curtains shall have one measure.
+The length of each curtain shall be twenty-eight cubits, and the breadth of each curtain four cubits: all the curtains shall have one measure.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is the poor that walketh in his integrity, Than he that is perverse in [his] ways, though he be rich.
+Better is the poor who walks in his integrity, than he who is perverse in his ways, and he is rich.

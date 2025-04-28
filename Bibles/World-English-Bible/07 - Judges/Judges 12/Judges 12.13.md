@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him Abdon the son of Hillel the Pirathonite judged Israel.
+After him Abdon the son of Hillel the Pirathonite judged Israel.

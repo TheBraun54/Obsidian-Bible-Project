@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For David saith concerning him, I beheld the Lord always before my face; For he is on my right hand, that I should not be moved:
+For David says concerning him, 'I saw the Lord always before my face, For he is on my right hand, that I should not be moved.

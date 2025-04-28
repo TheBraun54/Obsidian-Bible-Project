@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will be yet more vile than this, and will be base in mine own sight: but of the handmaids of whom thou hast spoken, of them shall I be had in honor.
+I will be yet more vile than this, and will be base in my own sight. But of the handmaids of whom you have spoken, they shall honor me."

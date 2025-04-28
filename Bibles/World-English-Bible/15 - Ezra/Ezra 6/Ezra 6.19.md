@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of the captivity kept the passover upon the fourteenth [day] of the first month.
+The children of the captivity kept the Passover on the fourteenth [day] of the first month.

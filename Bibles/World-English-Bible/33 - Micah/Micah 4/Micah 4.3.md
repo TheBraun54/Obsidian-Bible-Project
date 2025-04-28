@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he will judge between many peoples, and will decide concerning strong nations afar off: and they shall beat their swords into plowshares, and their spears into pruning-hooks; nation shall not lift up sword against nation, neither shall they learn war any more.
+and he will judge between many peoples, and will decide concerning strong nations afar off. They will beat their swords into plowshares, and their spears into pruning hooks. Nation will not lift up sword against nation, neither will they learn war any more.

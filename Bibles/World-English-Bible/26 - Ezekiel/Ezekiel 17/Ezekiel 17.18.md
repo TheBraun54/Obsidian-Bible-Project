@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath despised the oath by breaking the covenant; and behold, he had given his hand, and yet hath done all these things; he shall not escape.
+For he has despised the oath by breaking the covenant; and behold, he had given his hand, and yet has done all these things; he shall not escape.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the disciple that beareth witness of these things, and wrote these things: and we know that his witness is true.
+This is the disciple who testifies about these things, and wrote these things. We know that his witness is true.

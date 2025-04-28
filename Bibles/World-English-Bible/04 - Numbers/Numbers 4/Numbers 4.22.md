@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the sum of the sons of Gershon also, by their fathers' houses, by their families;
+"Take a census of the sons of Gershon also, by their fathers' houses, by their families;

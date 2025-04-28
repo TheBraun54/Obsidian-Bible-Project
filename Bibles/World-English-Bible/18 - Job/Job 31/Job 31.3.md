@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it not calamity to the unrighteous, And disaster to the workers of iniquity?
+Is it not calamity to the unrighteous, and disaster to the workers of iniquity?

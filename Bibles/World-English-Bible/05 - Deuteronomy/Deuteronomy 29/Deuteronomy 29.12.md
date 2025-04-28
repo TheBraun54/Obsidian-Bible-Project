@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou mayest enter into the covenant of Jehovah thy God, and into his oath, which Jehovah thy God maketh with thee this day;
+that you may enter into the covenant of Yahweh your God, and into his oath, which Yahweh your God makes with you this day;

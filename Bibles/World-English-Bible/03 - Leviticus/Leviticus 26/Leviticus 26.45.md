@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will for their sakes remember the covenant of their ancestors, whom I brought forth out of the land of Egypt in the sight of the nations, that I might be their God: I am Jehovah.
+but I will for their sake remember the covenant of their ancestors, whom I brought forth out of the land of Egypt in the sight of the nations, that I might be their God. I am Yahweh.'"

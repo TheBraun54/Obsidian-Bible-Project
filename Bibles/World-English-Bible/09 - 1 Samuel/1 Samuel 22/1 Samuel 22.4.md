@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought them before the king of Moab: and they dwelt with him all the while that David was in the stronghold.
+He brought them before the king of Moab; and they lived with him all the while that David was in the stronghold.

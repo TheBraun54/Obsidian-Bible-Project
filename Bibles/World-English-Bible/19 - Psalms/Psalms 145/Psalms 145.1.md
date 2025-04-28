@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm of] praise; of David]. I will extol thee, my God, O King; And I will bless thy name for ever and ever.
+I will exalt you, my God, the King. I will praise your name forever and ever.

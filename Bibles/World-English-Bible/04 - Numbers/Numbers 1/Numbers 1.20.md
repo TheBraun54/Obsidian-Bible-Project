@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Reuben, Israel's first-born, their generations, by their families, by their fathers' houses, according to the number of the names, by their polls, every male from twenty years old and upward, all that were able to go forth to war;
+The children of Reuben, Israel's firstborn, their generations, by their families, by their fathers' houses, according to the number of the names, one by one, every male from twenty years old and upward, all who were able to go out to war;

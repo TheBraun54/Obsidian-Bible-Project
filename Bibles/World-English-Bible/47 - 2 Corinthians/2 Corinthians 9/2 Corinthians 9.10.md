@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that supplieth seed to the sower and bread for food, shall supply and multiply your seed for sowing, and increase the fruits of your righteousness:
+Now may he who supplies seed to the sower and bread for food, supply and multiply your seed for sowing, and increase the fruits of your righteousness;

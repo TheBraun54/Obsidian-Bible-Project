@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the candlestick also for the light, and its vessels, and its lamps, and the oil for the light;
+the lampstand also for the light, with its vessels, its lamps, and the oil for the light;

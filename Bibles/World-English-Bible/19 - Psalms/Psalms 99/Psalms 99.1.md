@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah reigneth; let the peoples tremble: He sitteth [above] the cherubim; let the earth be moved.
+Yahweh reigns! Let the peoples tremble. He sits enthroned among the cherubim. Let the earth be moved.

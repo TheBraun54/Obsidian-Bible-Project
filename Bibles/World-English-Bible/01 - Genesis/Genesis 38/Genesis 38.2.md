@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah saw there a daughter of a certain Canaanite whose name was Shua; and he took her, and went in unto her.
+Judah saw there a daughter of a certain Canaanite whose name was Shua. He took her, and went in to her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Uzziah the king was a leper unto the day of his death, and dwelt in a separate house, being a leper; for he was cut off from the house of Jehovah: and Jotham his son was over the king's house, judging the people of the land.
+Uzziah the king was a leper to the day of his death, and lived in a separate house, being a leper; for he was cut off from the house of Yahweh: and Jotham his son was over the king's house, judging the people of the land.

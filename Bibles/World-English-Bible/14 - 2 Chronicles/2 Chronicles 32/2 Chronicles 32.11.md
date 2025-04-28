@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth not Hezekiah persuade you, to give you over to die by famine and by thirst, saying, Jehovah our God will deliver us out of the hand of the king of Assyria?
+Doesn't Hezekiah persuade you, to give you over to die by famine and by thirst, saying, 'Yahweh our God will deliver us out of the hand of the king of Assyria?'

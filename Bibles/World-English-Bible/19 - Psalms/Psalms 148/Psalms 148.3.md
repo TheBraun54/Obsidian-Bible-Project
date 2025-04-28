@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye him, sun and moon: Praise him, all ye stars of light.
+Praise him, sun and moon! Praise him, all you shining stars!

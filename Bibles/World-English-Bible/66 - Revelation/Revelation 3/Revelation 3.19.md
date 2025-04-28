@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As many as I love, I reprove and chasten: be zealous therefore, and repent.
+As many as I love, I reprove and chasten. Be zealous therefore, and repent.

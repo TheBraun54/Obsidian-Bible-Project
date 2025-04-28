@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Esau said to Jacob, Feed me, I pray thee, with that same red [pottage] ; for I am faint: therefore was his name called Edom.
+Esau said to Jacob, "Please feed me with that same red stew, for I am famished." Therefore his name was called Edom.

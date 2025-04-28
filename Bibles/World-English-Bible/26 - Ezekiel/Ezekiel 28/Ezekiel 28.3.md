@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, thou art wiser than Daniel; there is no secret that is hidden from thee;
+behold, you are wiser than Daniel; there is no secret that is hidden from you;

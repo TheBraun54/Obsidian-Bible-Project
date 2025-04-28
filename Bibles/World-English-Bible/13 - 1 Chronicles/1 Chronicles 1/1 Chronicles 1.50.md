@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Baal-hanan died, and Hadad reigned in his stead; and the name of his city was Pai: and his wife's name was Mehetabel, the daughter of Matred, the daughter of Me-zahab.
+Baal Hanan died, and Hadad reigned in his place; and the name of his city was Pai: and his wife's name was Mehetabel, the daughter of Matred, the daughter of Mezahab.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he laid his hands on them, and departed thence.
+He laid his hands on them, and departed from there.

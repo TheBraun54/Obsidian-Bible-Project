@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh let not the oppressed return ashamed: Let the poor and needy praise thy name.
+Don't let the oppressed return ashamed. Let the poor and needy praise your name.

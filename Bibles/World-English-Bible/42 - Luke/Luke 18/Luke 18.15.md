@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were bringing unto him also their babes, that he should touch them: but when the disciples saw it, they rebuked them.
+They were also bringing their babies to him, that he might touch them. But when the disciples saw it, they rebuked them.

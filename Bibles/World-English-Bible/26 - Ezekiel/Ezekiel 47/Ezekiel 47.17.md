@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border from the sea, shall be Hazar-enon at the border of Damascus; and on the north northward is the border of Hamath. This is the north side.
+The border from the sea, shall be Hazar Enon at the border of Damascus; and on the north northward is the border of Hamath. This is the north side.

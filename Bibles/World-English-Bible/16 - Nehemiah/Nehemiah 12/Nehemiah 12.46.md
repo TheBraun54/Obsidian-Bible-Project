@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in the days of David and Asaph of old there was a chief of the singers, and songs of praise and thanksgiving unto God.
+For in the days of David and Asaph of old there was a chief of the singers, and songs of praise and thanksgiving to God.

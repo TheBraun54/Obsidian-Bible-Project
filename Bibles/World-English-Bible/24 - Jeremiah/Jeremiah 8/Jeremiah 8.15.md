@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We looked for peace, but no good came; [and] for a time of healing, and, behold, dismay!
+We looked for peace, but no good came; [and] for a time of healing, and behold, dismay!

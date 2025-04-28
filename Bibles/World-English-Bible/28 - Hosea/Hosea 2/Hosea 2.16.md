@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be at that day, saith Jehovah, that thou shalt call me Ishi, and shalt call me no more Baali.
+It will be in that day," says Yahweh, "that you will call me 'my husband,' and no longer call me 'my master.'

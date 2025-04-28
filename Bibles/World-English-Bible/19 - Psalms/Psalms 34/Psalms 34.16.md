@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The face of Jehovah is against them that do evil, To cut off the remembrance of them from the earth.
+Yahweh's face is against those who do evil, to cut off the memory of them from the earth.

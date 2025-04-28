@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came unto the nations, whither they went, they profaned my holy name; in that men said of them, These are the people of Jehovah, and are gone forth out of his land.
+When they came to the nations, where they went, they profaned my holy name; in that men said of them, These are the people of Yahweh, and are gone forth out of his land.

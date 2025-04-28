@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall sweep onward into Judah; it shall overflow and pass through; it shall reach even to the neck; and the stretching out of its wings shall fill the breadth of thy land, O Immanuel.
+It will sweep onward into Judah. It will overflow and pass through; it will reach even to the neck; and the stretching out of its wings will fill the breadth of your land, Immanuel.

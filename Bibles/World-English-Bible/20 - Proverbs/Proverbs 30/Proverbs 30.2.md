@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely I am more brutish than any man, And have not the understanding of a man;
+"Surely I am the most ignorant man, and don't have a man's understanding.

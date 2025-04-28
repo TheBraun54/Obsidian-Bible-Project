@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter and John answered and said unto them, Whether it is right in the sight of God to hearken unto you rather than unto God, judge ye:
+But Peter and John answered them, "Whether it is right in the sight of God to listen to you rather than to God, judge for yourselves,

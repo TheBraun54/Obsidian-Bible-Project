@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will deliver thee in six troubles; Yea, in seven there shall no evil touch thee.
+He will deliver you in six troubles; yes, in seven no evil shall touch you.

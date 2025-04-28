@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As he went to Ziklag, there fell to him of Manasseh, Adnah, and Jozabad, and Jediael, and Michael, and Jozabad, and Elihu, and Zillethai, captains of thousands that were of Manasseh.
+As he went to Ziklag, there fell to him of Manasseh, Adnah, and Jozabad, and Jediael, and Michael, and Jozabad, and Elihu, and Zillethai, captains of thousands who were of Manasseh.

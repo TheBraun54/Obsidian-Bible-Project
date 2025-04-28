@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man die, shall he live [again] ? All the days of my warfare would I wait, Till my release should come.
+If a man dies, shall he live again? All the days of my warfare would I wait, until my release should come.

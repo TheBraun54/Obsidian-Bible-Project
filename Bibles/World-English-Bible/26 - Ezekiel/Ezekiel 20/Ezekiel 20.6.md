@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in that day I sware unto them, to bring them forth out of the land of Egypt into a land that I had searched out for them, flowing with milk and honey, which is the glory of all lands.
+in that day I swore to them, to bring them forth out of the land of Egypt into a land that I had searched out for them, flowing with milk and honey, which is the glory of all lands.

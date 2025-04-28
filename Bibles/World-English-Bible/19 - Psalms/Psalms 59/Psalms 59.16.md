@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will sing of thy strength; Yea, I will sing aloud of thy lovingkindness in the morning: For thou hast been my high tower, And a refuge in the day of my distress.
+But I will sing of your strength. Yes, I will sing aloud of your loving kindness in the morning. For you have been my high tower, a refuge in the day of my distress.

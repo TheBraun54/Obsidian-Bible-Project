@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing then that these things cannot be gainsaid, ye ought to be quiet, and to do nothing rash.
+Seeing then that these things can't be denied, you ought to be quiet, and to do nothing rash.

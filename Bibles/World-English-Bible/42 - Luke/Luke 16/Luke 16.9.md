@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto you, Make to yourselves friends by means of the mammon of unrighteousness; that, when it shall fail, they may receive you into the eternal tabernacles.
+I tell you, make for yourselves friends by means of unrighteous mammon, so that when you fail, they may receive you into the eternal tents.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in his day thou shalt give him his hire, neither shall the sun go down upon it; for he is poor, and setteth his heart upon it: lest he cry against thee unto Jehovah, and it be sin unto thee.
+in his day you shall give him his hire, neither shall the sun go down on it; for he is poor, and sets his heart on it: lest he cry against you to Yahweh, and it be sin to you.

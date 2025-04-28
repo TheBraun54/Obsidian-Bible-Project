@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that he might redeem them that were under the law, that we might receive the adoption of sons.
+that he might redeem those who were under the law, that we might receive the adoption of children.

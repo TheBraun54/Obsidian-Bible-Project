@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he healed many that were sick with divers diseases, and cast out many demons; and he suffered not the demons to speak, because they knew him .
+He healed many who were sick with various diseases, and cast out many demons. He didn't allow the demons to speak, because they knew him.

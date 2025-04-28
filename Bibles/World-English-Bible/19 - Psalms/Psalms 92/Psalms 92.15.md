@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To show that Jehovah is upright; He is my rock, and there is no unrighteousness in him.
+to show that Yahweh is upright. He is my rock, and there is no unrighteousness in him.

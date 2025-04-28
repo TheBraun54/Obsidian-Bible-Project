@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wast thou called being a bondservant? Care not for it: nay, even if thou canst become free, use [it] rather.
+Were you called being a bondservant? Don't let that bother you, but if you get an opportunity to become free, use it.

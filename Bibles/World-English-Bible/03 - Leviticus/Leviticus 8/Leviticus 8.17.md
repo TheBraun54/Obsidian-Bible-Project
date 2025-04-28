@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the bullock, and its skin, and its flesh, and its dung, he burnt with fire without the camp; as Jehovah commanded Moses.
+But the bull, and its skin, and its flesh, and its dung, he burned with fire outside the camp; as Yahweh commanded Moses.

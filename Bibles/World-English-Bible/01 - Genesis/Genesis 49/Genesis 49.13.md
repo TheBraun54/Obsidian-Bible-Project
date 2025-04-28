@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zebulun shall dwell at the haven of the sea; And he shall be for a haven of ships; And his border shall be upon Sidon.
+"Zebulun will dwell at the haven of the sea. He will be for a haven of ships. His border will be on Sidon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked have waited for me, to destroy me; [But] I will consider thy testimonies.
+The wicked have waited for me, to destroy me. I will consider your statutes.

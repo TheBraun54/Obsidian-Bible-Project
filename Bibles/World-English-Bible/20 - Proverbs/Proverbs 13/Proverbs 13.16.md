@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every prudent man worketh with knowledge; But a fool flaunteth [his] folly.
+Every prudent man acts from knowledge, but a fool exposes folly.

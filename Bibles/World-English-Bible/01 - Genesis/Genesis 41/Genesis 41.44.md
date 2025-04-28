@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto Joseph, I am Pharaoh, and without thee shall no man lift up his hand or his foot in all the land of Egypt.
+Pharaoh said to Joseph, "I am Pharaoh, and without you shall no man lift up his hand or his foot in all the land of Egypt."

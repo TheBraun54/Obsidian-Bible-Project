@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a day of darkness and gloominess, a day of clouds and thick darkness, as the dawn spread upon the mountains; a great people and a strong; there hath not been ever the like, neither shall be any more after them, even to the years of many generations.
+A day of darkness and gloominess, a day of clouds and thick darkness. As the dawn spreading on the mountains, a great and strong people; there has never been the like, neither will there be any more after them, even to the years of many generations.

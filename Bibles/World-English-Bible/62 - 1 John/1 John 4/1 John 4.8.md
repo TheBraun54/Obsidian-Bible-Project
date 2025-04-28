@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth not knoweth not God; for God is love.
+He who doesn't love doesn't know God, for God is love.

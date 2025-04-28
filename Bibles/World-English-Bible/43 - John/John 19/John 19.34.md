@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-howbeit one of the soldiers with a spear pierced his side, and straightway there came out blood and water.
+However one of the soldiers pierced his side with a spear, and immediately blood and water came out.

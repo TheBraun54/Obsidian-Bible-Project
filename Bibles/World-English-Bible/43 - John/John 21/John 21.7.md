@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That disciple therefore whom Jesus loved saith unto Peter, It is the Lord. So when Simon Peter heard that it was the Lord, he girt his coat about him (for he was naked), and cast himself into the sea.
+That disciple therefore whom Jesus loved said to Peter, "It's the Lord!" So when Simon Peter heard that it was the Lord, he wrapped his coat around him (for he was naked), and threw himself into the sea.

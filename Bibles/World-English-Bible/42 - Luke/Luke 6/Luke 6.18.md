@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they that were troubled with unclean spirits were healed.
+as well as those who were troubled by unclean spirits, and they were being healed.

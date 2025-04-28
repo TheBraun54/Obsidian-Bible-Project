@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was the true light, [even the light] which lighteth every man, coming into the world.
+The true light that enlightens everyone was coming into the world.

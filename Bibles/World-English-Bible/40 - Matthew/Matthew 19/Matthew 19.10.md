@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The disciples say unto him, If the case of the man is so with his wife, it is not expedient to marry.
+His disciples said to him, "If this is the case of the man with his wife, it is not expedient to marry."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are bowed down and fallen; But we are risen, and stand upright.
+They are bowed down and fallen, but we rise up, and stand upright.

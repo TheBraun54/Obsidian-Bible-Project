@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mountains melted like wax at the presence of Jehovah, At the presence of the Lord of the whole earth.
+The mountains melt like wax at the presence of Yahweh, at the presence of the Lord of the whole earth.

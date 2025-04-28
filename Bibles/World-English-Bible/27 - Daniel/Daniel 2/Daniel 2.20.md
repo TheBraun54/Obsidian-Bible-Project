@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Daniel answered and said, Blessed be the name of God for ever and ever; for wisdom and might are his.
+Daniel answered, Blessed be the name of God forever and ever; for wisdom and might are his.

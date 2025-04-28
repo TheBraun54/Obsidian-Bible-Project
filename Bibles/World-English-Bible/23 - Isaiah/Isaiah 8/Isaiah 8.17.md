@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will wait for Jehovah, that hideth his face from the house of Jacob, and I will look for him.
+I will wait for Yahweh, who hides his face from the house of Jacob, and I will look for him.

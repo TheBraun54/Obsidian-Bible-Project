@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam said unto the ass, Because thou hast mocked me, I would there were a sword in my hand, for now I had killed thee.
+Balaam said to the donkey, "Because you have mocked me, I wish there were a sword in my hand, for now I would have killed you."

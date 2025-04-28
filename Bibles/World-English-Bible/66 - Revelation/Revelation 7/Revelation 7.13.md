@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the elders answered, saying unto me, These that are arrayed in white robes, who are they, and whence came they?
+One of the elders answered, saying to me, "These who are arrayed in white robes, who are they, and from where did they come?"

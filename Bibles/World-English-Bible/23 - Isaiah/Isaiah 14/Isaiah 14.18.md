@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the kings of the nations, all of them, sleep in glory, every one in his own house.
+All the kings of the nations, sleep in glory, everyone in his own house.

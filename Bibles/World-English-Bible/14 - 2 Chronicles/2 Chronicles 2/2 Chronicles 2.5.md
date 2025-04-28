@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the house which I build is great; for great is our God above all gods.
+"The house which I build is great; for our God is great above all gods.

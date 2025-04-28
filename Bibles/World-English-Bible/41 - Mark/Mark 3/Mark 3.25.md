@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a house be divided against itself, that house will not be able to stand.
+If a house is divided against itself, that house cannot stand.

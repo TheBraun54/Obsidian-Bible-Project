@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of one that crieth, Prepare ye in the wilderness the way of Jehovah; make level in the desert a highway for our God.
+The voice of one who calls out, "Prepare the way of Yahweh in the wilderness! Make a level highway in the desert for our God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the children of Reuben and the children of Gad and the half-tribe of Manasseh answered, and spake unto the heads of the thousands of Israel,
+Then the children of Reuben and the children of Gad and the half-tribe of Manasseh answered, and spoke to the heads of the thousands of Israel,

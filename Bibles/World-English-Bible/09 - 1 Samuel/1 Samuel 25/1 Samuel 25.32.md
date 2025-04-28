@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Abigail, Blessed be Jehovah, the God of Israel, who sent thee this day to meet me:
+David said to Abigail, "Blessed is Yahweh, the God of Israel, who sent you this day to meet me!

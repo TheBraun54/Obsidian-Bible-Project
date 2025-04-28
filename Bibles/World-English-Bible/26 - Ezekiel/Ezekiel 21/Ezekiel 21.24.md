@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Because ye have made your iniquity to be remembered, in that your transgressions are uncovered, so that in all your doings your sins do appear; because that ye are come to remembrance, ye shall be taken with the hand.
+Therefore thus says the Lord Yahweh: Because you have made your iniquity to be remembered, in that your transgressions are uncovered, so that in all your doings your sins appear; because you have come to memory, you shall be taken with the hand.

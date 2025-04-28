@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the veil of blue, and purple, and crimson, and fine linen, and wrought cherubim thereon.
+He made the veil of blue, and purple, and crimson, and fine linen, and ornamented it with cherubim.

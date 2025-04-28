@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a nation is come up upon my land, strong, and without number; his teeth are the teeth of a lion, and he hath the jaw-teeth of a lioness.
+For a nation has come up on my land, strong, and without number. His teeth are the teeth of a lion, and he has the fangs of a lioness.

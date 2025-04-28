@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake Jeremiah unto all the princes and to all the people, saying, Jehovah sent me to prophesy against this house and against this city all the words that ye have heard.
+Then spoke Jeremiah to all the princes and to all the people, saying, Yahweh sent me to prophesy against this house and against this city all the words that you have heard.

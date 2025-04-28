@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt anoint therewith the tent of meeting, and the ark of the testimony,
+You shall use it to anoint the Tent of Meeting, the ark of the testimony,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this will I lament and wail; I will go stripped and naked; I will make a wailing like the jackals, and a lamentation like the ostriches.
+For this I will lament and wail; I will go stripped and naked; I will howl like the jackals, and moan like the daughters of owls.

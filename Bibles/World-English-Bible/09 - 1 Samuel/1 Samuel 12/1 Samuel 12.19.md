@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people said unto Samuel, Pray for thy servants unto Jehovah thy God, that we die not; for we have added unto all our sins [this] evil, to ask us a king.
+All the people said to Samuel, "Pray for your servants to Yahweh your God, that we not die; for we have added to all our sins [this] evil, to ask us a king."

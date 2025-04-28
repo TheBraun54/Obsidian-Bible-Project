@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the days of his separation shall he eat nothing that is made of the grape-vine, from the kernels even to the husk.
+All the days of his separation he shall eat nothing that is made of the grapevine, from the seeds even to the skins.

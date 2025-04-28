@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when thy herds and thy flocks multiply, and thy silver and thy gold is multiplied, and all that thou hast is multiplied;
+and when your herds and your flocks multiply, and your silver and your gold is multiplied, and all that you have is multiplied;

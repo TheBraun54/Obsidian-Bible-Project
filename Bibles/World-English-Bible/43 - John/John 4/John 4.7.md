@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There cometh a woman of Samaria to draw water: Jesus saith unto her, Give me to drink.
+A woman of Samaria came to draw water. Jesus said to her, "Give me a drink."

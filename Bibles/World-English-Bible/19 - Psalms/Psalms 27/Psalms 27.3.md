@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though a host should encamp against me, My heart shall not fear: Though war should rise against me, Even then will I be confident.
+Though an army should encamp against me, my heart shall not fear. Though war should rise against me, even then I will be confident.

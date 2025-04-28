@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, Lord, what wait I for? My hope is in thee.
+Now, Lord, what do I wait for? My hope is in you.

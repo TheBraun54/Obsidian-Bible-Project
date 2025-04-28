@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the lad knew not anything: only Jonathan and David knew the matter.
+But the boy didn't know anything. Only Jonathan and David knew the matter.

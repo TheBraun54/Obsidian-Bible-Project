@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall take cedar-wood, and hyssop, and scarlet, and cast it into the midst of the burning of the heifer.
+and the priest shall take cedar wood, and hyssop, and scarlet, and cast it into the midst of the burning of the heifer.

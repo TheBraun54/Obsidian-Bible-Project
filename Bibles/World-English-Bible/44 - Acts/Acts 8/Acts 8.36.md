@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they went on the way, they came unto a certain water; and the eunuch saith, Behold, [here is] water; what doth hinder me to be baptized?
+As they went on the way, they came to some water, and the eunuch said, "Behold, here is water. What is keeping me from being baptized?"

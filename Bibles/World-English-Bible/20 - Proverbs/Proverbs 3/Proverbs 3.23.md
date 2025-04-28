@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou walk in thy way securely, And thy foot shall not stumble.
+Then you shall walk in your way securely. Your foot won't stumble.

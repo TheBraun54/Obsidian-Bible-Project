@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab sent to Tekoa, and fetched thence a wise woman, and said unto her, I pray thee, feign thyself to be a mourner, and put on mourning apparel, I pray thee, and anoint not thyself with oil, but be as a woman that hath a long time mourned for the dead:
+Joab sent to Tekoa, and fetched there a wise woman, and said to her, "Please act like a mourner, and put on mourning clothing, please, and don't anoint yourself with oil, but be as a woman who has mourned a long time for the dead.

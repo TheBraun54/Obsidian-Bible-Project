@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, because ye hearken to these ordinances, and keep and do them, that Jehovah thy God will keep with thee the covenant and the lovingkindness which he sware unto thy fathers:
+It shall happen, because you listen to these ordinances, and keep and do them, that Yahweh your God will keep with you the covenant and the loving kindness which he swore to your fathers:

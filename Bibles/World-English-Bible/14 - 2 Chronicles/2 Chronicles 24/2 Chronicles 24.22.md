@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus Joash the king remembered not the kindness which Jehoiada his father had done to him, but slew his son. And when he died, he said, Jehovah look upon it, and require it.
+Thus Joash the king didn't remember the kindness which Jehoiada his father had done to him, but killed his son. When he died, he said, "May Yahweh look at it, and repay it."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they told him, saying, Joseph is yet alive, and he is ruler over all the land of Egypt. And his heart fainted, for he believed them not.
+They told him, saying, "Joseph is still alive, and he is ruler over all the land of Egypt." His heart fainted, for he didn't believe them.

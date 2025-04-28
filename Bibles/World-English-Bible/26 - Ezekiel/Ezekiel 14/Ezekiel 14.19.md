@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if I send a pestilence into that land, and pour out my wrath upon it in blood, to cut off from it man and beast;
+Or if I send a pestilence into that land, and pour out my wrath on it in blood, to cut off from it man and animal;

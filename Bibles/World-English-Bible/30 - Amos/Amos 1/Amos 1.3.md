@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: For three transgressions of Damascus, yea, for four, I will not turn away the punishment thereof; because they have threshed Gilead with threshing instruments of iron:
+Thus says Yahweh: "For three transgressions of Damascus, yes, for four, I will not turn away its punishment; because they have threshed Gilead with threshing instruments of iron;

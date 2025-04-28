@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, I go unto my people: come, [and] I will advertise thee what this people shall do to thy people in the latter days.
+Now, behold, I go to my people: come, [and] I will inform you what this people shall do to your people in the latter days."

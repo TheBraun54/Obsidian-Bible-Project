@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his wife said unto him, If Jehovah were pleased to kill us, he would not have received a burnt-offering and a meal-offering at our hand, neither would he have showed us all these things, nor would at this time have told such things as these.
+But his wife said to him, "If Yahweh were pleased to kill us, he wouldn't have received a burnt offering and a meal offering at our hand, neither would he have shown us all these things, nor would at this time have told such things as these."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All this have I proved in wisdom: I said, I will be wise; but it was far from me.
+All this have I proved in wisdom. I said, "I will be wise;" but it was far from me.

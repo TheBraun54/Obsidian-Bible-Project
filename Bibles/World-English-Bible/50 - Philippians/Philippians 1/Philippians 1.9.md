@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this I pray, that your love may abound yet more and more in knowledge and all discernment;
+This I pray, that your love may abound yet more and more in knowledge and all discernment;

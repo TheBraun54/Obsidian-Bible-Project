@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, I attended unto you, And, behold, there was none that convinced Job, Or that answered his words, among you.
+Yes, I gave you my full attention, but there was no one who convinced Job, or who answered his words, among you.

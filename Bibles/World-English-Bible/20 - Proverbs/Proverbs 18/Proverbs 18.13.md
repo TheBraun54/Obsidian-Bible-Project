@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that giveth answer before he heareth, It is folly and shame unto him.
+He who gives answer before he hears, that is folly and shame to him.

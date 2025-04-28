@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Chenaniah, chief of the Levites, was over the song: he instructed about the song, because he was skilful.
+Chenaniah, chief of the Levites, was over the song: he instructed about the song, because he was skillful.

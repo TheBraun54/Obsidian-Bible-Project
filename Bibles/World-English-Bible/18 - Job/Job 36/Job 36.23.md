@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath enjoined him his way? Or who can say, Thou hast wrought unrighteousness?
+Who has prescribed his way for him? Or who can say, 'You have committed unrighteousness?'

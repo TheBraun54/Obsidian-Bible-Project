@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David dwelt in the stronghold, and called it the city of David. And David built round about from Millo and inward.
+David lived in the stronghold, and called it the city of David. David built around from Millo and inward.

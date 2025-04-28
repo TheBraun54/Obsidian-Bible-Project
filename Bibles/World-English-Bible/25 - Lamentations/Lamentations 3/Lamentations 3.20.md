@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul hath them still in remembrance, and is bowed down within me.
+My soul still remembers them, and is bowed down within me.

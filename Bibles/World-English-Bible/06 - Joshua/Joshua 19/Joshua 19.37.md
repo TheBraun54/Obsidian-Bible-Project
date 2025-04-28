@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Kedesh, and Edrei, and En-hazor,
+Kedesh, Edrei, En Hazor,

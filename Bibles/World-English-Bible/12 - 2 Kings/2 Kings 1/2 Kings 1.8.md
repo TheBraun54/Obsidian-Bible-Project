@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered him, He was a hairy man, and girt with a girdle of leather about his loins. And he said, It is Elijah the Tishbite.
+They answered him, "He was a hairy man, and wearing a leather belt around his waist." He said, "It is Elijah the Tishbite."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore do ye with the council signify to the chief captain that he bring him down unto you, as though ye would judge of his case more exactly: and we, before he comes near, are ready to slay him.
+Now therefore, you with the council inform the commanding officer that he should bring him down to you tomorrow, as though you were going to judge his case more exactly. We are ready to kill him before he comes near."

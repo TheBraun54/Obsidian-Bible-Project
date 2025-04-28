@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, the days come, saith Jehovah, that they shall no more say, As Jehovah liveth, who brought up the children of Israel out of the land of Egypt;
+Therefore, behold, the days come, says Yahweh, that they shall no more say, As Yahweh lives, who brought up the children of Israel out of the land of Egypt;

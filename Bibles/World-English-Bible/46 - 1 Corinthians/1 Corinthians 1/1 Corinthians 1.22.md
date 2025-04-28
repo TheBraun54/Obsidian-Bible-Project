@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing that Jews ask for signs, and Greeks seek after wisdom:
+For Jews ask for signs, Greeks seek after wisdom,

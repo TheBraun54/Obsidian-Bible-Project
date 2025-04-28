@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now, lo, if he beget a son, that seeth all his father's sins, which he hath done, and feareth, and doeth not such like;
+Now, behold, if he fathers a son, who sees all his father's sins, which he has done, and fears, and does not such like;

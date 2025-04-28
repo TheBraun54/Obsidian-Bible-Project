@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And sometimes the cloud was from evening until morning; and when the cloud was taken up in the morning, they journeyed: or [if it continued] by day and by night, when the cloud was taken up, they journeyed.
+Sometimes the cloud was from evening until morning; and when the cloud was taken up in the morning, they traveled: or by day and by night, when the cloud was taken up, they traveled.

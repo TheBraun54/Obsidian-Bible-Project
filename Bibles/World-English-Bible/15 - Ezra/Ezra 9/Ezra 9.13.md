@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after all that is come upon us for our evil deeds, and for our great guilt, seeing that thou our God hast punished us less than our iniquities deserve, and hast given us such a remnant,
+"After all that has come on us for our evil deeds, and for our great guilt, since you, our God, have punished us less than our iniquities deserve, and have given us such a remnant,

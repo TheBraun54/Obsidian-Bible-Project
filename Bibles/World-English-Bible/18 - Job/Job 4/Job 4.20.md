@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Betwixt morning and evening they are destroyed: They perish for ever without any regarding it.
+Between morning and evening they are destroyed. They perish forever without any regarding it.

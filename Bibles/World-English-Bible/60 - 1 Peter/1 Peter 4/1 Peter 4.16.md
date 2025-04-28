@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if [a man suffer] as a Christian, let him not be ashamed; but let him glorify God in this name.
+But if one of you suffers for being a Christian, let him not be ashamed; but let him glorify God in this matter.

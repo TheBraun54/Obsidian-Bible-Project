@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt write Aaron's name upon the rod of Levi; for there shall be one rod for each head of their fathers' houses.
+You shall write Aaron's name on the rod of Levi; for there shall be one rod for each head of their fathers' houses.

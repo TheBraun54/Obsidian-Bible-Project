@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have they not found, have they not divided the spoil? A damsel, two damsels to every man; To Sisera a spoil of dyed garments, A spoil of dyed garments embroidered, Of dyed garments embroidered on both sides, on the necks of the spoil?
+'Have they not found, have they not divided the spoil? A lady, two ladies to every man; to Sisera a spoil of dyed garments, a spoil of dyed garments embroidered, of dyed garments embroidered on both sides, on the necks of the spoil?'

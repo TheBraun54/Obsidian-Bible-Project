@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the angels were standing round about the throne, and [about] the elders and the four living creatures; and they fell before the throne on their faces, and worshipped God,
+All the angels were standing around the throne, the elders, and the four living creatures; and they fell on their faces before his throne, and worshiped God,

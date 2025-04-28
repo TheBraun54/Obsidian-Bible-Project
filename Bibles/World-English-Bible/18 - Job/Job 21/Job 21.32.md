@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet shall he be borne to the grave, And men shall keep watch over the tomb.
+Yet he will be borne to the grave. Men shall keep watch over the tomb.

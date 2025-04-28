@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, Tattenai, governor beyond the River, Shethar-bozenai, and your companions the Apharsachites, who are beyond the River, be ye far from thence:
+Now therefore, Tattenai, governor beyond the River, Shetharbozenai, and your companions the Apharsachites, who are beyond the River, you must stay far from there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the days of Methuselah were nine hundred sixty and nine years: and he died.
+All the days of Methuselah were nine hundred sixty-nine years, then he died.

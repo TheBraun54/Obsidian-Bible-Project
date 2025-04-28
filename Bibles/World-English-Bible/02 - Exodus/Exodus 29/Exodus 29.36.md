@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every day shalt thou offer the bullock of sin-offering for atonement: and thou shalt cleanse the altar, when thou makest atonement for it; and thou shalt anoint it, to sanctify it.
+Every day you shall offer the bull of sin offering for atonement: and you shall cleanse the altar, when you make atonement for it; and you shall anoint it, to sanctify it.

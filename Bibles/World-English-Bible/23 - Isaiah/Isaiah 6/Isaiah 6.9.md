@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Go, and tell this people, Hear ye indeed, but understand not; and see ye indeed, but perceive not.
+He said, "Go, and tell this people, 'You hear indeed, but don't understand; and you see indeed, but don't perceive.'

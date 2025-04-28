@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he that doeth sin is of the devil; for the devil sinneth from the beginning. To this end was the Son of God manifested, that he might destroy the works of the devil.
+He who sins is of the devil, for the devil has been sinning from the beginning. To this end the Son of God was revealed, that he might destroy the works of the devil.

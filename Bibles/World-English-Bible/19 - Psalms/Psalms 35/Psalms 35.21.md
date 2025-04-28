@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they opened their mouth wide against me; They said, Aha, aha, our eye hath seen it.
+Yes, they opened their mouth wide against me. They said, "Aha! Aha! Our eye has seen it!"

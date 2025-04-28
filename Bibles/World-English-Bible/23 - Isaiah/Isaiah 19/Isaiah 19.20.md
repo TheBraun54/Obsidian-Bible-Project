@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be for a sign and for a witness unto Jehovah of hosts in the land of Egypt; for they shall cry unto Jehovah because of oppressors, and he will send them a saviour, and a defender, and he will deliver them.
+It will be for a sign and for a witness to Yahweh of Armies in the land of Egypt; for they will cry to Yahweh because of oppressors, and he will send them a savior and a defender, and he will deliver them.

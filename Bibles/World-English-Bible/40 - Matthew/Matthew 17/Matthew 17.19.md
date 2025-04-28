@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the disciples to Jesus apart, and said, Why could not we cast it out?
+Then the disciples came to Jesus privately, and said, "Why weren't we able to cast it out?"

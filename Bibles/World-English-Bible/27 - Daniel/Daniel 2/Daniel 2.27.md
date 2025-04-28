@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Daniel answered before the king, and said, The secret which the king hath demanded can neither wise men, enchanters, magicians, nor soothsayers, show unto the king;
+Daniel answered before the king, and said, The secret which the king has demanded can neither wise men, enchanters, magicians, nor soothsayers, show to the king;

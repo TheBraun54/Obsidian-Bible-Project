@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he washed his face, and came out; and he refrained himself, and said, Set on bread.
+He washed his face, and came out. He controlled himself, and said, "Serve the meal."

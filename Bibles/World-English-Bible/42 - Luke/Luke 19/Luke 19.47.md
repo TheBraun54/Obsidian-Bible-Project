@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was teaching daily in the temple. But the chief priests and the scribes and the principal men of the people sought to destroy him:
+He was teaching daily in the temple, but the chief priests and the scribes and the leading men among the people sought to destroy him.

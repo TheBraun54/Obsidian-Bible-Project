@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saith unto him, See thou say nothing to any man: but go show thyself to the priest, and offer for thy cleansing the things which Moses commanded, for a testimony unto them.
+and said to him, "See you say nothing to anybody, but go show yourself to the priest, and offer for your cleansing the things which Moses commanded, for a testimony to them."

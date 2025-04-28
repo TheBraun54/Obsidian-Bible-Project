@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cast abominable filth upon thee, and make thee vile, and will set thee as a gazing-stock.
+I will throw abominable filth on you, and make you vile, and will set you a spectacle.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have blown the trumpet, and have made all ready; but none goeth to the battle; for my wrath is upon all the multitude thereof.
+They have blown the trumpet, and have made all ready; but none goes to the battle; for my wrath is on all its multitude.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that sat in the council, fastening their eyes on him, saw his face as it had been the face of an angel.
+All who sat in the council, fastening their eyes on him, saw his face like it was the face of an angel.

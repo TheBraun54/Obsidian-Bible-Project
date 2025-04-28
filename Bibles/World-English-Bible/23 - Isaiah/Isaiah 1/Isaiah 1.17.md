@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-learn to do well; seek justice, relieve the oppressed, judge the fatherless, plead for the widow.
+Learn to do well. Seek justice. Relieve the oppressed. Judge the fatherless. Plead for the widow."

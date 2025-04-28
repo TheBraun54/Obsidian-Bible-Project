@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He removed the high places, and brake the pillars, and cut down the Asherah: and he brake in pieces the brazen serpent that Moses had made; for unto those days the children of Israel did burn incense to it; and he called it Nehushtan.
+He removed the high places, and broke the pillars, and cut down the Asherah: and he broke in pieces the bronze serpent that Moses had made; for to those days the children of Israel did burn incense to it; and he called it Nehushtan.

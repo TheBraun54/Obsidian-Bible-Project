@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel again did that which was evil in the sight of Jehovah: and Jehovah strengthened Eglon the king of Moab against Israel, because they had done that which was evil in the sight of Jehovah.
+The children of Israel again did that which was evil in the sight of Yahweh: and Yahweh strengthened Eglon the king of Moab against Israel, because they had done that which was evil in the sight of Yahweh.

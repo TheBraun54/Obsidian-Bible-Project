@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the thing which I fear cometh upon me, And that which I am afraid of cometh unto me.
+For the thing which I fear comes on me, That which I am afraid of comes to me.

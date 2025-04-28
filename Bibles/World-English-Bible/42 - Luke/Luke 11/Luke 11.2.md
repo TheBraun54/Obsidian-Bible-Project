@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, When ye pray, say, Father, Hallowed be thy name. Thy kingdom come.
+He said to them, "When you pray, say, 'Our Father in heaven, may your name be kept holy. May your Kingdom come. May your will be done on Earth, as it is in heaven.

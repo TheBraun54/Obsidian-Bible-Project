@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah made not this covenant with our fathers, but with us, even us, who are all of us here alive this day.
+Yahweh didn't make this covenant with our fathers, but with us, even us, who are all of us here alive this day.

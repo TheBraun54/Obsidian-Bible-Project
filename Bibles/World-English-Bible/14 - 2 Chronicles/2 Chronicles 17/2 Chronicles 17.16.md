@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and next to him Amasiah the son of Zichri, who willingly offered himself unto Jehovah; and with him two hundred thousand mighty men of valor.
+and next to him Amasiah the son of Zichri, who willingly offered himself to Yahweh; and with him two hundred thousand mighty men of valor.

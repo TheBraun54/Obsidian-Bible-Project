@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eleazar the priest took the brazen censers, which they that were burnt had offered; and they beat them out for a covering of the altar,
+Eleazar the priest took the bronze censers, which those who were burnt had offered; and they beat them out for a covering of the altar,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though thy people, Israel, be as the sand of the sea, [only] a remnant of them shall return: a destruction [is] determined, overflowing with righteousness.
+For though your people, Israel, are like the sand of the sea, only a remnant of them will return. A destruction is determined, overflowing with righteousness.

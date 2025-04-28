@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His enemies will I clothe with shame; But upon himself shall his crown flourish.
+I will clothe his enemies with shame, but on himself, his crown will be resplendent." A Song of Ascents. By David.

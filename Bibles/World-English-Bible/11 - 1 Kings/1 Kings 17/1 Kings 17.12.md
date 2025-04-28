@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, As Jehovah thy God liveth, I have not a cake, but a handful of meal in the jar, and a little oil in the cruse: and, behold, I am gathering two sticks, that I may go in and dress it for me and my son, that we may eat it, and die.
+She said, "As Yahweh your God lives, I don't have a cake, but a handful of meal in the jar, and a little oil in the jar. Behold, I am gathering two sticks, that I may go in and bake it for me and my son, that we may eat it, and die."

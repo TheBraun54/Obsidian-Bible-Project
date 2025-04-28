@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when Moab presenteth himself, when he wearieth himself upon the high place, and shall come to his sanctuary to pray, that he shall not prevail.
+It will happen that when Moab presents himself, when he wearies himself on the high place, and comes to his sanctuary to pray, that he will not prevail.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [their] bows shall dash the young men in pieces; and they shall have no pity on the fruit of the womb; their eye shall not spare children.
+Their bows will dash the young men in pieces; and they shall have no pity on the fruit of the womb. Their eyes will not spare children.

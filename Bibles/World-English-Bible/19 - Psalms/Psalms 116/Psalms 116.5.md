@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gracious is Jehovah, and righteous; Yea, our God is merciful.
+Yahweh is Gracious and righteous. Yes, our God is merciful.

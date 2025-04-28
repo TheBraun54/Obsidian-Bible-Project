@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long shall I take counsel in my soul, Having sorrow in my heart all the day? How long shall mine enemy be exalted over me?
+How long shall I take counsel in my soul, having sorrow in my heart every day? How long shall my enemy triumph over me?

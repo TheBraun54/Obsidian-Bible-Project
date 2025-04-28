@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jeremiah unto them, Thus shall ye say to Zedekiah:
+Then Jeremiah said to them, You shall tell Zedekiah:

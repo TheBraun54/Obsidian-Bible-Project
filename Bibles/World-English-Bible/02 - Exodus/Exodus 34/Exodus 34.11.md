@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Observe thou that which I command thee this day: behold, I drive out before thee the Amorite, and the Canaanite, and the Hittite, and the Perizzite, and the Hivite, and the Jebusite.
+Observe that which I command you this day. Behold, I drive out before you the Amorite, the Canaanite, the Hittite, the Perizzite, the Hivite, and the Jebusite.

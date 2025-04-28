@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They die in youth, And their life [perisheth] among the unclean.
+They die in youth. Their life perishes among the unclean.

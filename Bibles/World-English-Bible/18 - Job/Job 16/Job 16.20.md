@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My friends scoff at me: [But] mine eye poureth out tears unto God,
+My friends scoff at me. My eyes pour out tears to God,

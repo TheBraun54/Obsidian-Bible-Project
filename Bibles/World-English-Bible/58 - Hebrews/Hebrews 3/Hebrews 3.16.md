@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who, when they heard, did provoke? nay, did not all they that came out of Egypt by Moses?
+For who, when they heard, rebelled? No, didn't all those who came out of Egypt by Moses?

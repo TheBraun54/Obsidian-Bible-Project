@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their heart cried unto the Lord: O wall of the daughter of Zion, let tears run down like a river day and night; Give thyself no respite; let not the apple of thine eye cease.
+Their heart cried to the Lord: wall of the daughter of Zion, let tears run down like a river day and night; Give yourself no respite; don't let the apple of your eye cease.

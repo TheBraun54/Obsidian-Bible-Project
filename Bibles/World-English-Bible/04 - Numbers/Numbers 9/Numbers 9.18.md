@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the commandment of Jehovah the children of Israel journeyed, and at the commandment of Jehovah they encamped: as long as the cloud abode upon the tabernacle they remained encamped.
+At the commandment of Yahweh, the children of Israel traveled, and at the commandment of Yahweh they encamped. As long as the cloud remained on the tabernacle they remained encamped.

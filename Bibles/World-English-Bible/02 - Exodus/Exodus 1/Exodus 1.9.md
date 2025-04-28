@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his people, Behold, the people of the children of Israel are more and mightier than we:
+He said to his people, "Behold, the people of the children of Israel are more and mightier than we.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine oils have a goodly fragrance; Thy name is [as] oil poured forth; Therefore do the virgins love thee.
+Your oils have a pleasing fragrance. Your name is oil poured forth, therefore the virgins love you.

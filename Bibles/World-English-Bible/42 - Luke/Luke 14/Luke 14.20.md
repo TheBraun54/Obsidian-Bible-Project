@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another said, I have married a wife, and therefore I cannot come.
+"Another said, 'I have married a wife, and therefore I can't come.'

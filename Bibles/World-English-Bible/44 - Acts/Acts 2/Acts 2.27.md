@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thou wilt not leave my soul unto Hades, Neither wilt thou give thy Holy One to see corruption.
+because you will not leave my soul in Hades, neither will you allow your Holy One to see decay.

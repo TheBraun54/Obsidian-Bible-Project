@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, at this my heart trembleth, And is moved out of its place.
+"Yes, at this my heart trembles, and is moved out of its place.

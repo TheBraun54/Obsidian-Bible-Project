@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this is a word of promise, According to this season will I come, and Sarah shall have a son.
+For this is a word of promise, "At the appointed time I will come, and Sarah will have a son."

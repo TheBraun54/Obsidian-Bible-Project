@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever shall do the will of God, the same is my brother, and sister, and mother.
+For whoever does the will of God, the same is my brother, and my sister, and mother."

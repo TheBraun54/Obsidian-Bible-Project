@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she could not longer hide him, she took for him an ark of bulrushes, and daubed it with slime and with pitch; and she put the child therein, and laid it in the flags by the river's brink.
+When she could no longer hide him, she took a papyrus basket for him, and coated it with tar and with pitch. She put the child in it, and laid it in the reeds by the river's bank.

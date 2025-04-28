@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Beth-lehem, a hundred twenty and three.
+The children of Bethlehem, one hundred twenty-three.

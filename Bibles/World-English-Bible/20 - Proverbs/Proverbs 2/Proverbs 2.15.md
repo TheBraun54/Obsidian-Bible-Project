@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who are crooked in their ways, And wayward in their paths:
+who are crooked in their ways, and wayward in their paths:

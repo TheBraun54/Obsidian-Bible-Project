@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-now therefore let me alone, that my wrath may wax hot against them, and that I may consume them: and I will make of thee a great nation.
+Now therefore leave me alone, that my wrath may burn hot against them, and that I may consume them; and I will make of you a great nation."

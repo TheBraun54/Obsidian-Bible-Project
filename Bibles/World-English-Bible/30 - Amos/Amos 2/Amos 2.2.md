@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will send a fire upon Moab, and it shall devour the palaces of Kerioth; and Moab shall die with tumult, with shouting, and with the sound of the trumpet;
+but I will send a fire on Moab, and it will devour the palaces of Kerioth; and Moab will die with tumult, with shouting, and with the sound of the trumpet;

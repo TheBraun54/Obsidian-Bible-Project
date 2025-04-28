@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art the glory of their strength; And in thy favor our horn shall be exalted.
+For you are the glory of their strength. In your favor, our horn will be exalted.

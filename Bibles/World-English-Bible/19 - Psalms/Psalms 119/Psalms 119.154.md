@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Plead thou my cause, and redeem me: Quicken me according to thy word.
+Plead my cause, and redeem me! Revive me according to your promise.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Job again took up his parable, and said,
+Job again took up his parable, and said,

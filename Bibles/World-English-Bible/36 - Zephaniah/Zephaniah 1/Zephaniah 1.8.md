@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in the day of Jehovah's sacrifice, that I will punish the princes, and the king's sons, and all such as are clothed with foreign apparel.
+It will happen in the day of Yahweh's sacrifice, that I will punish the princes, the king's sons, and all those who are clothed with foreign clothing.

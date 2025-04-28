@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Esau saw that the daughters of Canaan pleased not Isaac his father;
+Esau saw that the daughters of Canaan didn't please Isaac, his father.

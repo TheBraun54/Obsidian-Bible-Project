@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which some professing have erred concerning the faith. Grace be with you.
+which some professing have erred concerning the faith. Grace be with you. Amen.

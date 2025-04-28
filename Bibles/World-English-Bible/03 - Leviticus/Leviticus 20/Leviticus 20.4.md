@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the people at the land do at all hide their eyes from that man, when he giveth of his seed unto Molech, and put him not to death;
+If the people of the land all hide their eyes from that person, when he gives of his seed to Molech, and don't put him to death;

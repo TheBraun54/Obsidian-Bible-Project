@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he called his name Noah, saying, This same shall comfort us in our work and in the toil of our hands, [which cometh] because of the ground which Jehovah hath cursed.
+and he named him Noah, saying, "This same will comfort us in our work and in the toil of our hands, because of the ground which Yahweh has cursed."

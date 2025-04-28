@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also when a woman voweth a vow unto Jehovah, and bindeth herself by a bond, being in her father's house, in her youth,
+"Also when a woman vows a vow to Yahweh, and binds herself by a bond, being in her father's house, in her youth,

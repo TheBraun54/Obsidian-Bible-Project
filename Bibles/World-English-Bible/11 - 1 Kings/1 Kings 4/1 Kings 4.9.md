@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ben-deker, in Makaz, and in Shaalbim, and Beth-shemesh, and Elon-beth-hanan;
+Ben Deker, in Makaz, and in Shaalbim, and Beth Shemesh, and Elon Beth Hanan;

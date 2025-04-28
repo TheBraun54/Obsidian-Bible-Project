@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called to him one of the servants, and inquired what these things might be.
+He called one of the servants to him, and asked what was going on.

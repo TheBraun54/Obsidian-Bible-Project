@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will bring evil upon thee, and will utterly sweep thee away and will cut off from Ahab every man-child, and him that is shut up and him that is left at large in Israel:
+Behold, I will bring evil on you, and will utterly sweep you away and will cut off from Ahab everyone who urinates against a wall, and him who is shut up and him who is left at large in Israel.

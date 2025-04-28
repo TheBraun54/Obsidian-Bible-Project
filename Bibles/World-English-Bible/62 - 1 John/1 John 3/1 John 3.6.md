@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever abideth in him sinneth not: whosoever sinneth hath not seen him, neither knoweth him.
+Whoever remains in him doesn't sin. Whoever sins hasn't seen him, neither knows him.

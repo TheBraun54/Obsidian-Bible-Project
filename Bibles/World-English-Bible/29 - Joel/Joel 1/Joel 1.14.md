@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sanctify a fast, call a solemn assembly, gather the old men [and] all the inhabitants of the land unto the house of Jehovah your God, and cry unto Jehovah.
+Sanctify a fast. Call a solemn assembly. Gather the elders, and all the inhabitants of the land, to the house of Yahweh, your God, and cry to Yahweh.

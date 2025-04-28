@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that stood by said, Revilest thou God's high priest?
+Those who stood by said, "Do you malign God's high priest?"

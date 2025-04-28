@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And round about the throne [were] four and twenty thrones: and upon the thrones [I saw] four and twenty elders sitting, arrayed in white garments; and on their heads crowns of gold.
+Around the throne were twenty-four thrones. On the thrones were twenty-four elders sitting, dressed in white garments, with crowns of gold on their heads.

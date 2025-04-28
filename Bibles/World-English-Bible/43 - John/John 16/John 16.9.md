@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of sin, because they believe not on me;
+about sin, because they don't believe in me;

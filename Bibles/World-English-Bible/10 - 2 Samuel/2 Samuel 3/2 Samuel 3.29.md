@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let it fall upon the head of Joab, and upon all his father's house; and let there not fail from the house of Joab one that hath an issue, or that is a leper, or that leaneth on a staff, or that falleth by the sword, or that lacketh bread.
+Let it fall on the head of Joab, and on all his father's house. Let there not fail from the house of Joab one who has an issue, or who is a leper, or who leans on a staff, or who falls by the sword, or who lacks bread."

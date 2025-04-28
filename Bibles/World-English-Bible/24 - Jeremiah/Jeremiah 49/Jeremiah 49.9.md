@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If grape-gatherers came to thee, would they not leave some gleaning grapes? if thieves by night, would they not destroy till they had enough?
+If grape gatherers came to you, would they not leave some gleaning grapes? if thieves by night, wouldn't they destroy until they had enough?

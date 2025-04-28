@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will requite the evil unto mine enemies: Destroy thou them in thy truth.
+He will repay the evil to my enemies. Destroy them in your truth.

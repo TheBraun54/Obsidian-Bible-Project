@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the whole body were an eye, where were the hearing? If the whole were hearing, where were the smelling?
+If the whole body were an eye, where would the hearing be? If the whole were hearing, where would the smelling be?

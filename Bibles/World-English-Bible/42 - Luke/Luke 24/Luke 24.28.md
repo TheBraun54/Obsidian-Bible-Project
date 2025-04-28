@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they drew nigh unto the village, whither they were going: and he made as though he would go further.
+They drew near to the village, where they were going, and he acted like he would go further.

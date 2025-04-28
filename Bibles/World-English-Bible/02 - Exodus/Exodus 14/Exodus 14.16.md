@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And lift thou up thy rod, and stretch out thy hand over the sea, and divide it: and the children of Israel shall go into the midst of the sea on dry ground.
+Lift up your rod, and stretch out your hand over the sea, and divide it: and the children of Israel shall go into the midst of the sea on dry ground.

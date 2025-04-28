@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bind them continually upon thy heart; Tie them about thy neck.
+Bind them continually on your heart. Tie them around your neck.

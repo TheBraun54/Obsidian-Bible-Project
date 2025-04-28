@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the princes of the children of Ammon said unto Hanun their lord, Thinkest thou that David doth honor thy father, in that he hath sent comforters unto thee? hath not David sent his servants unto thee to search the city, and to spy it out, and to overthrow it?
+But the princes of the children of Ammon said to Hanun their lord, "Do you think that David honors your father, in that he has sent comforters to you? Hasn't David sent his servants to you to search the city, and to spy it out, and to overthrow it?"

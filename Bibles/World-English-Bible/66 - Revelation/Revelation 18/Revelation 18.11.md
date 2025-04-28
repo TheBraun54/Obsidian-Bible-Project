@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the merchants of the earth weep and mourn over her, for no man buyeth their merchandise any more;
+The merchants of the earth weep and mourn over her, for no one buys their merchandise any more;

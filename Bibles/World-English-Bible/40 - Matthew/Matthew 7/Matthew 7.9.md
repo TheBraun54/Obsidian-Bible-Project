@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or what man is there of you, who, if his son shall ask him for a loaf, will give him a stone;
+Or who is there among you, who, if his son asks him for bread, will give him a stone?

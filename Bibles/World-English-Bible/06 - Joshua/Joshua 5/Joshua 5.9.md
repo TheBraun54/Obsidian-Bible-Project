@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Joshua, This day have I rolled away the reproach of Egypt from off you. Wherefore the name of that place was called Gilgal, unto this day.
+Yahweh said to Joshua, "Today I have rolled away the reproach of Egypt from off you." Therefore the name of that place was called Gilgal, to this day.

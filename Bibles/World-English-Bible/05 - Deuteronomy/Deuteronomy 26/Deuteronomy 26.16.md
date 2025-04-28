@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This day Jehovah thy God commandeth thee to do these statutes and ordinances: thou shalt therefore keep and do them with all thy heart, and with all thy soul.
+This day Yahweh your God commands you to do these statutes and ordinances: you shall therefore keep and do them with all your heart, and with all your soul.

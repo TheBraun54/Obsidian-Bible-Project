@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Far be it from me that I should justify you: Till I die I will not put away mine integrity from me.
+Far be it from me that I should justify you. Until I die I will not put away my integrity from me.

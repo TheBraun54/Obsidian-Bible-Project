@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the tribe of the children of Asher a prince, Ahihud the son of Shelomi.
+Of the tribe of the children of Asher a prince, Ahihud the son of Shelomi.

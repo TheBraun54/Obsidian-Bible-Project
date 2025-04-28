@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but sin, finding occasion, wrought in me through the commandment all manner of coveting: for apart from the law sin [is] dead.
+But sin, finding occasion through the commandment, produced in me all kinds of coveting. For apart from the law, sin is dead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We reckon therefore that a man is justified by faith apart from the works of the law.
+We maintain therefore that a man is justified by faith apart from the works of the law.

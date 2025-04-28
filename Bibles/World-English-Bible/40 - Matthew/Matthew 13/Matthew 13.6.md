@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when the sun was risen, they were scorched; and because they had no root, they withered away.
+When the sun had risen, they were scorched. Because they had no root, they withered away.

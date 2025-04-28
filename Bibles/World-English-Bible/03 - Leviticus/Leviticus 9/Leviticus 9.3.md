@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto the children of Israel thou shalt speak, saying, Take ye a he-goat for a sin-offering; and a calf and a lamb, both a year old, without blemish, for a burnt-offering;
+You shall speak to the children of Israel, saying, 'Take a male goat for a sin offering; and a calf and a lamb, both a year old, without blemish, for a burnt offering;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but every one that eateth it shall bear his iniquity, because he hath profaned the holy thing of Jehovah: and that soul shall be cut off from his people.
+but everyone who eats it shall bear his iniquity, because he has profaned the holy thing of Yahweh, and that soul shall be cut off from his people.

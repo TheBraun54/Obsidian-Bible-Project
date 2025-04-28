@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he of whom these things are said belongeth to another tribe, from which no man hath given attendance at the altar.
+For he of whom these things are said belongs to another tribe, from which no one has officiated at the altar.

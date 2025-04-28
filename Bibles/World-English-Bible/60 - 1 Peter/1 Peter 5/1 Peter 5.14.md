@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute one another with a kiss of love. Peace be unto you all that are in Christ.
+Greet one another with a kiss of love. Peace be to you all who are in Christ Jesus. Amen.

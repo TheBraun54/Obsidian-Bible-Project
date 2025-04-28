@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye free from the love of money; content with such things as ye have: for himself hath said, I will in no wise fail thee, neither will I in any wise forsake thee.
+Be free from the love of money, content with such things as you have, for he has said, "I will in no way leave you, neither will I in any way forsake you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they dreamed a dream both of them, each man his dream, in one night, each man according to the interpretation of his dream, the butler and the baker of the king of Egypt, who were bound in the prison.
+They both dreamed a dream, each man his dream, in one night, each man according to the interpretation of his dream, the cupbearer and the baker of the king of Egypt, who were bound in the prison.

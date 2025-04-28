@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Egypt helpeth in vain, and to no purpose: therefore have I called her Rahab that sitteth still.
+For Egypt helps in vain, and to no purpose; therefore have I called her Rahab who sits still.

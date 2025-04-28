@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to the Gittith. [A Psalm] of Asaph]. Sing aloud unto God our strength: Make a joyful noise unto the God of Jacob.
+Sing aloud to God, our strength! Make a joyful shout to the God of Jacob!

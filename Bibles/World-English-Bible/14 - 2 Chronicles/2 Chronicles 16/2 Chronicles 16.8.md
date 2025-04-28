@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Were not the Ethiopians and the Lubim a huge host, with chariots and horsemen exceeding many? yet, because thou didst rely on Jehovah, he delivered them into thy hand.
+Weren't the Ethiopians and the Lubim a huge army, with chariots and horsemen exceeding many? Yet, because you relied on Yahweh, he delivered them into your hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he smote of the men of Beth-shemesh, because they had looked into the ark of Jehovah, he smote of the people seventy men, [and] fifty thousand men; and the people mourned, because Jehovah had smitten the people with a great slaughter.
+He struck of the men of Beth Shemesh, because they had looked into the ark of Yahweh, he struck of the people fifty thousand seventy men; and the people mourned, because Yahweh had struck the people with a great slaughter.

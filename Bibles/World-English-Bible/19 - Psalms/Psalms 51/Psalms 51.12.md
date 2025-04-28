@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Restore unto me the joy of thy salvation; And uphold me with a willing spirit.
+Restore to me the joy of your salvation. Uphold me with a willing spirit.

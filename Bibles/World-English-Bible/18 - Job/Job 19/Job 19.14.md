@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My kinsfolk have failed, And my familiar friends have forgotten me.
+My relatives have gone away. My familiar friends have forgotten me.

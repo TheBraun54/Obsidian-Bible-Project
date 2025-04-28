@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the sons of Athaliah, that wicked woman, had broken up the house of God; and also all the dedicated things of the house of Jehovah did they bestow upon the Baalim.
+For the sons of Athaliah, that wicked woman, had broken up the house of God; and also all the dedicated things of the house of Yahweh did they bestow on the Baals.

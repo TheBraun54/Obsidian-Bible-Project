@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeroboam ordained a feast in the eighth month, on the fifteenth day of the month, like unto the feast that is in Judah, and he went up unto the altar; so did he in Beth-el, sacrificing unto the calves that he had made: and he placed in Beth-el the priests of the high places that he had made.
+Jeroboam ordained a feast in the eighth month, on the fifteenth day of the month, like the feast that is in Judah, and he went up to the altar; so did he in Bethel, sacrificing to the calves that he had made: and he placed in Bethel the priests of the high places that he had made.

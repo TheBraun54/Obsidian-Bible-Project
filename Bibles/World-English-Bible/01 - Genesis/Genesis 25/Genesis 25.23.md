@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto her, Two nations are in thy womb, And two peoples shall be separated from thy bowels: And the one people shall be stronger than the other people; And the elder shall serve the younger.
+Yahweh said to her, "Two nations are in your womb. Two peoples will be separated from your body. The one people will be stronger than the other people. The elder will serve the younger."

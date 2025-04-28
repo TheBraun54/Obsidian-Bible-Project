@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They come from a far country, from the uttermost part of heaven, even Jehovah, and the weapons of his indignation, to destroy the whole land.
+They come from a far country, from the uttermost part of heaven, even Yahweh, and the weapons of his indignation, to destroy the whole land.

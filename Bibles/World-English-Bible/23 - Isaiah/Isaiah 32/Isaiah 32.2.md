@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a man shall be as a hiding-place from the wind, and a covert from the tempest, as streams of water in a dry place, as the shade of a great rock in a weary land.
+A man shall be as a hiding place from the wind, and a covert from the storm, as streams of water in a dry place, as the shade of a large rock in a weary land.

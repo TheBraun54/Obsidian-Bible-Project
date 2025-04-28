@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word of Jehovah that came to Jeremiah concerning the drought.
+The word of Yahweh that came to Jeremiah concerning the drought.

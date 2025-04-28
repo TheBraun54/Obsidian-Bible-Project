@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy word have I laid up in my heart, That I might not sin against thee.
+I have hidden your word in my heart, that I might not sin against you.

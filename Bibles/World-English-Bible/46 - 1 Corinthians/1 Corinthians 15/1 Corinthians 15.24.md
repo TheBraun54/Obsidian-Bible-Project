@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then [cometh] the end, when he shall deliver up the kingdom to God, even the Father; when he shall have abolished all rule and all authority and power.
+Then the end comes, when he will deliver up the Kingdom to God, even the Father; when he will have abolished all rule and all authority and power.

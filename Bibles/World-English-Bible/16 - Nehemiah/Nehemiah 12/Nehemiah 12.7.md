@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sallu, Amok, Hilkiah, Jedaiah. These were the chiefs of the priests and of their brethren in the days of Jeshua.
+Sallu, Amok, Hilkiah, Jedaiah. These were the chiefs of the priests and of their brothers in the days of Jeshua.

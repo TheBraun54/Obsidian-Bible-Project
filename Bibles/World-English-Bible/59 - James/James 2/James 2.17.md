@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so faith, if it have not works, is dead in itself.
+Even so faith, if it has no works, is dead in itself.

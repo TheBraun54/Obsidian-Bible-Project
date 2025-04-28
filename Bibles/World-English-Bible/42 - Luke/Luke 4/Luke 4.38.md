@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he rose up from the synagogue, and entered into the house of Simon. And Simon's wife's mother was holden with a great fever; and they besought him for her.
+He rose up from the synagogue, and entered into Simon's house. Simon's mother-in-law was afflicted with a great fever, and they begged him for her.

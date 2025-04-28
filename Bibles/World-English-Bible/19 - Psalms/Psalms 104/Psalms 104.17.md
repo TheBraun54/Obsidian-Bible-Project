@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where the birds make their nests: As for the stork, the fir-trees are her house.
+where the birds make their nests. The stork makes its home in the fir trees.

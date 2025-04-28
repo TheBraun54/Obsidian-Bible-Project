@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My little children, of whom I am again in travail until Christ be formed in you--
+My little children, of whom I am again in travail until Christ is formed in you--

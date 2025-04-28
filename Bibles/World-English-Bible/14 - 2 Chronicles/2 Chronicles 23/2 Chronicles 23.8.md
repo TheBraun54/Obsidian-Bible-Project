@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the Levites and all Judah did according to all that Jehoiada the priest commanded: and they took every man his men, those that were to come in on the sabbath; with those that were to go out on the sabbath; for Jehoiada the priest dismissed not the courses.
+So the Levites and all Judah did according to all that Jehoiada the priest commanded: and they took every man his men, those who were to come in on the Sabbath; with those who were to go out on the Sabbath; for Jehoiada the priest didn't dismiss the shift.

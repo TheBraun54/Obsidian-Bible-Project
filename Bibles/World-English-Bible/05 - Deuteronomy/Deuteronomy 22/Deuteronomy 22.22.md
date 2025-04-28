@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man be found lying with a woman married to a husband, then they shall both of them die, the man that lay with the woman, and the woman: so shalt thou put away the evil from Israel.
+If a man be found lying with a woman married to a husband, then they shall both of them die, the man who lay with the woman, and the woman: so you shall put away the evil from Israel.

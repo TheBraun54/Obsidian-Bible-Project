@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-DALETH. My soul cleaveth unto the dust: Quicken thou me according to thy word.
+My soul is laid low in the dust. Revive me according to your word!

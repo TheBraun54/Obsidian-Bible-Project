@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And certain of them that were with us went to the tomb, and found it even so as the women had said: but him they saw not.
+Some of us went to the tomb, and found it just like the women had said, but they didn't see him."

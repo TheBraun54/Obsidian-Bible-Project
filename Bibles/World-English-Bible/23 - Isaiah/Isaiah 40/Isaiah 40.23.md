@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that bringeth princes to nothing; that maketh the judges of the earth as vanity.
+who brings princes to nothing; who makes the judges of the earth like meaningless.

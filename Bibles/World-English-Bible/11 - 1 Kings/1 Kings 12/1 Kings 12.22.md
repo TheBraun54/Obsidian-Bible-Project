@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the word of God came unto Shemaiah the man of God, saying,
+But the word of God came to Shemaiah the man of God, saying,

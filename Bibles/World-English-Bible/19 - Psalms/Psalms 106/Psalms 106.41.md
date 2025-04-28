@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave them into the hand of the nations; And they that hated them ruled over them.
+He gave them into the hand of the nations. Those who hated them ruled over them.

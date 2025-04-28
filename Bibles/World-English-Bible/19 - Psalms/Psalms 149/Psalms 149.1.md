@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah. Sing unto Jehovah a new song, And his praise in the assembly of the saints.
+Praise Yahweh! Sing to Yahweh a new song, his praise in the assembly of the saints.

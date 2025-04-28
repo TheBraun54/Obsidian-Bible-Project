@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass at that day, that I will break the bow of Israel in the valley of Jezreel.
+It will happen in that day that I will break the bow of Israel in the valley of Jezreel."

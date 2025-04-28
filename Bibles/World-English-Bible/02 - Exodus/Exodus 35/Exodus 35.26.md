@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the women whose heart stirred them up in wisdom spun the goats' [hair] .
+All the women whose heart stirred them up in wisdom spun the goats' hair.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who shall not receive manifold more in this time, and in the world to come eternal life.
+who will not receive many times more in this time, and in the world to come, eternal life."

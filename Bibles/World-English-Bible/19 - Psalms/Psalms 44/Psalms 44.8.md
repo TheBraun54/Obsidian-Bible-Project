@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In God have we made our boast all the day long, And we will give thanks unto thy name for ever. {{Selah
+In God we have made our boast all day long, we will give thanks to your name forever. Selah.

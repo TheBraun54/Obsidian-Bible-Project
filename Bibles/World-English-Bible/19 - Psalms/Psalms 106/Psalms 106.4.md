@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember me, O Jehovah, with the favor that thou bearest unto thy people; Oh visit me with thy salvation,
+Remember me, Yahweh, with the favor that you show to your people. Visit me with your salvation,

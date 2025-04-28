@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I were hungry, I would not tell thee; For the world is mine, and the fulness thereof.
+If I were hungry, I would not tell you, for the world is mine, and all that is in it.

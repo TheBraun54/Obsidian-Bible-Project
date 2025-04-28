@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the stars of the twilight thereof be dark: Let it look for light, but have none; Neither let it behold the eyelids of the morning:
+Let the stars of its twilight be dark. Let it look for light, but have none, neither let it see the eyelids of the morning,

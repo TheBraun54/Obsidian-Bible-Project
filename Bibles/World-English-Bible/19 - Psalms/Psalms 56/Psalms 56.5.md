@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the day long they wrest my words: All their thoughts are against me for evil.
+All day long they twist my words. All their thoughts are against me for evil.

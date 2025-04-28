@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she was baptized, and her household, she besought us, saying, If ye have judged me to be faithful to the Lord, come into my house, and abide [there] . And she constrained us.
+When she and her household were baptized, she begged us, saying, "If you have judged me to be faithful to the Lord, come into my house, and stay." So she persuaded us.

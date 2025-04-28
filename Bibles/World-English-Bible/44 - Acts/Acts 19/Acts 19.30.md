@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Paul was minded to enter in unto the people, the disciples suffered him not.
+When Paul wanted to enter in to the people, the disciples didn't allow him.

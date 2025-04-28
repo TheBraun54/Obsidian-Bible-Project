@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have received [commandment] to bless: And he hath blessed, and I cannot reverse it.
+Behold, I have received a command to bless. He has blessed, and I can't reverse it.

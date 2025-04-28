@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the light of the moon shall be as the light of the sun, and the light of the sun shall be sevenfold, as the light of seven days, in the day that Jehovah bindeth up the hurt of his people, and healeth the stroke of their wound.
+Moreover the light of the moon will be like the light of the sun, and the light of the sun will be seven times brighter, like the light of seven days, in the day that Yahweh binds up the fracture of his people, and heals the wound they were struck with.

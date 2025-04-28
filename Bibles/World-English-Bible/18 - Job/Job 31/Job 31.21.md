@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have lifted up my hand against the fatherless, Because I saw my help in the gate:
+if I have lifted up my hand against the fatherless, because I saw my help in the gate,

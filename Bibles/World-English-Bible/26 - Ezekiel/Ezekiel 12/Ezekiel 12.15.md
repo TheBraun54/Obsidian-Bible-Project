@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall know that I am Jehovah, when I shall disperse them among the nations, and scatter them through the countries.
+They shall know that I am Yahweh, when I shall disperse them among the nations, and scatter them through the countries.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Call together the archers against Babylon, all them that bend the bow; encamp against her round about; let none thereof escape: recompense her according to her work; according to all that she hath done, do unto her; for she hath been proud against Jehovah, against the Holy One of Israel.
+Call together the archers against Babylon, all those who bend the bow; encamp against her all around; let none of it escape: recompense her according to her work; according to all that she has done, do to her; for she has been proud against Yahweh, against the Holy One of Israel.

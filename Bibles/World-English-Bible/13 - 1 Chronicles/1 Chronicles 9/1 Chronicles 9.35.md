@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in Gibeon there dwelt the father of Gibeon, Jeiel, whose wife's name was Maacah:
+In Gibeon there lived the father of Gibeon, Jeiel, whose wife's name was Maacah:

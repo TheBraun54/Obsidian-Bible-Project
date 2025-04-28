@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who only hath immortality, dwelling in light unapproachable; whom no man hath seen, nor can see: to whom [be] honor and power eternal. Amen.
+who alone has immortality, dwelling in unapproachable light; whom no man has seen, nor can see: to whom be honor and eternal power. Amen.

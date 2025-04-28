@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Israel was a child, then I loved him, and called my son out of Egypt.
+"When Israel was a child, then I loved him, and called my son out of Egypt.

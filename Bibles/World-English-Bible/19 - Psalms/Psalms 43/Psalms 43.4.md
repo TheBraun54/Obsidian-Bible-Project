@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will I go unto the altar of God, Unto God my exceeding joy; And upon the harp will I praise thee, O God, my God.
+Then I will go to the altar of God, to God, my exceeding joy. I will praise you on the harp, God, my God.

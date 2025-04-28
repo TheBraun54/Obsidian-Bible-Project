@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they dwelt in Gilead in Bashan, and in its towns, and in all the suburbs of Sharon, as far as their borders.
+They lived in Gilead in Bashan, and in its towns, and in all the suburbs of Sharon, as far as their borders.

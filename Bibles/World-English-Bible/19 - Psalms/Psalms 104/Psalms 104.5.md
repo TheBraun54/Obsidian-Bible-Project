@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who laid the foundations of the earth, That it should not be moved for ever.
+He laid the foundations of the earth, that it should not be moved forever.

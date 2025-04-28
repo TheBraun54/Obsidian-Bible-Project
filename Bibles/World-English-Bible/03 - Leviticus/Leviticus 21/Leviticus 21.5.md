@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall not make baldness upon their head, neither shall they shave off the corner of their beard, nor make any cuttings in their flesh.
+"'They shall not shave their heads, neither shall they shave off the corners of their beards, nor make any cuttings in their flesh.

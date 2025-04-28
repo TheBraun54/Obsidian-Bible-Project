@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the nations shall fear the name of Jehovah, And all the kings of the earth thy glory.
+So the nations will fear the name of Yahweh; all the kings of the earth your glory.

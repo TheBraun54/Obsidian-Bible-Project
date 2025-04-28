@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seeing a fig tree by the way side, he came to it, and found nothing thereon, but leaves only; and he saith unto it, Let there be no fruit from thee henceforward for ever. And immediately the fig tree withered away.
+Seeing a fig tree by the road, he came to it, and found nothing on it but leaves. He said to it, "Let there be no fruit from you forever!" Immediately the fig tree withered away.

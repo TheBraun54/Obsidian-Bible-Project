@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Martha was cumbered about much serving; and she came up to him, and said, Lord, dost thou not care that my sister did leave me to serve alone? bid her therefore that she help me.
+But Martha was distracted with much serving, and she came up to him, and said, "Lord, don't you care that my sister left me to serve alone? Ask her therefore to help me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and did eat and drink before Jehovah on that day with great gladness. And they made Solomon the son of David king the second time, and anointed him unto Jehovah to be prince, and Zadok to be priest.
+and ate and drink before Yahweh on that day with great gladness. They made Solomon the son of David king the second time, and anointed him to Yahweh to be prince, and Zadok to be priest.

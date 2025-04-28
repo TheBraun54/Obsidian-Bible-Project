@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cast thee forth into the wilderness, thee and all the fish of thy rivers: thou shalt fall upon the open field; thou shalt not be brought together, nor gathered; I have given thee for food to the beasts of the earth and to the birds of the heavens.
+I'll cast you forth into the wilderness, you and all the fish of your rivers. You'll fall on the open field. You won't be brought together, nor gathered. I have given you for food to the animals of the earth and to the birds of the sky.

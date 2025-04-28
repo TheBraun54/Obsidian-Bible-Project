@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he shall be delivered up unto the Gentiles, and shall be mocked, and shamefully treated, and spit upon:
+For he will be delivered up to the Gentiles, will be mocked, treated shamefully, and spit on.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Ye are from beneath; I am from above: ye are of this world; I am not of this world.
+He said to them, "You are from beneath. I am from above. You are of this world. I am not of this world.

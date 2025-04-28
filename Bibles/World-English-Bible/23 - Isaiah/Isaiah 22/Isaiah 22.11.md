@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye made also a reservoir between the two walls for the water of the old pool. But ye looked not unto him that had done this, neither had ye respect unto him that purposed it long ago.
+You also made a reservoir between the two walls for the water of the old pool. But you didn't look to him who had done this, neither did you have respect for him who purposed it long ago.

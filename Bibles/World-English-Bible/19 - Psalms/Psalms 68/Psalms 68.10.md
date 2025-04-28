@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy congregation dwelt therein: Thou, O God, didst prepare of thy goodness for the poor.
+Your congregation lived therein. You, God, prepared your goodness for the poor.

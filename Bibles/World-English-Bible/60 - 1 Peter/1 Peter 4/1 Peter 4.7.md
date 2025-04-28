@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the end of all things is at hand: be ye therefore of sound mind, and be sober unto prayer:
+But the end of all things is near. Therefore be of sound mind, self-controlled, and sober in prayer.

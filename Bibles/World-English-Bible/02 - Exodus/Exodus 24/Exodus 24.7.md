@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took the book of the covenant, and read in the audience of the people: and they said, All that Jehovah hath spoken will we do, and be obedient.
+He took the book of the covenant and read it in the hearing of the people, and they said, "All that Yahweh has spoken will we do, and be obedient."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye therefore the word of Jehovah, all ye of the captivity, whom I have sent away from Jerusalem to Babylon.
+Hear therefore the word of Yahweh, all you of the captivity, whom I have sent away from Jerusalem to Babylon.

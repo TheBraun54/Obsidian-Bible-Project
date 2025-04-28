@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the living Father sent me, and I live because of the Father; so he that eateth me, he also shall live because of me.
+As the living Father sent me, and I live because of the Father; so he who feeds on me, he will also live because of me.

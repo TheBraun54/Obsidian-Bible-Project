@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the bread which came down out of heaven: not as the fathers ate, and died; he that eateth this bread shall live for ever.
+This is the bread which came down out of heaven--not as our fathers ate the manna, and died. He who eats this bread will live forever."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph came in unto them in the morning, and saw them, and, behold, they were sad.
+Joseph came in to them in the morning, and saw them, and saw that they were sad.

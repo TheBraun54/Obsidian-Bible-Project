@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With trumpets and sound of cornet Make a joyful noise before the King, Jehovah.
+With trumpets and sound of the ram's horn, make a joyful noise before the King, Yahweh.

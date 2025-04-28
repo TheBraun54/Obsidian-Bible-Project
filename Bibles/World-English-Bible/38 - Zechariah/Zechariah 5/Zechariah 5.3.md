@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, This is the curse that goeth forth over the face of the whole land: for every one that stealeth shall be cut off on the one side according to it; and every one that sweareth shall be cut off on the other side according to it.
+Then he said to me, "This is the curse that goes out over the surface of the whole land; for everyone who steals shall be cut off according to it on the one side; and everyone who swears falsely shall be cut off according to it on the other side.

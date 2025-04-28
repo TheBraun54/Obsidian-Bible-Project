@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they reviled him, and said, Thou art his disciple; but we are disciples of Moses.
+They insulted him and said, "You are his disciple, but we are disciples of Moses.

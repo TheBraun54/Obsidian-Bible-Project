@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the righteous are increased, the people rejoice; But when a wicked man beareth rule, the people sigh.
+When the righteous thrive, the people rejoice; but when the wicked rule, the people groan.

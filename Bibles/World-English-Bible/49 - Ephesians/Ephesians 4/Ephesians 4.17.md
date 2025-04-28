@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This I say therefore, and testify in the Lord, that ye no longer walk as the Gentiles also walk, in the vanity of their mind,
+This I say therefore, and testify in the Lord, that you no longer walk as the rest of the Gentiles also walk, in the futility of their mind,

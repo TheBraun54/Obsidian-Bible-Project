@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Moses saw it, he wondered at the sight: and as he drew near to behold, there came a voice of the Lord,
+When Moses saw it, he wondered at the sight. As he came close to see, a voice of the Lord came to him,

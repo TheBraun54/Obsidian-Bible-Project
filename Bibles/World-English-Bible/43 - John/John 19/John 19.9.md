@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he entered into the Praetorium again, and saith unto Jesus, Whence art thou? But Jesus gave him no answer.
+He entered into the Praetorium again, and said to Jesus, "Where are you from?" But Jesus gave him no answer.

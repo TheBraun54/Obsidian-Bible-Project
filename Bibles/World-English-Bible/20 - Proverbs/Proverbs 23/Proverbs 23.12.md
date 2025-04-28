@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Apply thy heart unto instruction, And thine ears to the words of knowledge.
+Apply your heart to instruction, and your ears to the words of knowledge.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of Manasseh; and they that were numbered of them were fifty and two thousand and seven hundred.
+These are the families of Manasseh; and those who were numbered of them were fifty-two thousand seven hundred.

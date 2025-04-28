@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When God arose to judgment, To save all the meek of the earth. {{Selah
+when God arose to judgment, to save all the afflicted ones of the earth. Selah.

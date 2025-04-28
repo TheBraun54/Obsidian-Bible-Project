@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said furthermore unto him, Put now thy hand into thy bosom. And he put his hand into his bosom: and when he took it out, behold, his hand was leprous, as [white as] snow.
+Yahweh said furthermore to him, "Now put your hand inside your cloak." He put his hand inside his cloak, and when he took it out, behold, his hand was leprous, as white as snow.

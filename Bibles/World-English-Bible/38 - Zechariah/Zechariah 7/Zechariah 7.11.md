@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they refused to hearken, and pulled away the shoulder, and stopped their ears, that they might not hear.
+But they refused to listen, and turned their backs, and stopped their ears, that they might not hear.

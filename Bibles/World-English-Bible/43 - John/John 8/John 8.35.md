@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the bondservant abideth not in the house for ever: the son abideth for ever.
+A bondservant doesn't live in the house forever. A son remains forever.

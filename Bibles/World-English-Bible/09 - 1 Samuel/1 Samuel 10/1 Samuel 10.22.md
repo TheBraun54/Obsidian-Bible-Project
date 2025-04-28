@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore they asked of Jehovah further, Is there yet a man to come hither? And Jehovah answered, Behold, he hath hid himself among the baggage.
+Therefore they asked of Yahweh further, "Is there yet a man to come here?" Yahweh answered, "Behold, he has hidden himself among the baggage."

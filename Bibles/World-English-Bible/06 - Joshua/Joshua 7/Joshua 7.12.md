@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the children of Israel cannot stand before their enemies; they turn their backs before their enemies, because they are become accursed: I will not be with you any more, except ye destroy the devoted thing from among you.
+Therefore the children of Israel can't stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I will not be with you any more, unless you destroy the devoted things from among you.

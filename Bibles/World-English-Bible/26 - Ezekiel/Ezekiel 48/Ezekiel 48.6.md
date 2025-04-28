@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Ephraim, from the east side even unto the west side, Reuben, one [portion] .
+By the border of Ephraim, from the east side even to the west side, Reuben, one [portion].

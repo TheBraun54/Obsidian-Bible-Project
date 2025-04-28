@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel gave by lot unto the Levites these cities with their suburbs, as Jehovah commanded by Moses.
+The children of Israel gave these cities with their suburbs by lot to the Levites, as Yahweh commanded by Moses.

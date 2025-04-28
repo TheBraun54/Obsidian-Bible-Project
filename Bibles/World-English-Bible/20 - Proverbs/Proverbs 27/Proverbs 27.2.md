@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let another man praise thee, and not thine own mouth; A stranger, and not thine own lips.
+Let another man praise you, and not your own mouth; a stranger, and not your own lips.

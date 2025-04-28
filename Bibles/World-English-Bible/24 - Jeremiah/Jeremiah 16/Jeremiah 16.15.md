@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but, As Jehovah liveth, that brought up the children of Israel from the land of the north, and from all the countries whither he had driven them. And I will bring them again into their land that I gave unto their fathers.
+but, As Yahweh lives, who brought up the children of Israel from the land of the north, and from all the countries where he had driven them. I will bring them again into their land that I gave to their fathers.

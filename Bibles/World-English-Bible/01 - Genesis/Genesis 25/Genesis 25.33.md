@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob said, Swear to me first; and he sware unto him: and he sold his birthright unto Jacob.
+Jacob said, "Swear to me first." He swore to him. He sold his birthright to Jacob.

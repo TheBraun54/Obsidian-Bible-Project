@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Having many things to write unto you, I would not [write them] with paper and ink: but I hope to come unto you, and to speak face to face, that your joy may be made full.
+Having many things to write to you, I don't want to do so with paper and ink, but I hope to come to you, and to speak face to face, that our joy may be made full.

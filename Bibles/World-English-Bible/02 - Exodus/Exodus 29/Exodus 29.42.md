@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall be a continual burnt-offering throughout your generations at the door of the tent of meeting before Jehovah, where I will meet with you, to speak there unto thee.
+It shall be a continual burnt offering throughout your generations at the door of the Tent of Meeting before Yahweh, where I will meet with you, to speak there to you.

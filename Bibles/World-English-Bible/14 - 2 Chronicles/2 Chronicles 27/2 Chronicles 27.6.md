@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jotham became mighty, because he ordered his ways before Jehovah his God.
+So Jotham became mighty, because he ordered his ways before Yahweh his God.

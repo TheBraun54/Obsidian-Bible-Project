@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things have I spoken unto you, that my joy may be in you, and [that] your joy may be made full.
+I have spoken these things to you, that my joy may remain in you, and that your joy may be made full.

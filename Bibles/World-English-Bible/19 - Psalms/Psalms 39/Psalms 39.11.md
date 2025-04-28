@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou with rebukes dost correct man for iniquity, Thou makest his beauty to consume away like a moth: Surely every man is vanity. {{Selah
+When you rebuke and correct man for iniquity, You consume his wealth like a moth. Surely every man is but a breath." Selah.

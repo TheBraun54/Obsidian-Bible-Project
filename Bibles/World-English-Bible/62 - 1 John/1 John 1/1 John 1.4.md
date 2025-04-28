@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and these things we write, that our joy may be made full.
+And we write these things to you, that our joy may be fulfilled.

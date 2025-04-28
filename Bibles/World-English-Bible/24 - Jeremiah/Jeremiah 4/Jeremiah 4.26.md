@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beheld, and, lo, the fruitful field was a wilderness, and all the cities thereof were broken down at the presence of Jehovah, [and] before his fierce anger.
+I saw, and behold, the fruitful field was a wilderness, and all its cities were broken down at the presence of Yahweh, [and] before his fierce anger.

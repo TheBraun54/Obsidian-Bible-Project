@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked earneth deceitful wages; But he that soweth righteousness [hath] a sure reward.
+Wicked people earn deceitful wages, but one who sows righteousness reaps a sure reward.

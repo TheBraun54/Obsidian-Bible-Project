@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast made the land to tremble; thou hast rent it: Heal the breaches thereof; for it shaketh.
+You have made the land tremble. You have torn it. Mend its fractures, for it quakes.

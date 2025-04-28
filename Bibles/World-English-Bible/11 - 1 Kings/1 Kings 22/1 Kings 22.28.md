@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Micaiah said, If thou return at all in peace, Jehovah hath not spoken by me. And he said, Hear, ye peoples, all of you.
+Micaiah said, "If you return at all in peace, Yahweh has not spoken by me." He said, "Listen, all you people!"

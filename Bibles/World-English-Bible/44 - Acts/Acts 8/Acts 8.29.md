@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit said unto Philip, Go near, and join thyself to this chariot.
+The Spirit said to Philip, "Go near, and join yourself to this chariot."

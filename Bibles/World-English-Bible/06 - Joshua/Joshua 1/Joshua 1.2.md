@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moses my servant is dead; now therefore arise, go over this Jordan, thou, and all this people, unto the land which I do give to them, even to the children of Israel.
+"Moses my servant is dead; now therefore arise, go over this Jordan, you, and all this people, to the land which I give to them, even to the children of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hand of the witnesses shall be first upon him to put him to death, and afterward the hand of all the people. So thou shalt put away the evil from the midst of thee.
+The hand of the witnesses shall be first on him to put him to death, and afterward the hand of all the people. So you shall put away the evil from the midst of you.

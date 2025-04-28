@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we are bound to give thanks to God always for you, brethren beloved of the Lord, for that God chose you from the beginning unto salvation in sanctification of the Spirit and belief of the truth:
+But we are bound to always give thanks to God for you, brothers loved by the Lord, because God chose you from the beginning for salvation through sanctification of the Spirit and belief in the truth;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O house of Levi, bless ye Jehovah: Ye that fear Jehovah, bless ye Jehovah.
+House of Levi, praise Yahweh! You who fear Yahweh, praise Yahweh!

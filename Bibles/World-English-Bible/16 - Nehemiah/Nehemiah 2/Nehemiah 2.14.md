@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I went on to the fountain gate and to the king's pool: but there was no place for the beast that was under me to pass.
+Then I went on to the spring gate and to the king's pool: but there was no place for the animal that was under me to pass.

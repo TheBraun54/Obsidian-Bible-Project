@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now shall my head be lifted up above mine enemies round about me. And I will offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto Jehovah.
+Now my head will be lifted up above my enemies around me. I will offer sacrifices of joy in his tent. I will sing, yes, I will sing praises to Yahweh.

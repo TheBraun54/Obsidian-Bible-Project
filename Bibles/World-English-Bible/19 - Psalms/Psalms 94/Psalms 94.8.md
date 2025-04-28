@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider, ye brutish among the people; And ye fools, when will ye be wise?
+Consider, you senseless among the people; you fools, when will you be wise?

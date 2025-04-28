@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the scriptures shut up all things under sin, that the promise by faith in Jesus Christ might be given to them that believe.
+But the Scriptures imprisoned all things under sin, that the promise by faith in Jesus Christ might be given to those who believe.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, if thou art become surety for thy neighbor, If thou hast stricken thy hands for a stranger;
+My son, if you have become collateral for your neighbor, if you have struck your hands in pledge for a stranger;

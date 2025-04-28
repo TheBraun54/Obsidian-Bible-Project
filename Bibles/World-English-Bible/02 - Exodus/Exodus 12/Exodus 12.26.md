@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when your children shall say unto you, What mean ye by this service?
+It will happen, when your children ask you, 'What do you mean by this service?'

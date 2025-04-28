@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Delicate living is not seemly for a fool; Much less for a servant to have rule over princes.
+Delicate living is not appropriate for a fool, much less for a servant to have rule over princes.

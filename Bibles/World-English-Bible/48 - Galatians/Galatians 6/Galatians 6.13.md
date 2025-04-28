@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For not even they who receive circumcision do themselves keep the law; but they desire to have you circumcised, that they may glory in your flesh.
+For even they who receive circumcision don't keep the law themselves, but they desire to have you circumcised, that they may boast in your flesh.

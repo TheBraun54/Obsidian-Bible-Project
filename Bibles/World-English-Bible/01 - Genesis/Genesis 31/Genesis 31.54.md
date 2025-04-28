@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob offered a sacrifice in the mountain, and called his brethren to eat bread: and they did eat bread, and tarried all night in the mountain.
+Jacob offered a sacrifice in the mountain, and called his relatives to eat bread. They ate bread, and stayed all night in the mountain.

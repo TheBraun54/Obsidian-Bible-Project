@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The other disciples therefore said unto him, We have seen the Lord. But he said unto them, Except I shall see in his hands the print of the nails, and put my hand into his side, I will not believe.
+The other disciples therefore said to him, "We have seen the Lord!" But he said to them, "Unless I see in his hands the print of the nails, and put my hand into his side, I will not believe."

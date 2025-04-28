@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Korah, Hear now, ye sons of Levi:
+Moses said to Korah, "Hear now, you sons of Levi!

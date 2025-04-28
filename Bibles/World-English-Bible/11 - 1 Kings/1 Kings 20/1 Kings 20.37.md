@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he found another man, and said, Smite me, I pray thee. And the man smote him, smiting and wounding him.
+Then he found another man, and said, "Please strike me." The man struck him, smiting and wounding him.

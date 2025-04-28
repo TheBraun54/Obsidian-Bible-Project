@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as unknown, and [yet] well known; as dying, and behold, we live; as chastened, and not killed;
+as unknown, and yet well known; as dying, and behold, we live; as punished, and not killed;

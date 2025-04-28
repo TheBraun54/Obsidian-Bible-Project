@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tree of the field shall yield its fruit, and the earth shall yield its increase, and they shall be secure in their land; and they shall know that I am Jehovah, when I have broken the bars of their yoke, and have delivered them out of the hand of those that made bondmen of them.
+The tree of the field shall yield its fruit, and the earth shall yield its increase, and they shall be secure in their land; and they shall know that I am Yahweh, when I have broken the bars of their yoke, and have delivered them out of the hand of those who made slaves of them.

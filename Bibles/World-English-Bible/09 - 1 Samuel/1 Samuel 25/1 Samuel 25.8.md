@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ask thy young men, and they will tell thee: wherefore let the young men find favor in thine eyes; for we come in a good day: give, I pray thee, whatsoever cometh to thy hand, unto thy servants, and to thy son David.
+Ask your young men, and they will tell you. Therefore, let the young men find favor in your eyes; for we come in a good day. Please give whatever comes to your hand, to your servants, and to your son David.'"

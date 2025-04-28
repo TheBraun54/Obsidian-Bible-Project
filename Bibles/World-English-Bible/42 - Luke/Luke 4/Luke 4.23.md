@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Doubtless ye will say unto me this parable, Physician, heal thyself: whatsoever we have heard done at Capernaum, do also here in thine own country.
+He said to them, "Doubtless you will tell me this parable, 'Physician, heal yourself! Whatever we have heard done at Capernaum, do also here in your hometown.'"

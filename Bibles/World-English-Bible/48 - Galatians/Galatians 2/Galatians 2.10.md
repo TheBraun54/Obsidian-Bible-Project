@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-only [they would] that we should remember the poor; which very thing I was also zealous to do.
+They only asked us to remember the poor--which very thing I was also zealous to do.

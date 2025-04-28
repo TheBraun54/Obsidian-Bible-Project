@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that drink wine in bowls, and anoint themselves with the chief oils; but they are not grieved for the affliction of Joseph.
+who drink wine in bowls, and anoint themselves with the best oils; but they are not grieved for the affliction of Joseph.

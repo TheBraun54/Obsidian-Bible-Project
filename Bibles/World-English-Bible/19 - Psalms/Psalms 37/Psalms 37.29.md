@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous shall inherit the land, And dwell therein for ever.
+The righteous shall inherit the land, and live in it forever.

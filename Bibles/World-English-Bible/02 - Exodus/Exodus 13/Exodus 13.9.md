@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be for a sign unto thee upon thy hand, and for a memorial between thine eyes, that the law of Jehovah may be in thy mouth: for with a strong hand hath Jehovah brought thee out of Egypt.
+It shall be for a sign to you on your hand, and for a memorial between your eyes, that the law of Yahweh may be in your mouth; for with a strong hand Yahweh has brought you out of Egypt.

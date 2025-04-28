@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt anoint them, as thou didst anoint their father, that they may minister unto me in the priest's office: and their anointing shall be to them for an everlasting priesthood throughout their generations.
+You shall anoint them, as you anointed their father, that they may minister to me in the priest's office. Their anointing shall be to them for an everlasting priesthood throughout their generations."

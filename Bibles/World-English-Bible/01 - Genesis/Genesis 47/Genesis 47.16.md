@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said, Give your cattle; and I will give you for your cattle, if money fail.
+Joseph said, "Give me your livestock; and I will give you food for your livestock, if your money is gone."

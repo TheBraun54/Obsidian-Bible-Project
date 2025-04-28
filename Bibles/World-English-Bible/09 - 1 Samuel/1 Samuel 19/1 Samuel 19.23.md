@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went thither to Naioth in Ramah: and the Spirit of God came upon him also, and he went on, and prophesied, until he came to Naioth in Ramah.
+He went there to Naioth in Ramah. Then the Spirit of God came on him also, and he went on, and prophesied, until he came to Naioth in Ramah.

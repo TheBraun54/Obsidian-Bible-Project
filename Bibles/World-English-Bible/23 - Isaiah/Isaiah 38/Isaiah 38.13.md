@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I quieted [myself] until morning; as a lion, so he breaketh all my bones: From day even to night wilt thou make an end of me.
+I waited patiently until morning. He breaks all my bones like a lion. From day even to night you will make an end of me.

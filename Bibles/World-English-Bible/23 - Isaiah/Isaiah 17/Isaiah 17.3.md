@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fortress shall cease from Ephraim, and the kingdom from Damascus, and the remnant of Syria; they shall be as the glory of the children of Israel, saith Jehovah of hosts.
+The fortress shall cease from Ephraim, and the kingdom from Damascus, and the remnant of Syria. They will be as the glory of the children of Israel," says Yahweh of Armies.

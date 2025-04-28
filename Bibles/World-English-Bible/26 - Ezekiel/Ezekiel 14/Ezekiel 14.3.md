@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, these men have taken their idols into their heart, and put the stumblingblock of their iniquity before their face: should I be inquired of at all by them?
+Son of man, these men have taken their idols into their heart, and put the stumbling block of their iniquity before their face: should I be inquired of at all by them?

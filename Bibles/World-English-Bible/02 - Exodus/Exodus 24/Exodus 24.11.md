@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon the nobles of the children of Israel he laid not his hand: and they beheld God, and did eat and drink.
+He didn't lay his hand on the nobles of the children of Israel. They saw God, and ate and drank.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The baptism of John, was it from heaven, or from men? answer me.
+The baptism of John--was it from heaven, or from men? Answer me."

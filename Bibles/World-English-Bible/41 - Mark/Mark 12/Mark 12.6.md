@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He had yet one, a beloved son: he sent him last unto them, saying, They will reverence my son.
+Therefore still having one, his beloved son, he sent him last to them, saying, 'They will respect my son.'

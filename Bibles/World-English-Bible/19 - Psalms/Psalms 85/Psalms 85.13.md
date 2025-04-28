@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Righteousness shall go before him, And shall make his footsteps a way [to walk in] .
+Righteousness goes before him, And prepares the way for his steps. A Prayer by David.

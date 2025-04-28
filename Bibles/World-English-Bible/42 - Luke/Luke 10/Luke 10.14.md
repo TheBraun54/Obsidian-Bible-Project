@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it shall be more tolerable for Tyre and Sidon in the judgment, than for you.
+But it will be more tolerable for Tyre and Sidon in the judgment than for you.

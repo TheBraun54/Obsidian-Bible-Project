@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel and the Philistines put the battle in array, army against army.
+Israel and the Philistines put the battle in array, army against army.

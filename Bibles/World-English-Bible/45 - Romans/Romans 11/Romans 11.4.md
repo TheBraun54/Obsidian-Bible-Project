@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But what saith the answer of God unto him? I have left for myself seven thousand men, who have not bowed the knee to Baal.
+But how does God answer him? "I have reserved for myself seven thousand men, who have not bowed the knee to Baal."

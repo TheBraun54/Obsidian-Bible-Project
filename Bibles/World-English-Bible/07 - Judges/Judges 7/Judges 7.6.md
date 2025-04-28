@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the number of them that lapped, putting their hand to their mouth, was three hundred men: but all the rest of the people bowed down upon their knees to drink water.
+The number of those who lapped, putting their hand to their mouth, was three hundred men; but all the rest of the people bowed down on their knees to drink water.

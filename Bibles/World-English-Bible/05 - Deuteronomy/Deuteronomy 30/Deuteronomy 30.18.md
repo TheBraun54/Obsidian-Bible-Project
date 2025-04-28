@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I denounce unto you this day, that ye shall surely perish; ye shall not prolong your days in the land, whither thou passest over the Jordan to go in to possess it.
+I denounce to you this day, that you shall surely perish; you shall not prolong your days in the land, where you pass over the Jordan to go in to possess it.

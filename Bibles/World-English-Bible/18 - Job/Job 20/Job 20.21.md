@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was nothing left that he devoured not; Therefore his prosperity shall not endure.
+There was nothing left that he didn't devour, therefore his prosperity shall not endure.

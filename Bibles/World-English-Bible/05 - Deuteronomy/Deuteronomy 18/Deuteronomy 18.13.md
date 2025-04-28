@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt be perfect with Jehovah thy God.
+You shall be perfect with Yahweh your God.

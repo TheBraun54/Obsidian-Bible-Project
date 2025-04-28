@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah to me: Make thee bonds and bars, and put them upon thy neck;
+Thus says Yahweh to me: Make bonds and bars, and put them on your neck;

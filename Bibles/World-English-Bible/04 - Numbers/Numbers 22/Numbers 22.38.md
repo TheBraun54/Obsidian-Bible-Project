@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam said unto Balak, Lo, I am come unto thee: have I now any power at all to speak anything? the word that God putteth in my mouth, that shall I speak.
+Balaam said to Balak, "Behold, I have come to you: have I now any power at all to speak anything? The word that God puts in my mouth, that shall I speak."

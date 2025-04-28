@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall therefore make a distinction between the clean beast and the unclean, and between the unclean fowl and the clean: and ye shall not make your souls abominable by beast, or by bird, or by anything wherewith the ground teemeth, which I have separated from you as unclean.
+"'You shall therefore make a distinction between the clean animal and the unclean, and between the unclean fowl and the clean: and you shall not make yourselves abominable by animal, or by bird, or by anything with which the ground teems, which I have separated from you as unclean for you.

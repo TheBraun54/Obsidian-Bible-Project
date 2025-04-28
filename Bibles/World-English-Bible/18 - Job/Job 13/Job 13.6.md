@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear now my reasoning, And hearken to the pleadings of my lips.
+Hear now my reasoning. Listen to the pleadings of my lips.

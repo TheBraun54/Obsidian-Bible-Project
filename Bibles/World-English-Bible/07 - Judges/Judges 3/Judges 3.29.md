@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they smote of Moab at that time about ten thousand men, every lusty man, and every man of valor; and there escaped not a man.
+They struck of Moab at that time about ten thousand men, every lusty man, and every man of valor; and there escaped not a man.

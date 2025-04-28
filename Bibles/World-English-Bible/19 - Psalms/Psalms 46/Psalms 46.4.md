@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a river, the streams whereof make glad the city of God, The holy place of the tabernacles of the Most High.
+There is a river, the streams of which make the city of God glad, the holy place of the tents of the Most High.

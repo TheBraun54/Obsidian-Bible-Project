@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that men shall say, Verily there is a reward for the righteous: Verily there is a God that judgeth in the earth.
+so that men shall say, "Most certainly there is a reward for the righteous. Most certainly there is a God who judges the earth." For the Chief Musician. To the tune of "Do Not Destroy." A poem by David, when Saul sent, and they watched the house to kill him.

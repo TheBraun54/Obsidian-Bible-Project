@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hezekiah began to reign when he was five and twenty years old; and he reigned nine and twenty years in Jerusalem: and his mother's name was Abijah, the daughter of Zechariah.
+Hezekiah began to reign when he was twenty-five years old; and he reigned twenty-nine years in Jerusalem: and his mother's name was Abijah, the daughter of Zechariah.

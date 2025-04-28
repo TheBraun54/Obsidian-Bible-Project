@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A false witness shall perish; But the man that heareth shall speak so as to endure.
+A false witness will perish, and a man who listens speaks to eternity.

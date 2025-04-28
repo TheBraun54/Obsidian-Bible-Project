@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, and for this very cause adding on your part all diligence, in your faith supply virtue; and in [your] virtue knowledge;
+Yes, and for this very cause adding on your part all diligence, in your faith supply moral excellence; and in moral excellence, knowledge;

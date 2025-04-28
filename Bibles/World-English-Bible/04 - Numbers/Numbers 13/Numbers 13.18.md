@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and see the land, what it is; and the people that dwell therein, whether they are strong or weak, whether they are few or many;
+and see the land, what it is; and the people who dwell therein, whether they are strong or weak, whether they are few or many;

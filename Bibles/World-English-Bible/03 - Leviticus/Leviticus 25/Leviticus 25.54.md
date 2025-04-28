@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he be not redeemed by these [means], then he shall go out in the year of jubilee, he, and his children with him.
+If he isn't redeemed by these means, then he shall be released in the Year of Jubilee, he, and his children with him.

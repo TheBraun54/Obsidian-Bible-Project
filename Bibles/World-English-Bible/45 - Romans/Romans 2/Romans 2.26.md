@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If therefore the uncircumcision keep the ordinances of the law, shall not his uncircumcision be reckoned for circumcision?
+If therefore the uncircumcised keep the ordinances of the law, won't his uncircumcision be accounted as circumcision?

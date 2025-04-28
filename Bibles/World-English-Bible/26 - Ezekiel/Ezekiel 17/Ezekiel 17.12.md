@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say now to the rebellious house, Know ye not what these things mean? tell them, Behold, the king of Babylon came to Jerusalem, and took the king thereof, and the princes thereof, and brought them to him to Babylon:
+Say now to the rebellious house, Don't you know what these things mean? tell them, Behold, the king of Babylon came to Jerusalem, and took its king, and its princes, and brought them to him to Babylon:

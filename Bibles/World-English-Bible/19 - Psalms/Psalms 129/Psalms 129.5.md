@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be put to shame and turned backward, All they that hate Zion.
+Let them be disappointed and turned backward, all those who hate Zion.

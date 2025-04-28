@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that all the princes of the king of Babylon came in, and sat in the middle gate, [to wit], Nergal-sharezer, Samgar-nebo, Sarsechim, Rab-saris, Nergal-sharezer, Rab-mag, with all the rest of the princes of the king of Babylon.
+that all the princes of the king of Babylon came in, and sat in the middle gate, [to wit], Nergal Sharezer, Samgarnebo, Sarsechim, Rabsaris, Nergal Sharezer, Rabmag, with all the rest of the princes of the king of Babylon.

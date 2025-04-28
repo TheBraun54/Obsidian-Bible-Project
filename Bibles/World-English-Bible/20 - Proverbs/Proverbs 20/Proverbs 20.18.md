@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every purpose is established by counsel; And by wise guidance make thou war.
+Plans are established by advice; by wise guidance you wage war!

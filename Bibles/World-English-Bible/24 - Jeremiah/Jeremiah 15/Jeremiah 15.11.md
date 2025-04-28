@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah said, Verily I will strengthen thee for good; verily I will cause the enemy to make supplication unto thee in the time of evil and in the time of affliction. [
+Yahweh said, Most certainly I will strengthen you for good; most certainly I will cause the enemy to make supplication to you in the time of evil and in the time of affliction.

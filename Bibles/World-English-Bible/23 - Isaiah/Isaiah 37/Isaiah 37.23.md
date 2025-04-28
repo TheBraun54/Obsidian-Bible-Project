@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whom hast thou defied and blasphemed? and against whom hast thou exalted thy voice and lifted up thine eyes on high? [even] against the Holy One of Israel.
+Whom have you defied and blasphemed? Against whom have you exalted your voice and lifted up your eyes on high? Against the Holy One of Israel.

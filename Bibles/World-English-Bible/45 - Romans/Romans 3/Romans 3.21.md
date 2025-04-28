@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now apart from the law a righteousness of God hath been manifested, being witnessed by the law and the prophets;
+But now apart from the law, a righteousness of God has been revealed, being testified by the law and the prophets;

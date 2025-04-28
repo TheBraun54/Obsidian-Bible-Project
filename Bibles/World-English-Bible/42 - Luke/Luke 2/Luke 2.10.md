@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel said unto them, Be not afraid; for behold, I bring you good tidings of great joy which shall be to all the people:
+The angel said to them, "Don't be afraid, for behold, I bring you good news of great joy which will be to all the people.

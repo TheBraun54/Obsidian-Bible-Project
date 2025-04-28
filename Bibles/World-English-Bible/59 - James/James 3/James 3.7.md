@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every kind of beasts and birds, of creeping things and things in the sea, is tamed, and hath been tamed by mankind.
+For every kind of animal, bird, creeping thing, and thing in the sea, is tamed, and has been tamed by mankind.

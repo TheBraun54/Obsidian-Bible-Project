@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said, As Jehovah liveth, Jehovah will smite him; or his day shall come to die; or he shall go down into battle and perish.
+David said, "As Yahweh lives, Yahweh will strike him; or his day shall come to die; or he shall go down into battle and perish.

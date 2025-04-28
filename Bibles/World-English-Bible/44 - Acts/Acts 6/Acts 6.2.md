@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the twelve called the multitude of the disciples unto them, and said, It is not fit that we should forsake the word of God, and serve tables.
+The twelve summoned the multitude of the disciples and said, "It is not appropriate for us to forsake the word of God and serve tables.

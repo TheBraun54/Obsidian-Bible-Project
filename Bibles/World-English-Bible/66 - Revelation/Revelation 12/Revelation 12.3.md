@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was seen another sign in heaven: and behold, a great red dragon, having seven heads and ten horns, and upon his heads seven diadems.
+Another sign was seen in heaven. Behold, a great red dragon, having seven heads and ten horns, and on his heads seven crowns.

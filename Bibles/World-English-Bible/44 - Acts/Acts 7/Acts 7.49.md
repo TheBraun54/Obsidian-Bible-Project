@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heaven is my throne, And the earth the footstool of my feet: What manner of house will ye build Me? saith the Lord: Or what is the place of my rest?
+'heaven is my throne, and the earth a footstool for my feet. What kind of house will you build me?' says the Lord; 'or what is the place of my rest?

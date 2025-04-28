@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents; of David]. I was glad when they said unto me, Let us go unto the house of Jehovah.
+I was glad when they said to me, "Let's go to Yahweh's house!"

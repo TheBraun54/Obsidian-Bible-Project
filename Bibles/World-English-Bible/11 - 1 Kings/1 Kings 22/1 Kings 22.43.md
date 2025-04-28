@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he walked in all the way of Asa his father; He turned not aside from it, doing that which was right in the eyes of Jehovah: howbeit the high places were not taken away; the people still sacrificed and burnt incense in the high places.
+He walked in all the way of Asa his father; He didn't turn aside from it, doing that which was right in the eyes of Yahweh: however the high places were not taken away; the people still sacrificed and burnt incense in the high places.

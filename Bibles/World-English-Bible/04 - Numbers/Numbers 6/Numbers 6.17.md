@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall offer the ram for a sacrifice of peace-offerings unto Jehovah, with the basket of unleavened bread: the priest shall offer also the meal-offering thereof, and the drink-offering thereof.
+He shall offer the ram for a sacrifice of peace offerings to Yahweh, with the basket of unleavened bread. The priest shall offer also its meal offering, and its drink offering.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake to soberness righteously, and sin not; for some have no knowledge of God: I speak [this] to move you to shame.
+Wake up righteously, and don't sin, for some have no knowledge of God. I say this to your shame.

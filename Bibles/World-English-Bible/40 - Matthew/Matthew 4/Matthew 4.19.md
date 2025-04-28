@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Come ye after me, and I will make you fishers of men.
+He said to them, "Come after me, and I will make you fishers for men."

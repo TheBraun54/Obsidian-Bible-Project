@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall be carried to Babylon, and there shall they be, until the day that I visit them, saith Jehovah; then will I bring them up, and restore them to this place.
+They shall be carried to Babylon, and there shall they be, until the day that I visit them, says Yahweh; then will I bring them up, and restore them to this place.

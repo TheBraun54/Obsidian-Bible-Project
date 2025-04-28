@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lord, where are thy former lovingkindnesses, Which thou swarest unto David in thy faithfulness?
+Lord, where are your former loving kindnesses, which you swore to David in your faithfulness?

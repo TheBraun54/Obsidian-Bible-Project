@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can a virgin forget her ornaments, or a bride her attire? yet my people have forgotten me days without number.
+"Can a virgin forget her ornaments, or a bride her attire? Yet my people have forgotten me for days without number.

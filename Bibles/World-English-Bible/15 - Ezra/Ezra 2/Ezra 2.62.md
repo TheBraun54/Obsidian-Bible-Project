@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These sought their register [among] those that were reckoned by genealogy, but they were not found: therefore were they deemed polluted and put from the priesthood.
+These sought their register [among] those who were reckoned by genealogy, but they were not found: therefore were they deemed polluted and put from the priesthood.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jephthah sent messengers unto the king of the children of Ammon, saying, What hast thou to do with me, that thou art come unto me to fight against my land?
+Jephthah sent messengers to the king of the children of Ammon, saying, "What have you to do with me, that you have come to me to fight against my land?"

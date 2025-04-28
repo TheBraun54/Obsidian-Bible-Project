@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh turn unto me, and have mercy upon me; Give thy strength unto thy servant, And save the son of thy handmaid.
+Turn to me, and have mercy on me! Give your strength to your servant. Save the son of your handmaid.

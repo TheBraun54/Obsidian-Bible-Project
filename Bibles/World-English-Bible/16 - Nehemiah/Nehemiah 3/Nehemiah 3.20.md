@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After him Baruch the son of Zabbai earnestly repaired another portion, from the turning [of the wall] unto the door of the house of Eliashib the high priest.
+After him Baruch the son of Zabbai earnestly repaired another portion, from the turning [of the wall] to the door of the house of Eliashib the high priest.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even the whole bullock shall he carry forth without the camp unto a clean place, where the ashes are poured out, and burn it on wood with fire: where the ashes are poured out shall it be burnt.
+even the whole bull shall he carry forth outside the camp to a clean place, where the ashes are poured out, and burn it on wood with fire. Where the ashes are poured out it shall be burned.

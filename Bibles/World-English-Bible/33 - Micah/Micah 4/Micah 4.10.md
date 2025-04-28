@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be in pain, and labor to bring forth, O daughter of Zion, like a woman in travail; for now shalt thou go forth out of the city, and shalt dwell in the field, and shalt come even unto Babylon: there shalt thou be rescued; there will Jehovah redeem thee from the hand of thine enemies.
+Be in pain, and labor to bring forth, daughter of Zion, like a woman in travail; for now you will go forth out of the city, and will dwell in the field, and will come even to Babylon. There you will be rescued. There Yahweh will redeem you from the hand of your enemies.

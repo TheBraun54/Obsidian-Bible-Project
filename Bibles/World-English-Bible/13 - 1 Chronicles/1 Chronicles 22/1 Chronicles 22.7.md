@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Solomon his son, As for me, it was in my heart to build a house unto the name of Jehovah my God.
+David said to Solomon his son, "As for me, it was in my heart to build a house to the name of Yahweh my God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye eat, and when ye drink, do not ye eat for yourselves, and drink for yourselves?
+When you eat, and when you drink, don't you eat for yourselves, and drink for yourselves?

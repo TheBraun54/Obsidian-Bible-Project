@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And delivered his strength into captivity, And his glory into the adversary's hand.
+and delivered his strength into captivity, his glory into the adversary's hand.

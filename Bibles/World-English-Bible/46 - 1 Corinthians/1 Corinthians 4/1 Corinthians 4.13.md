@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being defamed, we entreat: we are made as the filth of the world, the offscouring of all things, even until now.
+Being defamed, we entreat. We are made as the filth of the world, the dirt wiped off by all, even until now.

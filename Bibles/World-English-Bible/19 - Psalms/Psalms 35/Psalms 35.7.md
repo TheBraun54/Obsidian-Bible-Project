@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For without cause have they hid for me their net [in] a pit; Without cause have they digged [a pit] for my soul.
+For without cause they have hidden their net in a pit for me. Without cause they have dug a pit for my soul.

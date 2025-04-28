@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah came to Elijah the Tishbite, saying,
+The word of Yahweh came to Elijah the Tishbite, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the truth of God through my lie abounded unto his glory, why am I also still judged as a sinner?
+For if the truth of God through my lie abounded to his glory, why am I also still judged as a sinner?

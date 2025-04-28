@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass the selfsame day, that Jehovah did bring the children of Israel out of the land of Egypt by their hosts.
+It happened the same day, that Yahweh brought the children of Israel out of the land of Egypt by their armies.

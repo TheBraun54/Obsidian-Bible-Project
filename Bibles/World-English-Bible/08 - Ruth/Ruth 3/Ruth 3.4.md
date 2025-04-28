@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when he lieth down, that thou shalt mark the place where he shall lie, and thou shalt go in, and uncover his feet, and lay thee down; and he will tell thee what thou shalt do.
+It shall be, when he lies down, that you shall mark the place where he shall lie, and you shall go in, and uncover his feet, and lay down; then he will tell you what you shall do."

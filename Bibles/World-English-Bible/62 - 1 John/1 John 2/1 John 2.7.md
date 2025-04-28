@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, no new commandment write I unto you, but an old commandment which ye had from the beginning: the old commandment is the word which ye heard.
+Brothers, I write no new commandment to you, but an old commandment which you had from the beginning. The old commandment is the word which you heard from the beginning.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the remnant of the trees of his forest shall be few, so that a child may write them.
+The remnant of the trees of his forest shall be few, so that a child could write their number.

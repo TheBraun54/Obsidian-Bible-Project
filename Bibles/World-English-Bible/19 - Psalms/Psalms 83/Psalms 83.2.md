@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, thine enemies make a tumult; And they that hate thee have lifted up the head.
+For, behold, your enemies are stirred up. Those who hate you have lifted up their heads.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told Abimelech that all the men of the tower of Shechem were gathered together.
+It was told Abimelech that all the men of the tower of Shechem were gathered together.

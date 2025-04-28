@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall look on the plague; and, behold, if the plague be in the walls of the house with hollow streaks, greenish or reddish, and the appearance thereof be lower than the wall;
+He shall examine the plague; and behold, if the plague is in the walls of the house with hollow streaks, greenish or reddish, and it appears to be deeper than the wall;

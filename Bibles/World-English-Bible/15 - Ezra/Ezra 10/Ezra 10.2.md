@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shecaniah the son of Jehiel, one of the sons of Elam, answered and said unto Ezra, We have trespassed against our God, and have married foreign women of the peoples of the land: yet now there is hope for Israel concerning this thing.
+Shecaniah the son of Jehiel, one of the sons of Elam, answered Ezra, "We have trespassed against our God, and have married foreign women of the peoples of the land. Yet now there is hope for Israel concerning this thing.

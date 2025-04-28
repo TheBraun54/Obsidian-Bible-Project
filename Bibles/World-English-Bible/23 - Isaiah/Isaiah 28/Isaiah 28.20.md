@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the bed is shorter than that a man can stretch himself on it; and the covering narrower than that he can wrap himself in it.
+For the bed is too short to stretch out on, and the blanket is too narrow to wrap oneself in.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Who art thou? And I answered him, I am an Amalekite.
+He said to me, 'Who are you?' I answered him, 'I am an Amalekite.'

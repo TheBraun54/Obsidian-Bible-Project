@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the wind passeth over it, and it is gone; And the place thereof shall know it no more.
+For the wind passes over it, and it is gone. Its place remembers it no more.

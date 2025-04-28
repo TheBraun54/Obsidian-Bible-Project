@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he came to himself he said, How many hired servants of my father's have bread enough and to spare, and I perish here with hunger!
+But when he came to himself he said, 'How many hired servants of my father's have bread enough to spare, and I'm dying with hunger!

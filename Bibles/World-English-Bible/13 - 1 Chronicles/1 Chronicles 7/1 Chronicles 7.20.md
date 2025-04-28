@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Ephraim: Shuthelah, and Bered his son, and Tahath his son, and Eleadah his son, and Tahath his son,
+The sons of Ephraim: Shuthelah, and Bered his son, and Tahath his son, and Eleadah his son, and Tahath his son,

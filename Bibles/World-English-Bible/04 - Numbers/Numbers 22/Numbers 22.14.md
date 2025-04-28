@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the princes of Moab rose up, and they went unto Balak, and said, Balaam refuseth to come with us.
+The princes of Moab rose up, and they went to Balak, and said, "Balaam refuses to come with us."

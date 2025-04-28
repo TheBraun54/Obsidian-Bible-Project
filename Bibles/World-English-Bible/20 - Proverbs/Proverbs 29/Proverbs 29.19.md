@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A servant will not be corrected by words; For though he understand, he will not give heed.
+A servant can't be corrected by words. Though he understands, yet he will not respond.

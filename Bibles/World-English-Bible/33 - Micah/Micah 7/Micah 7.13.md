@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet shall the land be desolate because of them that dwell therein, for the fruit of their doings.
+Yet the land will be desolate because of those who dwell therein, for the fruit of their doings.

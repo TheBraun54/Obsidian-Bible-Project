@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to him that getteth an evil gain for his house, that he may set his nest on high, that he may be delivered from the hand of evil!
+Woe to him who gets an evil gain for his house, that he may set his nest on high, that he may be delivered from the hand of evil!

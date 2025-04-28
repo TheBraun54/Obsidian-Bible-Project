@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the sons of Leah, whom she bare unto Jacob in Paddan-aram, with his daughter Dinah: all the souls of his sons and his daughters were thirty and three.
+These are the sons of Leah, whom she bore to Jacob in Paddan Aram, with his daughter Dinah. All the souls of his sons and his daughters were thirty-three.

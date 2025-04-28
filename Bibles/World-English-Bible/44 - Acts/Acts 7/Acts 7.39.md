@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to whom our fathers would not be obedient, but thrust him from them, and turned back in their hearts unto Egypt,
+to whom our fathers wouldn't be obedient, but rejected him, and turned back in their hearts to Egypt,

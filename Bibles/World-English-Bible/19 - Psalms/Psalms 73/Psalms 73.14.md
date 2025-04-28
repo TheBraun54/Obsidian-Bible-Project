@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all the day long have I been plagued, And chastened every morning.
+For all day long have I been plagued, and punished every morning.

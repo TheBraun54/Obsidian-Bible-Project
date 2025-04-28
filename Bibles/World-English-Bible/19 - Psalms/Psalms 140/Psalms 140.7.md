@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah the Lord, the strength of my salvation, Thou hast covered my head in the day of battle.
+Yahweh, the Lord, the strength of my salvation, you have covered my head in the day of battle.

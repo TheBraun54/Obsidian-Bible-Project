@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much less one that is abominable and corrupt, A man that drinketh iniquity like water!
+how much less one who is abominable and corrupt, a man who drinks iniquity like water!

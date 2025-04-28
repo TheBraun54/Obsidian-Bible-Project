@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things he departed from Athens, and came to Corinth.
+After these things Paul departed from Athens, and came to Corinth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, they have there with them their two sons, Ahimaaz, Zadok's son, and Jonathan, Abiathar's son; and by them ye shall send unto me everything that ye shall hear.
+Behold, they have there with them their two sons, Ahimaaz, Zadok's son, and Jonathan, Abiathar's son; and by them you shall send to me everything that you shall hear."

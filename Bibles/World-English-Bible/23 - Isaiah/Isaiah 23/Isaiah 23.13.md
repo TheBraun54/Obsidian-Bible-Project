@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the land of the Chaldeans: this people was not; the Assyrian founded it for them that dwell in the wilderness; they set up their towers; they overthrew the palaces thereof; they made it a ruin.
+Behold, the land of the Chaldeans. This people was not. The Assyrians founded it for those who dwell in the wilderness. They set up their towers. They overthrew its palaces. They made it a ruin.

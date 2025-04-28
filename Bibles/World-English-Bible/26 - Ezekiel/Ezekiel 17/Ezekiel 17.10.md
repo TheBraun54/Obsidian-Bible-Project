@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, behold, being planted, shall it prosper? shall it not utterly wither, when the east wind toucheth it? it shall wither in the beds where it grew.
+Yes, behold, being planted, shall it prosper? shall it not utterly wither, when the east wind touches it? it shall wither in the beds where it grew.

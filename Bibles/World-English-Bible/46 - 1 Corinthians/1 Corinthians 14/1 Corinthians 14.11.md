@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If then I know not the meaning of the voice, I shall be to him that speaketh a barbarian, and he that speaketh will be a barbarian unto me.
+If then I don't know the meaning of the sound, I would be to him who speaks a foreigner, and he who speaks would be a foreigner to me.

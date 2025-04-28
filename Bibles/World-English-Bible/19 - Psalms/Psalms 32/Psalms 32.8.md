@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will instruct thee and teach thee in the way which thou shalt go: I will counsel thee with mine eye upon thee.
+I will instruct you and teach you in the way which you shall go. I will counsel you with my eye on you.

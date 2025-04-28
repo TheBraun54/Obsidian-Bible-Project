@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not glean thy vineyard, neither shalt thou gather the fallen fruit of thy vineyard; thou shalt leave them for the poor and for the sojourner: I am Jehovah your God.
+You shall not glean your vineyard, neither shall you gather the fallen grapes of your vineyard; you shall leave them for the poor and for the foreigner. I am Yahweh your God.

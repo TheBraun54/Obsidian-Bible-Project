@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have made the earth, and created man upon it: I, even my hands, have stretched out the heavens; and all their host have I commanded.
+I have made the earth, and created man on it. I, even my hands, have stretched out the heavens; and I have commanded all their army.

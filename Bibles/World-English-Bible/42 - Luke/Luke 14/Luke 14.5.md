@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Which of you shall have an ass or an ox fallen into a well, and will not straightway draw him up on a sabbath day?
+He answered them, "Which of you, if your son or an ox fell into a well, wouldn't immediately pull him out on a Sabbath day?"

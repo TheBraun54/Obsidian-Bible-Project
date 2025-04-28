@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their heart is as fat as grease; But I delight in thy law.
+Their heart is as callous as the fat, but I delight in your law.

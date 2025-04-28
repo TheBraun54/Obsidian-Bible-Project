@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nobleman saith unto him, Sir, come down ere my child die.
+The nobleman said to him, "Sir, come down before my child dies."

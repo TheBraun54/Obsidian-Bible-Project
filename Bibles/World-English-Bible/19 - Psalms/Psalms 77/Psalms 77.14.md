@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art the God that doest wonders: Thou hast made known thy strength among the peoples.
+You are the God who does wonders. You have made your strength known among the peoples.

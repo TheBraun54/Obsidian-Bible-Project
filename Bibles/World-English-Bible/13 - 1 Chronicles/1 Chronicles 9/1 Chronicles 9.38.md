@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mikloth begat Shimeam. And they also dwelt with their brethren in Jerusalem, over against their brethren.
+Mikloth became the father of Shimeam. They also lived with their brothers in Jerusalem, over against their brothers.

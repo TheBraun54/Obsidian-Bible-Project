@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh wars to cease unto the end of the earth; He breaketh the bow, and cutteth the spear in sunder; He burneth the chariots in the fire.
+He makes wars cease to the end of the earth. He breaks the bow, and shatters the spear. He burns the chariots in the fire.

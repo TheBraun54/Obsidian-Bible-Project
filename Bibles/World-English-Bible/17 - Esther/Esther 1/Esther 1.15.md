@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall we do unto the queen Vashti according to law, because she hath not done the bidding of the king Ahasuerus by the chamberlains?
+"What shall we do to the queen Vashti according to law, because she has not done the bidding of the King Ahasuerus by the eunuchs?"

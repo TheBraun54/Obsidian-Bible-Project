@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the right thigh shall ye give unto the priest for a heave-offering out of the sacrifices of your peace-offerings.
+The right thigh you shall give to the priest for a heave offering out of the sacrifices of your peace offerings.

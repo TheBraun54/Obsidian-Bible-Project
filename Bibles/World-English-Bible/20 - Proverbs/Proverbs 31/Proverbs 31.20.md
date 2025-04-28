@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She stretcheth out her hand to the poor; Yea, she reacheth forth her hands to the needy.
+She opens her arms to the poor; yes, she extends her hands to the needy.

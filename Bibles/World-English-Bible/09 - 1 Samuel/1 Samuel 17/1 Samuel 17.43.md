@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistine said unto David, Am I a dog, that thou comest to me with staves? And the Philistine cursed David by his gods.
+The Philistine said to David, "Am I a dog, that you come to me with sticks?" The Philistine cursed David by his gods.

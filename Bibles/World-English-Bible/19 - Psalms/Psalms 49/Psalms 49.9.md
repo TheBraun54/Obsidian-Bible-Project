@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That he should still live alway, That he should not see corruption.
+That he should live on forever, that he should not see corruption.

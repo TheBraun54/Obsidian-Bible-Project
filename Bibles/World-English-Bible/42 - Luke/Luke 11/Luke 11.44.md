@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you! for ye are as the tombs which appear not, and the men that walk over [them] know it not.
+Woe to you, scribes and Pharisees, hypocrites! For you are like hidden graves, and the men who walk over them don't know it."

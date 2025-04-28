@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This evil people, that refuse to hear my words, that walk in the stubbornness of their heart, and are gone after other gods to serve them, and to worship them, shall even be as this girdle, which is profitable for nothing.
+This evil people, who refuse to hear my words, who walk in the stubbornness of their heart, and are gone after other gods to serve them, and to worship them, shall even be as this belt, which is profitable for nothing.

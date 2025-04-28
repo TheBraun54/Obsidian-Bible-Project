@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and being found in fashion as a man, he humbled himself, becoming obedient [even] unto death, yea, the death of the cross.
+And being found in human form, he humbled himself, becoming obedient to death, yes, the death of the cross.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that first slaughter, which Jonathan and his armorbearer made, was about twenty men, within as it were half a furrow's length in an acre of land.
+That first slaughter, which Jonathan and his armor bearer made, was about twenty men, within as it were half a furrow's length in an acre of land.

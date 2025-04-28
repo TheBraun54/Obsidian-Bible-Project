@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto all the people, Thus saith Jehovah, the God of Israel, Your fathers dwelt of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor: and they served other gods.
+Joshua said to all the people, "Thus says Yahweh, the God of Israel, 'Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor: and they served other gods.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet she multiplied her whoredoms, remembering the days of her youth, wherein she had played the harlot in the land of Egypt.
+Yet she multiplied her prostitution, remembering the days of her youth, in which she had played the prostitute in the land of Egypt.

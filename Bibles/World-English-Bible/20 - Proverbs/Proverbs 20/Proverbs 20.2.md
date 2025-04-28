@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The terror of a king is as the roaring of a lion: He that provoketh him to anger sinneth [against] his own life.
+The terror of a king is like the roaring of a lion. He who provokes him to anger forfeits his own life.

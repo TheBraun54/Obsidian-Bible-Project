@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Barzillai, Come thou over with me, and I will sustain thee with me in Jerusalem.
+The king said to Barzillai, "Come over with me, and I will sustain you with me in Jerusalem."

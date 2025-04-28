@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall they also answer, saying, Lord, when saw we thee hungry, or athirst, or a stranger, or naked, or sick, or in prison, and did not minister unto thee?
+"Then they will also answer, saying, 'Lord, when did we see you hungry, or thirsty, or a stranger, or naked, or sick, or in prison, and didn't help you?'

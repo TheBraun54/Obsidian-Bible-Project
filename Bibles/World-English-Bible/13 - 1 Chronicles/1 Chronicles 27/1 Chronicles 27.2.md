@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Over the first course for the first month was Jashobeam the son of Zabdiel: and in his course were twenty and four thousand.
+Over the first division for the first month was Jashobeam the son of Zabdiel: and in his division were twenty-four thousand.

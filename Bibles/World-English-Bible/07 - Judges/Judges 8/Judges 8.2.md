@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, What have I now done in comparison with you? Is not the gleaning of the grapes of Ephraim better than the vintage of Abiezer?
+He said to them, "What have I now done in comparison with you? Isn't the gleaning of the grapes of Ephraim better than the vintage of Abiezer?

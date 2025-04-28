@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Assyria hearkened unto him; and the king of Assyria went up against Damascus, and took it, and carried [the people of] it captive to Kir, and slew Rezin.
+The king of Assyria listened to him; and the king of Assyria went up against Damascus, and took it, and carried [the people of] it captive to Kir, and killed Rezin.

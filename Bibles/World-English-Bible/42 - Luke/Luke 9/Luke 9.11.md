@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the multitudes perceiving it followed him: and he welcomed them, and spake to them of the kingdom of God, and them that had need of healing he cured.
+But the multitudes, perceiving it, followed him. He welcomed them, and spoke to them of the Kingdom of God, and he cured those who needed healing.

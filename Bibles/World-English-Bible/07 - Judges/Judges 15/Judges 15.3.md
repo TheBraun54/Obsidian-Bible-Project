@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson said unto them, This time shall I be blameless in regard of the Philistines, when I do them a mischief.
+Samson said to them, "This time I will be blameless in regard of the Philistines, when I harm them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Israel heard say that Saul had smitten the garrison of the Philistines, and also that Israel was had in abomination with the Philistines. And the people were gathered together after Saul to Gilgal.
+All Israel heard that Saul had struck the garrison of the Philistines, and also that Israel was had in abomination with the Philistines. The people were gathered together after Saul to Gilgal.

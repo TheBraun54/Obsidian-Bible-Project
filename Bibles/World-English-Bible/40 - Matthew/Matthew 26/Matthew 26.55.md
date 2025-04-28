@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that hour said Jesus to the multitudes, Are ye come out as against a robber with swords and staves to seize me? I sat daily in the temple teaching, and ye took me not.
+In that hour Jesus said to the multitudes, "Have you come out as against a robber with swords and clubs to seize me? I sat daily in the temple teaching, and you didn't arrest me.

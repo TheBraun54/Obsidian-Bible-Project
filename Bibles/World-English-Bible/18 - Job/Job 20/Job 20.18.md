@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which he labored for shall he restore, and shall not swallow it down; According to the substance that he hath gotten, he shall not rejoice.
+That for which he labored he shall restore, and shall not swallow it down. According to the substance that he has gotten, he shall not rejoice.

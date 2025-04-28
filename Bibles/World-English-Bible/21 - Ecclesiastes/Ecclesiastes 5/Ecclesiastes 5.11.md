@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When goods increase, they are increased that eat them; and what advantage is there to the owner thereof, save the beholding [of them] with his eyes?
+When goods increase, those who eat them are increased; and what advantage is there to its owner, except to feast on them with his eyes?

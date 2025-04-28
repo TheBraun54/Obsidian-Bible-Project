@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They all builded the wall and they that bare burdens laded themselves; every one with one of his hands wrought in the work, and with the other held his weapon;
+They all built the wall and those who bore burdens loaded themselves; everyone with one of his hands worked in the work, and with the other held his weapon;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Mary said, My soul doth magnify the Lord,
+Mary said, "My soul magnifies the Lord.

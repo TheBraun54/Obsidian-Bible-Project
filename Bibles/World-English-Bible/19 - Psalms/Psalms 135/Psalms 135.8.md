@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who smote the first-born of Egypt, Both of man and beast;
+Who struck the firstborn of Egypt, both of man and animal;

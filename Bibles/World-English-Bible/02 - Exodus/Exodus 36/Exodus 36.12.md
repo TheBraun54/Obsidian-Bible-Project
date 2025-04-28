@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fifty loops made he in the one curtain, and fifty loops made he in the edge of the curtain that was in the second coupling: the loops were opposite one to another.
+He made fifty loops in the one curtain, and he made fifty loops in the edge of the curtain that was in the second coupling. The loops were opposite one to another.

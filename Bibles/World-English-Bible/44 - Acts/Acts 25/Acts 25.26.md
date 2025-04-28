@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of whom I have no certain thing to write unto my lord. Wherefore I have brought him forth before you, and specially before thee, king Agrippa, that, after examination had, I may have somewhat to write.
+Of whom I have no certain thing to write to my lord. Therefore I have brought him forth before you, and especially before you, King Agrippa, that, after examination, I may have something to write.

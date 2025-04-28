@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless the priests of the high places came not up to the altar of Jehovah in Jerusalem, but they did eat unleavened bread among their brethren.
+Nevertheless the priests of the high places didn't come up to the altar of Yahweh in Jerusalem, but they ate unleavened bread among their brothers.

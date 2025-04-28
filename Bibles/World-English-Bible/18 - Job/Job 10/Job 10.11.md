@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast clothed me with skin and flesh, And knit me together with bones and sinews.
+You have clothed me with skin and flesh, and knit me together with bones and sinews.

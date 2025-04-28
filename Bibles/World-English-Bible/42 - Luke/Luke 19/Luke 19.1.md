@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he entered and was passing through Jericho.
+He entered and was passing through Jericho.

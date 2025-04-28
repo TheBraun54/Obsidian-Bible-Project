@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye mountains, that ye skip like rams; Ye little hills, like lambs?
+You mountains, that you skipped like rams; you little hills, like lambs?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of them would have taken him; but no man laid hands on him.
+Some of them would have arrested him, but no one laid hands on him.

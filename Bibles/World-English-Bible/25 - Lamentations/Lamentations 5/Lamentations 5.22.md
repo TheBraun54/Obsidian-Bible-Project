@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou hast utterly rejected us; Thou art very wroth against us.
+But you have utterly rejected us; You are very angry against us.

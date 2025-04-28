@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover I said unto the king, If it please the king, let letters be given me to the governors beyond the River, that they may let me pass through till I come unto Judah;
+Moreover I said to the king, "If it pleases the king, let letters be given me to the governors beyond the River, that they may let me pass through until I come to Judah;

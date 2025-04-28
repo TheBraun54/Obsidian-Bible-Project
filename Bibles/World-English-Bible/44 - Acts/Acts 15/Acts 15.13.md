@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after they had held their peace, James answered, saying, Brethren, hearken unto me:
+After they were silent, James answered, "Brothers, listen to me.

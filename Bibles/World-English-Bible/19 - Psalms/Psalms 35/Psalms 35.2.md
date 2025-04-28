@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take hold of shield and buckler, And stand up for my help.
+Take hold of shield and buckler, and stand up for my help.

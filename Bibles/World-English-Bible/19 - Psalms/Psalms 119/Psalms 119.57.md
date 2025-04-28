@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-HHETH. Jehovah is my portion: I have said that I would observe thy words.
+Yahweh is my portion. I promised to obey your words.

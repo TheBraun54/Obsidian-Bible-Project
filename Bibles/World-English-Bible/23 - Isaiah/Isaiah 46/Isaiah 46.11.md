@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-calling a ravenous bird from the east, the man of my counsel from a far country; yea, I have spoken, I will also bring it to pass; I have purposed, I will also do it.
+calling a ravenous bird from the east, the man of my counsel from a far country; yes, I have spoken, I will also bring it to pass; I have purposed, I will also do it.

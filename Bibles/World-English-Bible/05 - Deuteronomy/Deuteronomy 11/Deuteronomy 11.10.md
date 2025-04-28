@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the land, whither thou goest in to possess it, is not as the land of Egypt, from whence ye came out, where thou sowedst thy seed, and wateredst it with thy foot, as a garden of herbs;
+For the land, where you go in to possess it, isn't as the land of Egypt, that you came out from, where you sowed your seed, and watered it with your foot, as a garden of herbs;

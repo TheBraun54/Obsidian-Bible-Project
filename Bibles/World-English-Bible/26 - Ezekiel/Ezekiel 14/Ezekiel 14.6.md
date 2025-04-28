@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore say unto the house of Israel, Thus saith the Lord Jehovah: Return ye, and turn yourselves from your idols; and turn away your faces from all your abominations.
+Therefore tell the house of Israel, Thus says the Lord Yahweh: Return, and turn yourselves from your idols; and turn away your faces from all your abominations.

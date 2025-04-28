@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is righteous; for I have rebelled against his commandment: Hear, I pray you, all ye peoples, and behold my sorrow: My virgins and my young men are gone into captivity.
+Yahweh is righteous; for I have rebelled against his commandment: Please hear all you peoples, and see my sorrow: My virgins and my young men are gone into captivity.

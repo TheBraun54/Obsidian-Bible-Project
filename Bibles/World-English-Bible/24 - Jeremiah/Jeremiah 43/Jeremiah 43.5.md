@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Johanan the son of Kareah, and all the captains of the forces, took all the remnant of Judah, that were returned from all the nations whither they had been driven, to sojourn in the land of Judah;
+But Johanan the son of Kareah, and all the captains of the forces, took all the remnant of Judah, who were returned from all the nations where they had been driven, to live in the land of Judah;

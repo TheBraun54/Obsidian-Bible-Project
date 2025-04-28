@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall do no unrighteousness in judgment, in measures of length, of weight, or of quantity.
+"'You shall do no unrighteousness in judgment, in measures of length, of weight, or of quantity.

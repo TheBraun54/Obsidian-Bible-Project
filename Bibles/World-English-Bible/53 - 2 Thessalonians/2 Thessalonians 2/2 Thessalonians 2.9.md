@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ even he], whose coming is according to the working of Satan with all power and signs and lying wonders,
+even he whose coming is according to the working of Satan with all power and signs and lying wonders,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, This city shall surely be given into the hand of the army of the king of Babylon, and he shall take it.
+Thus says Yahweh, This city shall surely be given into the hand of the army of the king of Babylon, and he shall take it.

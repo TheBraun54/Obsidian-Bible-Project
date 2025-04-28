@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in Hades he lifted up his eyes, being in torments, and seeth Abraham afar off, and Lazarus in his bosom.
+In Hades, he lifted up his eyes, being in torment, and saw Abraham far off, and Lazarus at his bosom.

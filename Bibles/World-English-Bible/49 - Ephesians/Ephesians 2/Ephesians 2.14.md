@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he is our peace, who made both one, and brake down the middle wall of partition,
+For he is our peace, who made both one, and broke down the middle wall of partition,

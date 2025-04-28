@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is this word that he said, Ye shall seek me, and shall not find me; and where I am, ye cannot come?
+What is this word that he said, 'You will seek me, and won't find me; and where I am, you can't come'?"

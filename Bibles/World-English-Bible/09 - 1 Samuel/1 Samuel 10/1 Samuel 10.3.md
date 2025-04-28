@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou go on forward from thence, and thou shalt come to the oak of Tabor; and there shall meet thee there three men going up to God to Beth-el, one carrying three kids, and another carrying three loaves of bread, and another carrying a bottle of wine:
+"Then you shall go on forward from there, and you shall come to the oak of Tabor; and three men shall meet you there going up to God to Bethel, one carrying three young goats, and another carrying three loaves of bread, and another carrying a bottle of wine:

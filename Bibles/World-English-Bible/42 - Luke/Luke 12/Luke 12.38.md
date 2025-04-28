@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he shall come in the second watch, and if in the third, and find [them] so, blessed are those [servants] .
+They will be blessed if he comes in the second or third watch, and finds them so.

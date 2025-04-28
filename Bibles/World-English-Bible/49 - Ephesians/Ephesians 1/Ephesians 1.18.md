@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having the eyes of your heart enlightened, that ye may know what is the hope of his calling, what the riches of the glory of his inheritance in the saints,
+having the eyes of your hearts enlightened, that you may know what is the hope of his calling, and what are the riches of the glory of his inheritance in the saints,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they, and all that appertained to them, went down alive into Sheol: and the earth closed upon them, and they perished from among the assembly.
+So they, and all that appertained to them, went down alive into Sheol: and the earth closed on them, and they perished from among the assembly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he be not able to get it back for himself, then that which he hath sold shall remain in the hand of him that hath bought it until the year of jubilee: and in the jubilee it shall go out, and he shall return unto his possession.
+But if he isn't able to get it back for himself, then what he has sold shall remain in the hand of him who has bought it until the Year of Jubilee: and in the Jubilee it shall be released, and he shall return to his property.

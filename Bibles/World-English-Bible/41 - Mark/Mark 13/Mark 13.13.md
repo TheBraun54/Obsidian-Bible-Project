@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be hated of all men for my name's sake: but he that endureth to the end, the same shall be saved.
+You will be hated by all men for my name's sake, but he who endures to the end, the same will be saved.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that is entered into his rest hath himself also rested from his works, as God did from his.
+For he who has entered into his rest has himself also rested from his works, as God did from his.

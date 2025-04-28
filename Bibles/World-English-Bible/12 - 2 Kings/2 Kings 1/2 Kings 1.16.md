@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Thus saith Jehovah, Forasmuch as thou hast sent messengers to inquire of Baal-zebub, the god of Ekron, is it because there is no God in Israel to inquire of his word? therefore thou shalt not come down from the bed whither thou art gone up, but shalt surely die.
+He said to him, "Thus says Yahweh, 'Because you have sent messengers to inquire of Baal Zebub, the god of Ekron, is it because there is no God in Israel to inquire of his word? Therefore you shall not come down from the bed where you have gone up, but shall surely die.'"

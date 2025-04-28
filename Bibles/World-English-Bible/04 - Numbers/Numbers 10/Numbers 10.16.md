@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the host of the tribe of the children of Zebulun was Eliab the son of Helon.
+Eliab the son of Helon was over the army of the tribe of the children of Zebulun.

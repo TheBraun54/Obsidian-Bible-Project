@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall say unto them, Hear, O Israel, ye draw nigh this day unto battle against your enemies: let not your heart faint; fear not, nor tremble, neither be ye affrighted at them;
+and shall tell them, "Hear, Israel, you draw near this day to battle against your enemies: don't let your heart faint; don't be afraid, nor tremble, neither be scared of them;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For since by man [came] death, by man [came] also the resurrection of the dead.
+For since death came by man, the resurrection of the dead also came by man.

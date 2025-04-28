@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come ye near unto me, hear ye this; from the beginning I have not spoken in secret; from the time that it was, there am I: and now the Lord Jehovah hath sent me, and his Spirit.
+"Come near to me and hear this: "From the beginning I have not spoken in secret; from the time that it was, there am I." Now the Lord Yahweh has sent me, with his Spirit.

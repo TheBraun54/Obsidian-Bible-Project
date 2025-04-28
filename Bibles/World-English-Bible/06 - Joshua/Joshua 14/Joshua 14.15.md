@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the name of Hebron beforetime was Kiriath-arba; [which Arba was] the greatest man among the Anakim. And the land had rest from war.
+Now the name of Hebron before was Kiriath Arba, after the greatest man among the Anakim. The land had rest from war.

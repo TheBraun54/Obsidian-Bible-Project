@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, if they refuse to take the cup at thy hand to drink, then shalt thou say unto them, Thus saith Jehovah of hosts: Ye shall surely drink.
+It shall be, if they refuse to take the cup at your hand to drink, then you shall tell them, Thus says Yahweh of Armies: You shall surely drink.

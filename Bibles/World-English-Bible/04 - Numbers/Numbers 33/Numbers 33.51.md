@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, When ye pass over the Jordan into the land of Canaan,
+Speak to the children of Israel, and tell them, "When you pass over the Jordan into the land of Canaan,

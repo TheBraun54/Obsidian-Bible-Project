@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made a proclamation through Judah and Jerusalem, to bring in for Jehovah the tax that Moses the servant of God laid upon Israel in the wilderness.
+They made a proclamation through Judah and Jerusalem, to bring in for Yahweh the tax that Moses the servant of God laid on Israel in the wilderness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the tribe of the children of Issachar a prince, Paltiel the son of Azzan.
+Of the tribe of the children of Issachar a prince, Paltiel the son of Azzan.

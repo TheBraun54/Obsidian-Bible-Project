@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I therefore was thus minded, did I show fickleness? or the things that I purpose, do I purpose according to the flesh, that with me there should be the yea yea and the nay nay?
+When I therefore was thus determined, did I show fickleness? Or the things that I purpose, do I purpose according to the flesh, that with me there should be the "Yes, yes" and the "No, no?"

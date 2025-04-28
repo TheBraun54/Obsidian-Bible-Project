@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord sent a word into Jacob, and it hath lighted upon Israel.
+The Lord sent a word into Jacob, and it falls on Israel.

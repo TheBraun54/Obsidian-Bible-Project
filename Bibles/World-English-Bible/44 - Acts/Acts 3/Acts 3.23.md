@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, that every soul that shall not hearken to that prophet, shall be utterly destroyed from among the people.
+It will be, that every soul that will not listen to that prophet will be utterly destroyed from among the people.'

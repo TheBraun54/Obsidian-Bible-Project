@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sing the song of Moses the servant of God, and the song of the Lamb, saying, Great and marvellous are thy works, O Lord God, the Almighty; righteous and true are thy ways, thou King of the ages.
+They sang the song of Moses, the servant of God, and the song of the Lamb, saying, "Great and marvelous are your works, Lord God, the Almighty! Righteous and true are your ways, you King of the nations.

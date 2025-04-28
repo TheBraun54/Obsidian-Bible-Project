@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hold thou me up, and I shall be safe, And shall have respect unto thy statutes continually.
+Hold me up, and I will be safe, and will have respect for your statutes continually.

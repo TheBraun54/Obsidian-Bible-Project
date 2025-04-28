@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus saw that a multitude came running together, he rebuked the unclean spirit, saying unto him, Thou dumb and deaf spirit, I command thee, come out of him, and enter no more into him.
+When Jesus saw that a multitude came running together, he rebuked the unclean spirit, saying to him, "You mute and deaf spirit, I command you, come out of him, and never enter him again!"

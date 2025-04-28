@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the speech pleased the Lord, that Solomon had asked this thing.
+The speech pleased the Lord, that Solomon had asked this thing.

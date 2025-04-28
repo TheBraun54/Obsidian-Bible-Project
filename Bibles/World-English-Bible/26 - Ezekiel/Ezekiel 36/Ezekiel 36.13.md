@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Because they say unto you, Thou [land] art a devourer of men, and hast been a bereaver of thy nation;
+Thus says the Lord Yahweh: Because they say to you, You are a devourer of men, and have been a bereaver of your nation;

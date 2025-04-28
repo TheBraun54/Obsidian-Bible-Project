@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let a bear robbed of her whelps meet a man, Rather than a fool in his folly.
+Let a bear robbed of her cubs meet a man, rather than a fool in his folly.

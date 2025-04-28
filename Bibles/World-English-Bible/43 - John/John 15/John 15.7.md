@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye abide in me, and my words abide in you, ask whatsoever ye will, and it shall be done unto you.
+If you remain in me, and my words remain in you, you will ask whatever you desire, and it will be done for you.

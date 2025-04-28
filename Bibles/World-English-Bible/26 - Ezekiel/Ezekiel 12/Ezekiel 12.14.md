@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will scatter toward every wind all that are round about him to help him, and all his bands; and I will draw out the sword after them.
+I will scatter toward every wind all who are around him to help him, and all his bands; and I will draw out the sword after them.

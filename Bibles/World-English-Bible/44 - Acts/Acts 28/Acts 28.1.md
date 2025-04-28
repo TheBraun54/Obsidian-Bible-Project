@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when we were escaped, then we knew that the island was called Melita.
+When we had escaped, then they learned that the island was called Malta.

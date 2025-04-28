@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall vain words have an end? Or what provoketh thee that thou answerest?
+Shall vain words have an end? Or what provokes you that you answer?

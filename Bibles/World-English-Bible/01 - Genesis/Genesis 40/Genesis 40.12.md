@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto him, This is the interpretation of it: the three branches are three days;
+Joseph said to him, "This is its interpretation: the three branches are three days.

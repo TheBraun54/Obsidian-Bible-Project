@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the priests and the Levites had purified themselves together; all of them were pure: and they killed the passover for all the children of the captivity, and for their brethren the priests, and for themselves.
+For the priests and the Levites had purified themselves together; all of them were pure: and they killed the Passover for all the children of the captivity, and for their brothers the priests, and for themselves.

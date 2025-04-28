@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Besides those things that are without, there is that which presseth upon me daily, anxiety for all the churches.
+Besides those things that are outside, there is that which presses on me daily, anxiety for all the assemblies.

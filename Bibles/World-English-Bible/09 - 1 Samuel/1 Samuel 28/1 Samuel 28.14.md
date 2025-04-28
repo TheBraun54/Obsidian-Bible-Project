@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, What form is he of? And she said, An old man cometh up; and he is covered with a robe. And Saul perceived that it was Samuel, and he bowed with his face to the ground, and did obeisance.
+He said to her, "What does he look like?" She said, "An old man comes up. He is covered with a robe." Saul perceived that it was Samuel, and he bowed with his face to the ground, and did obeisance.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy faithfulness is unto all generations: Thou hast established the earth, and it abideth.
+Your faithfulness is to all generations. You have established the earth, and it remains.

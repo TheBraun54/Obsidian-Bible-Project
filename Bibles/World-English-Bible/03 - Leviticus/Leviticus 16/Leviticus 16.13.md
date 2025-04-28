@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall put the incense upon the fire before Jehovah, that the cloud of the incense may cover the mercy-seat that is upon the testimony, that he die not:
+and he shall put the incense on the fire before Yahweh, that the cloud of the incense may cover the mercy seat that is on the testimony, so that he will not die.

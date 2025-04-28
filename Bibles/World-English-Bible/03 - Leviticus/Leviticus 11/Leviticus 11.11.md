@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall be an abomination unto you; ye shall not eat of their flesh, and their carcasses ye shall have in abomination.
+and you detest them. You shall not eat of their flesh, and you shall detest their carcasses.

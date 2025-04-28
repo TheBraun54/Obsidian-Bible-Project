@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for sin, finding occasion, through the commandment beguiled me, and through it slew me.
+for sin, finding occasion through the commandment, deceived me, and through it killed me.

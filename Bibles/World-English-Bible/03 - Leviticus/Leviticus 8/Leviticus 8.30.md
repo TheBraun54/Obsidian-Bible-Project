@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took of the anointing oil, and of the blood which was upon the altar, and sprinkled it upon Aaron, upon his garments, and upon his sons, and upon his sons' garments with him, and sanctified Aaron, his garments, and his sons, and his sons' garments with him.
+Moses took some of the anointing oil, and some of the blood which was on the altar, and sprinkled it on Aaron, on his garments, and on his sons, and on his sons' garments with him, and sanctified Aaron, his garments, and his sons, and his sons' garments with him.

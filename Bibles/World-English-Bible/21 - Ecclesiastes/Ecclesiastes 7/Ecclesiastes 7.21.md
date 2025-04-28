@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also take not heed unto all words that are spoken, lest thou hear thy servant curse thee;
+Also don't take heed to all words that are spoken, lest you hear your servant curse you;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Above him stood the seraphim: each one had six wings; with twain he covered his face, and with twain he covered his feet, and with twain he did fly.
+Above him stood the seraphim. Each one had six wings. With two he covered his face. With two he covered his feet. With two he flew.

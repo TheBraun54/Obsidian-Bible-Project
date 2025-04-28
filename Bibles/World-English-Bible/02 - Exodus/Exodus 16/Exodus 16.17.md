@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did so, and gathered some more, some less.
+The children of Israel did so, and gathered some more, some less.

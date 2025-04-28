@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he asked them, But who say ye that I am? Peter answereth and saith unto him, Thou art the Christ.
+He said to them, "But who do you say that I am?" Peter answered, "You are the Christ."

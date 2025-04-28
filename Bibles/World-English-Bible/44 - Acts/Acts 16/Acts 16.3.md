@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Him would Paul have to go forth with him; and he took and circumcised him because of the Jews that were in those parts: for they all knew that his father was a Greek.
+Paul wanted to have him go out with him, and he took and circumcised him because of the Jews who were in those parts; for they all knew that his father was a Greek.

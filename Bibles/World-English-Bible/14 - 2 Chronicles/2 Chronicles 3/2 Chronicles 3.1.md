@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Solomon began to build the house of Jehovah at Jerusalem on mount Moriah, where [Jehovah] appeared unto David his father, which he made ready in the place that David had appointed, in the threshing-floor of Ornan the Jebusite.
+Then Solomon began to build the house of Yahweh at Jerusalem on Mount Moriah, where [Yahweh] appeared to David his father, which he prepared in the place that David had appointed, in the threshing floor of Ornan the Jebusite.

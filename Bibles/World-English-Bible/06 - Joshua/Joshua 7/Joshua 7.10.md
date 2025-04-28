@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Joshua, Get thee up; wherefore art thou thus fallen upon thy face?
+Yahweh said to Joshua, "Get up! Why are you fallen on your face like that?

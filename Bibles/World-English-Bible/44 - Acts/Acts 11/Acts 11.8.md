@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I said, Not so, Lord: for nothing common or unclean hath ever entered into my mouth.
+But I said, 'Not so, Lord, for nothing unholy or unclean has ever entered into my mouth.'

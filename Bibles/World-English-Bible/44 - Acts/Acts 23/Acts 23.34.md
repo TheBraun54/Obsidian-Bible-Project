@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had read it, he asked of what province he was; and when he understood that he was of Cilicia,
+When the governor had read it, he asked what province he was from. When he understood that he was from Cilicia, he said,

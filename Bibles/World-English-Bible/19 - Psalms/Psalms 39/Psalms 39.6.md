@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely every man walketh in a vain show; Surely they are disquieted in vain: He heapeth up [riches], and knoweth not who shall gather them.
+"Surely every man walks like a shadow. Surely they busy themselves in vain. He heaps up, and doesn't know who shall gather.

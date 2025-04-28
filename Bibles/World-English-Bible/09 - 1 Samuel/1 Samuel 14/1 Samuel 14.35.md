@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul built an altar unto Jehovah: the same was the first altar that he built unto Jehovah.
+Saul built an altar to Yahweh. This was the first altar that he built to Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Noah, that went forth from the ark, were Shem, and Ham, and Japheth: and Ham is the father of Canaan.
+The sons of Noah who went forth from the ship were Shem, Ham, and Japheth. Ham is the father of Canaan.

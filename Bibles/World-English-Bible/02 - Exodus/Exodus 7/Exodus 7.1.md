@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, See, I have made thee as God to Pharaoh; and Aaron thy brother shall be thy prophet.
+Yahweh said to Moses, "Behold, I have made you as God to Pharaoh; and Aaron your brother shall be your prophet.

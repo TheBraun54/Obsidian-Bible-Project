@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called unto him two of the centurions, and said, Make ready two hundred soldiers to go as far as Caesarea, and horsemen threescore and ten, and spearmen two hundred, at the third hour of the night:
+He called to himself two of the centurions, and said, "Prepare two hundred soldiers to go as far as Caesarea, with seventy horsemen, and two hundred men armed with spears, at the third hour of the night."

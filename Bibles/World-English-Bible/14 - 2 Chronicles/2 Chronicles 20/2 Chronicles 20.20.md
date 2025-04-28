@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rose early in the morning, and went forth into the wilderness of Tekoa: and as they went forth, Jehoshaphat stood and said, Hear me, O Judah, and ye inhabitants of Jerusalem: believe in Jehovah your God, so shall ye be established; believe his prophets, so shall ye prosper.
+They rose early in the morning, and went forth into the wilderness of Tekoa: and as they went forth, Jehoshaphat stood and said, "Listen to me, Judah, and you inhabitants of Jerusalem! Believe in Yahweh your God, so you shall be established! Believe his prophets, so you shall prosper."

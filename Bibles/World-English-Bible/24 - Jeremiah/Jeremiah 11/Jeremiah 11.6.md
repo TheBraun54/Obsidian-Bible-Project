@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Proclaim all these words in the cities of Judah, and in the streets of Jerusalem, saying, Hear ye the words of this covenant, and do them.
+Yahweh said to me, Proclaim all these words in the cities of Judah, and in the streets of Jerusalem, saying, Hear the words of this covenant, and do them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king commanded Hilkiah the high priest, and the priests of the second order, and the keepers of the threshold, to bring forth out of the temple of Jehovah all the vessels that were made for Baal, and for the Asherah, and for all the host of heaven, and he burned them without Jerusalem in the fields of the Kidron, and carried the ashes of them unto Beth-el.
+The king commanded Hilkiah the high priest, and the priests of the second order, and the keepers of the threshold, to bring forth out of the temple of Yahweh all the vessels that were made for Baal, and for the Asherah, and for all the army of the sky, and he burned them outside of Jerusalem in the fields of the Kidron, and carried the ashes of them to Bethel.

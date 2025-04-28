@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any man's seed of copulation go out from him, then he shall bathe all his flesh in water, and be unclean until the even.
+"'If any man has an emission of semen, then he shall bathe all his flesh in water, and be unclean until the evening.

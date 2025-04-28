@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come now therefore, and let us slay him, and cast him into one of the pits, and we will say, An evil beast hath devoured him: and we shall see what will become of his dreams.
+Come now therefore, and let's kill him, and cast him into one of the pits, and we will say, 'An evil animal has devoured him.' We will see what will become of his dreams."

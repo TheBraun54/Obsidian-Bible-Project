@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lamech lived after he begat Noah five hundred ninety and five years, and begat sons and daughters:
+Lamech lived after he became the father of Noah five hundred ninety-five years, and became the father of sons and daughters.

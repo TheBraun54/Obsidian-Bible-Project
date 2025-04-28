@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were four tables for the burnt-offering, of hewn stone, a cubit and a half long, and a cubit and a half broad, and one cubit high; whereupon they laid the instruments wherewith they slew the burnt-offering and the sacrifice.
+There were four tables for the burnt offering, of cut stone, a cubit and a half long, and a cubit and a half broad, and one cubit high; whereupon they laid the instruments with which they killed the burnt offering and the sacrifice.

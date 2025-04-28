@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He deviseth iniquity upon his bed; He setteth himself in a way that is not good; He abhorreth not evil.
+He plots iniquity on his bed. He sets himself in a way that is not good. He doesn't abhor evil.

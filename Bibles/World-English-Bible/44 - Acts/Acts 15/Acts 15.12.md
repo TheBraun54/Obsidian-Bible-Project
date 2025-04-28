@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the multitude kept silence; and they hearkened unto Barnabas and Paul rehearsing what signs and wonders God had wrought among the Gentiles through them.
+All the multitude kept silence, and they listened to Barnabas and Paul reporting what signs and wonders God had done among the nations through them.

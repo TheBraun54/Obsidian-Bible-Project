@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The enemy are come to an end, they are desolate for ever; And the cities which thou hast overthrown, The very remembrance of them is perished. [
+The enemy is overtaken by endless ruin. The very memory of the cities which you have overthrown has perished.

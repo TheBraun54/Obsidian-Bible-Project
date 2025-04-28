@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Japhlet: Pasach, and Bimhal, and Ashvath. These are the children of Japhlet.
+The sons of Japhlet: Pasach, and Bimhal, and Ashvath. These are the children of Japhlet.

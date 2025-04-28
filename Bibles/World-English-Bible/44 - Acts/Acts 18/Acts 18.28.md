@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he powerfully confuted the Jews, [and that] publicly, showing by the scriptures that Jesus was the Christ.
+for he powerfully refuted the Jews, publicly showing by the Scriptures that Jesus was the Christ.

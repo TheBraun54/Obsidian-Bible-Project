@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul longeth, yea, even fainteth for the courts of Jehovah; My heart and my flesh cry out unto the living God.
+My soul longs, and even faints for the courts of Yahweh. My heart and my flesh cry out for the living God.

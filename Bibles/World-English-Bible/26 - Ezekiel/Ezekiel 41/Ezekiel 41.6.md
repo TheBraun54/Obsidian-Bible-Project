@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the side-chambers were in three stories, one over another, and thirty in order; and they entered into the wall which belonged to the house for the side-chambers round about, that they might have hold [therein], and not have hold in the wall of the house.
+The side rooms were in three stories, one over another, and thirty in order; and they entered into the wall which belonged to the house for the side rooms all around, that they might have hold [therein], and not have hold in the wall of the house.

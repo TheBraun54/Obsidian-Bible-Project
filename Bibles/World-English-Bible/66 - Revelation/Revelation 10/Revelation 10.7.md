@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in the days of the voice of the seventh angel, when he is about to sound, then is finished the mystery of God, according to the good tidings which he declared to his servants the prophets. [
+but in the days of the voice of the seventh angel, when he is about to sound, then the mystery of God is finished, as he declared to his servants, the prophets.

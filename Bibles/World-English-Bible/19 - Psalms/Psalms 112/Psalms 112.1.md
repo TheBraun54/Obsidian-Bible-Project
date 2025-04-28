@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah. Blessed is the man that feareth Jehovah, That delighteth greatly in his commandments.
+Praise Yah! Blessed is the man who fears Yahweh, who delights greatly in his commandments.

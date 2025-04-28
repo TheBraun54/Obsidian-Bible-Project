@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall know that I am Jehovah, when their slain men shall be among their idols round about their altars, upon every high hill, on all the tops of the mountains, and under every green tree, and under every thick [ oak, the places where they offered sweet savor to all their idols.
+You shall know that I am Yahweh, when their slain men shall be among their idols around their altars, on every high hill, on all the tops of the mountains, and under every green tree, and under every thick oak, the places where they offered pleasant aroma to all their idols.

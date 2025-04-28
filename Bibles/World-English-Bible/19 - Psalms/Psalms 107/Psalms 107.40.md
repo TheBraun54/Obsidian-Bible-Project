@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He poureth contempt upon princes, And causeth them to wander in the waste, where there is no way.
+He pours contempt on princes, and causes them to wander in a trackless waste.

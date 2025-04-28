@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, I will send serpents, adders, among you, which will not be charmed; and they shall bite you, saith Jehovah.
+For, behold, I will send serpents, adders, among you, which will not be charmed; and they shall bite you, says Yahweh.

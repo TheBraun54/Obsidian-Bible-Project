@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the days of Saul, they made war with the Hagrites, who fell by their hand; and they dwelt in their tents throughout all the [land] east of Gilead.
+In the days of Saul, they made war with the Hagrites, who fell by their hand; and they lived in their tents throughout all the [land] east of Gilead.

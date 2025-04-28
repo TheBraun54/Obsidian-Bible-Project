@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake unto the man clothed in linen, and said, Go in between the whirling [wheels], even under the cherub, and fill both thy hands with coals of fire from between the cherubim, and scatter them over the city. And he went in in my sight.
+He spoke to the man clothed in linen, and said, Go in between the whirling [wheels], even under the cherub, and fill both your hands with coals of fire from between the cherubim, and scatter them over the city. He went in as I watched.

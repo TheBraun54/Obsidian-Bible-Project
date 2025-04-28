@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of the sons of Aaron: Nadab the first-born, and Abihu, Eleazar, and Ithamar.
+These are the names of the sons of Aaron: Nadab the firstborn, and Abihu, Eleazar, and Ithamar.

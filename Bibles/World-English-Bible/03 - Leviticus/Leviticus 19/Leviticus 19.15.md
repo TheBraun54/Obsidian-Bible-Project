@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall do no unrighteousness in judgment: thou shalt not respect the person of the poor, nor honor the person of the mighty; but in righteousness shalt thou judge thy neighbor.
+"'You shall do no injustice in judgment: you shall not be partial to the poor, nor show favoritism to the great; but you shall judge your neighbor in righteousness.

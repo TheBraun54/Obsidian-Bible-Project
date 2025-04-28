@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of Asaph]. God standeth in the congregation of God; He judgeth among the gods.
+God presides in the great assembly. He judges among the gods.

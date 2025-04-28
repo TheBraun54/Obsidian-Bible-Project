@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if I have found favor in the sight of the king, and if it please the king to grant my petition, and to perform my request, let the king and Haman come to the banquet that I shall prepare for them, and I will do to-morrow as the king hath said.
+If I have found favor in the sight of the king, and if it please the king to grant my petition and to perform my request, let the king and Haman come to the banquet that I will prepare for them, and I will do tomorrow as the king has said."

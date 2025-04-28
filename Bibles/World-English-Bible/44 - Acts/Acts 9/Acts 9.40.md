@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter put them all forth, and kneeled down and prayed; and turning to the body, he said, Tabitha, arise. And she opened her eyes; and when she saw Peter, she sat up.
+Peter put them all out, and kneeled down and prayed. Turning to the body, he said, "Tabitha, get up!" She opened her eyes, and when she saw Peter, she sat up.

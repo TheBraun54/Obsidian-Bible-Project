@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But forget not this one thing, beloved, that one day is with the Lord as a thousand years, and a thousand years as one day.
+But don't forget this one thing, beloved, that one day is with the Lord as a thousand years, and a thousand years as one day.

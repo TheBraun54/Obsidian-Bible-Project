@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Judah shall go up: behold, I have delivered the land into his hand.
+Yahweh said, "Judah shall go up. Behold, I have delivered the land into his hand."

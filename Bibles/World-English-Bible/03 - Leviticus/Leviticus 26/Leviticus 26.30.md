@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will destroy your high places, and cut down your sun-images, and cast your dead bodies upon the bodies of your idols; and my soul shall abhor you.
+I will destroy your high places, and cut down your incense altars, and cast your dead bodies upon the bodies of your idols; and my soul will abhor you.

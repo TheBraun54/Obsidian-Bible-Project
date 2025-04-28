@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, Thus saith the Lord Jehovah unto Jerusalem: Thy birth and thy nativity is of the land of the Canaanite; the Amorite was thy father, and thy mother was a Hittite.
+and say, Thus says the Lord Yahweh to Jerusalem: Your birth and your birth is of the land of the Canaanite; the Amorite was your father, and your mother was a Hittite.

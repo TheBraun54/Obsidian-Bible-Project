@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Arise, take thy journey before the people; and they shall go in and possess the land, which I sware unto their fathers to give unto them.
+Yahweh said to me, "Arise, take your journey before the people; and they shall go in and possess the land, which I swore to their fathers to give to them."

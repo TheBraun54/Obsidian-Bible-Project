@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her gates are sunk into the ground; he hath destroyed and broken her bars: Her king and her princes are among the nations where the law is not; Yea, her prophets find no vision from Jehovah.
+Her gates are sunk into the ground; he has destroyed and broken her bars: Her king and her princes are among the nations where the law is not; Yes, her prophets find no vision from Yahweh.

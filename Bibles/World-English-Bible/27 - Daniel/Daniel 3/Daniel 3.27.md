@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the satraps, the deputies, and the governors, and the king's counsellors, being gathered together, saw these men, that the fire had no power upon their bodies, nor was the hair of their head singed, neither were their hosen changed, nor had the smell of fire passed on them.
+The satraps, the deputies, and the governors, and the king's counselors, being gathered together, saw these men, that the fire had no power on their bodies, nor was the hair of their head singed, neither were their pants changed, nor had the smell of fire passed on them.

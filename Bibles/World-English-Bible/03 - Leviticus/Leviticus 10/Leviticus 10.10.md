@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that ye may make a distinction between the holy and the common, and between the unclean and the clean;
+and that you are to make a distinction between the holy and the common, and between the unclean and the clean;

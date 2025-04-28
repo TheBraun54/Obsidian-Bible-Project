@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elkanah her husband said unto her, Do what seemeth thee good; tarry until thou have weaned him; only Jehovah establish his word. So the woman tarried and gave her son suck, until she weaned him.
+Elkanah her husband said to her, "Do what seems good to you. Wait until you have weaned him; only may Yahweh establish his word." So the woman waited and nursed her son, until she weaned him.

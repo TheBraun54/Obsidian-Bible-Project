@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and by some, that Elijah had appeared; and by others, that one of the old prophets was risen again.
+and by some that Elijah had appeared, and by others that one of the old prophets had risen again.

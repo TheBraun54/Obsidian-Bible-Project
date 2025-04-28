@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall put upon it all the vessels thereof, wherewith they minister about it, the firepans, the flesh-hooks, and the shovels, and the basins, all the vessels of the altar; and they shall spread upon it a covering of sealskin, and put in the staves thereof.
+They shall put on it all its vessels, with which they minister about it, the fire pans, the flesh hooks, the shovels, and the basins; all the vessels of the altar; and they shall spread on it a covering of sealskin, and put in its poles.

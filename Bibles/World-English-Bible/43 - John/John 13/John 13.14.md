@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I then, the Lord and the Teacher, have washed your feet, ye also ought to wash one another's feet.
+If I then, the Lord and the Teacher, have washed your feet, you also ought to wash one another's feet.

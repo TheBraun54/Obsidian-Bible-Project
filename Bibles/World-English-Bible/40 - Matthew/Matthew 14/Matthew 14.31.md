@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And immediately Jesus stretched forth his hand, and took hold of him, and saith unto him, O thou of little faith, wherefore didst thou doubt?
+Immediately Jesus stretched out his hand, took hold of him, and said to him, "You of little faith, why did you doubt?"

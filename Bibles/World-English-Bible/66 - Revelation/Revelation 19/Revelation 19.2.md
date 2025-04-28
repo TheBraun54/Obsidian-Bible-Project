@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for true and righteous are his judgments; for he hath judged the great harlot, her that corrupted the earth with her fornication, and he hath avenged the blood of his servants at her hand.
+for true and righteous are his judgments. For he has judged the great prostitute, who corrupted the earth with her sexual immorality, and he has avenged the blood of his servants at her hand."

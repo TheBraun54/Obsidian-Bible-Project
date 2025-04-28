@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know that ye are Abraham's seed: yet ye seek to kill me, because my word hath not free course in you.
+I know that you are Abraham's seed, yet you seek to kill me, because my word finds no place in you.

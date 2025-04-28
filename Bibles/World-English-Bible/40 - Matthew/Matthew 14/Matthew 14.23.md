@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after he had sent the multitudes away, he went up into the mountain apart to pray: and when even was come, he was there alone.
+After he had sent the multitudes away, he went up into the mountain by himself to pray. When evening had come, he was there alone.

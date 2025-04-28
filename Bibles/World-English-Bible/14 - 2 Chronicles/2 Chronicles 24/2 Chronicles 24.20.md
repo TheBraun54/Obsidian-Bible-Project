@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit of God came upon Zechariah the son of Jehoiada the priest; and he stood above the people, and said unto them, Thus saith God, Why transgress ye the commandments of Jehovah, so that ye cannot prosper? because ye have forsaken Jehovah, he hath also forsaken you.
+The Spirit of God came on Zechariah the son of Jehoiada the priest; and he stood above the people, and said to them, "Thus says God, 'Why do you disobey the commandments of Yahweh, so that you can't prosper? Because you have forsaken Yahweh, he has also forsaken you.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou shalt forbear to vow, it shall be no sin in thee.
+But if you shall forbear to vow, it shall be no sin in you.

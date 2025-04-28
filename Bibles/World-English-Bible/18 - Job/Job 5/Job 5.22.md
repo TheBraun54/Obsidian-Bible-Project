@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At destruction and dearth thou shalt laugh; Neither shalt thou be afraid of the beasts of the earth.
+At destruction and famine you shall laugh, neither shall you be afraid of the animals of the earth.

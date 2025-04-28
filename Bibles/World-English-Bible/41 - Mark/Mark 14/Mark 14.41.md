@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cometh the third time, and saith unto them, Sleep on now, and take your rest: it is enough; the hour is come; behold, the Son of man is betrayed into the hands of sinners.
+He came the third time, and said to them, "Sleep on now, and take your rest. It is enough. The hour has come. Behold, the Son of Man is betrayed into the hands of sinners.

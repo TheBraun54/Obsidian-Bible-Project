@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom hath builded her house; She hath hewn out her seven pillars:
+Wisdom has built her house. She has carved out her seven pillars.

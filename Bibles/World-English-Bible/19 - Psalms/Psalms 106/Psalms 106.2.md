@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can utter the mighty acts of Jehovah, Or show forth all his praise?
+Who can utter the mighty acts of Yahweh, or fully declare all his praise?

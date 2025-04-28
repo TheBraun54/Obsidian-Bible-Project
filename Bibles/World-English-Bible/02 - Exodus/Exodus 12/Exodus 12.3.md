@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak ye unto all the congregation of Israel, saying, In the tenth [day] of this month they shall take to them every man a lamb, according to their fathers' houses, a lamb for a household: [
+Speak to all the congregation of Israel, saying, 'On the tenth day of this month, they shall take to them every man a lamb, according to their fathers' houses, a lamb for a household;

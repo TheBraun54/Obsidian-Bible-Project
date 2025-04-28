@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-save Caleb the son of Jephunneh the Kenizzite, and Joshua the son of Nun; because they have wholly followed Jehovah.
+except Caleb the son of Jephunneh the Kenizzite, and Joshua the son of Nun; because they have followed Yahweh completely.'

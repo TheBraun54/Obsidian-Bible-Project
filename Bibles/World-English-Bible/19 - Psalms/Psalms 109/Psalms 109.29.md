@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let mine adversaries be clothed with dishonor, And let them cover themselves with their own shame as with a robe.
+Let my adversaries be clothed with dishonor. Let them cover themselves with their own shame as with a robe.

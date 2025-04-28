@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, psaltery and harp: I myself will awake right early.
+Wake up, harp and lyre! I will wake up the dawn.

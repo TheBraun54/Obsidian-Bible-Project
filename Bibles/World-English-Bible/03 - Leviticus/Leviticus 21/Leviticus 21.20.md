@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or crook-backed, or a dwarf, or that hath a blemish in his eye, or is scurvy, or scabbed, or hath his stones broken;
+or hunchbacked, or a dwarf, or one who has a defect in his eye, or an itching disease, or scabs, or who has damaged testicles;

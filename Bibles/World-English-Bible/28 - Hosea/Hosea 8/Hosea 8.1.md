@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Set] the trumpet to thy mouth. As an eagle [he cometh] against the house of Jehovah, because they have transgressed my covenant, and trespassed against my law.
+"Put the trumpet to your lips! Something like an eagle is over Yahweh's house, because they have broken my covenant, and rebelled against my law.

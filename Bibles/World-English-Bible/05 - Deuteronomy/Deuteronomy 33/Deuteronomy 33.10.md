@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall teach Jacob thine ordinances, And Israel thy law: They shall put incense before thee, And whole burnt-offering upon thine altar.
+They shall teach Jacob your ordinances, and Israel your law. They shall put incense before you, and whole burnt offering on your altar.

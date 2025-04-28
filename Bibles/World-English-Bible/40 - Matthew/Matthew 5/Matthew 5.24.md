@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-leave there thy gift before the altar, and go thy way, first be reconciled to thy brother, and then come and offer thy gift.
+leave your gift there before the altar, and go your way. First be reconciled to your brother, and then come and offer your gift.

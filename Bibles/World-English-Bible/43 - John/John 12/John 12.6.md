@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this he said, not because he cared for the poor; but because he was a thief, and having the bag took away what was put therein.
+Now he said this, not because he cared for the poor, but because he was a thief, and having the money box, used to steal what was put into it.

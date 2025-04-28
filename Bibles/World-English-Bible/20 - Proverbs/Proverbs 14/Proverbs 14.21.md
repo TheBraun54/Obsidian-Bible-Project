@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that despiseth his neighbor sinneth; But he that hath pity on the poor, happy is he.
+He who despises his neighbor sins, but blessed is he who has pity on the poor.

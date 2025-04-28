@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto them, I have meat to eat that ye know not.
+But he said to them, "I have food to eat that you don't know about."

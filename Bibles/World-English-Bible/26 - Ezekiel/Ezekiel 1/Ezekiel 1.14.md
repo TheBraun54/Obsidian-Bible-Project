@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the living creatures ran and returned as the appearance of a flash of lightning.
+The living creatures ran and returned as the appearance of a flash of lightning.

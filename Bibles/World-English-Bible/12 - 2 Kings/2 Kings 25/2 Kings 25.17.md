@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The height of the one pillar was eighteen cubits, and a capital of brass was upon it; and the height of the capital was three cubits, with network and pomegranates upon the capital round about, all of brass: and like unto these had the second pillar with network.
+The height of the one pillar was eighteen cubits, and a capital of brass was on it; and the height of the capital was three cubits, with network and pomegranates on the capital around it, all of brass: and like to these had the second pillar with network.

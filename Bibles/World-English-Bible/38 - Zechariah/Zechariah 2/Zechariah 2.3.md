@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, the angel that talked with me went forth, and another angel went out to meet him,
+Behold, the angel who talked with me went forth, and another angel went out to meet him,

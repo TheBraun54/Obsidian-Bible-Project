@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why is my pain perpetual, and my wound incurable, which refuseth to be healed? wilt thou indeed be unto me as a deceitful [brook], as waters that fail?
+Why is my pain perpetual, and my wound incurable, which refuses to be healed? will you indeed be to me as a deceitful [brook], as waters that fail?

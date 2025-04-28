@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let patience have [its] perfect work, that ye may be perfect and entire, lacking in nothing.
+Let endurance have its perfect work, that you may be perfect and complete, lacking in nothing.

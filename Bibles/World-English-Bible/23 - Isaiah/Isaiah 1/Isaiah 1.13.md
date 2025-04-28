@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bring no more vain oblations; incense is an abomination unto me; new moon and sabbath, the calling of assemblies,-- I cannot away with iniquity and the solemn meeting. [
+Bring no more vain offerings. Incense is an abomination to me; new moons, Sabbaths, and convocations: I can't bear with evil assemblies.

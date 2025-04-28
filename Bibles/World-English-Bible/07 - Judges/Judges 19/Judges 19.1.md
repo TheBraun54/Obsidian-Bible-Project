@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in those days, when there was no king in Israel, that there was a certain Levite sojourning on the farther side of the hill-country of Ephraim, who took to him a concubine out of Beth-lehem-judah.
+It happened in those days, when there was no king in Israel, that there was a certain Levite living on the farther side of the hill country of Ephraim, who took to him a concubine out of Bethlehem Judah.

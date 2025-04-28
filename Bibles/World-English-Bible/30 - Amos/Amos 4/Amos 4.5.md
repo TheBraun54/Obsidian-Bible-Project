@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and offer a sacrifice of thanksgiving of that which is leavened, and proclaim freewill-offerings and publish them: for this pleaseth you, O ye children of Israel, saith the Lord Jehovah.
+offer a sacrifice of thanksgiving of that which is leavened, and proclaim free will offerings and brag about them: for this pleases you, you children of Israel," says the Lord Yahweh.

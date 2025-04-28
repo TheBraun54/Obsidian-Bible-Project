@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt keep the commandments of Jehovah thy God, to walk in his ways, and to fear him.
+You shall keep the commandments of Yahweh your God, to walk in his ways, and to fear him.

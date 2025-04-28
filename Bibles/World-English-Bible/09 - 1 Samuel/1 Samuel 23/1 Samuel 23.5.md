@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David and his men went to Keilah, and fought with the Philistines, and brought away their cattle, and slew them with a great slaughter. So David save the inhabitants of Keilah.
+David and his men went to Keilah, and fought with the Philistines, and brought away their livestock, and killed them with a great slaughter. So David saved the inhabitants of Keilah.

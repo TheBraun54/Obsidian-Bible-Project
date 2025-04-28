@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servants of Saul told him, saying, On this manner spake David.
+The servants of Saul told him, saying, "David spoke like this."

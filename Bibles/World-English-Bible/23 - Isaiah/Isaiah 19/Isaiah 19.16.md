@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall the Egyptians be like unto women; and they shall tremble and fear because of the shaking of the hand of Jehovah of hosts, which he shaketh over them.
+In that day the Egyptians will be like women. They will tremble and fear because of the shaking of the hand of Yahweh of Armies, which he shakes over them.

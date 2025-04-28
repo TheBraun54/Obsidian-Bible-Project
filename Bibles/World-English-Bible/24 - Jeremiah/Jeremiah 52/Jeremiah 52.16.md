@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Nebuzaradan the captain of the guard left of the poorest of the land to be vinedressers and husbandmen.
+But Nebuzaradan the captain of the guard left of the poorest of the land to be vineyard keepers and farmers.

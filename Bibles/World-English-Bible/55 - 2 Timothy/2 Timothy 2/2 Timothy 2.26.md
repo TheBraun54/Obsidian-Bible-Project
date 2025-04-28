@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they may recover themselves out of the snare of the devil, having been taken captive by him unto his will.
+and they may recover themselves out of the devil's snare, having been taken captive by him to his will.

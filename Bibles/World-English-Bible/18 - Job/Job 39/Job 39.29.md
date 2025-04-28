@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From thence she spieth out the prey; Her eyes behold it afar off.
+From there he spies out the prey. His eyes see it afar off.

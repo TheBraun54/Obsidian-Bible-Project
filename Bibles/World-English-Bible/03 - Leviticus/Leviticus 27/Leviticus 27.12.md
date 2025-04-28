@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall value it, whether it be good or bad: as thou the priest valuest it, so shall it be.
+and the priest shall value it, whether it is good or bad. As you the priest values it, so shall it be.

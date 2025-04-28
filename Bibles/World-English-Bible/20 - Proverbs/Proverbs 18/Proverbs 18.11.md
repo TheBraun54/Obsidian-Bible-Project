@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rich man's wealth is his strong city, And as a high wall in his own imagination.
+The rich man's wealth is his strong city, like an unscalable wall in his own imagination.

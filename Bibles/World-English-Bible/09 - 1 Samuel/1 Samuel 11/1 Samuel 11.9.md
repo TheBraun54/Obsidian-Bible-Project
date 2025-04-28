@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto the messengers that came, Thus shall ye say unto the men of Jabesh-gilead, To-morrow, by the time the sun is hot, ye shall have deliverance. And the messengers came and told the men of Jabesh; and they were glad.
+They said to the messengers who came, "Thus you shall tell the men of Jabesh Gilead, 'Tomorrow, by the time the sun is hot, you shall have deliverance.'" The messengers came and told the men of Jabesh; and they were glad.

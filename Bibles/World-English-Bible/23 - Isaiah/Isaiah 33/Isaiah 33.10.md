@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now will I arise, saith Jehovah; now will I lift up myself; now will I be exalted.
+"Now I will arise," says Yahweh; "Now I will lift myself up. Now I will be exalted.

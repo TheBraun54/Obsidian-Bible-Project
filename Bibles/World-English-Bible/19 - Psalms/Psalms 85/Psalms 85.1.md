@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm for the sons of Korah]. Jehovah, thou hast been favorable unto thy land; Thou hast brought back the captivity of Jacob.
+Yahweh, you have been favorable to your land. You have restored the fortunes of Jacob.

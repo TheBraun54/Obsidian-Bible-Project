@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither shalt thou favor a poor man in his cause.
+neither shall you favor a poor man in his cause.

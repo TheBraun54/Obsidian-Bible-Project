@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the ten heard it, they were moved with indignation concerning the two brethren.
+When the ten heard it, they were indignant with the two brothers.

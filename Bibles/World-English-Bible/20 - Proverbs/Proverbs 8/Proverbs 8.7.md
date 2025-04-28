@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my mouth shall utter truth; And wickedness is an abomination to my lips.
+For my mouth speaks truth. Wickedness is an abomination to my lips.

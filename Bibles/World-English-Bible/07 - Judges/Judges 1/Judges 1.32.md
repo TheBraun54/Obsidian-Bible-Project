@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the Asherites dwelt among the Canaanites, the inhabitants of the land; for they did not drive them out.
+but the Asherites lived among the Canaanites, the inhabitants of the land; for they did not drive them out.

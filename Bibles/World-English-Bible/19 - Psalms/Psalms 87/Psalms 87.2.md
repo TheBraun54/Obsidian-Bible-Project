@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah loveth the gates of Zion More than all the dwellings of Jacob.
+Yahweh loves the gates of Zion more than all the dwellings of Jacob.

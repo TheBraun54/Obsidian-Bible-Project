@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long, O Jehovah? wilt thou hide thyself for ever? [How long] shall thy wrath burn like fire?
+How long, Yahweh? Will you hide yourself forever? Will your wrath burn like fire?

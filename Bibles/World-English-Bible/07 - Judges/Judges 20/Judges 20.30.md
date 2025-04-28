@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel went up against the children of Benjamin on the third day, and set themselves in array against Gibeah, as at other times.
+The children of Israel went up against the children of Benjamin on the third day, and set themselves in array against Gibeah, as at other times.

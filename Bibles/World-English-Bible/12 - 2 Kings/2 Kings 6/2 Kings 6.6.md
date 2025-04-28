@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man of God said, Where fell it? And he showed him the place. And he cut down a stick, and cast it in thither, and made the iron to swim.
+The man of God asked, "Where did it fall?" He showed him the place. He cut down a stick, threw it in there, and made the iron float.

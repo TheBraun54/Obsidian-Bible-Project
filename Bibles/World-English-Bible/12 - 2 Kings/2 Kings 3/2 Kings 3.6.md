@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Jehoram went out of Samaria at that time, and mustered all Israel.
+King Jehoram went out of Samaria at that time, and mustered all Israel.

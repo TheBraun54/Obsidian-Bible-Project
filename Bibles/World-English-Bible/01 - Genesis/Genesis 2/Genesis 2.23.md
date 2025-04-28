@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man said, This is now bone of my bones, and flesh of my flesh: she shall be called Woman, because she was taken out of Man.
+The man said, "This is now bone of my bones, and flesh of my flesh. She will be called 'woman,' because she was taken out of Man."

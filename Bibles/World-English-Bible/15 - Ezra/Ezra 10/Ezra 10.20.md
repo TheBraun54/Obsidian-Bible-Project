@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Immer: Hanani and Zebadiah.
+Of the sons of Immer: Hanani and Zebadiah.

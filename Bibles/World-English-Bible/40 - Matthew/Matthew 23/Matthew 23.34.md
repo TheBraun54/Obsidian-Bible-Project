@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, I send unto you prophets, and wise men, and scribes: some of them shall ye kill and crucify; and some of them shall ye scourge in your synagogues, and persecute from city to city:
+Therefore, behold, I send to you prophets, wise men, and scribes. Some of them you will kill and crucify; and some of them you will scourge in your synagogues, and persecute from city to city;

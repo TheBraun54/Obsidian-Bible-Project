@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the tribe of Zebulun twelve thousand; Of the tribe of Joseph twelve thousand; Of the tribe of Benjamin [were] sealed twelve thousand.
+of the tribe of Zebulun twelve thousand, of the tribe of Joseph twelve thousand, of the tribe of Benjamin were sealed twelve thousand.

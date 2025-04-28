@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by fire will Jehovah execute judgment, and by his sword, upon all flesh; and the slain of Jehovah shall be many.
+For by fire will Yahweh execute judgment, and by his sword, on all flesh; and the slain of Yahweh shall be many.

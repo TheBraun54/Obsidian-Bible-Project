@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priests killed them, and they made a sin-offering with their blood upon the altar, to make atonement for all Israel; for the king commanded [that] the burnt-offering and the sin-offering [should be made] for all Israel.
+and the priests killed them, and they made a sin offering with their blood on the altar, to make atonement for all Israel; for the king commanded [that] the burnt offering and the sin offering [should be made] for all Israel.

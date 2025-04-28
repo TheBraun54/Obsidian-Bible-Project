@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the kingdom of God is not in word, but in power.
+For the Kingdom of God is not in word, but in power.

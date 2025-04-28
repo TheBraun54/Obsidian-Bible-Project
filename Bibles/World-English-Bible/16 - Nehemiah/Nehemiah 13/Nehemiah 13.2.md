@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they met not the children of Israel with bread and with water, but hired Balaam against them, to curse them: howbeit our God turned the curse into a blessing.
+because they didn't meet the children of Israel with bread and with water, but hired Balaam against them, to curse them: however our God turned the curse into a blessing.

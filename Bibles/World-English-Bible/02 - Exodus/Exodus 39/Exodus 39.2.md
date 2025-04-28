@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the ephod of gold, blue, and purple, and scarlet, and fine twined linen.
+He made the ephod of gold, blue, purple, scarlet, and fine twined linen.

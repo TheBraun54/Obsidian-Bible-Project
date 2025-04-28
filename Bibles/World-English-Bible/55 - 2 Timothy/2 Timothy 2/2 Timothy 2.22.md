@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But flee youthful lusts, and follow after righteousness, faith, love, peace, with them that call on the Lord out of a pure heart.
+Flee from youthful lusts; but pursue righteousness, faith, love, and peace with those who call on the Lord out of a pure heart.

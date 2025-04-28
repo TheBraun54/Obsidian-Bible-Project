@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when there was made an onset both of the Gentiles and of the Jews with their rulers, to treat them shamefully and to stone them,
+When some of both the Gentiles and the Jews, with their rulers, made a violent attempt to mistreat and stone them,

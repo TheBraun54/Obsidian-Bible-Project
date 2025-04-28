@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Joash was seven years old when he began to reign; and he reigned forty years in Jerusalem: and his mother's name was Zibiah, of Beer-sheba.
+Joash was seven years old when he began to reign; and he reigned forty years in Jerusalem: and his mother's name was Zibiah, of Beersheba.

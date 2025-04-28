@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Were they ashamed when they had committed abomination? nay, they were not at all ashamed, neither could they blush: therefore they shall fall among them that fall; at the time that I visit them they shall be cast down, saith Jehovah.
+Were they ashamed when they had committed abomination? No, they were not at all ashamed, neither could they blush. Therefore they shall fall among those who fall; at the time that I visit them, they shall be cast down," says Yahweh.

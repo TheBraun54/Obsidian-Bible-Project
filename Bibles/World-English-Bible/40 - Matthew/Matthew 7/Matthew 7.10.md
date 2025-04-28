@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or if he shall ask for a fish, will give him a serpent?
+Or if he asks for a fish, who will give him a serpent?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he have no daughter, then ye shall give his inheritance unto his brethren.
+If he has no daughter, then you shall give his inheritance to his brothers.

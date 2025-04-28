@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Faithful is the saying, If a man seeketh the office of a bishop, he desireth a good work.
+This is a faithful saying: if a man seeks the office of an overseer, he desires a good work.

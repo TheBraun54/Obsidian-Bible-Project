@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In God (I will praise his word), In God have I put my trust, I will not be afraid; What can flesh do unto me?
+In God, I praise his word. In God, I put my trust. I will not be afraid. What can flesh do to me?

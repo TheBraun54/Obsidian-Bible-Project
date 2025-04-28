@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the tabernacle and all the vessels of the ministry he sprinkled in like manner with the blood.
+Moreover he sprinkled the tabernacle and all the vessels of the ministry in the same way with the blood.

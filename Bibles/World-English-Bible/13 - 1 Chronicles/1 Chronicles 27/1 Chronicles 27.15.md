@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The twelfth [captain] for the twelfth month was Heldai the Netophathite, of Othniel: and in his course were twenty and four thousand.
+The twelfth [captain] for the twelfth month was Heldai the Netophathite, of Othniel: and in his division were twenty-four thousand.

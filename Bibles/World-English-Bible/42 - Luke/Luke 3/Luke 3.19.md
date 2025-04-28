@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but Herod the tetrarch, being reproved by him for Herodias his brother's wife, and for all the evil things which Herod had done,
+but Herod the tetrarch, being reproved by him for Herodias, his brother's wife, and for all the evil things which Herod had done,

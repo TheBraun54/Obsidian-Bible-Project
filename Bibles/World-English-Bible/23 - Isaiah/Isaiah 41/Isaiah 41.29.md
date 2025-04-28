@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, all of them, their works are vanity [and] nought; their molten images are wind and confusion.
+Behold, all of them, their works are vanity and nothing. Their molten images are wind and confusion.

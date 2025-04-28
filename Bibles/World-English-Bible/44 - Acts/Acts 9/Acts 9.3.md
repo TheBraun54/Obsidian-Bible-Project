@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he journeyed, it came to pass that he drew nigh unto Damascus: and suddenly there shone round about him a light out of heaven:
+As he traveled, it happened that he got close to Damascus, and suddenly a light from the sky shone around him.

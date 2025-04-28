@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say unto him, Because no man hath hired us. He saith unto them, Go ye also into the vineyard.
+"They said to him, 'Because no one has hired us.' "He said to them, 'You also go into the vineyard, and you will receive whatever is right.'

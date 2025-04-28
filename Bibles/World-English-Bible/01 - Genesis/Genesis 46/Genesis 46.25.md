@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the sons of Bilhah, whom Laban gave unto Rachel his daughter, and these she bare unto Jacob: all the souls were seven.
+These are the sons of Bilhah, whom Laban gave to Rachel, his daughter, and these she bore to Jacob: all the souls were seven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now that which was prepared for one day was one ox and six choice sheep; also fowls were prepared for me, and once in ten days store of all sorts of wine: yet for all this I demanded not the bread of the governor, because the bondage was heavy upon this people.
+Now that which was prepared for one day was one ox and six choice sheep; also fowls were prepared for me, and once in ten days store of all sorts of wine: yet for all this I didn't demand the bread of the governor, because the bondage was heavy on this people.

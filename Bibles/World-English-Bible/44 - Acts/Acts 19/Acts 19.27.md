@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and not only is there danger that this our trade come into disrepute; but also that the temple of the great goddess Diana be made of no account, and that she should even be deposed from her magnificence whom all Asia and the world worshippeth.
+Not only is there danger that this our trade come into disrepute, but also that the temple of the great goddess Artemis will be counted as nothing, and her majesty destroyed, whom all Asia and the world worships."

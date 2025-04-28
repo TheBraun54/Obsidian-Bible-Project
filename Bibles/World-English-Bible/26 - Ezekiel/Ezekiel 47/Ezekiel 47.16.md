@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hamath, Berothah, Sibraim, which is between the border of Damascus and the border of Hamath; Hazer-hatticon, which is by the border of Hauran.
+Hamath, Berothah, Sibraim, which is between the border of Damascus and the border of Hamath; Hazer Hatticon, which is by the border of Hauran.

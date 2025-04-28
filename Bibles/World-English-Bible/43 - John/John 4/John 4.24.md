@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is a Spirit: and they that worship him must worship in spirit and truth.
+God is spirit, and those who worship him must worship in spirit and truth."

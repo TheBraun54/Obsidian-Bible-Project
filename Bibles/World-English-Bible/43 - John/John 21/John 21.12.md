@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto them, Come [and] break your fast. And none of the disciples durst inquire of him, Who art thou? knowing that it was the Lord.
+Jesus said to them, "Come and eat breakfast." None of the disciples dared inquire of him, "Who are you?" knowing that it was the Lord.

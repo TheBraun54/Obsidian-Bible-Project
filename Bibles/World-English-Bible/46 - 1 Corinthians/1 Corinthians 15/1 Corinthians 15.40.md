@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are also celestial bodies, and bodies terrestrial: but the glory of the celestial is one, and the [glory] of the terrestrial is another.
+There are also celestial bodies, and terrestrial bodies; but the glory of the celestial differs from that of the terrestrial.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And render unto our neighbors sevenfold into their bosom Their reproach, wherewith they have reproached thee, O Lord.
+Pay back to our neighbors seven times into their bosom their reproach with which they have reproached you, Lord.

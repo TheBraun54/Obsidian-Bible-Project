@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses came and told the people all the words of Jehovah, and all the ordinances: and all the people answered with one voice, and said, All the words which Jehovah hath spoken will we do.
+Moses came and told the people all the words of Yahweh, and all the ordinances; and all the people answered with one voice, and said, "All the words which Yahweh has spoken will we do."

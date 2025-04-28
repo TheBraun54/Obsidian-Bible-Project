@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Answer a fool according to his folly, Lest he be wise in his own conceit.
+Answer a fool according to his folly, lest he be wise in his own eyes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore the Lord will smite with a scab the crown of the head of the daughters of Zion, and Jehovah will lay bare their secret parts.
+therefore the Lord brings sores on the crown of the head of the women of Zion, and Yahweh will make their scalps bald."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the foolish said unto the wise, Give us of your oil; for our lamps are going out.
+The foolish said to the wise, 'Give us some of your oil, for our lamps are going out.'

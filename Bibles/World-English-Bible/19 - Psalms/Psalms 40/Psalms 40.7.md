@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Lo, I am come; In the roll of the book it is written of me:
+Then I said, "Behold, I have come. It is written about me in the book in the scroll.

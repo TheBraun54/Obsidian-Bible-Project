@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the kite, and the falcon after its kind,
+and the red kite, any kind of black kite,

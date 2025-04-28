@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not my word like fire? saith Jehovah; and like a hammer that breaketh the rock in pieces?
+Isn't my word like fire? says Yahweh; and like a hammer that breaks the rock in pieces?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, ye children of Israel, all of you, give here your advice and counsel.
+Behold, you children of Israel, all of you, give here your advice and counsel."

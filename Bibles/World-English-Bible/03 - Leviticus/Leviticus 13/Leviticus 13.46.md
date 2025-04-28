@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the days wherein the plague is in him he shall be unclean; he is unclean: he shall dwell alone; without the camp shall his dwelling be.
+All the days in which the plague is in him he shall be unclean. He is unclean. He shall dwell alone. Outside of the camp shall be his dwelling.

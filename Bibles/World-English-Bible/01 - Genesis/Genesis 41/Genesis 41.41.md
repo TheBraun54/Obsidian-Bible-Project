@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto Joseph, See, I have set thee over all the land of Egypt.
+Pharaoh said to Joseph, "Behold, I have set you over all the land of Egypt."

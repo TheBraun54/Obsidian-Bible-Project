@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there were six waterpots of stone set there after the Jews' manner of purifying, containing two or three firkins apiece.
+Now there were six water pots of stone set there after the Jews' way of purifying, containing two or three metretes apiece.

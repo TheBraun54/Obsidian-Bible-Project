@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Righteousness guardeth him that is upright in the way; But wickedness overthroweth the sinner.
+Righteousness guards the way of integrity, but wickedness overthrows the sinner.

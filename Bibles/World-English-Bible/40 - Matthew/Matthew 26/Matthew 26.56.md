@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all this is come to pass, that the scriptures of the prophets might be fulfilled. Then all the disciples left him, and fled.
+But all this has happened, that the Scriptures of the prophets might be fulfilled." Then all the disciples left him, and fled.

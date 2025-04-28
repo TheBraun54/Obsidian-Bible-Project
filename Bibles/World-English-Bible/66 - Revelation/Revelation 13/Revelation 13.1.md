@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he stood upon the sand of the sea. And I saw a beast coming up out of the sea, having ten horns, and seven heads, and on his horns ten diadems, and upon his heads names of blasphemy.
+Then I stood on the sand of the sea. I saw a beast coming up out of the sea, having ten horns and seven heads. On his horns were ten crowns, and on his heads, blasphemous names.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Verily I say unto you, There is no man that hath left house, or wife, or brethren, or parents, or children, for the kingdom of God's sake,
+He said to them, "Most certainly I tell you, there is no one who has left house, or wife, or brothers, or parents, or children, for the Kingdom of God's sake,

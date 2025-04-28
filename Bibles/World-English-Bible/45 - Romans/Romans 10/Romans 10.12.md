@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is no distinction between Jew and Greek: for the same [Lord] is Lord of all, and is rich unto all that call upon him:
+For there is no distinction between Jew and Greek; for the same Lord is Lord of all, and is rich to all who call on him.

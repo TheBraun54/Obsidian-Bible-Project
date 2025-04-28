@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they and our fathers dealt proudly and hardened their neck, and hearkened not to thy commandments,
+"But they and our fathers dealt proudly and hardened their neck, didn't listen to your commandments,

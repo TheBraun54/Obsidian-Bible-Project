@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice, and be exceeding glad: for great is your reward in heaven: for so persecuted they the prophets that were before you.
+Rejoice, and be exceedingly glad, for great is your reward in heaven. For that is how they persecuted the prophets who were before you.

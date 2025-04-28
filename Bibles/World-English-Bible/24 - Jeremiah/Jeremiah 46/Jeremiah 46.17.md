@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They cried there, Pharaoh king of Egypt is but a noise; he hath let the appointed time pass by.
+They cried there, Pharaoh king of Egypt is but a noise; he has let the appointed time pass by.

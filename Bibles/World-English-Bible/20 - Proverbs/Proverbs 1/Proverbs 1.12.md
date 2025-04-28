@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us swallow them up alive as Sheol, And whole, as those that go down into the pit;
+let's swallow them up alive like Sheol, and whole, like those who go down into the pit.

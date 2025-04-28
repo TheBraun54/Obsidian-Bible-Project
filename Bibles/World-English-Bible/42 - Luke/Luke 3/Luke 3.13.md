@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Extort no more than that which is appointed you.
+He said to them, "Collect no more than that which is appointed to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And likewise for the north side in length there shall be hangings a hundred cubits long, and the pillars thereof twenty, and their sockets twenty, of brass; the hooks of the pillars, and their fillets, of silver.
+Likewise for the north side in length there shall be hangings one hundred cubits long, and its pillars twenty, and their sockets twenty, of brass; the hooks of the pillars, and their fillets, of silver.

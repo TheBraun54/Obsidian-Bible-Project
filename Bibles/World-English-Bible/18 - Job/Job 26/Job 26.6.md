@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sheol is naked before [God], And Abaddon hath no covering.
+Sheol is naked before God, and Abaddon has no covering.

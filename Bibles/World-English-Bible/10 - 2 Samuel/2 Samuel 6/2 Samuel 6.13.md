@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, when they that bare the ark of Jehovah had gone six paces, he sacrificed an ox and a fatling.
+It was so, that, when those who bore the ark of Yahweh had gone six paces, he sacrificed an ox and a fattened calf.

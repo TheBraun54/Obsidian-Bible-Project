@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to wait for his Son from heaven, whom he raised from the dead, [even] Jesus, who delivereth us from the wrath to come.
+and to wait for his Son from heaven, whom he raised from the dead--Jesus, who delivers us from the wrath to come.

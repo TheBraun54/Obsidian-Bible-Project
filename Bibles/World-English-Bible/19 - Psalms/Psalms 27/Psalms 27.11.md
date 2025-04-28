@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teach me thy way, O Jehovah; And lead me in a plain path, Because of mine enemies.
+Teach me your way, Yahweh. Lead me in a straight path, because of my enemies.

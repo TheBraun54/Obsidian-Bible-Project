@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A bastard shall not enter into the assembly of Jehovah; even to the tenth generation shall none of his enter into the assembly of Jehovah.
+A bastard shall not enter into the assembly of Yahweh; even to the tenth generation shall none of his enter into the assembly of Yahweh.

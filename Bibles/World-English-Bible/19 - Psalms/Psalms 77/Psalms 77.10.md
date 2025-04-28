@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, This is my infirmity; [But I will remember] the years of the right hand of the Most High.
+Then I thought, "I will appeal to this: the years of the right hand of the Most High."

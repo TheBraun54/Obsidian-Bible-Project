@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all these things are the beginning of travail.
+But all these things are the beginning of birth pains.

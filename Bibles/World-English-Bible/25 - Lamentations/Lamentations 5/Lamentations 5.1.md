@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, O Jehovah, what is come upon us: Behold, and see our reproach.
+Remember, Yahweh, what has come on us: Look, and see our reproach.

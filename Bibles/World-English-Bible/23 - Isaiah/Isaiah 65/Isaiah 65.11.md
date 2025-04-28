@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye that forsake Jehovah, that forget my holy mountain, that prepare a table for Fortune, and that fill up mingled wine unto Destiny;
+"But you who forsake Yahweh, who forget my holy mountain, who prepare a table for Fortune, and who fill up mixed wine to Destiny;

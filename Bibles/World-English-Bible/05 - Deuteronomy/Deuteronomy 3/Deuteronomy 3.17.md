@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the Arabah also, and the Jordan and the border [thereof], from Chinnereth even unto the sea of the Arabah, the Salt Sea, under the slopes of Pisgah eastward.
+the Arabah also, and the Jordan and the border [of it], from Chinnereth even to the sea of the Arabah, the Salt Sea, under the slopes of Pisgah eastward.

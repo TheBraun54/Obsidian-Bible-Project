@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to Seth, to him also there was born a son; and he called his name Enosh. Then began men to call upon the name of Jehovah.
+There was also born a son to Seth, and he named him Enosh. Then men began to call on Yahweh's name.

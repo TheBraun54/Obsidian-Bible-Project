@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bread of falsehood is sweet to a man; But afterwards his mouth shall be filled with gravel.
+Fraudulent food is sweet to a man, but afterwards his mouth is filled with gravel.

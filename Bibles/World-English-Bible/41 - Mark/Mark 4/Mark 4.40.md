@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Why are ye fearful? have ye not yet faith?
+He said to them, "Why are you so afraid? How is it that you have no faith?"

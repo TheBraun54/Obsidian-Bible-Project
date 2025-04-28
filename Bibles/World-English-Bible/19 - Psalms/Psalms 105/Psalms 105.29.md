@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He turned their waters into blood, And slew their fish.
+He turned their waters into blood, and killed their fish.

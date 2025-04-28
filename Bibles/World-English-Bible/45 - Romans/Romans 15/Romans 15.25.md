@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but now, I [say], I go unto Jerusalem, ministering unto the saints.
+But now, I say, I am going to Jerusalem, serving the saints.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in all the land were no women found so fair as the daughters of Job: and their father gave them inheritance among their brethren.
+In all the land were no women found so beautiful as the daughters of Job. Their father gave them an inheritance among their brothers.

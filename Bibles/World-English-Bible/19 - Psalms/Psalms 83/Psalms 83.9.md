@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do thou unto them as unto Midian, As to Sisera, as to Jabin, at the river Kishon;
+Do to them as you did to Midian, as to Sisera, as to Jabin, at the river Kishon;

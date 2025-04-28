@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This only would I learn from you. Received ye the Spirit by the works of the law, or by the hearing of faith?
+I just want to learn this from you. Did you receive the Spirit by the works of the law, or by hearing of faith?

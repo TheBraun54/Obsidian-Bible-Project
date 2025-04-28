@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David came to Baal-perazim, and David smote them there; and he said, Jehovah hath broken mine enemies before me, like the breach of waters. Therefore he called the name of that place Baal-perazim.
+David came to Baal Perazim, and David struck them there; and he said, "Yahweh has broken my enemies before me, like the breach of waters." Therefore he called the name of that place Baal Perazim.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak did as Balaam had said, and offered up a bullock and a ram on every altar.
+Balak did as Balaam had said, and offered up a bull and a ram on every altar.

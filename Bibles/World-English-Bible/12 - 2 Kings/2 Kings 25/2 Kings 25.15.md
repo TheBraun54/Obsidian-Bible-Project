@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the firepans, and the basins, that which was of gold, in gold, and that which was of silver, in silver, the captain of the guard took away.
+The fire pans, and the basins, that which was of gold, in gold, and that which was of silver, in silver, the captain of the guard took away.

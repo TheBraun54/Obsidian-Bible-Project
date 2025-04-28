@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took away the covering of Judah; and thou didst look in that day to the armor in the house of the forest.
+He took away the covering of Judah; and you looked in that day to the armor in the house of the forest.

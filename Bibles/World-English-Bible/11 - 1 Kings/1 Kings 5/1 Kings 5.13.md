@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon raised a levy out of all Israel; and the levy was thirty thousand men.
+King Solomon raised a levy out of all Israel; and the levy was thirty thousand men.

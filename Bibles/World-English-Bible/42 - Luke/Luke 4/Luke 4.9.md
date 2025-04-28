@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he led him to Jerusalem, and set him on the pinnacle of the temple, and said unto him, If thou art the Son of God, cast thyself down from hence:
+He led him to Jerusalem, and set him on the pinnacle of the temple, and said to him, "If you are the Son of God, cast yourself down from here,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My mouth shall speak the praise of Jehovah; And let all flesh bless his holy name for ever and ever.
+My mouth will speak the praise of Yahweh. Let all flesh bless his holy name forever and ever.

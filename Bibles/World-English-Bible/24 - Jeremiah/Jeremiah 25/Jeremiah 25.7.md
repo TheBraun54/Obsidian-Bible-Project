@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet ye have not hearkened unto me, saith Jehovah; that ye may provoke me to anger with the work of your hands to your own hurt.
+Yet you have not listened to me, says Yahweh; that you may provoke me to anger with the work of your hands to your own hurt.

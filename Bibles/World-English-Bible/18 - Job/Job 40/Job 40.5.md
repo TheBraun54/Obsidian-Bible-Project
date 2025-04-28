@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Once have I spoken, and I will not answer; Yea, twice, but I will proceed no further.
+I have spoken once, and I will not answer; Yes, twice, but I will proceed no further."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Zedekiah unto Jeremiah, Let no man know of these words, and thou shalt not die.
+Then Zedekiah said to Jeremiah, Let no man know of these words, and you shall not die.

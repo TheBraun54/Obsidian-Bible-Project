@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto her, Mary. She turneth herself, and saith unto him in Hebrew, Rabboni; which is to say, Teacher.
+Jesus said to her, "Mary." She turned and said to him, "Rabboni!" which is to say, "Teacher!"

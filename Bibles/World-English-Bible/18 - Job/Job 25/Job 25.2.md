@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dominion and fear are with him; He maketh peace in his high places.
+"Dominion and fear are with him. He makes peace in his high places.

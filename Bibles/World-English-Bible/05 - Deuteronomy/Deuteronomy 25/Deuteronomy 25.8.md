@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the elders of his city shall call him, and speak unto him: and if he stand, and say, I like not to take her;
+Then the elders of his city shall call him, and speak to him: and if he stand, and say, "I don't want to take her;"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The jar of meal wasted not, neither did the cruse of oil fail, according to the word of Jehovah, which he spake by Elijah.
+The jar of meal didn't empty, neither did the jar of oil fail, according to the word of Yahweh, which he spoke by Elijah.

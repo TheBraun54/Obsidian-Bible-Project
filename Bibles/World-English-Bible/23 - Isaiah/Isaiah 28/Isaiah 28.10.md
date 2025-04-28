@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is precept upon precept, precept upon precept; line upon line, line upon line; here a little, there a little.
+For it is precept on precept, precept on precept; line on line, line on line; here a little, there a little.

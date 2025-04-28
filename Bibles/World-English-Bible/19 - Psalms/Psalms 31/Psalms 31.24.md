@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be strong, and let your heart take courage, All ye that hope in Jehovah.
+Be strong, and let your heart take courage, all you who hope in Yahweh. By David. A contemplative psalm.

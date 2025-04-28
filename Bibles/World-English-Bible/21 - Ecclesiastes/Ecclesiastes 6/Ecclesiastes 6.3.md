@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man beget a hundred children, and live many years, so that the days of his years are many, but his soul be not filled with good, and moreover he have no burial; I say, that an untimely birth is better than he:
+If a man fathers a hundred children, and lives many years, so that the days of his years are many, but his soul is not filled with good, and moreover he has no burial; I say, that a stillborn child is better than he:

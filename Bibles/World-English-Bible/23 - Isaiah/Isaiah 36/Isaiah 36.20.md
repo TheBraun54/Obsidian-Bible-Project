@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who are they among all the gods of these countries, that have delivered their country out of my hand, that Jehovah should deliver Jerusalem out of my hand?
+Who are they among all the gods of these countries that have delivered their country out of my hand, that Yahweh should deliver Jerusalem out of my hand?'"

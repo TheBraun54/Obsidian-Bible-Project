@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Weary not thyself to be rich; Cease from thine own wisdom.
+Don't weary yourself to be rich. In your wisdom, show restraint.

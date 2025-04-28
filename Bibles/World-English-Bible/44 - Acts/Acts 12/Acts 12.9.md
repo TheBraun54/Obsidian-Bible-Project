@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went out, and followed; and he knew not that it was true which was done by the angel, but thought he saw a vision.
+And he went out and followed him. He didn't know that what was being done by the angel was real, but thought he saw a vision.

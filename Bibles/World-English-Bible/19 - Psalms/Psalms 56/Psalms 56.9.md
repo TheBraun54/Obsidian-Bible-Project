@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall mine enemies turn back in the day that I call: This I know, that God is for me.
+Then my enemies shall turn back in the day that I call. I know this, that God is for me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the stock which thy right hand planted, And the branch that thou madest strong for thyself.
+the stock which your right hand planted, the branch that you made strong for yourself.

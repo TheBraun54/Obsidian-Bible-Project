@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this shall the earth mourn, and the heavens above be black; because I have spoken it, I have purposed it, and I have not repented, neither will I turn back from it.
+For this the earth will mourn, and the heavens above be black; because I have spoken it, I have purposed it, and I have not repented, neither will I turn back from it."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall they fear the name of Jehovah from the west, and his glory from the rising of the sun; for he will come as a rushing stream, which the breath of Jehovah driveth.
+So shall they fear the name of Yahweh from the west, and his glory from the rising of the sun; for he will come as a rushing stream, which the breath of Yahweh drives.

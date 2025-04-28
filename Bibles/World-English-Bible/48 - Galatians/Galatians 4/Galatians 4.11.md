@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am afraid of you, lest by any means I have bestowed labor upon you in vain.
+I am afraid for you, that I might have wasted my labor for you.

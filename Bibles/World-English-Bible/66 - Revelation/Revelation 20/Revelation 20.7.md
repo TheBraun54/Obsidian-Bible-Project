@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the thousand years are finished, Satan shall be loosed out of his prison,
+And after the thousand years, Satan will be released from his prison,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Adah bare Jabal: he was the father of such as dwell in tents and [have] cattle.
+Adah gave birth to Jabal, who was the father of those who dwell in tents and have livestock.

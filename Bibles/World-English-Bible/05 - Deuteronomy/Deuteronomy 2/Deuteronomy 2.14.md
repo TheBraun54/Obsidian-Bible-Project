@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the days in which we came from Kadesh-barnea, until we were come over the brook Zered, were thirty and eight years; until all the generation of the men of war were consumed from the midst of the camp, as Jehovah sware unto them.
+The days in which we came from Kadesh Barnea, until we were come over the brook Zered, were thirty-eight years; until all the generation of the men of war were consumed from the midst of the camp, as Yahweh swore to them.

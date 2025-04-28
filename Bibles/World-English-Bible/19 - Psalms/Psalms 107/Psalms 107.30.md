@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then are they glad because they are quiet; So he bringeth them unto their desired haven.
+Then they are glad because it is calm, so he brings them to their desired haven.

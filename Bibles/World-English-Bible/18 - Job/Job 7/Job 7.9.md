@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the cloud is consumed and vanisheth away, So he that goeth down to Sheol shall come up no more.
+As the cloud is consumed and vanishes away, so he who goes down to Sheol shall come up no more.

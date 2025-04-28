@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Each board had two tenons, joined one to another: thus did he make for all the boards of the tabernacle.
+Each board had two tenons, joined one to another. He made all the boards of the tabernacle this way.

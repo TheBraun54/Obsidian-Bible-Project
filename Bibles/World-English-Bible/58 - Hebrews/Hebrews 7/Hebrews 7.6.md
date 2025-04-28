@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he whose genealogy is not counted from them hath taken tithes of Abraham, and hath blessed him that hath the promises.
+but he whose genealogy is not counted from them has accepted tithes from Abraham, and has blessed him who has the promises.

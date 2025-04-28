@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, truth is lacking; and he that departeth from evil maketh himself a prey. And Jehovah saw it, and it displeased him that there was no justice.
+Yes, truth is lacking; and he who departs from evil makes himself a prey. Yahweh saw it, and it displeased him that there was no justice.

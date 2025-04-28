@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now if Christ is preached that he hath been raised from the dead, how say some among you that there is no resurrection of the dead?
+Now if Christ is preached, that he has been raised from the dead, how do some among you say that there is no resurrection of the dead?

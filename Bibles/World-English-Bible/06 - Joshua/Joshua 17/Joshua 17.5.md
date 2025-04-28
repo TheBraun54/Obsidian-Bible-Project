@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there fell ten parts to Manasseh, besides the land of Gilead and Bashan, which is beyond the Jordan;
+Ten parts fell to Manasseh, besides the land of Gilead and Bashan, which is beyond the Jordan;

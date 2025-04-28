@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Man goeth forth unto his work And to his labor until the evening.
+Man goes forth to his work, to his labor until the evening.

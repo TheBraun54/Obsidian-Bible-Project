@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause therefore the Jews sought the more to kill him, because he not only brake the sabbath, but also called God his own Father, making himself equal with God.
+For this cause therefore the Jews sought all the more to kill him, because he not only broke the Sabbath, but also called God his own Father, making himself equal with God.

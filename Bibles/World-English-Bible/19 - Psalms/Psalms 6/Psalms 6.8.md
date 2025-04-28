@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Depart from me, all ye workers of iniquity; For Jehovah hath heard the voice of my weeping.
+Depart from me, all you workers of iniquity, for Yahweh has heard the voice of my weeping.

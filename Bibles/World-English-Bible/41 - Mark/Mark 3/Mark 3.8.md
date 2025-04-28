@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and from Jerusalem, and from Idumaea, and beyond the Jordan, and about Tyre and Sidon, a great multitude, hearing what great things he did, came unto him.
+from Jerusalem, from Idumaea, beyond the Jordan, and those from around Tyre and Sidon. A great multitude, hearing what great things he did, came to him.

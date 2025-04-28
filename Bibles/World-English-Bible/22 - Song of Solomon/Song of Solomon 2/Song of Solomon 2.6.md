@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His left hand [is] under my head, And his right hand doth embrace me.
+His left hand is under my head. His right hand embraces me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O Jehovah; O God, lift up thy hand: Forget not the poor.
+Arise, Yahweh! God, lift up your hand! Don't forget the helpless.

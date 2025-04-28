@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah said unto Moses, Speak unto Aaron thy brother, that he come not at all times into the holy place within the veil, before the mercy-seat which is upon the ark; that he die not: for I will appear in the cloud upon the mercy-seat.
+and Yahweh said to Moses, "Tell Aaron your brother, not to come at all times into the Most Holy Place within the veil, before the mercy seat which is on the ark; lest he die: for I will appear in the cloud on the mercy seat.

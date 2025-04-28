@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for thy nativity, in the day thou wast born thy navel was not cut, neither wast thou washed in water to cleanse thee; thou wast not salted at all, nor swaddled at all.
+As for your birth, in the day you were born your navel was not cut, neither were you washed in water to cleanse you; you weren't salted at all, nor swaddled at all.

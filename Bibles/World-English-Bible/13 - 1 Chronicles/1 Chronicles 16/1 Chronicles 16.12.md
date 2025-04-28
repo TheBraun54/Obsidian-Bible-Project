@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember his marvellous works that he hath done, His wonders, and the judgments of his mouth,
+Remember his marvelous works that he has done, his wonders, and the judgments of his mouth,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that hate thee shall be clothed with shame; And the tent of the wicked shall be no more.
+Those who hate you shall be clothed with shame. The tent of the wicked shall be no more."

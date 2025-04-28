@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover in those days the nobles of Judah sent many letters unto Tobiah, and [the letters] of Tobiah came unto them.
+Moreover in those days the nobles of Judah sent many letters to Tobiah, and [the letters] of Tobiah came to them.

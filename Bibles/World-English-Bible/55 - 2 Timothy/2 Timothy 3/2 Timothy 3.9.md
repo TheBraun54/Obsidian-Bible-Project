@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they shall proceed no further. For their folly shall be evident unto all men, as theirs also came to be.
+But they will proceed no further. For their folly will be evident to all men, as theirs also came to be.

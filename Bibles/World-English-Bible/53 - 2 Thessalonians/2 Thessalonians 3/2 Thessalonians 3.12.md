@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now them that are such we command and exhort in the Lord Jesus Christ, that with quietness they work, and eat their own bread.
+Now those who are that way, we command and exhort in the Lord Jesus Christ, that with quietness they work, and eat their own bread.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahab called Obadiah, who was over the household. (Now Obadiah feared Jehovah greatly:
+Ahab called Obadiah, who was over the household. (Now Obadiah feared Yahweh greatly:

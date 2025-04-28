@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou remember thy ways, and be ashamed, when thou shalt receive thy sisters, thine elder [sisters] and thy younger; and I will give them unto thee for daughters, but not by thy covenant.
+Then you shall remember your ways, and be ashamed, when you shall receive your sisters, your elder [sisters] and your younger; and I will give them to you for daughters, but not by your covenant.

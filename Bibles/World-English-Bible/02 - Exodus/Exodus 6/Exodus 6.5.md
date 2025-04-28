@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And moreover I have heard the groaning of the children of Israel, whom the Egyptians keep in bondage; and I have remembered my covenant.
+Moreover I have heard the groaning of the children of Israel, whom the Egyptians keep in bondage, and I have remembered my covenant.

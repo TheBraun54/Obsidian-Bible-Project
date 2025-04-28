@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whom have I in heaven [but thee] ? And there is none upon earth that I desire besides thee.
+Who do I have in heaven? There is no one on earth who I desire besides you.

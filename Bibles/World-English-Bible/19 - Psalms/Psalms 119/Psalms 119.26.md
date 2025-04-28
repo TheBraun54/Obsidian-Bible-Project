@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I declared my ways, and thou answeredst me: Teach me thy statutes.
+I declared my ways, and you answered me. Teach me your statutes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I delight in the law of God after the inward man:
+For I delight in God's law after the inward man,

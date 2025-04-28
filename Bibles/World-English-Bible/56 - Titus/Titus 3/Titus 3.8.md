@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Faithful is the saying, and concerning these things I desire that thou affirm confidently, to the end that they who have believed God may be careful to maintain good works. These things are good and profitable unto men:
+This saying is faithful, and concerning these things I desire that you affirm confidently, so that those who have believed God may be careful to maintain good works. These things are good and profitable to men;

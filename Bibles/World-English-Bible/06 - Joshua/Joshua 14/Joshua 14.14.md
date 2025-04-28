@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Hebron became the inheritance of Caleb the son of Jephunneh the Kenizzite unto this day; because that he wholly followed Jehovah, the God of Israel.
+Therefore Hebron became the inheritance of Caleb the son of Jephunneh the Kenizzite to this day; because he wholly followed Yahweh, the God of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any one sin, and commit a trespass against Jehovah, and deal falsely with his neighbor in a matter of deposit, or of bargain, or of robbery, or have oppressed his neighbor,
+"If anyone sins, and commits a trespass against Yahweh, and deals falsely with his neighbor in a matter of deposit, or of bargain, or of robbery, or has oppressed his neighbor,

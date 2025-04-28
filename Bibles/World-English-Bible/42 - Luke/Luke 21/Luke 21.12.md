@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But before all these things, they shall lay their hands on you, and shall persecute you, delivering you up to the synagogues and prisons, bringing you before kings and governors for my name's sake.
+But before all these things, they will lay their hands on you and will persecute you, delivering you up to synagogues and prisons, bringing you before kings and governors for my name's sake.

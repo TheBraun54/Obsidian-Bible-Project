@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these shall go away into eternal punishment: but the righteous into eternal life.
+These will go away into eternal punishment, but the righteous into eternal life."

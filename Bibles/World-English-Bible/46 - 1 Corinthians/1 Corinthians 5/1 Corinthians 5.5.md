@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to deliver such a one unto Satan for the destruction of the flesh, that the spirit may be saved in the day of the Lord Jesus.
+are to deliver such a one to Satan for the destruction of the flesh, that the spirit may be saved in the day of the Lord Jesus.

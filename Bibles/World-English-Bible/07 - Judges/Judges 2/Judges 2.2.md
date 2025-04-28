@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall make no covenant with the inhabitants of this land; ye shall break down their altars. But ye have not hearkened unto my voice: why have ye done this?
+and you shall make no covenant with the inhabitants of this land; you shall break down their altars.' But you have not listened to my voice: why have you done this?

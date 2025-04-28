@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set yourselves in array against Babylon round about, all ye that bend the bow; shoot at her, spare no arrows: for she hath sinned against Jehovah.
+Set yourselves in array against Babylon all around, all you who bend the bow; shoot at her, spare no arrows: for she has sinned against Yahweh.

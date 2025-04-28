@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he knew their palaces, and laid waste their cities; and the land was desolate, and the fulness thereof, because of the noise of his roaring.
+He knew their palaces, and laid waste their cities; and the land was desolate, and its fullness, because of the noise of his roaring.

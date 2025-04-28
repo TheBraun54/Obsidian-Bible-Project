@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, let us be going: behold, he is at hand that betrayeth me.
+Arise, let's be going. Behold, he who betrays me is at hand."

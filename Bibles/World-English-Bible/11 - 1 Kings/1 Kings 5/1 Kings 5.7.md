@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Hiram heard the words of Solomon, that he rejoiced greatly, and said, Blessed be Jehovah this day, who hath given unto David a wise son over this great people.
+It happened, when Hiram heard the words of Solomon, that he rejoiced greatly, and said, "Blessed is Yahweh this day, who has given to David a wise son over this great people."

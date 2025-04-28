@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that ate the loaves were five thousand men.
+Those who ate the loaves were five thousand men.

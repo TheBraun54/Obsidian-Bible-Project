@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did Noah; according to all that God commanded him, so did he.
+Thus Noah did. According to all that God commanded him, so he did.

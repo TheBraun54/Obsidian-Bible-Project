@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-through whom also we have had our access by faith into this grace wherein we stand; and we rejoice in hope of the glory of God.
+through whom we also have our access by faith into this grace in which we stand. We rejoice in hope of the glory of God.

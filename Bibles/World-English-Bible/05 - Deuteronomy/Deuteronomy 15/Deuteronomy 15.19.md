@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the firstling males that are born of thy herd and of thy flock thou shalt sanctify unto Jehovah thy God: thou shalt do no work with the firstling of thy herd, nor shear the firstling of thy flock.
+All the firstborn males that are born of your herd and of your flock you shall sanctify to Yahweh your God: you shall do no work with the firstborn of your herd, nor shear the firstborn of your flock.

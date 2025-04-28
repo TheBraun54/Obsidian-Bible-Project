@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall come in and look; and, behold, if the plague be spread in the house, it is a fretting leprosy in the house: it is unclean.
+then the priest shall come in and look; and behold, if the plague has spread in the house, it is a destructive mildew in the house. It is unclean.

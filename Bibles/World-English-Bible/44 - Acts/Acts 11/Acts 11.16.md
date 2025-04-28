@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I remembered the word of the Lord, how he said, John indeed baptized with water; but ye shall be baptized in the Holy Spirit.
+I remembered the word of the Lord, how he said, 'John indeed baptized in water, but you will be baptized in the Holy Spirit.'

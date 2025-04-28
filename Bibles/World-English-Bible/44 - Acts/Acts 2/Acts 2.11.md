@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cretans and Arabians, we hear them speaking in our tongues the mighty works of God.
+Cretans and Arabians: we hear them speaking in our languages the mighty works of God!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in those days, that Jesus came from Nazareth of Galilee, and was baptized of John in the Jordan.
+It happened in those days, that Jesus came from Nazareth of Galilee, and was baptized by John in the Jordan.

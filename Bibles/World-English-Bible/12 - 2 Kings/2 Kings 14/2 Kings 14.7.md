@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He slew of Edom in the Valley of Salt ten thousand, and took Sela by war, and called the name of it Joktheel, unto this day.
+He killed of Edom in the Valley of Salt ten thousand, and took Sela by war, and called its name Joktheel, to this day.

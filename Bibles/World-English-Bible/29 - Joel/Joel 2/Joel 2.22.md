@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not afraid, ye beasts of the field; for the pastures of the wilderness do spring, for the tree beareth its fruit, the fig-tree and the vine do yield their strength.
+Don't be afraid, you animals of the field; for the pastures of the wilderness spring up, for the tree bears its fruit. The fig tree and the vine yield their strength.

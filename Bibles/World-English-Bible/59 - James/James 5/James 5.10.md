@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take, brethren, for an example of suffering and of patience, the prophets who spake in the name of the Lord.
+Take, brothers, for an example of suffering and of patience, the prophets who spoke in the name of the Lord.

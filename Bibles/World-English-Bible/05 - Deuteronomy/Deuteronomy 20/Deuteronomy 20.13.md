@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when Jehovah thy God delivereth it into thy hand, thou shalt smite every male thereof with the edge of the sword:
+and when Yahweh your God delivers it into your hand, you shall strike every male of it with the edge of the sword:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore the people strove with Moses, and said, Give us water that we may drink. And Moses said unto them, Why strive ye with me? Wherefore do ye tempt Jehovah?
+Therefore the people quarreled with Moses, and said, "Give us water to drink." Moses said to them, "Why do you quarrel with me? Why do you test Yahweh?"

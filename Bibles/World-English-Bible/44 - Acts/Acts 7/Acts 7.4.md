@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came he out of the land of the Chaldaeans, and dwelt in Haran: and from thence, when his father was dead, [God] removed him into this land, wherein ye now dwell:
+Then he came out of the land of the Chaldaeans, and lived in Haran. From there, when his father was dead, God moved him into this land, where you are now living.

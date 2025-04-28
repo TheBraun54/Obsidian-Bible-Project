@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Wherefore criest thou unto me? speak unto the children of Israel, that they go forward.
+Yahweh said to Moses, "Why do you cry to me? Speak to the children of Israel, that they go forward.

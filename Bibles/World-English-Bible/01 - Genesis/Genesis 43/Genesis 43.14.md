@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and God Almighty give you mercy before the man, that he may release unto you your other brother and Benjamin. And if I be bereaved of my children, I am bereaved.
+May God Almighty give you mercy before the man, that he may release to you your other brother and Benjamin. If I am bereaved of my children, I am bereaved."

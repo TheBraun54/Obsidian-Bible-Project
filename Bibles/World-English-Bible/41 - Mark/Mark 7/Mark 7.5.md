@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Pharisees and the scribes ask him, Why walk not thy disciples according to the tradition of the elders, but eat their bread with defiled hands?
+The Pharisees and the scribes asked him, "Why don't your disciples walk according to the tradition of the elders, but eat their bread with unwashed hands?"

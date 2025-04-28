@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall observe all my statutes, and all mine ordinances, and do them: I am Jehovah.
+"'You shall observe all my statutes, and all my ordinances, and do them. I am Yahweh.'"

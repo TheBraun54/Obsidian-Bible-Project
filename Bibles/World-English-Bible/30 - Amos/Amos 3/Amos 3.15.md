@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will smite the winter-house with the summer-house; and the houses of ivory shall perish, and the great houses shall have an end, saith Jehovah.
+I will strike the winter house with the summer house; and the houses of ivory will perish, and the great houses will have an end," says Yahweh.

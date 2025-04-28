@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac digged again the wells of water, which they had digged in the days of Abraham his father; for the Philistines had stopped them after the death of Abraham; and he called their names after the names by which his father had called them.
+Isaac dug again the wells of water, which they had dug in the days of Abraham his father. For the Philistines had stopped them after the death of Abraham. He called their names after the names by which his father had called them.

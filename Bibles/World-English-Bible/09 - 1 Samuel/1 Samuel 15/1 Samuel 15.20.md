@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said unto Samuel, Yea, I have obeyed the voice of Jehovah, and have gone the way which Jehovah sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites.
+Saul said to Samuel, "But I have obeyed the voice of Yahweh, and have gone the way which Yahweh sent me, and have brought Agag the king of Amalek, and have utterly destroyed the Amalekites.

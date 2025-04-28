@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she arose, and went away, and put off her veil from her, and put on the garments of her widowhood.
+She arose, and went away, and put off her veil from her, and put on the garments of her widowhood.

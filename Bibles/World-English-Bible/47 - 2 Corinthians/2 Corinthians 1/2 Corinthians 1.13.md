@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we write no other things unto you, than what ye read or even acknowledge, and I hope ye will acknowledge unto the end:
+For we write no other things to you, than what you read or even acknowledge, and I hope you will acknowledge to the end;

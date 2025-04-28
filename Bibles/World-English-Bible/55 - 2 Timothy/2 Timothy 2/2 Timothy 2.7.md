@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consider what I say; for the Lord shall give thee understanding in all things.
+Consider what I say, and may the Lord give you understanding in all things.

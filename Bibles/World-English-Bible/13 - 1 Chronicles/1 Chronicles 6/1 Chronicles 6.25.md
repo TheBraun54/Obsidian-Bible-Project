@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Elkanah: Amasai, and Ahimoth.
+The sons of Elkanah: Amasai, and Ahimoth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Slothfulness casteth into a deep sleep; And the idle soul shall suffer hunger.
+Slothfulness casts into a deep sleep. The idle soul shall suffer hunger.

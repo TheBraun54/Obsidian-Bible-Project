@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore watch ye, remembering that by the space of three years I ceased not to admonish every one night and day with tears.
+Therefore watch, remembering that for a period of three years I didn't cease to admonish everyone night and day with tears.

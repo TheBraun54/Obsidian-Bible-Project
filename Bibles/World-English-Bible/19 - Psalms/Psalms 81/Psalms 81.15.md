@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The haters of Jehovah should submit themselves unto him: But their time should endure for ever.
+The haters of Yahweh would cringe before him, and their punishment would last forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her young ones also suck up blood: And where the slain are, there is she.
+His young ones also suck up blood. Where the slain are, there he is."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that he was going on the sabbath day through the grainfields; and his disciples began, as they went, to pluck the ears.
+It happened that he was going on the Sabbath day through the grain fields, and his disciples began, as they went, to pluck the ears of grain.

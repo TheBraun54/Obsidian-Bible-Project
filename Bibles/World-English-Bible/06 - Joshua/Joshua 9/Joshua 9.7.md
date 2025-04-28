@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel said unto the Hivites, Peradventure ye dwell among us; and how shall we make a covenant with you?
+The men of Israel said to the Hivites, "What if you live among us. How could we make a covenant with you?"

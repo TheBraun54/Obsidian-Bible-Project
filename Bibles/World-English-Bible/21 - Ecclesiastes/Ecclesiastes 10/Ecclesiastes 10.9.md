@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso heweth out stones shall be hurt therewith; [and] he that cleaveth wood is endangered thereby.
+Whoever carves out stones may be injured by them. Whoever splits wood may be endangered thereby.

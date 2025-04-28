@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of him that hath an issue, and of him whose seed of copulation goeth from him, so that he is unclean thereby;
+This is the law of him who has a discharge, and of him who has an emission of semen, so that he is unclean thereby;

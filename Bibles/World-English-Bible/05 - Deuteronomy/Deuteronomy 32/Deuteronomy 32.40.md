@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I lift up my hand to heaven, And say, As I live for ever,
+For I lift up my hand to heaven, And say, As I live forever,

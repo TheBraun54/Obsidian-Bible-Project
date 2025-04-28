@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua arose up early in the morning, and mustered the people, and went up, he and the elders of Israel, before the people to Ai.
+Joshua rose up early in the morning, mustered the people, and went up, he and the elders of Israel, before the people to Ai.

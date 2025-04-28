@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the boat was now in the midst of the sea, distressed by the waves; for the wind was contrary.
+But the boat was now in the middle of the sea, distressed by the waves, for the wind was contrary.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, these are but the outskirts of his ways: And how small a whisper do we hear of him! But the thunder of his power who can understand?
+Behold, these are but the outskirts of his ways. How small a whisper do we hear of him! But the thunder of his power who can understand?"

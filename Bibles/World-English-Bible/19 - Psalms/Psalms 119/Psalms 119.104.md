@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through thy precepts I get understanding: Therefore I hate every false way.
+Through your precepts, I get understanding; therefore I hate every false way. NUN

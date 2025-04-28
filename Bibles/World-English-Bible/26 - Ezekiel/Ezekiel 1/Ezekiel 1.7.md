@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their feet were straight feet; and the sole of their feet was like the sole of a calf's foot; and they sparkled like burnished brass.
+Their feet were straight feet; and the sole of their feet was like the sole of a calf's foot; and they sparkled like burnished brass.

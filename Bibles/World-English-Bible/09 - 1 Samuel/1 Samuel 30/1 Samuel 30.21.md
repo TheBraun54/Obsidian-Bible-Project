@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David came to the two hundred men, who were so faint that they could not follow David, whom also they had made to abide at the brook Besor; and they went forth to meet David, and to meet the people that were with him: and when David came near to the people, he saluted them.
+David came to the two hundred men, who were so faint that they could not follow David, whom also they had made to stay at the brook Besor; and they went forth to meet David, and to meet the people who were with him. When David came near to the people, he greeted them.

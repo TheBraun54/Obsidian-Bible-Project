@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Open the window eastward; and he opened it. Then Elisha said, Shoot; and he shot. And he said, Jehovah's arrow of victory, even the arrow of victory over Syria; for thou shalt smite the Syrians in Aphek, till thou have consumed them.
+He said, "Open the window eastward;" and he opened it. Then Elisha said, "Shoot!" and he shot. He said, "Yahweh's arrow of victory, even the arrow of victory over Syria; for you shall strike the Syrians in Aphek, until you have consumed them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway he came to Jesus, and said, Hail, Rabbi; and kissed him.
+Immediately he came to Jesus, and said, "Hail, Rabbi!" and kissed him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will not reprove thee for thy sacrifices; And thy burnt-offerings are continually before me.
+I don't rebuke you for your sacrifices. Your burnt offerings are continually before me.

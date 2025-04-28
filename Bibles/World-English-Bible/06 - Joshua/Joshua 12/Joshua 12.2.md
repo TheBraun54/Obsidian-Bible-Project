@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sihon king of the Amorites, who dwelt in Heshbon, and ruled from Aroer, which is on the edge of the valley of the Arnon, and [the city that is in] the middle of the valley, and half Gilead, even unto the river Jabbok, the border of the children of Ammon;
+Sihon king of the Amorites, who lived in Heshbon, and ruled from Aroer, which is on the edge of the valley of the Arnon, and the middle of the valley, and half Gilead, even to the river Jabbok, the border of the children of Ammon;

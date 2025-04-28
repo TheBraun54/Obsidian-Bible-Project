@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said unto them, Are ye come out, as against a robber, with swords and staves to seize me?
+Jesus answered them, "Have you come out, as against a robber, with swords and clubs to seize me?

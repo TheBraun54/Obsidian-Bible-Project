@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Hezekiah answered and said, Now ye have consecrated yourselves unto Jehovah; come near and bring sacrifices and thank-offerings into the house of Jehovah. And the assembly brought in sacrifices and thank-offerings; and as many as were of a willing heart [brought] burnt-offerings.
+Then Hezekiah answered, "Now you have consecrated yourselves to Yahweh; come near and bring sacrifices and thank offerings into the house of Yahweh." The assembly brought in sacrifices and thank offerings; and as many as were of a willing heart [brought] burnt offerings.

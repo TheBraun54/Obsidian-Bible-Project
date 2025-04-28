@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the wave-breast and the heave - thigh have I taken of the children of Israel out of the sacrifices of their peace-offerings, and have given them unto Aaron the priest and unto his sons as [their] portion for ever from the children of Israel.
+For the waved breast and the heaved thigh I have taken from the children of Israel out of the sacrifices of their peace offerings, and have given them to Aaron the priest and to his sons as their portion forever from the children of Israel.'"

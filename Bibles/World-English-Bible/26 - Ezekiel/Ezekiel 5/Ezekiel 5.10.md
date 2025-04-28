@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the fathers shall eat the sons in the midst of thee, and the sons shall eat their fathers; and I will execute judgments on thee; and the whole remnant of thee will I scatter unto all the winds.
+Therefore the fathers shall eat the sons in the midst of you, and the sons shall eat their fathers; and I will execute judgments on you; and the whole remnant of you will I scatter to all the winds.

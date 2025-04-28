@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zenan, and Hadashah, and Migdal-gad,
+Zenan, Hadashah, Migdal Gad,

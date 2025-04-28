@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye that rejoice in a thing of nought, that say, Have we not taken to us horns by our own strength?
+you who rejoice in a thing of nothing, who say, 'Haven't we taken for ourselves horns by our own strength?'

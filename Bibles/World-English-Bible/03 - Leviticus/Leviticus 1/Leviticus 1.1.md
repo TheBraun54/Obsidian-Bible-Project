@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah called unto Moses, and spake unto him out of the tent of meeting, saying,
+Yahweh called to Moses, and spoke to him out of the Tent of Meeting, saying,

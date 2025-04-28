@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This shall they have for their pride, because they have reproached and magnified themselves against the people of Jehovah of hosts.
+This they will have for their pride, because they have reproached and magnified themselves against the people of Yahweh of Armies.

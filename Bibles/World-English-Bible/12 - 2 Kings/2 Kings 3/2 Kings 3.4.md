@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Mesha king of Moab was a sheep-master; and he rendered unto the king of Israel the wool of a hundred thousand lambs, and of a hundred thousand rams.
+Now Mesha king of Moab was a sheep breeder; and he rendered to the king of Israel the wool of one hundred thousand lambs, and of one hundred thousand rams.

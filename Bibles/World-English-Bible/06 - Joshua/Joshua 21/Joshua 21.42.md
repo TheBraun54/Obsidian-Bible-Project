@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These cities were every one with their suburbs round about them: thus it was with all these cities.
+Each of these cities included their suburbs around them. It was this way with all these cities.

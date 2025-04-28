@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt have a paddle among thy weapons; and it shall be, when thou sittest down abroad, thou shalt dig therewith, and shalt turn back and cover that which cometh from thee:
+and you shall have a paddle among your weapons; and it shall be, when you sit down abroad, you shall dig therewith, and shall turn back and cover that which comes from you:

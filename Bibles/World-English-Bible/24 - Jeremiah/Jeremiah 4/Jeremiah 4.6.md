@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set up a standard toward Zion: flee for safety, stay not; for I will bring evil from the north, and a great destruction.
+Set up a standard toward Zion. Flee for safety! Don't wait; for I will bring evil from the north, and a great destruction."

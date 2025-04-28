@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith he kept the passover, and the sprinkling of the blood, that the destroyer of the firstborn should not touch them.
+By faith, he kept the Passover, and the sprinkling of the blood, that the destroyer of the firstborn should not touch them.

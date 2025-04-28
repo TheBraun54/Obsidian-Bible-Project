@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I hate them with perfect hatred: They are become mine enemies.
+I hate them with perfect hatred. They have become my enemies.

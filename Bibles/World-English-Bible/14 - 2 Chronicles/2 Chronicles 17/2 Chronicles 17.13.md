@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had many works in the cities of Judah; and men of war, mighty men of valor, in Jerusalem.
+He had many works in the cities of Judah; and men of war, mighty men of valor, in Jerusalem.

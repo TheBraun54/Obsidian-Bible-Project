@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Thou knowest how I have served thee, and how thy cattle have fared with me.
+He said to him, "You know how I have served you, and how your livestock have fared with me.

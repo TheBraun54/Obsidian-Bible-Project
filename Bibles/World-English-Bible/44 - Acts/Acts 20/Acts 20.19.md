@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-serving the Lord with all lowliness of mind, and with tears, and with trials which befell me by the plots of the Jews;
+serving the Lord with all humility, with many tears, and with trials which happened to me by the plots of the Jews;

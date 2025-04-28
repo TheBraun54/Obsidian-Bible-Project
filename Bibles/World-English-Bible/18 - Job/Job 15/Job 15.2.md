@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Should a wise man make answer with vain knowledge, And fill himself with the east wind?
+"Should a wise man answer with vain knowledge, and fill himself with the east wind?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her prophets have daubed for them with untempered [mortar], seeing false visions, and divining lies unto them, saying, Thus saith the Lord Jehovah, when Jehovah hath not spoken.
+Her prophets have plastered for them with whitewash, seeing false visions, and divining lies to them, saying, Thus says the Lord Yahweh, when Yahweh has not spoken.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whither the tribes go up, even the tribes of Jehovah, [For] an ordinance for Israel, To give thanks unto the name of Jehovah.
+where the tribes go up, even Yah's tribes, according to an ordinance for Israel, to give thanks to the name of Yahweh.

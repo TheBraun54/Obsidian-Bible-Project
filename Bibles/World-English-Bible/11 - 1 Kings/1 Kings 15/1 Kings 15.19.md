@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[There is] a league between me and thee, between my father and thy father: behold, I have sent unto thee a present of silver and gold; go, break thy league with Baasha king of Israel, that he may depart from me.
+"There is a treaty between me and you, between my father and your father. Behold, I have sent to you a present of silver and gold. Go, break your treaty with Baasha king of Israel, that he may depart from me."

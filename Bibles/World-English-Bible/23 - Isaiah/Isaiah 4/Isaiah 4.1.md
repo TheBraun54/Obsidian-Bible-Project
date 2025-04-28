@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seven women shall take hold of one man in that day, saying, We will eat our own bread, and wear our own apparel: only let us be called by thy name; take thou away our reproach.
+Seven women shall take hold of one man in that day, saying, "We will eat our own bread, and wear our own clothing: only let us be called by your name. Take away our reproach."

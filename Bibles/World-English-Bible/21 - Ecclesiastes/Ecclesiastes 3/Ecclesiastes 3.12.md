@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know that there is nothing better for them, than to rejoice, and to do good so long as they live.
+I know that there is nothing better for them than to rejoice, and to do good as long as they live.

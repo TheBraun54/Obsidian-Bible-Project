@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by wise guidance thou shalt make thy war; And in the multitude of counsellors there is safety.
+for by wise guidance you wage your war; and victory is in many advisors.

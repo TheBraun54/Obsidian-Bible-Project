@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore didst thou flee secretly, and steal away from me, and didst not tell me, that I might have sent thee away with mirth and with songs, with tabret and with harp;
+Why did you flee secretly, and deceive me, and didn't tell me, that I might have sent you away with mirth and with songs, with tambourine and with harp;

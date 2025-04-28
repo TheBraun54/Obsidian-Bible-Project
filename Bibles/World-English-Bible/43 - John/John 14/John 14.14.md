@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye shall ask anything in my name, that will I do.
+If you will ask anything in my name, I will do it.

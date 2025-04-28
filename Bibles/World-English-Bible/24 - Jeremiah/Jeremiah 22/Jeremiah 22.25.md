@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will give thee into the hand of them that seek thy life, and into the hand of them of whom thou art afraid, even into the hand of Nebuchadrezzar king of Babylon, and into the hand of the Chaldeans.
+and I will give you into the hand of those who seek your life, and into the hand of them of whom you are afraid, even into the hand of Nebuchadnezzar king of Babylon, and into the hand of the Chaldeans.

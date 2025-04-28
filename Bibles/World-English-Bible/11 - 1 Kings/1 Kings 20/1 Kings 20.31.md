@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his servants said unto him, Behold now, we have heard that the kings of the house of Israel are merciful kings: let us, we pray thee, put sackcloth on our loins, and ropes upon our heads, and go out to the king of Israel: peradventure he will save thy life.
+His servants said to him, "See now, we have heard that the kings of the house of Israel are merciful kings. Please let us put sackcloth on our bodies, and ropes on our heads, and go out to the king of Israel. Maybe he will save your life."

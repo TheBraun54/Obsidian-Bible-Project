@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people came up out of the Jordan on the tenth day of the first month, and encamped in Gilgal, on the east border of Jericho.
+The people came up out of the Jordan on the tenth day of the first month, and encamped in Gilgal, on the east border of Jericho.

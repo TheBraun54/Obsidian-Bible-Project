@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I beseech you, brethren, through the name of our Lord Jesus Christ, that ye all speak the same thing and [that] there be no divisions among you; but [that] ye be perfected together in the same mind and in the same judgment.
+Now I beg you, brothers, through the name of our Lord, Jesus Christ, that you all speak the same thing and that there be no divisions among you, but that you be perfected together in the same mind and in the same judgment.

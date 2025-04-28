@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou art full of the judgment of the wicked: Judgment and justice take hold [on thee] .
+"But you are full of the judgment of the wicked. Judgment and justice take hold of you.

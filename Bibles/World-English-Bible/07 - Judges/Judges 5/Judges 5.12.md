@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, awake, Deborah; Awake, awake, utter a song: Arise, Barak, and lead away thy captives, thou son of Abinoam.
+'Awake, awake, Deborah! Awake, awake, utter a song! Arise, Barak, and lead away your captives, you son of Abinoam.'

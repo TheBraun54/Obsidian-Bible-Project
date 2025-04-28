@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the thirteenth, Shubael, his sons and his brethren, twelve:
+for the thirteenth, Shubael, his sons and his brothers, twelve:

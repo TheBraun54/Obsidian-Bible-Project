@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they returned, every man of Judah and Jerusalem, and Jehoshaphat in the forefront of them, to go again to Jerusalem with joy; for Jehovah had made them to rejoice over their enemies.
+Then they returned, every man of Judah and Jerusalem, and Jehoshaphat in the forefront of them, to go again to Jerusalem with joy; for Yahweh had made them to rejoice over their enemies.

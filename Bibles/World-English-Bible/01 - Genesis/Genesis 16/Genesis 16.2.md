@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Sarai said unto Abram, Behold now, Jehovah hath restrained me from bearing; go in, I pray thee, unto my handmaid; it may be that I shall obtain children by her. And Abram hearkened to the voice of Sarai.
+Sarai said to Abram, "See now, Yahweh has restrained me from bearing. Please go in to my handmaid. It may be that I will obtain children by her." Abram listened to the voice of Sarai.

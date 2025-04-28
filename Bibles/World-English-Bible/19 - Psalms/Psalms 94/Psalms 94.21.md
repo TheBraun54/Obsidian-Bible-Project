@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They gather themselves together against the soul of the righteous, And condemn the innocent blood.
+They gather themselves together against the soul of the righteous, and condemn the innocent blood.

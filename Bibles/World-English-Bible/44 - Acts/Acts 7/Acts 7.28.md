@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wouldest thou kill me, as thou killedst the Egyptian yesterday?
+Do you want to kill me, as you killed the Egyptian yesterday?'

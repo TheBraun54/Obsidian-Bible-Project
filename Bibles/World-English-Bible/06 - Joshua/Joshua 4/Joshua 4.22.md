@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then ye shall let your children know, saying, Israel came over this Jordan on dry land.
+Then you shall let your children know, saying, 'Israel came over this Jordan on dry land.

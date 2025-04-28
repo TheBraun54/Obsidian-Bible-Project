@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who coverest thyself with light as with a garment; Who stretchest out the heavens like a curtain;
+He covers himself with light as with a garment. He stretches out the heavens like a curtain.

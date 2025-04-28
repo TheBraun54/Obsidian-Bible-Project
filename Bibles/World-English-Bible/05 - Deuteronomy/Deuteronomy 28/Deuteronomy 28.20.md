@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will send upon thee cursing, discomfiture, and rebuke, in all that thou puttest thy hand unto to do, until thou be destroyed, and until thou perish quickly; because of the evil of thy doings, whereby thou hast forsaken me.
+Yahweh will send on you cursing, confusion, and rebuke, in all that you put your hand to do, until you are destroyed, and until you perish quickly; because of the evil of your doings, by which you have forsaken me.

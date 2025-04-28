@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and others fell upon the rocky places, where they had not much earth: and straightway they sprang up, because they had no deepness of earth:
+Others fell on rocky ground, where they didn't have much soil, and immediately they sprang up, because they had no depth of earth.

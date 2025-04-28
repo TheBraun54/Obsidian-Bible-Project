@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah of hosts will stir up against him a scourge, as in the slaughter of Midian at the rock of Oreb: and his rod will be over the sea, and he will lift it up after the manner of Egypt. [
+Yahweh of Armies will stir up a scourge against him, as in the slaughter of Midian at the rock of Oreb. His rod will be over the sea, and he will lift it up like he did against Egypt.

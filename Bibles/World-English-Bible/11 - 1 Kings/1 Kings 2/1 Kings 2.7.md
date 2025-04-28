@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But show kindness unto the sons of Barzillai the Gileadite, and let them be of those that eat at thy table; for so they came to me when I fled from Absalom thy brother.
+But show kindness to the sons of Barzillai the Gileadite, and let them be of those who eat at your table; for so they came to me when I fled from Absalom your brother.

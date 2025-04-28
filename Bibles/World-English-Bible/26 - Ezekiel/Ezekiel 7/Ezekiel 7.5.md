@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: An evil, an only evil; behold, it cometh.
+Thus says the Lord Yahweh: An evil, an only evil; behold, it comes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this is that which thou shalt offer upon the altar: two lambs a year old day by day continually.
+"Now this is that which you shall offer on the altar: two lambs a year old day by day continually.

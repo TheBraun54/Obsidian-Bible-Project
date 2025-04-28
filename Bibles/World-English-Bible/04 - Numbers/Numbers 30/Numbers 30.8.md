@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if her husband disallow her in the day that he heareth it, then he shall make void her vow which is upon her, and the rash utterance of her lips, wherewith she hath bound her soul: and Jehovah will forgive her.
+But if her husband disallow her in the day that he hears it, then he shall make void her vow which is on her, and the rash utterance of her lips, with which she has bound her soul: and Yahweh will forgive her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For verily in this we groan, longing to be clothed upon with our habitation which is from heaven:
+For most certainly in this we groan, longing to be clothed with our habitation which is from heaven;

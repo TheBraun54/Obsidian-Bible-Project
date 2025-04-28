@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(For only Og king of Bashan remained of the remnant of the Rephaim; behold, his bedstead was a bedstead of iron; is it not in Rabbah of the children of Ammon? nine cubits was the length thereof, and four cubits the breadth of it, after the cubit of a man.)
+(For only Og king of Bashan remained of the remnant of the Rephaim; behold, his bedstead was a bedstead of iron; isn't it in Rabbah of the children of Ammon? nine cubits was its length, and four cubits its breadth, after the cubit of a man.)

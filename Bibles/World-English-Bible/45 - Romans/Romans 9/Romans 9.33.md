@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as it is written, Behold, I lay in Zion a stone of stumbling and a rock of offence: And he that believeth on him shall not be put to shame.
+even as it is written, "Behold, I lay in Zion a stumbling stone and a rock of offense; and no one who believes in him will be disappointed."

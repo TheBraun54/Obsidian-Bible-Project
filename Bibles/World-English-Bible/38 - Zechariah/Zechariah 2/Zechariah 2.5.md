@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I, saith Jehovah, will be unto her a wall of fire round about, and I will be the glory in the midst of her.
+For I,' says Yahweh, 'will be to her a wall of fire around it, and I will be the glory in the midst of her.

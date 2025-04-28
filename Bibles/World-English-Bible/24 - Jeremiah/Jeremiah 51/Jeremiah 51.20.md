@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art my battle-axe and weapons of war: and with thee will I break in pieces the nations; and with thee will I destroy kingdoms;
+You are my battle axe and weapons of war: and with you will I break in pieces the nations; and with you will I destroy kingdoms;

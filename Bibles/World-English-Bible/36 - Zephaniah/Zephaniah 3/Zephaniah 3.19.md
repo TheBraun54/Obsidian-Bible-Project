@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, at that time I will deal with all them that afflict thee; and I will save that which is lame, and gather that which was driven away; and I will make them a praise and a name, whose shame hath been in all the earth.
+Behold, at that time I will deal with all those who afflict you, and I will save those who are lame, and gather those who were driven away. I will give them praise and honor, whose shame has been in all the earth.

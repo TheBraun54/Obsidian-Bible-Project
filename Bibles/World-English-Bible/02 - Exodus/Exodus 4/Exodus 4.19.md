@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses in Midian, Go, return into Egypt; for all the men are dead that sought thy life.
+Yahweh said to Moses in Midian, "Go, return into Egypt; for all the men who sought your life are dead."

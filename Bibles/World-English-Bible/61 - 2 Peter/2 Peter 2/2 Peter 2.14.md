@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having eyes full of adultery, and that cannot cease from sin; enticing unstedfast souls; having a heart exercised in covetousness; children of cursing;
+having eyes full of adultery, and who can't cease from sin; enticing unsettled souls; having a heart trained in greed; children of cursing;

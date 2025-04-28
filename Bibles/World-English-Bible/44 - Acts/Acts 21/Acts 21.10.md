@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as we tarried there some days, there came down from Judaea a certain prophet, named Agabus.
+As we stayed there some days, a certain prophet named Agabus came down from Judea.

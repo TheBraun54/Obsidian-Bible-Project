@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake the woman whose the living child was unto the king, for her heart yearned over her son, and she said, Oh, my lord, give her the living child, and in no wise slay it. But the other said, It shall be neither mine nor thine; divide it.
+Then the woman whose the living child was spoke to the king, for her heart yearned over her son, and she said, "Oh, my lord, give her the living child, and in no way kill it!" But the other said, "It shall be neither mine nor yours. Divide it."

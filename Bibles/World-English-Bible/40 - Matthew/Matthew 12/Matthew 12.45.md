@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then goeth he, and taketh with himself seven other spirits more evil than himself, and they enter in and dwell there: and the last state of that man becometh worse than the first. Even so shall it be also unto this evil generation.
+Then he goes, and takes with himself seven other spirits more evil than he is, and they enter in and dwell there. The last state of that man becomes worse than the first. Even so will it be also to this evil generation."

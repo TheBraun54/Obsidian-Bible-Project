@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for we are the circumcision, who worship by the Spirit of God, and glory in Christ Jesus, and have no confidence in the flesh:
+For we are the circumcision, who worship God in the Spirit, and rejoice in Christ Jesus, and have no confidence in the flesh;

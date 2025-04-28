@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Huram the king of Tyre answered in writing, which he sent to Solomon, Because Jehovah loveth his people, he hath made thee king over them.
+Then Huram the king of Tyre answered in writing, which he sent to Solomon, "Because Yahweh loves his people, he has made you king over them."

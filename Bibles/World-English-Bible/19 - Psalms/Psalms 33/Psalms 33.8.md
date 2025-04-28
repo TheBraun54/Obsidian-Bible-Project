@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all the earth fear Jehovah: Let all the inhabitants of the world stand in awe of him.
+Let all the earth fear Yahweh. Let all the inhabitants of the world stand in awe of him.

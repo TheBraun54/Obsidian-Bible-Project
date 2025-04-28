@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto him, Dost thou know that Baalis the king of the children of Ammon hath sent Ishmael the son of Nethaniah to take thy life? But Gedaliah the son of Ahikam believed them not.
+and said to him, Do you know that Baalis the king of the children of Ammon has sent Ishmael the son of Nethaniah to take your life? But Gedaliah the son of Ahikam didn't believe them.

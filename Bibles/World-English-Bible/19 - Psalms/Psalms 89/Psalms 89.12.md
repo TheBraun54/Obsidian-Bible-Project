@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The north and the south, thou hast created them: Tabor and Hermon rejoice in thy name.
+The north and the south, you have created them. Tabor and Hermon rejoice in your name.

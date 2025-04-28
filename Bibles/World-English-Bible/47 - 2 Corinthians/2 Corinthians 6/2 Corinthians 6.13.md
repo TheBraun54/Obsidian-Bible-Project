@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now for a recompense in like kind (I speak as unto [my] children), be ye also enlarged.
+Now in return, I speak as to my children, you also be open wide.

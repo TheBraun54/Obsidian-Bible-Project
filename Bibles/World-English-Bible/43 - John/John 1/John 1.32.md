@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And John bare witness, saying, I have beheld the Spirit descending as a dove out of heaven; and it abode upon him.
+John testified, saying, "I have seen the Spirit descending like a dove out of heaven, and it remained on him.

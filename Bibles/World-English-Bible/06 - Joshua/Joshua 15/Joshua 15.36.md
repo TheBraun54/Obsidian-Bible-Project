@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Shaaraim, and Adithaim, and Gederah, and Gederothaim; fourteen cities with their villages.
+Shaaraim, Adithaim and Gederah (or Gederothaim); fourteen cities with their villages.

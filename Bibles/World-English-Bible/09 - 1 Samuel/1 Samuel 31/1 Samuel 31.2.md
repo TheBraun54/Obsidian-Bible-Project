@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines followed hard upon Saul and upon his sons; and the Philistines slew Jonathan, and Abinadab, and Malchi-shua, the sons of Saul.
+The Philistines followed hard on Saul and on his sons; and the Philistines killed Jonathan, and Abinadab, and Malchishua, the sons of Saul.

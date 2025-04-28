@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know, O Jehovah, that thy judgments are righteous, And that in faithfulness thou hast afflicted me.
+Yahweh, I know that your judgments are righteous, that in faithfulness you have afflicted me.

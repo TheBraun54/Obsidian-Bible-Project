@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His bones are [as] tubes of brass; His limbs are like bars of iron.
+His bones are like tubes of brass. His limbs are like bars of iron.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will redeem Israel From all his iniquities.
+He will redeem Israel from all their sins. A Song of Ascents. By David.

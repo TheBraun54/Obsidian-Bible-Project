@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will execute vengeance in anger and wrath upon the nations which hearkened not.
+I will execute vengeance in anger, and wrath on the nations that didn't listen."

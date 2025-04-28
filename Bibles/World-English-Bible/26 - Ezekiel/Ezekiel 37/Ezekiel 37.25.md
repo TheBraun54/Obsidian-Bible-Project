@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall dwell in the land that I have given unto Jacob my servant, wherein your fathers dwelt; and they shall dwell therein, they, and their children, and their children's children, for ever: and David my servant shall be their prince for ever.
+They shall dwell in the land that I have given to Jacob my servant, in which your fathers lived; and they shall dwell therein, they, and their children, and their children's children, forever: and David my servant shall be their prince for ever.

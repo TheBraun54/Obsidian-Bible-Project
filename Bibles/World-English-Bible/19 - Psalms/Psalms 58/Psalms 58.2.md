@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, in heart ye work wickedness; Ye weigh out the violence of your hands in the earth.
+No, in your heart you plot injustice. You measure out the violence of your hands in the earth.

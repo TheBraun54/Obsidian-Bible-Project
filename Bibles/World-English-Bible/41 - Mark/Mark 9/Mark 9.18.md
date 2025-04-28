@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and wheresoever it taketh him, it dasheth him down: and he foameth, and grindeth his teeth, and pineth away: and I spake to thy disciples that they should cast it out; and they were not able. [
+and wherever it seizes him, it throws him down, and he foams at the mouth, and grinds his teeth, and wastes away. I asked your disciples to cast it out, and they weren't able."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then washed I thee with water; yea, I thoroughly washed away thy blood from thee, and I anointed thee with oil.
+Then washed I you with water; yes, I thoroughly washed away your blood from you, and I anointed you with oil.

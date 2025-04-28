@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am Jehovah, and there is none else; besides me there is no God. I will gird thee, though thou hast not known me;
+I am Yahweh, and there is none else. Besides me, there is no God. I will strengthen you, though you have not known me;

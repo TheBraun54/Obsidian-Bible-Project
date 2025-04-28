@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were the king's scribes called at that time, in the third month Sivan, on the three and twentieth [day] thereof; and it was written according to all that Mordecai commanded unto the Jews, and to the satraps, and the governors and princes of the provinces which are from India unto Ethiopia, a hundred twenty and seven provinces, unto every province according to the writing thereof, and unto every people after their language, and to the Jews according to their writing, and according to their language.
+Then the king's scribes were called at that time, in the third month Sivan, on the twenty-third day of the month; and it was written according to all that Mordecai commanded to the Jews, and to the satraps, and the governors and princes of the provinces which are from India to Ethiopia, one hundred twenty-seven provinces, to every province according to its writing, and to every people in their language, and to the Jews in their writing, and in their language.

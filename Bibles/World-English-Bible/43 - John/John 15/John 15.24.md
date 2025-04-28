@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I had not done among them the works which none other did, they had not had sin: but now have they both seen and hated both me and my Father.
+If I hadn't done among them the works which no one else did, they wouldn't have had sin. But now have they seen and also hated both me and my Father.

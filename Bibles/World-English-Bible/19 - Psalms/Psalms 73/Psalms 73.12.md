@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, these are the wicked; And, being alway at ease, they increase in riches.
+Behold, these are the wicked. Being always at ease, they increase in riches.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were beyond measure astonished, saying, He hath done all things well; he maketh even the deaf to hear, and the dumb to speak.
+They were astonished beyond measure, saying, "He has done all things well. He makes even the deaf hear, and the mute speak!"

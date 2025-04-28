@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I made known unto them thy name, and will make it known; that the love wherewith thou lovedst me may be in them, and I in them.
+I made known to them your name, and will make it known; that the love with which you loved me may be in them, and I in them."

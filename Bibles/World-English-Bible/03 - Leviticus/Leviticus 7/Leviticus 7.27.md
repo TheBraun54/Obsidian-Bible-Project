@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever it be that eateth any blood, that soul shall be cut off from his people.
+Whoever it is who eats any blood, that soul shall be cut off from his people.'"

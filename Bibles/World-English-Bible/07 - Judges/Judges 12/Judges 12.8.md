@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him Ibzan of Beth-lehem judged Israel.
+After him Ibzan of Bethlehem judged Israel.

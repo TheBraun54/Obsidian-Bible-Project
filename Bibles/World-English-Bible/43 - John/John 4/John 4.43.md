@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after the two days he went forth from thence into Galilee.
+After the two days he went out from there and went into Galilee.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art fair, O my love, as Tirzah, Comely as Jerusalem, Terrible as an army with banners.
+You are beautiful, my love, as Tirzah, lovely as Jerusalem, awesome as an army with banners.

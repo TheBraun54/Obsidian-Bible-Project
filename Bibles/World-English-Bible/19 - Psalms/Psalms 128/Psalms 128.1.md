@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. Blessed is every one that feareth Jehovah, That walketh in his ways.
+Blessed is everyone who fears Yahweh, who walks in his ways.

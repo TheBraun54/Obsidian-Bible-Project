@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the princes and all the people unto the priests and to the prophets: This man is not worthy of death; for he hath spoken to us in the name of Jehovah our God.
+Then the princes and all the people said to the priests and to the prophets: This man is not worthy of death; for he has spoken to us in the name of Yahweh our God.

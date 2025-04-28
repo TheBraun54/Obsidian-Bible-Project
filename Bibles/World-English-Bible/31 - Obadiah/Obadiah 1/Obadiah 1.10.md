@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the violence done to thy brother Jacob, shame shall cover thee, and thou shalt be cut off for ever.
+For the violence done to your brother Jacob, shame will cover you, and you will be cut off forever.

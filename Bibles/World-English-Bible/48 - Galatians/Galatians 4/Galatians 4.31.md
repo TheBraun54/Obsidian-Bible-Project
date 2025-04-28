@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, brethren, we are not children of a handmaid, but of the freewoman.
+So then, brothers, we are not children of a handmaid, but of the free woman.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them not say in their heart, Aha, so would we have it: Let them not say, We have swallowed him up.
+Don't let them say in their heart, "Aha! That's the way we want it!" Don't let them say, "We have swallowed him up!"

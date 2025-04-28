@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of the half-tribe of Manasseh dwelt in the land: they increased from Bashan unto Baal-hermon and Senir and mount Hermon.
+The children of the half-tribe of Manasseh lived in the land: they increased from Bashan to Baal Hermon and Senir and Mount Hermon.

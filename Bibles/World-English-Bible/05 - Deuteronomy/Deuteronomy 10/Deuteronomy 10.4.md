@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he wrote on the tables, according to the first writing, the ten commandments, which Jehovah spake unto you in the mount out of the midst of the fire in the day of the assembly: and Jehovah gave them unto me.
+He wrote on the tables, according to the first writing, the ten commandments, which Yahweh spoke to you on the mountain out of the midst of the fire in the day of the assembly: and Yahweh gave them to me.

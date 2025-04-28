@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the Alpha and the Omega, the first and the last, the beginning and the end.
+I am the Alpha and the Omega, the First and the Last, the Beginning and the End.

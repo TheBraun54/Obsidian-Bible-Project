@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt do to Ai and her king as thou didst unto Jericho and her king: only the spoil thereof, and the cattle thereof, shall ye take for a prey unto yourselves: set thee an ambush for the city behind it.
+You shall do to Ai and her king as you did to Jericho and her king, except its spoil and its livestock, you shall take for a plunder for yourselves. Set an ambush for the city behind it."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is how thou shalt make it: the length of the ark three hundred cubits, the breadth of it fifty cubits, and the height of it thirty cubits.
+This is how you shall make it. The length of the ship will be three hundred cubits, its breadth fifty cubits, and its height thirty cubits.

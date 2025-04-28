@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cast thee out, and thy mother that bare thee, into another country, where ye were not born; and there shall ye die.
+I will cast you out, and your mother who bore you, into another country, where you were not born; and there you will die.

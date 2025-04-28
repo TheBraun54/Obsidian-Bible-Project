@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But none saith, Where is God my Maker, Who giveth songs in the night,
+But none says, 'Where is God my Maker, who gives songs in the night,

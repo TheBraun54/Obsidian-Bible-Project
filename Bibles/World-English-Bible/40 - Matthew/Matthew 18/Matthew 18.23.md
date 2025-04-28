@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore is the kingdom of heaven likened unto a certain king, who would make a reckoning with his servants.
+Therefore the Kingdom of Heaven is like a certain king, who wanted to reconcile accounts with his servants.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set the Levites before Aaron, and before his sons, and offer them for a wave-offering unto Jehovah.
+You shall set the Levites before Aaron, and before his sons, and offer them as a wave offering to Yahweh.

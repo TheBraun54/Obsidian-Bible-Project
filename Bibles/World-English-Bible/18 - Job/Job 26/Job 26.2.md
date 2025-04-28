@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How hast thou helped him that is without power! How hast thou saved the arm that hath no strength!
+"How have you helped him who is without power! How have you saved the arm that has no strength!

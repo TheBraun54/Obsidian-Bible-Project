@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Reu lived after he begat Serug two hundred and seven years, and begat sons and daughters.
+Reu lived two hundred seven years after he became the father of Serug, and became the father of sons and daughters.

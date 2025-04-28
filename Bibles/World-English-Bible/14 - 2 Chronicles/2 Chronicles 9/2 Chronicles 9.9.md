@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she gave the king a hundred and twenty talents of gold, and spices in great abundance, and precious stones: neither was there any such spice as the queen of Sheba gave to king Solomon.
+She gave the king one hundred and twenty talents of gold, and spices in great abundance, and precious stones: neither was there any such spice as the queen of Sheba gave to king Solomon.

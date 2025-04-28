@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Incline thine ear, O Jehovah, and hear; open thine eyes, O Jehovah, and see; and hear the words of Sennacherib, wherewith he hath sent him to defy the living God.
+Incline your ear, Yahweh, and hear. Open your eyes, Yahweh, and see. Hear the words of Sennacherib, with which he has sent to defy the living God.

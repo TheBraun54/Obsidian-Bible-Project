@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that came to Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (the same was the first year of Nebuchadrezzar king of Babylon,)
+The word that came to Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (the same was the first year of Nebuchadnezzar king of Babylon),

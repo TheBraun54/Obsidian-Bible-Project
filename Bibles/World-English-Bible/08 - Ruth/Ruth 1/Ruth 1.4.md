@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took them wives of the women of Moab; the name of the one was Orpah, and the name of the other Ruth: and they dwelt there about ten years.
+They took them wives of the women of Moab; the name of the one was Orpah, and the name of the other Ruth: and they lived there about ten years.

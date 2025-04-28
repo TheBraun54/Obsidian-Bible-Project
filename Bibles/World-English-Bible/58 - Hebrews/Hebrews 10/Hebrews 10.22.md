@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let us draw near with a true heart in fulness of faith, having our hearts sprinkled from an evil conscience: and having our body washed with pure water,
+let's draw near with a true heart in fullness of faith, having our hearts sprinkled from an evil conscience, and having our body washed with pure water,

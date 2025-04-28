@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt keep [him] in perfect peace, [whose] mind [is] stayed [on thee] ; because he trusteth in thee.
+You will keep whoever's mind is steadfast in perfect peace, because he trusts in you.

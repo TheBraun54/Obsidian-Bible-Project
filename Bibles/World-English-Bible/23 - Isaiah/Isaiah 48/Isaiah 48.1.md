@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye this, O house of Jacob, who are called by the name of Israel, and are come forth out of the waters of Judah; who swear by the name of Jehovah, and make mention of the God of Israel, but not in truth, nor in righteousness
+"Hear this, house of Jacob, you who are called by the name of Israel, and have come forth out of the waters of Judah; who swear by the name of Yahweh, and make mention of the God of Israel, but not in truth, nor in righteousness

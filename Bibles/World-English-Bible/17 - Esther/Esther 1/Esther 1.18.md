@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this day will the princesses of Persia and Media who have heard of the deed of the queen say [the like] unto all the king's princes. So [will there arise] much contempt and wrath.
+Today, the princesses of Persia and Media who have heard of the queen's deed will tell all the king's princes. This will cause much contempt and wrath.

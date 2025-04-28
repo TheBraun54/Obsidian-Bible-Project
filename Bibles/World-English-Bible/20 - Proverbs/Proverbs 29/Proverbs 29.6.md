@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the transgression of an evil man there is a snare; But the righteous doth sing and rejoice.
+An evil man is snared by his sin, but the righteous can sing and be glad.

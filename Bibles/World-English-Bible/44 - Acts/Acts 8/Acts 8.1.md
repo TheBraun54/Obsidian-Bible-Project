@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul was consenting unto his death. And there arose on that day a great persecution against the church which was in Jerusalem; and they were all scattered abroad throughout the regions of Judaea and Samaria, except the apostles.
+Saul was consenting to his death. A great persecution arose against the assembly which was in Jerusalem in that day. They were all scattered abroad throughout the regions of Judea and Samaria, except for the apostles.

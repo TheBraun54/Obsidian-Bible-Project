@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gird yourselves [with sackcloth], and lament, ye priests; wail, ye ministers of the altar; come, lie all night in sackcloth, ye ministers of my God: for the meal-offering and the drink-offering are withholden from the house of your God.
+Put on sackcloth and mourn, you priests! Wail, you ministers of the altar. Come, lie all night in sackcloth, you ministers of my God, for the meal offering and the drink offering are withheld from your God's house.

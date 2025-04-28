@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is that speaketh rashly like the piercings of a sword; But the tongue of the wise is health.
+There is one who speaks rashly like the piercing of a sword, but the tongue of the wise heals.

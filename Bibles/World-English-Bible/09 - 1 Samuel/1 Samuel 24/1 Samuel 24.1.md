@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Saul was returned from following the Philistines, that it was told him, saying, Behold, David is in the wilderness of En-gedi.
+It happened, when Saul was returned from following the Philistines, that it was told him, saying, "Behold, David is in the wilderness of En Gedi."

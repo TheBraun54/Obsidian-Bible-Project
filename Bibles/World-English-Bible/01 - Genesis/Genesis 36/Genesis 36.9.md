@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the generations of Esau the father of the Edomites in mount Seir:
+This is the history of the generations of Esau the father of the Edomites in the hill country of Seir:

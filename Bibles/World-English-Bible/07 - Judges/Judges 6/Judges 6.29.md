@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said one to another, Who hath done this thing? And when they inquired and asked, they said, Gideon the son of Joash hath done this thing.
+They said one to another, "Who has done this thing?" When they inquired and asked, they said, "Gideon the son of Joash has done this thing."

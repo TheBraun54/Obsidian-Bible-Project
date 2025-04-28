@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Drink no wine nor strong drink, thou, nor thy sons with thee, when ye go into the tent of meeting, that ye die not: it shall be a statute for ever throughout your generations:
+"Drink no wine nor strong drink, you, nor your sons with you, when you go into the Tent of Meeting, that you don't die: it shall be a statute forever throughout your generations:

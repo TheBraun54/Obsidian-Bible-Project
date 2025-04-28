@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have not hid thy righteousness within my heart; I have declared thy faithfulness and thy salvation; I have not concealed thy lovingkindness and thy truth from the great assembly.
+I have not hidden your righteousness within my heart. I have declared your faithfulness and your salvation. I have not concealed your loving kindness and your truth from the great assembly.

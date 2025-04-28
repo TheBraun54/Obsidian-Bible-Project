@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses heard the people weeping throughout their families, every man at the door of his tent: and the anger of Jehovah was kindled greatly; and Moses was displeased.
+Moses heard the people weeping throughout their families, every man at the door of his tent; and the anger of Yahweh was kindled greatly; and Moses was displeased.

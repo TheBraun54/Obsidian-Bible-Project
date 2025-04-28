@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Andrew, and Philip, and Bartholomew, and Matthew, and Thomas, and James the [son] of Alphaeus, and Thaddaeus, and Simon the Cananaean,
+Andrew; Philip; Bartholomew; Matthew; Thomas; James, the son of Alphaeus; Thaddaeus; Simon the Zealot;

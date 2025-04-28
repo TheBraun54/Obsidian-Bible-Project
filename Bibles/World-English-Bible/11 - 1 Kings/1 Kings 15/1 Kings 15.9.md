@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the twentieth year of Jeroboam king of Israel began Asa to reign over Judah.
+In the twentieth year of Jeroboam king of Israel began Asa to reign over Judah.

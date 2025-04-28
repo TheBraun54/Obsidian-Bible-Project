@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince, when they go in, shall go in in the midst of them; and when they go forth, they shall go forth [together] .
+The prince, when they go in, shall go in with of them; and when they go out, he shall go out.

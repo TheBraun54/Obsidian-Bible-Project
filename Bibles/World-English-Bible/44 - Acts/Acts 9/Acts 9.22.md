@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Saul increased the more in strength, and confounded the Jews that dwelt at Damascus, proving that this is the Christ.
+But Saul increased more in strength, and confounded the Jews who lived at Damascus, proving that this is the Christ.

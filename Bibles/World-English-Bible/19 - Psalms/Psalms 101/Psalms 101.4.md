@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A perverse heart shall depart from me: I will know no evil thing.
+A perverse heart will be far from me. I will have nothing to do with evil.

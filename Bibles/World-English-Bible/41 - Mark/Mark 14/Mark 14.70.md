@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he again denied it. And after a little while again they that stood by said to Peter, of a truth thou art [one] of them; for thou art a Galilaean.
+But he again denied it. After a little while again those who stood by said to Peter, "You truly are one of them, for you are a Galilean, and your speech shows it."

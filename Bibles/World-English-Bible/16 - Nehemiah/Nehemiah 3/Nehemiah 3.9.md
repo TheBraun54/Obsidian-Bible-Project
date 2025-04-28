@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto them repaired Rephaiah the son of Hur, the ruler of half the district of Jerusalem.
+Next to them repaired Rephaiah the son of Hur, the ruler of half the district of Jerusalem.

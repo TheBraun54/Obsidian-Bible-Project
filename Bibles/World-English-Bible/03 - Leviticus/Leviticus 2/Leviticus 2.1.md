@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when any one offereth an oblation of a meal-offering unto Jehovah, his oblation shall be of fine flour; and he shall pour oil upon it, and put frankincense thereon:
+"'When anyone offers an offering of a meal offering to Yahweh, his offering shall be of fine flour; and he shall pour oil on it, and put frankincense on it.

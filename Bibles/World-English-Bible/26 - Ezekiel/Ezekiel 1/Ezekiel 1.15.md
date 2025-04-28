@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now as I beheld the living creatures, behold, one wheel upon the earth beside the living creatures, for each of the four faces thereof.
+Now as I saw the living creatures, behold, one wheel on the earth beside the living creatures, for each of the four faces of it.

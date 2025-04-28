@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the house he made windows of fixed lattice-work.
+For the house he made windows of fixed lattice work.

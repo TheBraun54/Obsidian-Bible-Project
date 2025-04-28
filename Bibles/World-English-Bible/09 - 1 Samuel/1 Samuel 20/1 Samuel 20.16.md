@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jonathan made a covenant with the house of David, [saying], And Jehovah will require it at the hand of David's enemies.
+So Jonathan made a covenant with the house of David, saying, "Yahweh will require it at the hand of David's enemies."

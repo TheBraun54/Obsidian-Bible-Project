@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be strong and of good courage, fear not, nor be affrighted at them: for Jehovah thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.
+Be strong and courageous, don't be afraid, nor be scared of them: for Yahweh your God, he it is who does go with you; he will not fail you, nor forsake you."

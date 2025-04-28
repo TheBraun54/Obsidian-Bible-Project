@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David heard in the wilderness that Nabal was shearing his sheep.
+David heard in the wilderness that Nabal was shearing his sheep.

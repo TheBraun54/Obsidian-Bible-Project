@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the seventh to Jesharelah, his sons and his brethren, twelve:
+the seventh to Jesharelah, his sons and his brothers, twelve:

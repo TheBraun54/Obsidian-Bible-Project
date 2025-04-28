@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from thirty years old and upward until fifty years old shalt thou number them; all that enter in to wait upon the service, to do the work in the tent of meeting.
+you shall count them from thirty years old and upward until fifty years old; all who enter in to wait on the service, to do the work in the Tent of Meeting.

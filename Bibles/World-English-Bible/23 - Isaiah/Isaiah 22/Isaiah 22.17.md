@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, Jehovah, like a [strong] man, will hurl thee away violently; yea, he will wrap thee up closely.
+Behold, Yahweh will overcome you and hurl you away violently. Yes, he will grasp you firmly.

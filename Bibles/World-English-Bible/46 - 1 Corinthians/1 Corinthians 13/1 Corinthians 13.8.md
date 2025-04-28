@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Love never faileth: but whether [there be] prophecies, they shall be done away; whether [there be] tongues, they shall cease; whether [there be] knowledge, it shall be done away.
+Love never fails. But where there are prophecies, they will be done away with. Where there are various languages, they will cease. Where there is knowledge, it will be done away with.

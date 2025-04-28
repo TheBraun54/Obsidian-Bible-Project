@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the same time mine understanding returned unto me; and for the glory of my kingdom, my majesty and brightness returned unto me; and my counsellors and my lords sought unto me; and I was established in my kingdom, and excellent greatness was added unto me.
+At the same time my understanding returned to me; and for the glory of my kingdom, my majesty and brightness returned to me; and my counselors and my lords sought to me; and I was established in my kingdom, and excellent greatness was added to me.

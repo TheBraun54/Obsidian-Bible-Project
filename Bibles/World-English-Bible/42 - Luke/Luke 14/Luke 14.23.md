@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lord said unto the servant, Go out into the highways and hedges, and constrain [them] to come in, that my house may be filled.
+"The lord said to the servant, 'Go out into the highways and hedges, and compel them to come in, that my house may be filled.

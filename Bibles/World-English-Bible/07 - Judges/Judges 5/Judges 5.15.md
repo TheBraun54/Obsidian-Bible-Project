@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the princes of Issachar were with Deborah; As was Issachar, so was Barak; Into the valley they rushed forth at his feet. By the watercourses of Reuben There were great resolves of heart. [
+The princes of Issachar were with Deborah. As was Issachar, so was Barak. They rushed into the valley at his feet. By the watercourses of Reuben, there were great resolves of heart.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Love not sleep, let thou come to poverty; Open thine eyes, [and] thou shalt be satisfied with bread.
+Don't love sleep, lest you come to poverty. Open your eyes, and you shall be satisfied with bread.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I give of the synagogue of Satan, of them that say they are Jews, and they are not, but do lie; behold, I will make them to come and worship before thy feet, and to know that I have loved thee.
+Behold, I give of the synagogue of Satan, of those who say they are Jews, and they are not, but lie. Behold, I will make them to come and worship before your feet, and to know that I have loved you.

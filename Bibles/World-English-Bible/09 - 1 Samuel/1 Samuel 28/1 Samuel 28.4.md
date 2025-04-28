@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines gathered themselves together, and came and encamped in Shunem: and Saul gathered all Israel together, and they encamped in Gilboa.
+The Philistines gathered themselves together, and came and encamped in Shunem: and Saul gathered all Israel together, and they encamped in Gilboa.

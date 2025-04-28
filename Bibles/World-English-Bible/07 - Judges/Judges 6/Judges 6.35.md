@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent messengers throughout all Manasseh; and they also were gathered together after him: and he sent messengers unto Asher, and unto Zebulun, and unto Naphtali; and they came up to meet them.
+He sent messengers throughout all Manasseh; and they also were gathered together after him: and he sent messengers to Asher, and to Zebulun, and to Naphtali; and they came up to meet them.

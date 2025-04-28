@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And gladness is taken away, and joy out of the fruitful field; and in the vineyards there shall be no singing, neither joyful noise: no treader shall tread out wine in the presses; I have made the [vintage] shout to cease.
+Gladness is taken away, and joy out of the fruitful field; and in the vineyards there will be no singing, neither joyful noise. Nobody will tread out wine in the presses. I have made the shouting stop.

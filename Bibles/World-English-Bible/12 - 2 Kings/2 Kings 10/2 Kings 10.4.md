@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they were exceedingly afraid, and said, Behold, the two kings stood not before him: how then shall we stand?
+But they were exceedingly afraid, and said, "Behold, the two kings didn't stand before him! How then shall we stand?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tribe of Naphtali: and the prince of the children of Naphtali shall be Ahira the son of Enan.
+"The tribe of Naphtali: and the prince of the children of Naphtali shall be Ahira the son of Enan.

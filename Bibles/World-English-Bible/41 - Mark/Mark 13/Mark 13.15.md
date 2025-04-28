@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let him that is on the housetop not go down, nor enter in, to take anything out of his house:
+and let him who is on the housetop not go down, nor enter in, to take anything out of his house.

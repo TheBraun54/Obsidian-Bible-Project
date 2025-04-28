@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus went up into the mountain, and there he sat with his disciples.
+Jesus went up into the mountain, and he sat there with his disciples.

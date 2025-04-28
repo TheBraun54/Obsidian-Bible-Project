@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are the peacemakers: for they shall be called sons of God.
+Blessed are the peacemakers, for they shall be called children of God.

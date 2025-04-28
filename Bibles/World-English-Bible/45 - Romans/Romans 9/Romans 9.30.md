@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall we say then? That the Gentiles, who followed not after righteousness, attained to righteousness, even the righteousness which is of faith:
+What shall we say then? That the Gentiles, who didn't follow after righteousness, attained to righteousness, even the righteousness which is of faith;

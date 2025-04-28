@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-save that the Holy Spirit testifieth unto me in every city, saying that bonds and afflictions abide me.
+except that the Holy Spirit testifies in every city, saying that bonds and afflictions wait for me.

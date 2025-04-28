@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he hath levelled the face thereof, doth he not cast abroad the fitches, and scatter the cummin, and put in the wheat in rows, and the barley in the appointed place, and the spelt in the border thereof?
+When he has leveled its surface, doesn't he plant the dill, and scatter the cumin seed, and put in the wheat in rows, the barley in the appointed place, and the spelt in its place?

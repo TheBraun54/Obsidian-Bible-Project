@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, if he say unto thee, I will not go out from thee; because he loveth thee and thy house, because he is well with thee;
+It shall be, if he tells you, "I will not go out from you;" because he loves you and your house, because he is well with you;

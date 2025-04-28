@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I, brethren, if I still preach circumcision, why am I still persecuted? then hath the stumbling-block of the cross been done away.
+But I, brothers, if I still preach circumcision, why am I still persecuted? Then the stumbling block of the cross has been removed.

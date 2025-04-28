@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah came down in the cloud, and spake unto him, and took of the Spirit that was upon him, and put it upon the seventy elders: and it came to pass, that, when the Spirit rested upon them, they prophesied, but they did so no more.
+Yahweh came down in the cloud, and spoke to him, and took of the Spirit that was on him, and put it on the seventy elders: and it happened that when the Spirit rested on them, they prophesied, but they did so no more.

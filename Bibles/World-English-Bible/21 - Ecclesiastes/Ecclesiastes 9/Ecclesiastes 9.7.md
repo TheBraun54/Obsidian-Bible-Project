@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go thy way, eat thy bread with joy, and drink thy wine with a merry heart; for God hath already accepted thy works.
+Go your way--eat your bread with joy, and drink your wine with a merry heart; for God has already accepted your works.

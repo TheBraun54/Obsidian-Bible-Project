@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esther said, An adversary and an enemy, even this wicked Haman. Then Haman was afraid before the king and the queen.
+Esther said, "An adversary and an enemy, even this wicked Haman!" Then Haman was afraid before the king and the queen.

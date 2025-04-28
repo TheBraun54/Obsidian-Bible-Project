@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the upper chambers were shorter; for the galleries took away from these, more than from the lower and the middlemost, in the building.
+Now the upper rooms were shorter; for the galleries took away from these, more than from the lower and the middle, in the building.

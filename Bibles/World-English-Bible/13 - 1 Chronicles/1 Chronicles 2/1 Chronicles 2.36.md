@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Attai begat Nathan, and Nathan begat Zabad,
+Attai became the father of Nathan, and Nathan became the father of Zabad,

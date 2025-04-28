@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel set liers-in-wait against Gibeah round about.
+Israel set ambushes all around Gibeah.

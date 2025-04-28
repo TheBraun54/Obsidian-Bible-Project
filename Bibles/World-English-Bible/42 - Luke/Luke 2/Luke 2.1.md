@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass in those days, there went out a decree from Caesar Augustus, that all the world should be enrolled.
+Now it happened in those days, that a decree went out from Caesar Augustus that all the world should be enrolled.

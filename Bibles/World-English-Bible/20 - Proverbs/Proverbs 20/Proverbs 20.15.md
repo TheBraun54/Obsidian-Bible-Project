@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is gold, and abundance of rubies; But the lips of knowledge are a precious jewel.
+There is gold and abundance of rubies; but the lips of knowledge are a rare jewel.

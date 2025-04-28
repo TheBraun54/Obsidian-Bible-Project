@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know all the birds of the mountains; And the wild beasts of the field are mine.
+I know all the birds of the mountains. The wild animals of the field are mine.

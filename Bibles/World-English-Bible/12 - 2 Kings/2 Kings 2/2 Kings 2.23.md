@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went up from thence unto Beth-el; and as he was going up by the way, there came forth young lads out of the city, and mocked him, and said unto him, Go up, thou baldhead; go up, thou baldhead.
+He went up from there to Bethel. As he was going up by the way, some youths came out of the city and mocked him, and said to him, "Go up, you baldy! Go up, you baldhead!"

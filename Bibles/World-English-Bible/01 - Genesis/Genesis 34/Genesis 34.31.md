@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Should he deal with our sister as with a harlot?
+They said, "Should he deal with our sister as with a prostitute?"

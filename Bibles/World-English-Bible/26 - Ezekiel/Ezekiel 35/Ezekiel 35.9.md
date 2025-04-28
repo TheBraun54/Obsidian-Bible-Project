@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will make thee a perpetual desolation, and thy cities shall not be inhabited; and ye shall know that I am Jehovah.
+I will make you a perpetual desolation, and your cities shall not be inhabited; and you shall know that I am Yahweh.

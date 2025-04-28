@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be no more the confidence of the house of Israel, bringing iniquity to remembrance, when they turn to look after them: and they shall know that I am the Lord Jehovah.
+It shall be no more the confidence of the house of Israel, bringing iniquity to memory, when they turn to look after them: and they shall know that I am the Lord Yahweh."'"

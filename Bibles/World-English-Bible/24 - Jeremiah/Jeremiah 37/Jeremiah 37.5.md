@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh's army was come forth out of Egypt; and when the Chaldeans that were besieging Jerusalem heard tidings of them, they brake up from Jerusalem.
+Pharaoh's army was come forth out of Egypt; and when the Chaldeans who were besieging Jerusalem heard news of them, they broke up from Jerusalem.

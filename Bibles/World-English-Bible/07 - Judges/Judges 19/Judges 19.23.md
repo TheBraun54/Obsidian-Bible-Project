@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man, the master of the house, went out unto them, and said unto them, Nay, my brethren, I pray you, do not so wickedly; seeing that this man is come into my house, do not this folly.
+The man, the master of the house, went out to them, and said to them, "No, my brothers, please don't act so wickedly; since this man is come into my house, don't do this folly.

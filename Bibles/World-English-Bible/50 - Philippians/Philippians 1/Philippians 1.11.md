@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being filled with the fruits of righteousness, which are through Jesus Christ, unto the glory and praise of God.
+being filled with the fruits of righteousness, which are through Jesus Christ, to the glory and praise of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if Abraham was justified by works, he hath whereof to glory; but not toward God.
+For if Abraham was justified by works, he has something to boast about, but not toward God.

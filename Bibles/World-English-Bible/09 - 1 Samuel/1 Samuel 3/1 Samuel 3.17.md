@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, What is the thing that [Jehovah] hath spoken unto thee? I pray thee, hide it not from me: God do so to thee, and more also, if thou hide anything from me of all the things that he spake unto thee.
+He said, "What is the thing that [Yahweh] has spoken to you? Please don't hide it from me. God do so to you, and more also, if you hide anything from me of all the things that he spoke to you."

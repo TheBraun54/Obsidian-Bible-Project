@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he lifted up his eyes on his disciples, and said, Blessed [are] ye poor: for yours is the kingdom of God.
+He lifted up his eyes to his disciples, and said, "Blessed are you who are poor, for yours is the Kingdom of God.

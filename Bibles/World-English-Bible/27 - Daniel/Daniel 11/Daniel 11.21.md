@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in his place shall stand up a contemptible person, to whom they had not given the honor of the kingdom: but he shall come in time of security, and shall obtain the kingdom by flatteries. [
+In his place shall stand up a contemptible person, to whom they had not given the honor of the kingdom: but he shall come in time of security, and shall obtain the kingdom by flatteries.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he washed the inwards and the legs, and burnt them upon the burnt-offering on the altar.
+He washed the innards and the legs, and burned them on the burnt offering on the altar.

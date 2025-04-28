@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the altar hearth shall be twelve [cubits] long by twelve broad, square in the four sides thereof.
+The altar hearth shall be twelve [cubits] long by twelve broad, square in the four sides of it.

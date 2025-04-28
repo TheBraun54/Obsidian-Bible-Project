@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall we not go back from thee: Quicken thou us, and we will call upon thy name.
+So we will not turn away from you. Revive us, and we will call on your name.

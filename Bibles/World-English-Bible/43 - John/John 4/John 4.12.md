@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Art thou greater than our father Jacob, who gave us the well, and drank thereof himself, and his sons, and his cattle?
+Are you greater than our father, Jacob, who gave us the well, and drank of it himself, as did his children, and his livestock?"

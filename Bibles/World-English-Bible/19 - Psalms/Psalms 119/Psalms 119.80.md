@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my heart be perfect in thy statutes, That I be not put to shame.
+Let my heart be blameless toward your decrees, that I may not be disappointed. KAF

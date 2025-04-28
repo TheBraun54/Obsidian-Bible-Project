@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the house of Joseph, they also went up against Beth-el; and Jehovah was with them.
+The house of Joseph, they also went up against Bethel; and Yahweh was with them.

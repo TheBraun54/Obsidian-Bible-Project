@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from mount Hor ye shall mark out unto the entrance of Hamath; and the goings out of the border shall be at Zedad;
+from Mount Hor you shall mark out to the entrance of Hamath; and the goings out of the border shall be at Zedad;

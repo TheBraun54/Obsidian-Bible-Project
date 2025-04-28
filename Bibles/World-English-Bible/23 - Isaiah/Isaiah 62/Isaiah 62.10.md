@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go through, go through the gates; prepare ye the way of the people; cast up, cast up the highway; gather out the stones; lift up an ensign for the peoples.
+Go through, go through the gates! Prepare the way of the people! Cast up, cast up the highway! Gather out the stones! Lift up a banner for the peoples.

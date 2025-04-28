@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and blessed be thy discretion, and blessed be thou, that hast kept me this day from bloodguiltiness, and from avenging myself with mine own hand.
+Blessed is your discretion, and blessed are you, that have kept me this day from blood guiltiness, and from avenging myself with my own hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, I send forth the promise of my Father upon you: but tarry ye in the city, until ye be clothed with power from on high.
+Behold, I send forth the promise of my Father on you. But wait in the city of Jerusalem until you are clothed with power from on high."

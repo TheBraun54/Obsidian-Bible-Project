@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, when a land sinneth against me by committing a trespass, and I stretch out my hand upon it, and break the staff of the bread thereof, and send famine upon it, and cut off from it man and beast;
+Son of man, when a land sins against me by committing a trespass, and I stretch out my hand on it, and break the staff of its bread, and send famine on it, and cut off from it man and animal;

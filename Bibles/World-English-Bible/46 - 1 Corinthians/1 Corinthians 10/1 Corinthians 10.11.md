@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these things happened unto them by way of example; and they were written for our admonition, upon whom the ends of the ages are come.
+Now all these things happened to them by way of example, and they were written for our admonition, on whom the ends of the ages have come.

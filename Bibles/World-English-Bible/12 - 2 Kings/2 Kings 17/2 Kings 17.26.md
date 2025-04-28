@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore they spake to the king of Assyria, saying, The nations which thou hast carried away, and placed in the cities of Samaria, know not the law of the god of the land: therefore he hath sent lions among them, and, behold, they slay them, because they know not the law of the god of the land.
+Therefore they spoke to the king of Assyria, saying, "The nations which you have carried away, and placed in the cities of Samaria, don't know the law of the god of the land. Therefore he has sent lions among them, and behold, they kill them, because they don't know the law of the god of the land."

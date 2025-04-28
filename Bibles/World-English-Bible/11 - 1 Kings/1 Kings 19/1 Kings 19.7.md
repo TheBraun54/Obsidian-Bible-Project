@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah came again the second time, and touched him, and said, Arise and eat, because the journey is too great for thee.
+The angel of Yahweh came again the second time, and touched him, and said, "Arise and eat, because the journey is too great for you."

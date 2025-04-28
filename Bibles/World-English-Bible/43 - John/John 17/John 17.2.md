@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as thou gavest him authority over all flesh, that to all whom thou hast given him, he should give eternal life.
+even as you gave him authority over all flesh, he will give eternal life to all whom you have given him.

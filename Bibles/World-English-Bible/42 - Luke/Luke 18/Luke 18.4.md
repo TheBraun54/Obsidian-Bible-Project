@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he would not for a while: but afterward he said within himself, Though I fear not God, nor regard man;
+He wouldn't for a while, but afterward he said to himself, 'Though I neither fear God, nor respect man,

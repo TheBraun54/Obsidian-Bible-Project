@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will sell your sons and your daughters into the hand of the children of Judah, and they shall sell them to the men of Sheba, to a nation far off: for Jehovah hath spoken it.
+and I will sell your sons and your daughters into the hands of the children of Judah, and they will sell them to the men of Sheba, to a faraway nation, for Yahweh has spoken it."

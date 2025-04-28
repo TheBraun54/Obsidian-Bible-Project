@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ehud put forth his left hand, and took the sword from his right thigh, and thrust it into his body:
+Ehud put forth his left hand, and took the sword from his right thigh, and thrust it into his body:

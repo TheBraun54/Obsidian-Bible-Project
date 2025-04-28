@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh deliver not the soul of thy turtle-dove unto the wild beast: Forget not the life of thy poor for ever.
+Don't deliver the soul of your dove to wild beasts. Don't forget the life of your poor forever.

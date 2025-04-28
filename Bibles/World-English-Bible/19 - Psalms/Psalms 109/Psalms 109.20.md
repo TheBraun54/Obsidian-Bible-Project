@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the reward of mine adversaries from Jehovah, And of them that speak evil against my soul.
+This is the reward of my adversaries from Yahweh, of those who speak evil against my soul.

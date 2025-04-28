@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Grace to you and peace be multiplied in the knowledge of God and of Jesus our Lord;
+Grace to you and peace be multiplied in the knowledge of God and of Jesus our Lord,

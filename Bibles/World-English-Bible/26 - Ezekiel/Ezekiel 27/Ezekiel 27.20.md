@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dedan was thy trafficker in precious cloths for riding.
+Dedan was your trafficker in precious cloths for riding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wonderful and horrible thing is come to pass in the land:
+"An astonishing and horrible thing has happened in the land.

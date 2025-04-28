@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the end that [my] glory may sing praise to thee, and not be silent. O Jehovah my God, I will give thanks unto thee for ever.
+To the end that my heart may sing praise to you, and not be silent. Yahweh my God, I will give thanks to you forever! For the Chief Musician. A Psalm by David.

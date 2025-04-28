@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the men of Israel had sworn in Mizpah, saying, There shall not any of us give his daughter unto Benjamin to wife.
+Now the men of Israel had sworn in Mizpah, saying, "There shall not any of us give his daughter to Benjamin as wife."

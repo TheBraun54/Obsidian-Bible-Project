@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, He that dipped his hand with me in the dish, the same shall betray me.
+He answered, "He who dipped his hand with me in the dish, the same will betray me.

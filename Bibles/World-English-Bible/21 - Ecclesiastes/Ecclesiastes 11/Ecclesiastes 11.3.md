@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the clouds be full of rain, they empty themselves upon the earth; and if a tree fall toward the south, or toward the north, in the place where the tree falleth, there shall it be.
+If the clouds are full of rain, they empty themselves on the earth; and if a tree falls toward the south, or toward the north, in the place where the tree falls, there shall it be.

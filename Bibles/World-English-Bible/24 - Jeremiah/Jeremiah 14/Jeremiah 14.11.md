@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Pray not for this people for [their] good.
+Yahweh said to me, Don't pray for this people for [their] good.

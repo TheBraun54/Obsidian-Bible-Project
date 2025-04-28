@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, But who say ye that I am? And Peter answering said, The Christ of God.
+He said to them, "But who do you say that I am?" Peter answered, "The Christ of God."

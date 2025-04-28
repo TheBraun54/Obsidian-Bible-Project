@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the men therefore that have companied with us all the time that the Lord Jesus went in and went out among us,
+"Of the men therefore who have accompanied us all the time that the Lord Jesus went in and out among us,

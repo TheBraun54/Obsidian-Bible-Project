@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had no child, because that Elisabeth was barren, and they both were [now] well stricken in years.
+But they had no child, because Elizabeth was barren, and they both were well advanced in years.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they went out from Jericho, a great multitude followed him.
+As they went out from Jericho, a great multitude followed him.

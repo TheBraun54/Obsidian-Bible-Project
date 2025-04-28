@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took him by the right hand, and raised him up: and immediately his feet and his ankle-bones received strength.
+He took him by the right hand, and raised him up. Immediately his feet and his ankle bones received strength.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the miry places thereof, and the marshes thereof, shall not be healed; they shall be given up to salt.
+But the miry places of it, and its marshes, shall not be healed; they shall be given up to salt.

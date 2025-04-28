@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Joshua said unto them, Pass over before the ark of Jehovah your God into the midst of the Jordan, and take you up every man of you a stone upon his shoulder, according unto the number of the tribes of the children of Israel;
+Joshua said to them, "Pass over before the ark of Yahweh your God into the middle of the Jordan, and each of you pick up a stone and put it on your shoulder, according to the number of the tribes of the children of Israel;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, What hast thou done? And Saul said, Because I saw that the people were scattered from me, and that thou camest not within the days appointed, and that the Philistines assembled themselves together at Michmash;
+Samuel said, "What have you done?" Saul said, "Because I saw that the people were scattered from me, and that you didn't come within the days appointed, and that the Philistines assembled themselves together at Michmash;

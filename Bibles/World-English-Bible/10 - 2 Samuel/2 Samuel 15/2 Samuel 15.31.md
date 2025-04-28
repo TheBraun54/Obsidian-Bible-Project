@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one told David, saying, Ahithophel is among the conspirators with Absalom. And David said, O Jehovah, I pray thee, turn the counsel of Ahithophel into foolishness.
+Someone told David, saying, "Ahithophel is among the conspirators with Absalom." David said, "Yahweh, please turn the counsel of Ahithophel into foolishness."

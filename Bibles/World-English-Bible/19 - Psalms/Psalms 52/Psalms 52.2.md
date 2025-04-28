@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy tongue deviseth very wickedness, Like a sharp razor, working deceitfully.
+Your tongue plots destruction, like a sharp razor, working deceitfully.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This title therefore read many of the Jews, for the place where Jesus was crucified was nigh to the city; and it was written in Hebrew, [and] in Latin, [and] in Greek.
+Therefore many of the Jews read this title, for the place where Jesus was crucified was near the city; and it was written in Hebrew, in Latin, and in Greek.

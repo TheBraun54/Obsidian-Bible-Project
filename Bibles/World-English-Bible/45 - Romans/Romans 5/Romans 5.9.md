@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Much more then, being now justified by his blood, shall we be saved from the wrath [of God] through him.
+Much more then, being now justified by his blood, we will be saved from God's wrath through him.

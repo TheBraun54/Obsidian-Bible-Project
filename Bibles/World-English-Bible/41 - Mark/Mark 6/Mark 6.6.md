@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he marvelled because of their unbelief. And he went round about the villages teaching.
+He marveled because of their unbelief. He went around the villages teaching.

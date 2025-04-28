@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all countries came into Egypt to Joseph to buy grain, because the famine was sore in all the earth.
+All countries came into Egypt, to Joseph, to buy grain, because the famine was severe in all the earth.

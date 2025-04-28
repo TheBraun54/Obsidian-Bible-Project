@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his lord answered and said unto him, Thou wicked and slothful servant, thou knewest that I reap where I sowed not, and gather where I did not scatter;
+"But his lord answered him, 'You wicked and slothful servant. You knew that I reap where I didn't sow, and gather where I didn't scatter.

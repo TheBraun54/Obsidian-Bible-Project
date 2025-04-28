@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the morning stars sang together, And all the sons of God shouted for joy?
+when the morning stars sang together, and all the sons of God shouted for joy?

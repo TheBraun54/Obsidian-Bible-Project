@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the work of the wheels was like the work of a chariot wheel: their axletrees, and their felloes, and their spokes, and their naves, were all molten.
+The work of the wheels was like the work of a chariot wheel: their axles, and their rims, and their spokes, and their naves, were all molten.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Be it far from me, O Jehovah, that I should do this: [shall I drink] the blood of the men that went in jeopardy of their lives? therefore he would not drink it. These things did the three mighty men.
+He said, "Be it far from me, Yahweh, that I should do this! Isn't it the blood of the men who went in jeopardy of their lives?" Therefore he would not drink it. The three mighty men did these things.

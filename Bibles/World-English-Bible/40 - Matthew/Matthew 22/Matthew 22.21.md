@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say unto him, Caesar's. Then saith he unto them, Render therefore unto Caesar the things that are Caesar's; and unto God the things that are God's.
+They said to him, "Caesar's." Then he said to them, "Give therefore to Caesar the things that are Caesar's, and to God the things that are God's."

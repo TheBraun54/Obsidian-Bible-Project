@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto the king, If it please the king, and if thy servant have found favor in thy sight, that thou wouldest send me unto Judah, unto the city of my fathers' sepulchres, that I may build it.
+I said to the king, "If it pleases the king, and if your servant has found favor in your sight, that you would send me to Judah, to the city of my fathers' tombs, that I may build it."

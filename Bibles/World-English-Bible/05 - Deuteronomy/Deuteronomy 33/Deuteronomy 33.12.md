@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Benjamin he said, The beloved of Jehovah shall dwell in safety by him; He covereth him all the day long, And he dwelleth between his shoulders.
+Of Benjamin he said, "The beloved of Yahweh shall dwell in safety by him. He covers him all the day long. He dwells between his shoulders."

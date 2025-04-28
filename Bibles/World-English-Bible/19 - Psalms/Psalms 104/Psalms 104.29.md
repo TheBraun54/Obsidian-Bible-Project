@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hidest thy face, they are troubled; Thou takest away their breath, they die, And return to their dust.
+You hide your face: they are troubled; you take away their breath: they die, and return to the dust.

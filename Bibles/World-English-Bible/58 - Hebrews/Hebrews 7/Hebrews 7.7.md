@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But without any dispute the less is blessed of the better.
+But without any dispute the lesser is blessed by the greater.

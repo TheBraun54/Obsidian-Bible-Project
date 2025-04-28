@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter saith unto them, I go a fishing. They say unto him, We also come with thee. They went forth, and entered into the boat; and that night they took nothing.
+Simon Peter said to them, "I'm going fishing." They told him, "We are also coming with you." They immediately went out, and entered into the boat. That night, they caught nothing.

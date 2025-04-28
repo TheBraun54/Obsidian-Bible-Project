@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God spake unto Moses, and said unto him, I am Jehovah:
+God spoke to Moses, and said to him, "I am Yahweh;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All chastening seemeth for the present to be not joyous but grievous; yet afterward it yieldeth peaceable fruit unto them that have been exercised thereby, [even the fruit] of righteousness.
+All chastening seems for the present to be not joyous but grievous; yet afterward it yields the peaceful fruit of righteousness to those who have been exercised thereby.

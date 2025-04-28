@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is like unto leaven, which a woman took and hid in three measures of meal, till it was all leavened.
+It is like yeast, which a woman took and hid in three measures of flour, until it was all leavened."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mary Magdalene cometh and telleth the disciples, I have seen the Lord; and [that] he had said these things unto her.
+Mary Magdalene came and told the disciples that she had seen the Lord, and that he had said these things to her.

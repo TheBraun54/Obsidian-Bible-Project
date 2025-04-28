@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he be poorer than thy estimation, then he shall be set before the priest, and the priest shall value him; according to the ability of him that vowed shall the priest value him.
+But if he is poorer than your valuation, then he shall be set before the priest, and the priest shall value him; according to the ability of him who vowed shall the priest value him.

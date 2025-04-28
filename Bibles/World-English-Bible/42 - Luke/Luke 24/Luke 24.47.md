@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that repentance and remission of sins should be preached in his name unto all the nations, beginning from Jerusalem.
+and that repentance and remission of sins should be preached in his name to all the nations, beginning at Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember Jesus Christ, risen from the dead, of the seed of David, according to my gospel:
+Remember Jesus Christ, risen from the dead, of the seed of David, according to my Good News,

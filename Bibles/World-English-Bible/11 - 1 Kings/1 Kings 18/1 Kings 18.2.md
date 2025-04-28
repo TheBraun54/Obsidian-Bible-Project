@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah went to show himself unto Ahab. And the famine was sore in Samaria.
+Elijah went to show himself to Ahab. The famine was severe in Samaria.

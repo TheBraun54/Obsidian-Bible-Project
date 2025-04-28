@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah your God, he will thrust them out from before you, and drive them from out of your sight; and ye shall possess their land, as Jehovah your God spake unto you.
+Yahweh your God will thrust them out from before you, and drive them from out of your sight. You shall possess their land, as Yahweh your God spoke to you.

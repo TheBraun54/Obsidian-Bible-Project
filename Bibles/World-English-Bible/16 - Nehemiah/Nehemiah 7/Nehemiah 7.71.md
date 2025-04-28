@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of the heads of fathers' [houses] gave into the treasury of the work twenty thousand darics of gold, and two thousand and two hundred pounds of silver.
+Some of the heads of fathers' [houses] gave into the treasury of the work twenty thousand darics of gold, and two thousand two hundred minas of silver.

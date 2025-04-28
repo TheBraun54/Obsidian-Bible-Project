@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and because he was of the same trade, he abode with them, and they wrought, for by their trade they were tentmakers.
+and because he practiced the same trade, he lived with them and worked, for by trade they were tent makers.

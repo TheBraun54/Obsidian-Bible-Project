@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely there is no enchantment with Jacob; Neither is there any divination with Israel: Now shalt it be said of Jacob and of Israel, What hath God wrought!
+Surely there is no enchantment with Jacob; Neither is there any divination with Israel. Now it shall be said of Jacob and of Israel, What has God done!

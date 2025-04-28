@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as to every garment, and all that is made of skin, and all work of goats' [hair], and all things made of wood, ye shall purify yourselves.
+As to every garment, and all that is made of skin, and all work of goats' [hair], and all things made of wood, you shall purify yourselves."

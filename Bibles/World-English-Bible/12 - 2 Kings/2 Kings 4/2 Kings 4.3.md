@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he said, Go, borrow thee vessels abroad of all thy neighbors, even empty vessels; borrow not a few.
+Then he said, "Go, borrow containers from of all your neighbors, even empty containers. Don't borrow just a few.

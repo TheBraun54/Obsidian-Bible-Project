@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there assembled at Jerusalem much people to keep the feast of unleavened bread in the second month, a very great assembly.
+Many people assembled at Jerusalem to keep the feast of unleavened bread in the second month, a very great assembly.

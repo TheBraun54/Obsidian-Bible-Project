@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made unto it a border of a handbreadth round about, and made a golden crown to the border thereof round about.
+He made a border of a handbreadth around it, and made a golden molding on its border around it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, we go up to Jerusalem; and the Son of man shall be delivered unto the chief priests and scribes; and they shall condemn him to death,
+"Behold, we are going up to Jerusalem, and the Son of Man will be delivered to the chief priests and scribes, and they will condemn him to death,

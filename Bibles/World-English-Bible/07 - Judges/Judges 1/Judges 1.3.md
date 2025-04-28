@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah said unto Simeon his brother, Come up with me into my lot, that we may fight against the Canaanites; and I likewise will go with thee into thy lot. So Simeon went with him.
+Judah said to Simeon his brother, "Come up with me into my lot, that we may fight against the Canaanites; and I likewise will go with you into your lot." So Simeon went with him.

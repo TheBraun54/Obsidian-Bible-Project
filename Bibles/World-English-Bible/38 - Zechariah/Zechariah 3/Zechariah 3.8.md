@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear now, O Joshua the high priest, thou and thy fellows that sit before thee; for they are men that are a sign: for, behold, I will bring forth my servant the Branch. [
+Hear now, Joshua the high priest, you and your fellows who sit before you; for they are men who are a sign: for, behold, I will bring forth my servant, the Branch.

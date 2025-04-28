@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be the Lord, who daily beareth our burden, Even the God who is our salvation. {{Selah
+Blessed be the Lord, who daily bears our burdens, even the God who is our salvation. Selah.

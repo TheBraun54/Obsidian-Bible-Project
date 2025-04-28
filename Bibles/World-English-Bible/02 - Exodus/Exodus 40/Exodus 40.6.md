@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set the altar of burnt-offering before the door of the tabernacle of the tent of meeting.
+"You shall set the altar of burnt offering before the door of the tabernacle of the Tent of Meeting.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath ascended up into heaven, and descended? Who hath gathered the wind in his fists? Who hath bound the waters in his garment? Who hath established all the ends of the earth? What is his name, and what is his son's name, if thou knowest?
+Who has ascended up into heaven, and descended? Who has gathered the wind in his fists? Who has bound the waters in his garment? Who has established all the ends of the earth? What is his name, and what is his son's name, if you know?

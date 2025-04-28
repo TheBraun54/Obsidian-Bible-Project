@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now they began on the first [day] of the first month to sanctify, and on the eighth day of the month came they to the porch of Jehovah; and they sanctified the house of Jehovah in eight days: and on the sixteenth day of the first month they made an end.
+Now they began on the first [day] of the first month to sanctify, and on the eighth day of the month came they to the porch of Yahweh; and they sanctified the house of Yahweh in eight days: and on the sixteenth day of the first month they made an end.

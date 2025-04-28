@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-AYIN. I have done justice and righteousness: Leave me not to mine oppressors.
+I have done what is just and righteous. Don't leave me to my oppressors.

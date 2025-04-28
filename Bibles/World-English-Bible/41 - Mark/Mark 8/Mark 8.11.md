@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Pharisees came forth, and began to question with him, seeking of him a sign from heaven, trying him.
+The Pharisees came out and began to question him, seeking from him a sign from heaven, and testing him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their dwelling was from Mesha, as thou goest toward Sephar, the mountain of the east.
+Their dwelling was from Mesha, as you go toward Sephar, the mountain of the east.

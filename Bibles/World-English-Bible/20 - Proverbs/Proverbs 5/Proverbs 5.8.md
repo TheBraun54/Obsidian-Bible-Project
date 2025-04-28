@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remove thy way far from her, And come not nigh the door of her house;
+Remove your way far from her. Don't come near the door of her house,

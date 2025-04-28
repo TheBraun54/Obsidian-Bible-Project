@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, and hear, all ye that fear God, And I will declare what he hath done for my soul.
+Come, and hear, all you who fear God. I will declare what he has done for my soul.

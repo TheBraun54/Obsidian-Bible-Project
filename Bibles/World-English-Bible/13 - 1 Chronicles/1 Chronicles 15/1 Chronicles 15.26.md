@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when God helped the Levites that bare the ark of the covenant of Jehovah, that they sacrificed seven bullocks and seven rams.
+It happened, when God helped the Levites who bore the ark of the covenant of Yahweh, that they sacrificed seven bulls and seven rams.

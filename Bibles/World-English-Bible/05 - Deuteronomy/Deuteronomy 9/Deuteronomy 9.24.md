@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have been rebellious against Jehovah from the day that I knew you.
+You have been rebellious against Yahweh from the day that I knew you.

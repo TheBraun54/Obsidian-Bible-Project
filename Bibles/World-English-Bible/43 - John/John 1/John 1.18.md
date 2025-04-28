@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No man hath seen God at any time; the only begotten Son, who is in the bosom of the Father, he hath declared [him] .
+No one has seen God at any time. The one and only Son, who is in the bosom of the Father, he has declared him.

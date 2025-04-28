@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron returned unto Moses unto the door of the tent of meeting: and the plague was stayed.
+Aaron returned to Moses to the door of the Tent of Meeting: and the plague was stayed.

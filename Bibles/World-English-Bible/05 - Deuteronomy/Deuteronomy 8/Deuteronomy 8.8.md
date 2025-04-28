@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a land of wheat and barley, and vines and fig-trees and pomegranates; a land of olive-trees and honey;
+a land of wheat and barley, and vines and fig trees and pomegranates; a land of olive trees and honey;

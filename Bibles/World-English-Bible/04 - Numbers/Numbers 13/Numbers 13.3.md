@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses sent them from the wilderness of Paran according to the commandment of Jehovah: all of them men who were heads of the children of Israel.
+Moses sent them from the wilderness of Paran according to the commandment of Yahweh: all of them men who were heads of the children of Israel.

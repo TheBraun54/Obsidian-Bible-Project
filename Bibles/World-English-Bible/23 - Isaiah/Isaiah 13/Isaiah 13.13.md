@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I will make the heavens to tremble, and the earth shall be shaken out of its place, in the wrath of Jehovah of hosts, and in the day of his fierce anger.
+Therefore I will make the heavens tremble, and the earth will be shaken out of its place in the wrath of Yahweh of Armies, and in the day of his fierce anger.

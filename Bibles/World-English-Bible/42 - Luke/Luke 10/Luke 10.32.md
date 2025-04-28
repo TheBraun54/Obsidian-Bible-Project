@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in like manner a Levite also, when he came to the place, and saw him, passed by on the other side.
+In the same way a Levite also, when he came to the place, and saw him, passed by on the other side.

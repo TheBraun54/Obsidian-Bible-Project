@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall ye lay up these my words in your heart and in your soul; and ye shall bind them for a sign upon your hand, and they shall be for frontlets between your eyes.
+Therefore you shall lay up these my words in your heart and in your soul; and you shall bind them for a sign on your hand, and they shall be for symbols between your eyes.

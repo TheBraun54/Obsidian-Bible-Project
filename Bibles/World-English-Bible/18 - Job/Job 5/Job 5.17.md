@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, happy is the man whom God correcteth: Therefore despise not thou the chastening of the Almighty.
+"Behold, happy is the man whom God corrects. Therefore do not despise the chastening of the Almighty.

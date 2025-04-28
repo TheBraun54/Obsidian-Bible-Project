@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, there are the courses of the priests and the Levites, for all the service of the house of God: and there shall be with thee in all manner of work every willing man that hath skill, for any manner of service: also the captains and all the people will be wholly at thy commandment.
+Behold, there are the divisions of the priests and the Levites, for all the service of the house of God. There shall be with you in all kinds of work every willing man who has skill, for any kind of service. Also the captains and all the people will be entirely at your command."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Verily I say unto thee, To-day shalt thou be with me in Paradise.
+Jesus said to him, "Assuredly I tell you, today you will be with me in Paradise."

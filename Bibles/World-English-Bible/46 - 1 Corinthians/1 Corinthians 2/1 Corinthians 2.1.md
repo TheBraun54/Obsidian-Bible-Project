@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, brethren, when I came unto you, came not with excellency of speech or of wisdom, proclaiming to you the testimony of God.
+When I came to you, brothers, I didn't come with excellence of speech or of wisdom, proclaiming to you the testimony of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-her former husband, who sent her away, may not take her again to be his wife, after that she is defiled; for that is abomination before Jehovah: and thou shalt not cause the land to sin, which Jehovah thy God giveth thee for an inheritance.
+her former husband, who sent her away, may not take her again to be his wife, after that she is defiled; for that is abomination before Yahweh: and you shall not cause the land to sin, which Yahweh your God gives you for an inheritance.

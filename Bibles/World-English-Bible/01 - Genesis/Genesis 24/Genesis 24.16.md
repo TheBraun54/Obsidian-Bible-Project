@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the damsel was very fair to look upon, a virgin, neither had any man known her: and she went down to the fountain, and filled her pitcher, and came up.
+The young lady was very beautiful to look at, a virgin, neither had any man known her. She went down to the spring, filled her pitcher, and came up.

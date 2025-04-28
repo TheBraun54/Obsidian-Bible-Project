@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath fashioned a god, or molten an image that is profitable for nothing?
+Who has fashioned a god, or molds an image that is profitable for nothing?

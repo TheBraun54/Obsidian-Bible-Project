@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things I saw, and behold, a great multitude, which no man could number, out of every nation and of [all] tribes and peoples and tongues, standing before the throne and before the Lamb, arrayed in white robes, and palms in their hands;
+After these things I looked, and behold, a great multitude, which no man could number, out of every nation and of all tribes, peoples, and languages, standing before the throne and before the Lamb, dressed in white robes, with palm branches in their hands.

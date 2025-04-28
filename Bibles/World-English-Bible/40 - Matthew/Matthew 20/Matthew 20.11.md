@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they received it, they murmured against the householder,
+When they received it, they murmured against the master of the household,

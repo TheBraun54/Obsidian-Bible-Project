@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jehu was executing judgment upon the house of Ahab, that he found the princes of Judah, and the sons of the brethren of Ahaziah, ministering to Ahaziah, and slew them.
+It happened, when Jehu was executing judgment on the house of Ahab, that he found the princes of Judah, and the sons of the brothers of Ahaziah, ministering to Ahaziah, and killed them.

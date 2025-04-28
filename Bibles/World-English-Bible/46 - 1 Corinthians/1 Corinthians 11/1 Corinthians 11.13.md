@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judge ye in yourselves: is it seemly that a woman pray unto God unveiled?
+Judge for yourselves. Is it appropriate that a woman pray to God unveiled?

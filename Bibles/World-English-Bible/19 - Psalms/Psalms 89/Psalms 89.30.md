@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If his children forsake my law, And walk not in mine ordinances;
+If his children forsake my law, and don't walk in my ordinances;

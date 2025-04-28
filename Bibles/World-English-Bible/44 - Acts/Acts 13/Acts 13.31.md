@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he was seen for many days of them that came up with him from Galilee to Jerusalem, who are now his witnesses unto the people.
+and he was seen for many days by those who came up with him from Galilee to Jerusalem, who are his witnesses to the people.

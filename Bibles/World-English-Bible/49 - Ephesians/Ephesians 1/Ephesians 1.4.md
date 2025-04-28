@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as he chose us in him before the foundation of the world, that we should be holy and without blemish before him in love:
+even as he chose us in him before the foundation of the world, that we would be holy and without blemish before him in love;

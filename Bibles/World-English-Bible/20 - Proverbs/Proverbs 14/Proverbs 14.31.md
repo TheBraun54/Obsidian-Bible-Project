@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that oppresseth the poor reproacheth his Maker; But he that hath mercy on the needy honoreth him.
+He who oppresses the poor shows contempt for his Maker, but he who is kind to the needy honors him.

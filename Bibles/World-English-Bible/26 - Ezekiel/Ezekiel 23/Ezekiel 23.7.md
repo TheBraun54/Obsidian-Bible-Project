@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she bestowed her whoredoms upon them, the choicest men of Assyria all of them; and on whomsoever she doted, with all their idols she defiled herself.
+She bestowed her prostitution on them, the choicest men of Assyria all of them; and on whoever she doted, with all their idols she defiled herself.

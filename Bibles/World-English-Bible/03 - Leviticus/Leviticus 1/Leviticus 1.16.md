@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall take away its crop with the filth thereof, and cast it beside the altar on the east part, in the place of the ashes:
+and he shall take away its crop with its filth, and cast it beside the altar on the east part, in the place of the ashes.

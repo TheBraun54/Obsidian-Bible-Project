@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, They shall offer their oblation, each prince on his day, for the dedication of the altar.
+Yahweh said to Moses, "They shall offer their offering, each prince on his day, for the dedication of the altar."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a bell and a pomegranate, a bell and a pomegranate, upon the skirts of the robe round about, to minister in; as Jehovah commanded Moses.
+a bell and a pomegranate, a bell and a pomegranate, around the skirts of the robe, to minister in, as Yahweh commanded Moses.

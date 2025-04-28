@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to Shushan Eduth. Michtam of David, to teach; when he strove with Aram-naharaim and with Aram-zobah, and Joab returned, and smote of Edom in the Valley of Salt twelve thousand]. O God thou hast cast us off, thou hast broken us down; Thou hast been angry; oh restore us again.
+God, you have rejected us. You have broken us down. You have been angry. Restore us, again.

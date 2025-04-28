@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon's son was Rehoboam, Abijah his son, Asa his son, Jehoshaphat his son,
+Solomon's son was Rehoboam, Abijah his son, Asa his son, Jehoshaphat his son,

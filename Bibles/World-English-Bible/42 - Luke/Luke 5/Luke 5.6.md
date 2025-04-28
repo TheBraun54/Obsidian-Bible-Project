@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had done this, they inclosed a great multitude of fishes; and their nets were breaking;
+When they had done this, they caught a great multitude of fish, and their net was breaking.

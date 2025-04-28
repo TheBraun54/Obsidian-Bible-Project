@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Let not the wise man glory in his wisdom, neither let the mighty man glory in his might, let not the rich man glory in his riches;
+Thus says Yahweh, Don't let the wise man glory in his wisdom, neither let the mighty man glory in his might, don't let the rich man glory in his riches;

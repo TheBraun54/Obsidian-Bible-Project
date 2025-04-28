@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even Jehovah, the God of hosts; Jehovah is his memorial [name] .
+even Yahweh, the God of Armies; Yahweh is his name of renown!

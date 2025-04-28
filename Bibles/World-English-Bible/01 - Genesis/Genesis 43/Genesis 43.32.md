@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they set on for him by himself, and for them by themselves, and for the Egyptians, that did eat with him, by themselves: because the Egyptians might not eat bread with the Hebrews; for that is an abomination unto the Egyptians.
+They served him by himself, and them by themselves, and the Egyptians, that ate with him, by themselves, because the Egyptians don't eat bread with the Hebrews, for that is an abomination to the Egyptians.

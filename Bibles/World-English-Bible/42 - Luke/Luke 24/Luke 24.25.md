@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, O foolish men, and slow of heart to believe in all that the prophets have spoken!
+He said to them, "Foolish men, and slow of heart to believe in all that the prophets have spoken!

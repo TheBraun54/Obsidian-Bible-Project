@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore the lord of the vineyard shall come, what will he do unto those husbandmen?
+When therefore the lord of the vineyard comes, what will he do to those farmers?"

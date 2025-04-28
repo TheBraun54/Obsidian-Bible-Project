@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the bread which cometh down out of heaven, that a man may eat thereof, and not die.
+This is the bread which comes down out of heaven, that anyone may eat of it and not die.

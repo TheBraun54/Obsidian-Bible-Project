@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the choice of the flock, and also a pile [of wood] for the bones under [the caldron] ; make it boil well; yea, let the bones thereof be boiled in the midst of it.
+Take the choice of the flock, and also a pile [of wood] for the bones under [the caldron]; make it boil well; yes, let its bones be boiled in its midst.

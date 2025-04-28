@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy hand be upon the man of thy right hand, Upon the son of man whom thou madest strong for thyself.
+Let your hand be on the man of your right hand, on the son of man whom you made strong for yourself.

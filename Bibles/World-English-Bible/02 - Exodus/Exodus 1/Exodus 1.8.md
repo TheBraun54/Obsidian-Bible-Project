@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there arose a new king over Egypt, who knew not Joseph.
+Now there arose a new king over Egypt, who didn't know Joseph.

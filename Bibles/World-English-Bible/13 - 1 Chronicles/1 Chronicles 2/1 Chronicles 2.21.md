@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward Hezron went in to the daughter of Machir the father of Gilead, whom he took [to wife] when he was threescore years old; and she bare him Segub.
+Afterward Hezron went in to the daughter of Machir the father of Gilead, whom he took [as wife] when he was sixty years old; and she bore him Segub.

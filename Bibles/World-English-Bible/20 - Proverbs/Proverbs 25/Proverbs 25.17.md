@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy foot be seldom in thy neighbor's house, Lest he be weary of thee, and hate thee.
+Let your foot be seldom in your neighbor's house, lest he be weary of you, and hate you.

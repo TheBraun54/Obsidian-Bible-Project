@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, my beloved, let us go forth into the field; Let us lodge in the villages.
+Come, my beloved, let us go forth into the field. Let us lodge in the villages.

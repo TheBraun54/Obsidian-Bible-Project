@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha came to Damascus; and Benhadad the king of Syria was sick; and it was told him, saying, The man of God is come hither.
+Elisha came to Damascus; and Benhadad the king of Syria was sick. It was told him, saying, "The man of God has come here."

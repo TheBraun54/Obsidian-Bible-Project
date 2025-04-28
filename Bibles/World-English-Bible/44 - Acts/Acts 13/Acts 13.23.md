@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of this man's seed hath God according to promise brought unto Israel a Saviour, Jesus;
+From this man's seed, God has brought salvation to Israel according to his promise,

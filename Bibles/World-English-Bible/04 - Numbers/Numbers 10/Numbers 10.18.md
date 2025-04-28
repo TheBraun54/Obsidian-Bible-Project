@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the standard of the camp of Reuben set forward according to their hosts: and over his host was Elizur the son of Shedeur.
+The standard of the camp of Reuben went forward according to their armies. Elizur the son of Shedeur was over his army.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate again asked him, saying, Answerest thou nothing? behold how many things they accuse thee of.
+Pilate again asked him, "Have you no answer? See how many things they testify against you!"

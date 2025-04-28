@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for of a truth in this city against thy holy Servant Jesus, whom thou didst anoint, both Herod and Pontius Pilate, with the Gentiles and the peoples of Israel, were gathered together,
+"For truly, in this city against your holy servant, Jesus, whom you anointed, both Herod and Pontius Pilate, with the Gentiles and the people of Israel, were gathered together

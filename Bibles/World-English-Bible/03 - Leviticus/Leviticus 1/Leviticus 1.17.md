@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall rend it by the wings thereof, [but] shall not divide it asunder. And the priest shall burn it upon the altar, upon the wood that is upon the fire: it is a burnt-offering, an offering made by fire, of a sweet savor unto Jehovah.
+He shall tear it by its wings, but shall not divide it apart. The priest shall burn it on the altar, on the wood that is on the fire. It is a burnt offering, an offering made by fire, of a pleasant aroma to Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All this, [said David], have I been made to understand in writing from the hand of Jehovah, even all the works of this pattern.
+"All this," said David, "I have been made to understand in writing from the hand of Yahweh, even all the works of this pattern."

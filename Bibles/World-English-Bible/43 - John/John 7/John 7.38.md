@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that believeth on me, as the scripture hath said, from within him shall flow rivers of living water.
+He who believes in me, as the Scripture has said, from within him will flow rivers of living water."

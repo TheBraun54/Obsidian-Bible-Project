@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of them, named Cleopas, answering said unto him, Dost thou alone sojourn in Jerusalem and not know the things which are come to pass there in these days?
+One of them, named Cleopas, answered him, "Are you the only stranger in Jerusalem who doesn't know the things which have happened there in these days?"

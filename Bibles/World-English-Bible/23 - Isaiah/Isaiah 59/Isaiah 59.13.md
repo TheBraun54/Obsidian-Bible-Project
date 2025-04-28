@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-transgressing and denying Jehovah, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood.
+transgressing and denying Yahweh, and turning away from following our God, speaking oppression and revolt, conceiving and uttering from the heart words of falsehood.

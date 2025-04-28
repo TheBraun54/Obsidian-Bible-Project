@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses numbered them according to the word of Jehovah, as he was commanded.
+Moses numbered them according to the word of Yahweh, as he was commanded.

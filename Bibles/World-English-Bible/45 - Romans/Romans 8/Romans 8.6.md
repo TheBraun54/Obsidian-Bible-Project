@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the mind of the flesh is death; but the mind of the Spirit is life and peace:
+For the mind of the flesh is death, but the mind of the Spirit is life and peace;

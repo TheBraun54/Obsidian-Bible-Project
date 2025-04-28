@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the witness of John, when the Jews sent unto him from Jerusalem priests and Levites to ask him, Who art thou?
+This is John's testimony, when the Jews sent priests and Levites from Jerusalem to ask him, "Who are you?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did Moses: according to all that Jehovah commanded him, so did he.
+Moses did so. According to all that Yahweh commanded him, so he did.

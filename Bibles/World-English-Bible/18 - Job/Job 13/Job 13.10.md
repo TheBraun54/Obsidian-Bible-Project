@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will surely reprove you, If ye do secretly show partiality.
+He will surely reprove you if you secretly show partiality.

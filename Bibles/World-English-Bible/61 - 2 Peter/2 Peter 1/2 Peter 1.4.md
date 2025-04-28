@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereby he hath granted unto us his precious and exceeding great promises; that through these ye may become partakers of the divine nature, having escaped from the corruption that is in that world by lust.
+by which he has granted to us his precious and exceedingly great promises; that through these you may become partakers of the divine nature, having escaped from the corruption that is in the world by lust.

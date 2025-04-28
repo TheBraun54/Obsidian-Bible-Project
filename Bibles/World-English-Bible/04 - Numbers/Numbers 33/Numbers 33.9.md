@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Marah, and came unto Elim: and in Elim were twelve springs of water, and threescore and ten palm-trees; and they encamped there.
+They traveled from Marah, and came to Elim: and in Elim were twelve springs of water, and seventy palm trees; and they encamped there.

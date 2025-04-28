@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fear of you and the dread of you shall be upon every beast of the earth, and upon every bird of the heavens; with all wherewith the ground teemeth, and all the fishes of the sea, into your hand are they delivered.
+The fear of you and the dread of you will be on every animal of the earth, and on every bird of the sky. Everything that the ground teems with, and all the fish of the sea are delivered into your hand.

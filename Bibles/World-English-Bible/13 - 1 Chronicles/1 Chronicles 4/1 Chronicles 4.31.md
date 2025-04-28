@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and at Beth-marcaboth, and Hazar-susim, and at Beth-biri, and at Shaaraim. These were their cities unto the reign of David.
+and at Beth Marcaboth, and Hazar Susim, and at Beth Biri, and at Shaaraim. These were their cities to the reign of David.

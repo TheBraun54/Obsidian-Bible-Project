@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have written unto you, fathers, because ye know him who is from the beginning. I have written unto you, young men, because ye are strong, and the word of God abideth in you, and ye have overcome the evil one.
+I have written to you, fathers, because you know him who is from the beginning. I have written to you, young men, because you are strong, and the word of God remains in you, and you have overcome the evil one.

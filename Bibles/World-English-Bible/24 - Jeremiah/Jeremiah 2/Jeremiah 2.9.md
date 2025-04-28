@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I will yet contend with you, saith Jehovah, and with your children's children will I contend.
+"Therefore I will yet contend with you," says Yahweh, "and I will contend with your children's children.

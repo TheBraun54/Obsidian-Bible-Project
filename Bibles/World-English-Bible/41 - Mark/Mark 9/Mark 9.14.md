@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came to the disciples, they saw a great multitude about them, and scribes questioning with them.
+Coming to the disciples, he saw a great multitude around them, and scribes questioning them.

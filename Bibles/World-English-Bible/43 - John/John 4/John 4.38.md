@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I sent you to reap that whereon ye have not labored: others have labored, and ye are entered into their labor.
+I sent you to reap that for which you haven't labored. Others have labored, and you have entered into their labor."

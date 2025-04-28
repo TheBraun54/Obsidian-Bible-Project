@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall be two women grinding together; the one shall be taken, and the other shall be left.
+There will be two grinding grain together. One will be taken, and the other will be left."

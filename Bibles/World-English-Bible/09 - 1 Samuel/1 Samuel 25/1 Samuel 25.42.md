@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abigail hasted, and arose, and rode upon an ass, with five damsels of hers that followed her; and she went after the messengers of David, and became his wife.
+Abigail hurried, and arose, and rode on a donkey, with five ladies of hers who followed her; and she went after the messengers of David, and became his wife.

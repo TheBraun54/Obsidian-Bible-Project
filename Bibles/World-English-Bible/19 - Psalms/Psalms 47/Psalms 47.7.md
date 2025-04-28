@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God is the King of all the earth: Sing ye praises with understanding.
+For God is the King of all the earth. Sing praises with understanding.

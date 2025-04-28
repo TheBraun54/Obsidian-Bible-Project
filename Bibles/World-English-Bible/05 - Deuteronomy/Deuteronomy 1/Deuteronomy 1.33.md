@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who went before you in the way, to seek you out a place to pitch your tents in, in fire by night, to show you by what way ye should go, and in the cloud by day.
+who went before you in the way, to seek you out a place to pitch your tents in, in fire by night, to show you by what way you should go, and in the cloud by day.

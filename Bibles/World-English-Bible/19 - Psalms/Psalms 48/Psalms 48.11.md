@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let mount Zion be glad, Let the daughters of Judah rejoice, Because of thy judgments.
+Let Mount Zion be glad! Let the daughters of Judah rejoice, Because of your judgments.

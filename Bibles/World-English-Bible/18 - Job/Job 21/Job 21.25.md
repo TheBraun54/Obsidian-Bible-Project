@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another dieth in bitterness of soul, And never tasteth of good.
+Another dies in bitterness of soul, and never tastes of good.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they laid it up till the morning, as Moses bade: and it did not become foul, neither was there any worm therein.
+They laid it up until the morning, as Moses asked, and it didn't become foul, neither was there any worm in it.

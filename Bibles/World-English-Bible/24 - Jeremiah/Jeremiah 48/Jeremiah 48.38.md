@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On all the housetops of Moab and in the streets thereof there is lamentation every where; for I have broken Moab like a vessel wherein none delighteth, saith Jehovah.
+On all the housetops of Moab and in its streets there is lamentation every where; for I have broken Moab like a vessel in which none delights, says Yahweh.

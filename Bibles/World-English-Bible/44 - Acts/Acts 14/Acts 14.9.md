@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The same heard Paul speaking, who, fastening eyes upon him, and seeing that he had faith to be made whole,
+He was listening to Paul speaking, who, fastening eyes on him, and seeing that he had faith to be made whole,

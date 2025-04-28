@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, O Jehovah, thou hast spoken concerning this place, to cut it off, that none shall dwell therein, neither man nor beast, but that it shall be desolate for ever.
+and say, Yahweh, you have spoken concerning this place, to cut it off, that none shall dwell therein, neither man nor animal, but that it shall be desolate forever.

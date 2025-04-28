@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bela had sons: Addar, and Gera, and Abihud,
+Bela had sons: Addar, and Gera, and Abihud,

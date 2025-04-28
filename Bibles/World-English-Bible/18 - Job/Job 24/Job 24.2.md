@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are that remove the landmarks; They violently take away flocks, and feed them.
+There are people who remove the landmarks. They violently take away flocks, and feed them.

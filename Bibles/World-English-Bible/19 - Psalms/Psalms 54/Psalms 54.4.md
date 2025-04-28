@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, God is my helper: The Lord is of them that uphold my soul.
+Behold, God is my helper. The Lord is the one who sustains my soul.

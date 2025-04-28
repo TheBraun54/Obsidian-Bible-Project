@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their brethren, in their villages, were to come in every seven days from time to time to be with them:
+Their brothers, in their villages, were to come in every seven days from time to time to be with them:

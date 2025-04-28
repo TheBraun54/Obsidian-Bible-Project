@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Arvad with thine army were upon thy walls round about, and valorous men were in thy towers; they hanged their shields upon thy walls round about; they have perfected thy beauty.
+The men of Arvad with your army were on your walls all around, and valorous men were in your towers; they hanged their shields on your walls all around; they have perfected your beauty.

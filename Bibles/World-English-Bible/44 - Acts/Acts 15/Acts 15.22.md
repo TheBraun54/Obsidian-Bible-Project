@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then it seemed good to the apostles and the elders, with the whole church, to choose men out of their company, and send them to Antioch with Paul and Barnabas; [namely], Judas called Barsabbas, and Silas, chief men among the brethren:
+Then it seemed good to the apostles and the elders, with the whole assembly, to choose men out of their company, and send them to Antioch with Paul and Barnabas: Judas called Barsabbas, and Silas, chief men among the brothers.

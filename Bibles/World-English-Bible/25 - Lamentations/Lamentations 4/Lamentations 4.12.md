@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The kings of the earth believed not, neither all the inhabitants of the world, That the adversary and the enemy would enter into the gates of Jerusalem.
+The kings of the earth didn't believe, neither all the inhabitants of the world, That the adversary and the enemy would enter into the gates of Jerusalem.

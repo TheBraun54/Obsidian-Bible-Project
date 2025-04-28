@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said unto them, An evil and adulterous generation seeketh after a sign; and there shall no sign be given it but the sign of Jonah the prophet:
+But he answered them, "An evil and adulterous generation seeks after a sign, but no sign will be given it but the sign of Jonah the prophet.

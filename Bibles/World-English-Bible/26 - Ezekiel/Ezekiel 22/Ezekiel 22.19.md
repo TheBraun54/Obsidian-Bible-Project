@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Because ye are all become dross, therefore, behold, I will gather you into the midst of Jerusalem.
+Therefore thus says the Lord Yahweh: Because you have all become dross, therefore, behold, I will gather you into the midst of Jerusalem.

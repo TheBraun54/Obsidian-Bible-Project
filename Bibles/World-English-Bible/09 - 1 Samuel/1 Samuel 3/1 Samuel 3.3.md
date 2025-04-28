@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the lamp of God was not yet gone out, and Samuel was laid down [to sleep], in the temple of Jehovah, where the ark of God was;
+and the lamp of God hadn't yet gone out, and Samuel had laid down [to sleep], in the temple of Yahweh, where the ark of God was;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Hezekiah and the princes came and saw the heaps, they blessed Jehovah, and his people Israel.
+When Hezekiah and the princes came and saw the heaps, they blessed Yahweh, and his people Israel.

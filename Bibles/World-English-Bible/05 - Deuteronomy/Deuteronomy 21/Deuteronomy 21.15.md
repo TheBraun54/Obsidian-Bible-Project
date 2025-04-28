@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man have two wives, the one beloved, and the other hated, and they have borne him children, both the beloved and the hated; and if the first-born son be hers that was hated;
+If a man have two wives, the one beloved, and the other hated, and they have borne him children, both the beloved and the hated; and if the firstborn son be hers who was hated;

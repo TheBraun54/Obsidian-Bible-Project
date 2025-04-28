@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God planted a garden eastward, in Eden; and there he put the man whom he had formed.
+Yahweh God planted a garden eastward, in Eden, and there he put the man whom he had formed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say, Did they not hear? Yea, verily, Their sound went out into all the earth, And their words unto the ends of the world.
+But I say, didn't they hear? Yes, most certainly, "Their sound went out into all the earth, their words to the ends of the world."

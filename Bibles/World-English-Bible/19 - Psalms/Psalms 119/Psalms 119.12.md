@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed art thou, O Jehovah: Teach me thy statutes.
+Blessed are you, Yahweh. Teach me your statutes.

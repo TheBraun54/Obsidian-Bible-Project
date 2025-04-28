@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They also went down into Sheol with him unto them that are slain by the sword; yea, they that were his arm, [that] dwelt under his shadow in the midst of the nations.
+They also went down into Sheol with him to those who are slain by the sword; yes, those who were his arm, [that] lived under his shadow in the midst of the nations.

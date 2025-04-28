@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We will triumph in thy salvation, And in the name of our God we will set up our banners: Jehovah fulfil all thy petitions.
+We will triumph in your salvation. In the name of our God, we will set up our banners. May Yahweh grant all your requests.

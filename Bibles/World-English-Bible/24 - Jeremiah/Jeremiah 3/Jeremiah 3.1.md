@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say, If a man put away his wife, and she go from him, and become another man's, will he return unto her again? will not that land be greatly polluted? But thou hast played the harlot with many lovers; yet return again to me, saith Jehovah.
+"They say, 'If a man puts away his wife, and she goes from him, and become another man's, will he return to her again?' Wouldn't that land be greatly polluted? But you have played the prostitute with many lovers; yet return again to me," says Yahweh.

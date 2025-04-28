@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she sent and called Barak the son of Abinoam out of Kedesh-naphtali, and said unto him, Hath not Jehovah, the God of Israel, commanded, [saying], Go and draw unto mount Tabor, and take with thee ten thousand men of the children of Naphtali and of the children of Zebulun?
+She sent and called Barak the son of Abinoam out of Kedesh Naphtali, and said to him, "Hasn't Yahweh, the God of Israel, commanded, 'Go and draw to Mount Tabor, and take with you ten thousand men of the children of Naphtali and of the children of Zebulun?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the vine were three branches: and it was as though it budded, [and] its blossoms shot forth; [and] the clusters thereof brought forth ripe grapes:
+and in the vine were three branches. It was as though it budded, its blossoms shot forth, and its clusters brought forth ripe grapes.

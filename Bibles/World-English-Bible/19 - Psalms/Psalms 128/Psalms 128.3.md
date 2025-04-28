@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy wife shall be as a fruitful vine, In the innermost parts of thy house; Thy children like olive plants, Round about thy table.
+Your wife will be as a fruitful vine, in the innermost parts of your house; your children like olive plants, around your table.

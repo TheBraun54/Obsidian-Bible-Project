@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither will I let thee hear any more the shame of the nations, neither shalt thou bear the reproach of the peoples any more, neither shalt thou cause thy nation to stumble any more, saith the Lord Jehovah.
+neither will I let you hear any more the shame of the nations, neither shall you bear the reproach of the peoples any more, neither shall you cause your nation to stumble any more, says the Lord Yahweh.

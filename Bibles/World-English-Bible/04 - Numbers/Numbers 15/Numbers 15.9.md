@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall he offer with the bullock a meal-offering of three tenth parts [of an ephah] of fine flour mingled with half a hin of oil:
+then shall he offer with the bull a meal offering of three tenth parts [of an ephah] of fine flour mixed with half a hin of oil:

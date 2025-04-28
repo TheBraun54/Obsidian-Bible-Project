@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall go forth out of the camp; and the priest shall look; and, behold, if the plague of leprosy be healed in the leper,
+and the priest shall go forth out of the camp. The priest shall examine him, and behold, if the plague of leprosy is healed in the leper,

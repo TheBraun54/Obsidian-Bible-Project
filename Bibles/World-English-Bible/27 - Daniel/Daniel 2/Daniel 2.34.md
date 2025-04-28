@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou sawest till that a stone was cut out without hands, which smote the image upon its feet that were of iron and clay, and brake them in pieces.
+You saw until a stone was cut out without hands, which struck the image on its feet that were of iron and clay, and broke them in pieces.

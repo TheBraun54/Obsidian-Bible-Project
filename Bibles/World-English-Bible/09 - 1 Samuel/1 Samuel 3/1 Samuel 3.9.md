@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Eli said unto Samuel, Go, lie down: and it shall be, if he call thee, that thou shalt say, Speak, Jehovah; for thy servant heareth. So Samuel went and lay down in his place.
+Therefore Eli said to Samuel, "Go, lie down: and it shall be, if he calls you, that you shall say, 'Speak, Yahweh; for your servant hears.'" So Samuel went and lay down in his place.

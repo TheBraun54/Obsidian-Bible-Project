@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have given thee a king in mine anger, and have taken him away in my wrath.
+I have given you a king in my anger, and have taken him away in my wrath.

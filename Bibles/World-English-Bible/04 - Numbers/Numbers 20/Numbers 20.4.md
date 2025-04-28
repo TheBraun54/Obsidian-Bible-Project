@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And why have ye brought the assembly of Jehovah into this wilderness, that we should die there, we and our beasts?
+Why have you brought the assembly of Yahweh into this wilderness, that we should die there, we and our animals?

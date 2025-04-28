@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no straw given unto thy servants, and they say to us, Make brick: and, behold, thy servants are beaten; but the fault is in thine own people.
+No straw is given to your servants, and they tell us, 'Make brick!' and behold, your servants are beaten; but the fault is in your own people."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one who for a certain insurrection made in the city, and for murder, was cast into prison.
+one who was thrown into prison for a certain revolt in the city, and for murder.

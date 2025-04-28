@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dedan, and Tema, and Buz, and all that have the corners [of their hair] cut off;
+Dedan, and Tema, and Buz, and all who have the corners [of their hair] cut off;

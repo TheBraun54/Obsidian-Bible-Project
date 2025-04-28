@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon the land of my people shall come up thorns and briers; yea, upon all the houses of joy in the joyous city.
+Thorns and briars will come up on my people's land; yes, on all the houses of joy in the joyous city.

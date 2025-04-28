@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Repent therefore of this thy wickedness, and pray the Lord, if perhaps the thought of thy heart shall be forgiven thee.
+Repent therefore of this, your wickedness, and ask God if perhaps the thought of your heart may be forgiven you.

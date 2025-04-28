@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Kenan lived seventy years, and begat Mahalalel:
+Kenan lived seventy years, and became the father of Mahalalel.

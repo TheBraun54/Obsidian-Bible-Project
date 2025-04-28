@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [when they come] from the marketplace, except they bathe themselves, they eat not; and many other things there are, which they have received to hold, washings of cups, and pots, and brasen vessels .)
+They don't eat when they come from the marketplace, unless they bathe themselves, and there are many other things, which they have received to hold to: washings of cups, pitchers, bronze vessels, and couches.)

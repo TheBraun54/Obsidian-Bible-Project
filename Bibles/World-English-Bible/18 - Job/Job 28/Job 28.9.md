@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He putteth forth his hand upon the flinty rock; He overturneth the mountains by the roots.
+He puts forth his hand on the flinty rock, and he overturns the mountains by the roots.

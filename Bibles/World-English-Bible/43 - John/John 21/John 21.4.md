@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when day was now breaking, Jesus stood on the beach: yet the disciples knew not that it was Jesus.
+But when day had already come, Jesus stood on the beach, yet the disciples didn't know that it was Jesus.

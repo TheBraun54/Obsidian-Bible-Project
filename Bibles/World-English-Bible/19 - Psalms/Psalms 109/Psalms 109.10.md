@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let his children be vagabonds, and beg; And let them seek [their bread] out of their desolate places.
+Let his children be wandering beggars. Let them be sought from their ruins.

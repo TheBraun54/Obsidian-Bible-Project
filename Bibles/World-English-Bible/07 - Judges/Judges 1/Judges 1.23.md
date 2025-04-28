@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the house of Joseph sent to spy out Beth-el. (Now the name of the city beforetime was Luz.)
+The house of Joseph sent to spy out Bethel. (Now the name of the city before was Luz.)

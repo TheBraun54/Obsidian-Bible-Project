@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went down from the mount unto the people, and sanctified the people; and they washed their garments.
+Moses went down from the mountain to the people, and sanctified the people; and they washed their clothes.

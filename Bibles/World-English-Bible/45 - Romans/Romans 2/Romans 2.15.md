@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in that they show the work of the law written in their hearts, their conscience bearing witness therewith, and their thoughts one with another accusing or else excusing [them] );
+in that they show the work of the law written in their hearts, their conscience testifying with them, and their thoughts among themselves accusing or else excusing them)

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The princes of Zoan are utterly foolish; the counsel of the wisest counsellors of Pharaoh is become brutish: how say ye unto Pharaoh, I am the son of the wise, the son of ancient kings?
+The princes of Zoan are utterly foolish. The counsel of the wisest counselors of Pharaoh has become stupid. How do you say to Pharaoh, "I am the son of the wise, the son of ancient kings?"

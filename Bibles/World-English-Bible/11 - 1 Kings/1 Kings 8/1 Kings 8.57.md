@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah our God be with us, as he was with our fathers: let him not leave us, nor forsake us;
+May Yahweh our God be with us, as he was with our fathers. Let him not leave us, nor forsake us;

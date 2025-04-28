@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they were coming down from the mountain, Jesus commanded them, saying, Tell the vision to no man, until the Son of man be risen from the dead.
+As they were coming down from the mountain, Jesus commanded them, saying, "Don't tell anyone what you saw, until the Son of Man has risen from the dead."

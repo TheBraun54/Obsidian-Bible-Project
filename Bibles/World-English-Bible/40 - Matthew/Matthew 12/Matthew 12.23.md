@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the multitudes were amazed, and said, Can this be the son of David?
+All the multitudes were amazed, and said, "Can this be the son of David?"

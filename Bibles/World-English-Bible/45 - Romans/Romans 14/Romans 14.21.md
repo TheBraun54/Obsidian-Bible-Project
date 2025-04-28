@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is good not to eat flesh, nor to drink wine, nor [to do anything] whereby thy brother stumbleth.
+It is good to not eat meat, drink wine, nor do anything by which your brother stumbles, is offended, or is made weak.

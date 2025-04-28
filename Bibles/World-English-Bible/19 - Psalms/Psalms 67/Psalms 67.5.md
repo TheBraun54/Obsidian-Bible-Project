@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the peoples praise thee, O God; Let all the peoples praise thee.
+Let the peoples praise you, God. Let all the peoples praise you.

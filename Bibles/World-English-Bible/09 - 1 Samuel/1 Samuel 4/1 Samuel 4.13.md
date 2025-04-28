@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came, lo, Eli was sitting upon his seat by the wayside watching; for his heart trembled for the ark of God. And when the man came into the city, and told it, all the city cried out.
+When he came, behold, Eli was sitting on his seat by the road watching; for his heart trembled for the ark of God. When the man came into the city, and told it, all the city cried out.

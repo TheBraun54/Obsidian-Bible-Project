@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Symeon, the [son] of Judas, the [son] of Joseph, the [son] of Jonam, the [son] of Eliakim,
+the son of Simeon, the son of Judah, the son of Joseph, the son of Jonan, the son of Eliakim,

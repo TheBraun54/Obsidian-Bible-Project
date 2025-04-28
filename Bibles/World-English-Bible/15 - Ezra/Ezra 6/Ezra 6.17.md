@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they offered at the dedication of this house of God a hundred bullocks, two hundred rams, four hundred lambs; and for a sin-offering for all Israel, twelve he-goats, according to the number of the tribes of Israel.
+They offered at the dedication of this house of God one hundred bulls, two hundred rams, four hundred lambs; and for a sin offering for all Israel, twelve male goats, according to the number of the tribes of Israel.

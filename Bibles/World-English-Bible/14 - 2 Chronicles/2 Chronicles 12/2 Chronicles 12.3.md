@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with twelve hundred chariots, and threescore thousand horsemen. And the people were without number that came with him out of Egypt: the Lubim, the Sukkiim, and the Ethiopians.
+with twelve hundred chariots, and sixty thousand horsemen. The people were without number who came with him out of Egypt: the Lubim, the Sukkiim, and the Ethiopians.

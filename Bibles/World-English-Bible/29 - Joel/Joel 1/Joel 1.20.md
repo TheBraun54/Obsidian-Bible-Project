@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, the beasts of the field pant unto thee; for the water brooks are dried up, and the fire hath devoured the pastures of the wilderness.
+Yes, the animals of the field pant to you, for the water brooks have dried up, And the fire has devoured the pastures of the wilderness.

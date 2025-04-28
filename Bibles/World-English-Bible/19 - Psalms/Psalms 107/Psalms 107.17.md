@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fools because of their transgression, And because of their iniquities, are afflicted.
+Fools are afflicted because of their disobedience, and because of their iniquities.

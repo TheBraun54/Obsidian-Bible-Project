@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their calamity shall rise suddenly; And the destruction from them both, who knoweth it?
+for their calamity will rise suddenly; the destruction from them both--who knows?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham said unto his servant, the elder of his house, that ruled over all that he had, Put, I pray thee, thy hand under my thigh:
+Abraham said to his servant, the elder of his house, who ruled over all that he had, "Please put your hand under my thigh.

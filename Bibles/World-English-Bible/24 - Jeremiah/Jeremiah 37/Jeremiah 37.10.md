@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though ye had smitten the whole army of the Chaldeans that fight against you, and there remained but wounded men among them, yet would they rise up every man in his tent, and burn this city with fire.
+For though you had struck the whole army of the Chaldeans who fight against you, and there remained but wounded men among them, yes would they rise up every man in his tent, and burn this city with fire.

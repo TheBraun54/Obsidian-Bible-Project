@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the seven left no seed. Last of all the woman also died.
+and the seven took her and left no children. Last of all the woman also died.

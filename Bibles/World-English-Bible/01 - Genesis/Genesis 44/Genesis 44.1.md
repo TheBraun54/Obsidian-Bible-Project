@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded the steward of his house, saying, Fill the men's sacks with food, as much as they can carry, and put every man's money in his sack's mouth.
+He commanded the steward of his house, saying, "Fill the men's sacks with food, as much as they can carry, and put each man's money in his sack's mouth.

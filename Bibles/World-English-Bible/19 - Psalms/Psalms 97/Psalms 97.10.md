@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O ye that love Jehovah, hate evil: He preserveth the souls of his saints; He delivereth them out of the hand of the wicked.
+You who love Yahweh, hate evil. He preserves the souls of his saints. He delivers them out of the hand of the wicked.

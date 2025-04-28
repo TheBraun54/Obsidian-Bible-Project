@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For wisdom shall enter into thy heart, And knowledge shall be pleasant unto thy soul;
+For wisdom will enter into your heart. Knowledge will be pleasant to your soul.

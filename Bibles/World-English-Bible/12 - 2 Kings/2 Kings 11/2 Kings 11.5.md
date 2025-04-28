@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded them, saying, This is the thing that ye shall do: a third part of you, that come in on the sabbath, shall be keepers of the watch of the king's house;
+He commanded them, saying, "This is the thing that you shall do: a third part of you, who come in on the Sabbath, shall be keepers of the watch of the king's house;

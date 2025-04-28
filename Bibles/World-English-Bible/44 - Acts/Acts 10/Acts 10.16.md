@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this was done thrice: and straightway the vessel was received up into heaven.
+This was done three times, and immediately the vessel was received up into heaven.

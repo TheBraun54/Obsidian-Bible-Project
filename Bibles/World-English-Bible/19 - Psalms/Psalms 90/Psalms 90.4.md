@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a thousand years in thy sight Are but as yesterday when it is past, And as a watch in the night.
+For a thousand years in your sight are just like yesterday when it is past, like a watch in the night.

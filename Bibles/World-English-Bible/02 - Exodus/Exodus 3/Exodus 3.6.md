@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he said, I am the God of thy father, the God of Abraham, the God of Isaac, and the God of Jacob. And Moses hid his face; for he was afraid to look upon God.
+Moreover he said, "I am the God of your father, the God of Abraham, the God of Isaac, and the God of Jacob." Moses hid his face; for he was afraid to look at God.

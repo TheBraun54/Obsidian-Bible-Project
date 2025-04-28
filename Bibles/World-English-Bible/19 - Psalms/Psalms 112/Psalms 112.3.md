@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wealth and riches are in his house; And his righteousness endureth for ever.
+Wealth and riches are in his house. His righteousness endures forever.

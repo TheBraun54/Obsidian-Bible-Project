@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the manslayer shall at any time go beyond the border of his city of refuge, whither he fleeth,
+"'But if the manslayer shall at any time go beyond the border of his city of refuge, where he flees,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have ye not seen a false vision, and have ye not spoken a lying divination, in that ye say, Jehovah saith; albeit I have not spoken?
+Haven't you seen a false vision, and haven't you spoken a lying divination, in that you say, Yahweh says; but I have not spoken?

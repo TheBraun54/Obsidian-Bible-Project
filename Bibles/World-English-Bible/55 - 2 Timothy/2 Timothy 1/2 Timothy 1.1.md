@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, an apostle of Christ Jesus through the will of God, according to the promise of the life which is in Christ Jesus,
+Paul, an apostle of Jesus Christ through the will of God, according to the promise of the life which is in Christ Jesus,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, With desire I have desired to eat this passover with you before I suffer:
+He said to them, "I have earnestly desired to eat this Passover with you before I suffer,

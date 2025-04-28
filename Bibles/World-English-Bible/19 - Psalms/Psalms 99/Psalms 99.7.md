@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He spake unto them in the pillar of cloud: They kept his testimonies, And the statute that he gave them.
+He spoke to them in the pillar of cloud. They kept his testimonies, the statute that he gave them.

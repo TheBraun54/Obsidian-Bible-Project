@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Well is it with the man that dealeth graciously and lendeth; He shall maintain his cause in judgment.
+It is well with the man who deals graciously and lends. He will maintain his cause in judgment.

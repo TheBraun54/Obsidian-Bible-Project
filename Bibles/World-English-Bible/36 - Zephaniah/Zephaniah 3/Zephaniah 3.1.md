@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to her that is rebellious and polluted! to the oppressing city!
+Woe to her who is rebellious and polluted, the oppressing city!

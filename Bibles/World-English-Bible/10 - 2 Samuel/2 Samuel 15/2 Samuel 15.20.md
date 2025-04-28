@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereas thou camest but yesterday, should I this day make thee go up and down with us, seeing I go whither I may? return thou, and take back thy brethren; mercy and truth be with thee.
+Whereas you came but yesterday, should I this day make you go up and down with us, since I go where I may? Return, and take back your brothers. Mercy and truth be with you."

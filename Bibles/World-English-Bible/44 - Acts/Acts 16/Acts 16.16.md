@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as we were going to the place of prayer, that a certain maid having a spirit of divination met us, who brought her masters much gain by soothsaying.
+It happened, as we were going to prayer, that a certain girl having a spirit of divination met us, who brought her masters much gain by fortune telling.

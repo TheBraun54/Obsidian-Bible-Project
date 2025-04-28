@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest the land whence thou broughtest us out say, Because Jehovah was not able to bring them into the land which he promised unto them, and because he hated them, he hath brought them out to slay them in the wilderness.
+lest the land you brought us out from say, 'Because Yahweh was not able to bring them into the land which he promised to them, and because he hated them, he has brought them out to kill them in the wilderness.'

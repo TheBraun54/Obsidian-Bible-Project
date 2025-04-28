@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will keep thee from all evil; He will keep thy soul.
+Yahweh will keep you from all evil. He will keep your soul.

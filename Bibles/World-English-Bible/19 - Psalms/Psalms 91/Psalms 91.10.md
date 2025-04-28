@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall no evil befall thee, Neither shall any plague come nigh thy tent.
+no evil shall happen to you, neither shall any plague come near your dwelling.

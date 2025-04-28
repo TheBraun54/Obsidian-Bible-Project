@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the report concerning them came to the ears of the church which was in Jerusalem: and they sent forth Barnabas as far as Antioch:
+The report concerning them came to the ears of the assembly which was in Jerusalem. They sent out Barnabas to go as far as Antioch,

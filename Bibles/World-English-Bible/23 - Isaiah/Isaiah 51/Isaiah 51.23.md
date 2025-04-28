@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will put it into the hand of them that afflict thee, that have said to thy soul, Bow down, that we may go over; and thou hast laid thy back as the ground, and as the street, to them that go over.
+and I will put it into the hand of those who afflict you, who have said to your soul, 'Bow down, that we may walk over you;' and you have laid your back as the ground, and as the street, to those who walk over."

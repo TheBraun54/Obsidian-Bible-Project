@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Behold, my maid Bilhah, go in unto her; that she may bear upon my knees, and I also may obtain children by her.
+She said, "Behold, my maid Bilhah. Go in to her, that she may bear on my knees, and I also may obtain children by her."

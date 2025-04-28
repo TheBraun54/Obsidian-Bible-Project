@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Meraioth begat Amariah, and Amariah begat Ahitub,
+Meraioth became the father of Amariah, and Amariah became the father of Ahitub,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, ye fast for strife and contention, and to smite with the fist of wickedness: ye fast not this day so as to make your voice to be heard on high.
+Behold, you fast for strife and contention, and to strike with the fist of wickedness: you don't fast this day so as to make your voice to be heard on high.

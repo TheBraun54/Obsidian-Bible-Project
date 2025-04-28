@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, he loved cursing, and it came unto him; And he delighted not in blessing, and it was far from him.
+Yes, he loved cursing, and it came to him. He didn't delight in blessing, and it was far from him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples of John told him of all these things.
+The disciples of John told him about all these things.

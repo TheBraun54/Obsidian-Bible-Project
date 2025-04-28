@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he slew it; and Moses took of the blood thereof, and put it upon the tip of Aaron's right ear, and upon the thumb of his right hand, and upon the great toe of his right foot.
+He killed it; and Moses took some of its blood, and put it on the tip of Aaron's right ear, and on the thumb of his right hand, and on the great toe of his right foot.

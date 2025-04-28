@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel went out of Mizpah, and pursued the Philistines, and smote them, until they came under Beth-car.
+The men of Israel went out of Mizpah, and pursued the Philistines, and struck them, until they came under Beth Kar.

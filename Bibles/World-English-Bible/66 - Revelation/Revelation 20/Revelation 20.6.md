@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed and holy is he that hath part in the first resurrection: over these the second death hath no power; but they shall be priests of God and of Christ, and shall reign with him a thousand years.
+Blessed and holy is he who has part in the first resurrection. Over these, the second death has no power, but they will be priests of God and of Christ, and will reign with him one thousand years.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are ye of Jehovah, Who made heaven and earth.
+Blessed are you by Yahweh, who made heaven and earth.

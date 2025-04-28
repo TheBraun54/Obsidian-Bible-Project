@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While they were yet talking with him, came the king's chamberlains, and hasted to bring Haman unto the banquet that Esther had prepared.
+While they were yet talking with him, the king's eunuchs came, and hurried to bring Haman to the banquet that Esther had prepared.

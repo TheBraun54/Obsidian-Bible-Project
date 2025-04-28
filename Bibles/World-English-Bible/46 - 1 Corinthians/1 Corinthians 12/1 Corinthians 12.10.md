@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to another workings of miracles; and to another prophecy; and to another discernings of spirits; to another [divers] kinds of tongues; and to another the interpretation of tongues: [
+and to another workings of miracles; and to another prophecy; and to another discerning of spirits; to another different kinds of languages; and to another the interpretation of languages.

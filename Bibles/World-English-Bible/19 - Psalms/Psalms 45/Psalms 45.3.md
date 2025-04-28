@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gird thy sword upon thy thigh, O mighty one, Thy glory and thy majesty.
+Strap your sword on your thigh, mighty one: your splendor and your majesty.

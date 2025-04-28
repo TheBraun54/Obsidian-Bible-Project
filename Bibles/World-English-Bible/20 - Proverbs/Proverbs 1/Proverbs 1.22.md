@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long, ye simple ones, will ye love simplicity? And scoffers delight them in scoffing, And fools hate knowledge?
+"How long, you simple ones, will you love simplicity? How long will mockers delight themselves in mockery, and fools hate knowledge?

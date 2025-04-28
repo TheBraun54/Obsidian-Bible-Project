@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a tenth part of fine flour mingled with oil for a meal-offering unto every lamb; for a burnt-offering of a sweet savor, an offering made by fire unto Jehovah.
+and a tenth part of fine flour mixed with oil for a meal offering to every lamb; for a burnt offering of a pleasant aroma, an offering made by fire to Yahweh.

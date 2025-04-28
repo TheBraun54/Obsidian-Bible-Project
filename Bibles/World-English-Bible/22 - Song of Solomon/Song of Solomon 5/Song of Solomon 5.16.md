@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His mouth is most sweet; Yea, he is altogether lovely. This is my beloved, and this is my friend, O daughters of Jerusalem.
+His mouth is sweetness; yes, he is altogether lovely. This is my beloved, and this is my friend, daughters of Jerusalem. Friends

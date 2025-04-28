@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our fathers ate the manna in the wilderness; as it is written, He gave them bread out of heaven to eat.
+Our fathers ate the manna in the wilderness. As it is written, 'He gave them bread out of heaven to eat.'"

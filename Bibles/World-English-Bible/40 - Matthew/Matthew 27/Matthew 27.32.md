@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they came out, they found a man of Cyrene, Simon by name: him they compelled to go [with them], that he might bear his cross.
+As they came out, they found a man of Cyrene, Simon by name, and they compelled him to go with them, that he might carry his cross.

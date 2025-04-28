@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The thought of foolishness is sin; And the scoffer is an abomination to men.
+The schemes of folly are sin. The mocker is detested by men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them! For they went in the way of Cain, and ran riotously in the error of Balaam for hire, and perished in the gainsaying of Korah.
+Woe to them! For they went in the way of Cain, and ran riotously in the error of Balaam for hire, and perished in Korah's rebellion.

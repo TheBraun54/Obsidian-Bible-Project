@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God delivereth me to the ungodly, And casteth me into the hands of the wicked.
+God delivers me to the ungodly, and casts me into the hands of the wicked.

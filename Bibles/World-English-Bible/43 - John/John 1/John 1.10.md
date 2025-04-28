@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He was in the world, and the world was made through him, and the world knew him not.
+He was in the world, and the world was made through him, and the world didn't recognize him.

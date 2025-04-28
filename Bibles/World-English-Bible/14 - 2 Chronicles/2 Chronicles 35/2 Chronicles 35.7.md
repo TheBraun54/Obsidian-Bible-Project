@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Josiah gave to the children of the people, of the flock, lambs and kids, all of them for the passover-offerings, unto all that were present, to the number of thirty thousand, and three thousand bullocks: these were of the king's substance.
+Josiah gave to the children of the people, of the flock, lambs and young goats, all of them for the Passover offerings, to all who were present, to the number of thirty thousand, and three thousand bulls: these were of the king's substance.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they that went over the Jordan in the first month, when it had overflowed all its banks; and they put to flight all them of the valleys, both toward the east, and toward the west.
+These are those who went over the Jordan in the first month, when it had overflowed all its banks; and they put to flight all them of the valleys, both toward the east, and toward the west.

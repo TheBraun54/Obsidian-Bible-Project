@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered him, Thou wouldest have no power against me, except it were given thee from above: therefore he that delivered me unto thee hath greater sin.
+Jesus answered, "You would have no power at all against me, unless it were given to you from above. Therefore he who delivered me to you has greater sin."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the third day they cast out with their own hands the tackling of the ship.
+On the third day, they threw out the ship's tackle with their own hands.

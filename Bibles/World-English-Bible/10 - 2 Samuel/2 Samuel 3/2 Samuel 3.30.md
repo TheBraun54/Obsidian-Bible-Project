@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joab and Abishai his brother slew Abner, because he had killed their brother Asahel at Gibeon in the battle.
+So Joab and Abishai his brother killed Abner, because he had killed their brother Asahel at Gibeon in the battle.

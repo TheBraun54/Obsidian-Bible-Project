@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon had twelve officers over all Israel, who provided victuals for the king and his household: each man had to make provision for a month in the year.
+Solomon had twelve officers over all Israel, who provided food for the king and his household: each man had to make provision for a month in the year.

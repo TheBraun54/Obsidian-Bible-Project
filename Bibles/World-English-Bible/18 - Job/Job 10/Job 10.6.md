@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thou inquirest after mine iniquity, And searchest after my sin,
+that you inquire after my iniquity, and search after my sin?

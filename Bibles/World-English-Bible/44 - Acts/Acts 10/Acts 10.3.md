@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saw in a vision openly, as it were about the ninth hour of the day, an angel of God coming in unto him, and saying to him, Cornelius.
+At about the ninth hour of the day, he clearly saw in a vision an angel of God coming to him, and saying to him, "Cornelius!"

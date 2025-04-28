@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore the anger of Jehovah was kindled against this land, to bring upon it all the curse that is written in this book;
+therefore the anger of Yahweh was kindled against this land, to bring on it all the curse that is written in this book;

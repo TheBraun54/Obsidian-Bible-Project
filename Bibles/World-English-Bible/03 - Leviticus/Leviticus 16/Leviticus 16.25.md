@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fat of the sin-offering shall he burn upon the altar.
+The fat of the sin offering he shall burn on the altar.

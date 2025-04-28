@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them that rise up early in the morning, that they may follow strong drink; that tarry late into the night, till wine inflame them!
+Woe to those who rise up early in the morning, that they may follow strong drink; who stay late into the night, until wine inflames them!

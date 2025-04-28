@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answereth them and saith, O faithless generation, how long shall I be with you? how long shall I bear with you? bring him unto me.
+He answered him, "Unbelieving generation, how long shall I be with you? How long shall I bear with you? Bring him to me."

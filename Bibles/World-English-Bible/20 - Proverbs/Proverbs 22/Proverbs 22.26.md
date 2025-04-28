@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou not one of them that strike hands, [Or] of them that are sureties for debts.
+Don't you be one of those who strike hands, of those who are collateral for debts.

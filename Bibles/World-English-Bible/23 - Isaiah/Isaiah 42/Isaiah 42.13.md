@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will go forth as a mighty man; he will stir up [his] zeal like a man of war: he will cry, yea, he will shout aloud; he will do mightily against his enemies.
+Yahweh will go out like a mighty man. He will stir up zeal like a man of war. He will raise a war cry. Yes, he will shout aloud. He will triumph over his enemies.

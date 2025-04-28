@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to whom we gave place in the way of subjection, no, not for an hour; that the truth of the gospel might continue with you.
+to whom we gave no place in the way of subjection, not for an hour, that the truth of the Good News might continue with you.

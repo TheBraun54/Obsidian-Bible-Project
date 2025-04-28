@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of peace they know not; and there is no justice in their goings: they have made them crooked paths; whosoever goeth therein doth not know peace.
+The way of peace they don't know; and there is no justice in their goings: they have made them crooked paths; whoever goes therein does not know peace.

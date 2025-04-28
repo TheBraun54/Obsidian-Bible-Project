@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am resolved what to do, that, when I am put out of the stewardship, they may receive me into their houses.
+I know what I will do, so that when I am removed from management, they may receive me into their houses.'

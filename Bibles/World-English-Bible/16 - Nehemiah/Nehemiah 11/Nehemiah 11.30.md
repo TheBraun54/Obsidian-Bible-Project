@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zanoah, Adullam, and their villages, Lachish and the fields thereof, Azekah and the towns thereof. So they encamped from Beer-sheba unto the valley of Hinnom.
+Zanoah, Adullam, and their villages, Lachish and its fields, Azekah and its towns. So they encamped from Beersheba to the valley of Hinnom.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the messengers returned unto him, and he said unto them, Why is it that ye are returned?
+The messengers returned to him, and he said to them, "Why is it that you have returned?"

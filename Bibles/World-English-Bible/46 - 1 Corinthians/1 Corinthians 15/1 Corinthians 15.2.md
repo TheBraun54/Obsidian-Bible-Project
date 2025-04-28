@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by which also ye are saved, if ye hold fast the word which I preached unto you, except ye believed in vain.
+by which also you are saved, if you hold firmly the word which I preached to you--unless you believed in vain.

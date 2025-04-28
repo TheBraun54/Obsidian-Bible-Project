@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but my lovingkindness shall not depart from him, as I took it from Saul, whom I put away before thee.
+but my loving kindness shall not depart from him, as I took it from Saul, whom I put away before you.

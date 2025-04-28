@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is there not a warfare to man upon earth? And are not his days like the days of a hireling?
+"Isn't a man forced to labor on earth? Aren't his days like the days of a hired hand?

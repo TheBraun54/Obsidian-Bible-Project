@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After him repaired their brethren, Bavvai the son of Henadad, the ruler of half the district of Keilah.
+After him repaired their brothers, Bavvai the son of Henadad, the ruler of half the district of Keilah.

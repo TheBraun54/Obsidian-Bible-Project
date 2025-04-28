@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unrighteous witnesses rise up; They ask me of things that I know not.
+Unrighteous witnesses rise up. They ask me about things that I don't know about.

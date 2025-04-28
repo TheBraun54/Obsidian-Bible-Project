@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only do not two things unto me; Then will I not hide myself from thy face:
+"Only don't do two things to me; then I will not hide myself from your face:

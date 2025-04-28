@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore are my loins filled with anguish; pangs have taken hold upon me, as the pangs of a woman in travail: I am pained so that I cannot hear; I am dismayed so that I cannot see.
+Therefore my thighs are filled with anguish. Pains have taken hold on me, like the pains of a woman in labor. I am in so much pain that I can't hear. I so am dismayed that I can't see.

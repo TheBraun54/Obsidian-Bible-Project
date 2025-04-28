@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was no king in Edom: a deputy was king.
+There was no king in Edom: a deputy was king.

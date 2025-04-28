@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Ziphites came unto Saul to Gibeah, saying, Doth not David hide himself in the hill of Hachilah, which is before the desert?
+The Ziphites came to Saul to Gibeah, saying, "Doesn't David hide himself in the hill of Hachilah, which is before the desert?"

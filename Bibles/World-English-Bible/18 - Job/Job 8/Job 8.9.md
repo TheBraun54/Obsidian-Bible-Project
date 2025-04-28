@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(For we are but of yesterday, and know nothing, Because our days upon earth are a shadow);
+(For we are but of yesterday, and know nothing, because our days on earth are a shadow.)

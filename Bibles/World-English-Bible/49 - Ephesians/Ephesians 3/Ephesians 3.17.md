@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Christ may dwell in your hearts through faith; to the end that ye, being rooted and grounded in love,
+that Christ may dwell in your hearts through faith; to the end that you, being rooted and grounded in love,

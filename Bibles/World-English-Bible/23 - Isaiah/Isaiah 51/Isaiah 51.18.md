@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is none to guide her among all the sons whom she hath brought forth; neither is there any that taketh her by the hand among all the sons that she hath brought up.
+There is none to guide her among all the sons whom she has brought forth; neither is there any who takes her by the hand among all the sons who she has brought up.

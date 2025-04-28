@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon had threescore and ten thousand that bare burdens, and fourscore thousand that were hewers in the mountains;
+Solomon had seventy thousand who bore burdens, and eighty thousand who were stone cutters in the mountains;

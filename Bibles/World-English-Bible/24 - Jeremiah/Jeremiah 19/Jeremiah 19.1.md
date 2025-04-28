@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus said Jehovah, Go, and buy a potter's earthen bottle, and [take] of the elders of the people, and of the elders of the priests;
+Thus said Yahweh, Go, and buy a potter's earthen bottle, and [take] of the elders of the people, and of the elders of the priests;

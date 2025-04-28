@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Rehoboam the son of Solomon, king of Judah, and to all Israel in Judah and Benjamin, saying,
+"Speak to Rehoboam the son of Solomon, king of Judah, and to all Israel in Judah and Benjamin, saying,

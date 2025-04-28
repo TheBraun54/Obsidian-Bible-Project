@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall take of the congregation of the children of Israel two he-goats for a sin-offering, and one ram for a burnt-offering.
+He shall take from the congregation of the children of Israel two male goats for a sin offering, and one ram for a burnt offering.

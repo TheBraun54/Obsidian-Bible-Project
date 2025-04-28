@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall walk after Jehovah, who will roar like a lion; for he will roar, and the children shall come trembling from the west.
+They will walk after Yahweh, who will roar like a lion; for he will roar, and the children will come trembling from the west.

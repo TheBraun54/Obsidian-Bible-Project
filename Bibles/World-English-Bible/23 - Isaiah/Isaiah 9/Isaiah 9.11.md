@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Jehovah will set up on high against him the adversaries of Rezin, and will stir up his enemies,
+Therefore Yahweh will set up on high against him the adversaries of Rezin, and will stir up his enemies,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did the children of Israel; according to all that Jehovah commanded Moses, so did they.
+Thus the children of Israel did. According to all that Yahweh commanded Moses, so they did.

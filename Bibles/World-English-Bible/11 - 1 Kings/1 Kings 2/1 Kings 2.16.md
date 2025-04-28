@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I ask one petition of thee; deny me not. And she said unto him, Say on.
+Now I ask one petition of you. Don't deny me." She said to him, "Say on."

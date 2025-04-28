@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that all may honor the Son, even as they honor the Father. He that honoreth not the Son honoreth not the Father that sent him.
+that all may honor the Son, even as they honor the Father. He who doesn't honor the Son doesn't honor the Father who sent him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Considerest thou not what this people have spoken, saying, The two families which Jehovah did choose, he hath cast them off? thus do they despise my people, that they should be no more a nation before them.
+Don't consider what this people has spoken, saying, The two families which Yahweh did choose, he has cast them off? thus do they despise my people, that they should be no more a nation before them.

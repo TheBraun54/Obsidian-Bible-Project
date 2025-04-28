@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they passed thence unto the hill-country of Ephraim, and came unto the house of Micah.
+They passed there to the hill country of Ephraim, and came to the house of Micah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if any one touch any unclean thing, whether it be the carcass of an unclean beast, or the carcass of unclean cattle, or the carcass of unclean creeping things, and it be hidden from him, and he be unclean, then he shall be guilty.
+"'Or if anyone touches any unclean thing, whether it is the carcass of an unclean animal, or the carcass of unclean livestock, or the carcass of unclean creeping things, and it is hidden from him, and he is unclean, then he shall be guilty.

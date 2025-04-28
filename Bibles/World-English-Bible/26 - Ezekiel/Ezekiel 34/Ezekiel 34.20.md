@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah unto them: Behold, I, even I, will judge between the fat sheep and the lean sheep.
+Therefore thus says the Lord Yahweh to them: Behold, I, even I, will judge between the fat sheep and the lean sheep.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they continued stedfastly in the apostles' teaching and fellowship, in the breaking of bread and the prayers.
+They continued steadfastly in the apostles' teaching and fellowship, in the breaking of bread, and prayer.

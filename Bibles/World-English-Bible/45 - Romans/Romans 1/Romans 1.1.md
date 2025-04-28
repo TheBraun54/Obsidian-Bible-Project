@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Paul, a servant of Jesus Christ, called [to be] an apostle, separated unto the gospel of God,
+Paul, a servant of Jesus Christ, called to be an apostle, set apart for the Good News of God,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be unto them an oblation from the oblation of the land, a thing most holy, by the border of the Levites.
+It shall be to them an offering from the offering of the land, a thing most holy, by the border of the Levites.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So on the morrow, when Agrippa was come, and Bernice, with great pomp, and they were entered into the place of hearing with the chief captains and principal men of the city, at the command of Festus Paul was brought in.
+So on the next day, when Agrippa and Bernice had come with great pomp, and they had entered into the place of hearing with the commanding officers and principal men of the city, at the command of Festus, Paul was brought in.

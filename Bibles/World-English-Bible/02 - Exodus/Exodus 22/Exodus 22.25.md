@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou lend money to any of my people with thee that is poor, thou shalt not be to him as a creditor; neither shall ye lay upon him interest.
+"If you lend money to any of my people with you who is poor, you shall not be to him as a creditor; neither shall you charge him interest.

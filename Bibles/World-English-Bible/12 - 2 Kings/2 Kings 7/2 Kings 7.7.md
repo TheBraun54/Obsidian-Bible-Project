@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore they arose and fled in the twilight, and left their tents, and their horses, and their asses, even the camp as it was, and fled for their life.
+Therefore they arose and fled in the twilight, and left their tents, and their horses, and their donkeys, even the camp as it was, and fled for their life.

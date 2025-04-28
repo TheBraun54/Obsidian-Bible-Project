@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bless ye God in the congregations, Even the Lord, [ye that are] of the fountain of Israel.
+"Bless God in the congregations, even the Lord in the assembly of Israel!"

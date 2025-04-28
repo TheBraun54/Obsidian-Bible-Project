@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as he was praying in a certain place, that when he ceased, one of his disciples said unto him, Lord, teach us to pray, even as John also taught his disciples.
+It happened, that when he finished praying in a certain place, one of his disciples said to him, "Lord, teach us to pray, just as John also taught his disciples."

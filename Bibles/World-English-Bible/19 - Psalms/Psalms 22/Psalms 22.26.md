@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The meek shall eat and be satisfied; They shall praise Jehovah that seek after him: Let your heart live for ever.
+The humble shall eat and be satisfied. They shall praise Yahweh who seek after him. Let your hearts live forever.

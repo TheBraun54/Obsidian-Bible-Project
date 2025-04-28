@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am become also a reproach unto them: When they see me, they shake their head.
+I have also become a reproach to them. When they see me, they shake their head.

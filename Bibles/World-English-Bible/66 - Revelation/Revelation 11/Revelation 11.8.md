@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their dead bodies [lie] in the street of the great city, which spiritually is called Sodom and Egypt, where also their Lord was crucified.
+Their dead bodies will be in the street of the great city, which spiritually is called Sodom and Egypt, where also their Lord was crucified.

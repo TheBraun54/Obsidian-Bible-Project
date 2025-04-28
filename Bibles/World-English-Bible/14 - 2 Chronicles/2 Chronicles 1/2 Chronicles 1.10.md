@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give me now wisdom and knowledge, that I may go out and come in before this people; for who can judge this thy people, that is so great?
+Now give me wisdom and knowledge, that I may go out and come in before this people; for who can judge this your people, that is so great?"

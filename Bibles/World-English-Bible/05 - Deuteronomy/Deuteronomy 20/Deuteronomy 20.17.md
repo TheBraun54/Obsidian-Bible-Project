@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thou shalt utterly destroy them: the Hittite, and the Amorite, the Canaanite, and the Perizzite, the Hivite, and the Jebusite; as Jehovah thy God hath commanded thee;
+but you shall utterly destroy them: the Hittite, and the Amorite, the Canaanite, and the Perizzite, the Hivite, and the Jebusite; as Yahweh your God has commanded you;

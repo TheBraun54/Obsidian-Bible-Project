@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answering said unto him, It is said, Thou shalt not make trial of the Lord thy God.
+Jesus answering, said to him, "It has been said, 'You shall not tempt the Lord your God.'"

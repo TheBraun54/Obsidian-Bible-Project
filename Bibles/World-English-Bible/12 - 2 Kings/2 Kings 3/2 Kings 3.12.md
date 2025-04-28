@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat said, The word of Jehovah is with him. So the king of Israel and Jehoshaphat and the king of Edom went down to him.
+Jehoshaphat said, "The word of Yahweh is with him." So the king of Israel and Jehoshaphat and the king of Edom went down to him.

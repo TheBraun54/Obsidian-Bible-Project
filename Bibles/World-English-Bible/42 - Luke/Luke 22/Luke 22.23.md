@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they began to question among themselves, which of them it was that should do this thing.
+They began to question among themselves, which of them it was who would do this thing.

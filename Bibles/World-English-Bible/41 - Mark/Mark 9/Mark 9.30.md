@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went forth from thence, and passed through Galilee; and he would not that any man should know it.
+They went out from there, and passed through Galilee. He didn't want anyone to know it.

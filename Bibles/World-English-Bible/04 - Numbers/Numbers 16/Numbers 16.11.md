@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thou and all thy company are gathered together against Jehovah: and Aaron, what is he that ye murmur against him?
+Therefore you and all your company are gathered together against Yahweh: and Aaron, what is he that you murmur against him?"

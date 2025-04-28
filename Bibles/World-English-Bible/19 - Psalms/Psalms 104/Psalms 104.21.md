@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The young lions roar after their prey, And seek their food from God.
+The young lions roar after their prey, and seek their food from God.

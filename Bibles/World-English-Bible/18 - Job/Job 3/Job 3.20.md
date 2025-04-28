@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore is light given to him that is in misery, And life unto the bitter in soul;
+"Why is light given to him who is in misery, life to the bitter in soul,

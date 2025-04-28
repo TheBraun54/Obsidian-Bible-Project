@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the child grew, and waxed strong in spirit, and was in the deserts till the day of his showing unto Israel.
+The child was growing, and becoming strong in spirit, and was in the desert until the day of his public appearance to Israel.

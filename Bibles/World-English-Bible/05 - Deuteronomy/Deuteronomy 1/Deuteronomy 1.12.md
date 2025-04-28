@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How can I myself alone bear your cumbrance, and your burden, and your strife?
+How can I myself alone bear your encumbrance, and your burden, and your strife?

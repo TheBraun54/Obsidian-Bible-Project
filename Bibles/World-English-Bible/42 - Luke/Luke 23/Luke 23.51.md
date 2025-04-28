@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(he had not consented to their counsel and deed), [a man] of Arimathaea, a city of the Jews, who was looking for the kingdom of God:
+(he had not consented to their counsel and deed), from Arimathaea, a city of the Jews, who was also waiting for the Kingdom of God:

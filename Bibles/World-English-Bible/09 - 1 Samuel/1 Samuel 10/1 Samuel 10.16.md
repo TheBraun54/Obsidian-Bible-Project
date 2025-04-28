@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said unto his uncle, He told us plainly that the asses were found. But concerning the matter of the kingdom, whereof Samuel spake, he told him not.
+Saul said to his uncle, "He told us plainly that the donkeys were found." But concerning the matter of the kingdom, of which Samuel spoke, he didn't tell him.

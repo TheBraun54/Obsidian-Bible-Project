@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the men of Judah gave a shout: and as the men of Judah shouted, it came to pass, that God smote Jeroboam and all Israel before Abijah and Judah.
+Then the men of Judah gave a shout: and as the men of Judah shouted, it happened, that God struck Jeroboam and all Israel before Abijah and Judah.

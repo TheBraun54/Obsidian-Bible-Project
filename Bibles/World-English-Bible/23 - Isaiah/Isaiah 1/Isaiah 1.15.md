@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye spread forth your hands, I will hide mine eyes from you; yea, when ye make many prayers, I will not hear: your hands are full of blood.
+When you spread forth your hands, I will hide my eyes from you. Yes, when you make many prayers, I will not hear. Your hands are full of blood.

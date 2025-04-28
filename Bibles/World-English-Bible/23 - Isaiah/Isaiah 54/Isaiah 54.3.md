@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou shalt spread abroad on the right hand and on the left; and thy seed shall possess the nations, and make the desolate cities to be inhabited.
+For you shall spread out on the right hand and on the left; and your seed shall possess the nations, and make the desolate cities to be inhabited.

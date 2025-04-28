@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, What have I to do with you, ye sons of Zeruiah? Because he curseth, and because Jehovah hath said unto him, Curse David; who then shall say, Wherefore hast thou done so?
+The king said, "What have I to do with you, you sons of Zeruiah? Because he curses, and because Yahweh has said to him, 'Curse David;' who then shall say, 'Why have you done so?'"

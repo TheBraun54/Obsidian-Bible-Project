@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thy brother be waxed poor, and sell some of his possession, then shall his kinsman that is next unto him come, and shall redeem that which his brother hath sold.
+"'If your brother becomes poor, and sells some of his possessions, then his kinsman who is next to him shall come, and redeem that which his brother has sold.

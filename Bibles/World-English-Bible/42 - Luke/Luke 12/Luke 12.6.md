@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are not five sparrows sold for two pence? and not one of them is forgotten in the sight of God.
+"Aren't five sparrows sold for two assaria coins? Not one of them is forgotten by God.

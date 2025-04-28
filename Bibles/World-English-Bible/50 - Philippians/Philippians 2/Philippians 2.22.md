@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye know the proof of him, that, as a child [serveth] a father, [so] he served with me in furtherance of the gospel.
+But you know the proof of him, that, as a child serves a father, so he served with me in furtherance of the Good News.

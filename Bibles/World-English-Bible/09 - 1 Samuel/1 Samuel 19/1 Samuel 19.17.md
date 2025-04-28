@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said unto Michal, Why hast thou deceived me thus, and let mine enemy go, so that he is escaped? And Michal answered Saul, He said unto me, Let me go; why should I kill thee?
+Saul said to Michal, "Why have you deceived me thus, and let my enemy go, so that he is escaped?" Michal answered Saul, "He said to me, 'Let me go! Why should I kill you?'"

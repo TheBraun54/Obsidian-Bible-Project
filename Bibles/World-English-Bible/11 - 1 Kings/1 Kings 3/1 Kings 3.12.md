@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, I have done according to thy word: lo, I have given thee a wise and an understanding heart; so that there hath been none like thee before thee, neither after thee shall any arise like unto thee.
+behold, I have done according to your word. Behold, I have given you a wise and an understanding heart; so that there has been none like you before you, neither after you shall any arise like you.

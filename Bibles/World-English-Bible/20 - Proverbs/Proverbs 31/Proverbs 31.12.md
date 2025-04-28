@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She doeth him good and not evil All the days of her life.
+She does him good, and not harm, all the days of her life.

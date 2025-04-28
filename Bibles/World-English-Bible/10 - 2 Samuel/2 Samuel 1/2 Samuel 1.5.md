@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto the young man that told him, How knowest thou that Saul and Jonathan his son are dead?
+David said to the young man who told him, "How do you know that Saul and Jonathan his son are dead?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eyes of Jehovah are toward the righteous, And his ears are [open] unto their cry.
+Yahweh's eyes are toward the righteous. His ears listen to their cry.

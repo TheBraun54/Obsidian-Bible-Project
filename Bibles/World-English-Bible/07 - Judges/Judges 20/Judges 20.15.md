@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Benjamin were numbered on that day out of the cities twenty and six thousand men that drew sword, besides the inhabitants of Gibeah, who were numbered seven hundred chosen men.
+The children of Benjamin were numbered on that day out of the cities twenty-six thousand men who drew the sword, besides the inhabitants of Gibeah, who were numbered seven hundred chosen men.

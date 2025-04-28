@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came a voice to him, Rise, Peter; kill and eat.
+A voice came to him, "Rise, Peter, kill and eat!"

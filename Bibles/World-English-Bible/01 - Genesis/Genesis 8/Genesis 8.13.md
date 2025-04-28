@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the six hundred and first year, in the first month, the first day of the month, the waters were dried up from off the earth: and Noah removed the covering of the ark, and looked, and, behold, the face of the ground was dried.
+It happened in the six hundred first year, in the first month, the first day of the month, the waters were dried up from the earth. Noah removed the covering of the ship, and looked. He saw that the surface of the ground was dried.

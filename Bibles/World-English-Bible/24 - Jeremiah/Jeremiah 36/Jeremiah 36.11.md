@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Micaiah the son of Gemariah, the son of Shaphan, had heard out of the book all the words of Jehovah,
+When Micaiah the son of Gemariah, the son of Shaphan, had heard out of the book all the words of Yahweh,

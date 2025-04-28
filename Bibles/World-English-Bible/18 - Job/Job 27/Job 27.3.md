@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(For my life is yet whole in me, And the spirit of God is in my nostrils);
+(For the length of my life is still in me, and the spirit of God is in my nostrils);

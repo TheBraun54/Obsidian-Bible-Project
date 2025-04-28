@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he brought me back by the way of the outer gate of the sanctuary, which looketh toward the east; and it was shut.
+Then he brought me back by the way of the outer gate of the sanctuary, which looks toward the east; and it was shut.

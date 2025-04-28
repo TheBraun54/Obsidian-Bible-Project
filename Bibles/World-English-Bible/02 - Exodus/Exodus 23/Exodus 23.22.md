@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou shalt indeed hearken unto his voice, and do all that I speak; then I will be an enemy unto thine enemies, and an adversary unto thine adversaries.
+But if you indeed listen to his voice, and do all that I speak, then I will be an enemy to your enemies, and an adversary to your adversaries.

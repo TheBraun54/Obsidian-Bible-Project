@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and lo, a voice out of the heavens, saying, This is my beloved Son, in whom I am well pleased.
+Behold, a voice out of the heavens said, "This is my beloved Son, with whom I am well pleased."

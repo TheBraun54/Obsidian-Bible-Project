@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah, Who hath not given us as a prey to their teeth.
+Blessed be Yahweh, who has not given us as a prey to their teeth.

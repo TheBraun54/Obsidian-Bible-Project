@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw, and behold, the Lamb standing on the mount Zion, and with him a hundred and forty and four thousand, having his name, and the name of his Father, written on their foreheads.
+I saw, and behold, the Lamb standing on Mount Zion, and with him a number, one hundred forty-four thousand, having his name, and the name of his Father, written on their foreheads.

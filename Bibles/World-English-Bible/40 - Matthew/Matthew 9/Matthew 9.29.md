@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then touched he their eyes, saying, According to your faith be it done unto you.
+Then he touched their eyes, saying, "According to your faith be it done to you."

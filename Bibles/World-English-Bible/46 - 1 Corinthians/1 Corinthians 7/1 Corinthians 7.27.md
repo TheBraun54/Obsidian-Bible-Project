@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Art thou bound unto a wife? Seek not to be loosed. Art thou loosed from a wife? Seek not a wife.
+Are you bound to a wife? Don't seek to be freed. Are you free from a wife? Don't seek a wife.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter therefore beckoneth to him, and saith unto him, Tell [us] who it is of whom he speaketh.
+Simon Peter therefore beckoned to him, and said to him, "Tell us who it is of whom he speaks."

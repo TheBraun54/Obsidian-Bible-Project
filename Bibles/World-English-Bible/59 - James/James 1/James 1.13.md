@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let no man say when he is tempted, I am tempted of God; for God cannot be tempted with evil, and he himself tempteth no man:
+Let no man say when he is tempted, "I am tempted by God," for God can't be tempted by evil, and he himself tempts no one.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thanks unto thee; for thou hast answered me, And art become my salvation.
+I will give thanks to you, for you have answered me, and have become my salvation.

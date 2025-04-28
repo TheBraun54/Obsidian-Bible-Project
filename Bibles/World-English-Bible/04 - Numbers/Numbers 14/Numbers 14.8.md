@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If Jehovah delight in us, then he will bring us into this land, and give it unto us; a land which floweth with milk and honey.
+If Yahweh delights in us, then he will bring us into this land, and give it to us; a land which flows with milk and honey.

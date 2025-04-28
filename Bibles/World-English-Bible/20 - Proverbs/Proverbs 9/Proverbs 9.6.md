@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Leave off, ye simple ones, and live; And walk in the way of understanding.
+Leave your simple ways, and live. Walk in the way of understanding."

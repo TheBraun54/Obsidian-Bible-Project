@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh's daughter said to her, Go. And the maiden went and called the child's mother.
+Pharaoh's daughter said to her, "Go." The maiden went and called the child's mother.

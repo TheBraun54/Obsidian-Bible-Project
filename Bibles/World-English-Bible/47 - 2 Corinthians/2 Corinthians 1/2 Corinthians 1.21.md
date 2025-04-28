@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he that establisheth us with you in Christ, and anointed us, is God;
+Now he who establishes us with you in Christ, and anointed us, is God;

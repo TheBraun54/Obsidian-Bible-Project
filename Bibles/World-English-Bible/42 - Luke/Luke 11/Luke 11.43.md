@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you Pharisees! for ye love the chief seats in the synagogues, and the salutations in the marketplaces.
+Woe to you Pharisees! For you love the best seats in the synagogues, and the greetings in the marketplaces.

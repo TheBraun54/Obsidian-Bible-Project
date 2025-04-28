@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That thy way may be known upon earth, Thy salvation among all nations.
+That your way may be known on earth, and your salvation among all nations,

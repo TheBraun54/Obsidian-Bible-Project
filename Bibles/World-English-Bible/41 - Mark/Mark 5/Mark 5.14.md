@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that fed them fled, and told it in the city, and in the country. And they came to see what it was that had come to pass.
+Those who fed them fled, and told it in the city and in the country. The people came to see what it was that had happened.

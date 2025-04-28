@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who would have all men to be saved, and come to the knowledge of the truth.
+who desires all people to be saved and come to full knowledge of the truth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed shalt thou be in the city, and cursed shalt thou be in the field.
+You shall be cursed in the city, and you shall be cursed in the field.

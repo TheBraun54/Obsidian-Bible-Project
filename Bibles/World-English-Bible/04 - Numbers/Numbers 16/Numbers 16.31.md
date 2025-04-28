@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as he made an end of speaking all these words, that the ground clave asunder that was under them;
+It happened, as he made an end of speaking all these words, that the ground split apart that was under them;

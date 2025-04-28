@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Meshobab, and Jamlech, and Joshah the son of Amaziah,
+Meshobab, and Jamlech, and Joshah the son of Amaziah,

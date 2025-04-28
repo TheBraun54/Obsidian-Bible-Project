@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As touching the gospel, they are enemies for your sake: but as touching the election, they are beloved for the fathers' sake.
+Concerning the Good News, they are enemies for your sake. But concerning the election, they are beloved for the fathers' sake.

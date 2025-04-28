@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall he answer them, saying, Verily I say unto you, Inasmuch as ye did it not unto one of these least, ye did it not unto me.
+"Then he will answer them, saying, 'Most certainly I tell you, inasmuch as you didn't do it to one of the least of these, you didn't do it to me.'

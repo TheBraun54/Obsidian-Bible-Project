@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou madest known unto me the ways of life; Thou shalt make me full of gladness with thy countenance.
+You made known to me the ways of life. You will make me full of gladness with your presence.'

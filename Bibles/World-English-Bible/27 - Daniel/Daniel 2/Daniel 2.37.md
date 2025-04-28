@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, O king, art king of kings, unto whom the God of heaven hath given the kingdom, the power, and the strength, and the glory;
+You, O king, are king of kings, to whom the God of heaven has given the kingdom, the power, and the strength, and the glory;

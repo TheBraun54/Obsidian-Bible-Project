@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus answered and said unto them, Ye do err, not knowing the scriptures, nor the power of God.
+But Jesus answered them, "You are mistaken, not knowing the Scriptures, nor the power of God.

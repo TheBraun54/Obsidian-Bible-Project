@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The princes refrained from talking, And laid their hand on their mouth;
+The princes refrained from talking, and laid their hand on their mouth.

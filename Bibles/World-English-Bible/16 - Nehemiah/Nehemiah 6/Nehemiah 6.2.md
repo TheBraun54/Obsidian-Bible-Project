@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Sanballat and Geshem sent unto me, saying, Come, let us meet together in [one of] the villages in the plain of Ono. But they thought to do me mischief.
+that Sanballat and Geshem sent to me, saying, "Come, let us meet together in [one of] the villages in the plain of Ono." But they intended to harm me.

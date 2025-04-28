@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I say unto you, that every one that looketh on a woman to lust after her hath committed adultery with her already in his heart.
+but I tell you that everyone who gazes at a woman to lust after her has committed adultery with her already in his heart.

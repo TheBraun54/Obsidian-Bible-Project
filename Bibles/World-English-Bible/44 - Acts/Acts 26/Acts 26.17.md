@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-delivering thee from the people, and from the Gentiles, unto whom I send thee,
+delivering you from the people, and from the Gentiles, to whom I send you,

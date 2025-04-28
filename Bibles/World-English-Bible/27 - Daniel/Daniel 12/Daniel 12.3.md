@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that are wise shall shine as the brightness of the firmament; and they that turn many to righteousness as the stars for ever and ever.
+Those who are wise shall shine as the brightness of the expanse; and those who turn many to righteousness as the stars forever and ever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam lifted up his eyes, and he saw Israel dwelling according to their tribes; and the Spirit of God came upon him.
+Balaam lifted up his eyes, and he saw Israel dwelling according to their tribes; and the Spirit of God came on him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As when one ploweth and cleaveth the earth, Our bones are scattered at the mouth of Sheol.
+"As when one plows and breaks up the earth, our bones are scattered at the mouth of Sheol."

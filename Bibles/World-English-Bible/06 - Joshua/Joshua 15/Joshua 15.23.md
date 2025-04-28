@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Kedesh, and Hazor, and Ithnan,
+Kedesh, Hazor, Ithnan,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David took all the flocks and the herds, [which] they drove before those [other] cattle, and said, This is David's spoil.
+David took all the flocks and the herds, [which] they drove before those [other] livestock, and said, "This is David's spoil."

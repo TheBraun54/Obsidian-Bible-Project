@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is that Moses, who said unto the children of Israel, A prophet shall God raise up unto you from among your brethren, like unto me.
+This is that Moses, who said to the children of Israel, 'The Lord our God will raise up a prophet for you from among your brothers, like me.'

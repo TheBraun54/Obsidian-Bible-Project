@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Abraham returned unto his young men, and they rose up and went together to Beer-sheba; and Abraham dwelt at Beer-sheba.
+So Abraham returned to his young men, and they rose up and went together to Beersheba. Abraham lived at Beersheba.

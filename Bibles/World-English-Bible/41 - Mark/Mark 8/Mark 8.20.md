@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the seven among the four thousand, how many basketfuls of broken pieces took ye up? And they say unto him, Seven.
+"When the seven loaves fed the four thousand, how many baskets full of broken pieces did you take up?" They told him, "Seven."

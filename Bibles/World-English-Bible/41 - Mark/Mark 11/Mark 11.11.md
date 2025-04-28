@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he entered into Jerusalem, into the temple; and when he had looked round about upon all things, it being now eventide, he went out unto Bethany with the twelve.
+Jesus entered into the temple in Jerusalem. When he had looked around at everything, it being now evening, he went out to Bethany with the twelve.

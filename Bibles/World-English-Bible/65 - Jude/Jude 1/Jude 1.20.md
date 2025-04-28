@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye, beloved, building up yourselves on your most holy faith, praying in the Holy Spirit,
+But you, beloved, keep building up yourselves on your most holy faith, praying in the Holy Spirit.

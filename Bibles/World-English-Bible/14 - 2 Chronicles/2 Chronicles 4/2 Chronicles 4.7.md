@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the ten candlesticks of gold according to the ordinance concerning them; and he set them in the temple, five on the right hand, and five on the left.
+He made the ten lampstands of gold according to the ordinance concerning them; and he set them in the temple, five on the right hand, and five on the left.

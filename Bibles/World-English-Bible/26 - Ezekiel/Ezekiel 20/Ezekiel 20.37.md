@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cause you to pass under the rod, and I will bring you into the bond of the covenant;
+I will cause you to pass under the rod, and I will bring you into the bond of the covenant;

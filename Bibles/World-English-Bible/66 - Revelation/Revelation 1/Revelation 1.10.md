@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was in the Spirit on the Lord's day, and I heard behind me a great voice, as of a trumpet
+I was in the Spirit on the Lord's day, and I heard behind me a loud voice, like a trumpet

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let him take his rod away from me, And let not his terror make me afraid:
+Let him take his rod away from me. Let his terror not make me afraid;

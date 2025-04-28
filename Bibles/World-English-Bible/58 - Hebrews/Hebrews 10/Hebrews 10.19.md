@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Having therefore, brethren, boldness to enter into the holy place by the blood of Jesus,
+Having therefore, brothers, boldness to enter into the holy place by the blood of Jesus,

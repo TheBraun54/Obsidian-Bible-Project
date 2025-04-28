@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that there were one among you that would shut the doors, that ye might not kindle [fire on] mine altar in vain! I have no pleasure in you, saith Jehovah of hosts, neither will I accept an offering at your hand.
+"Oh that there were one among you who would shut the doors, that you might not kindle fire on my altar in vain! I have no pleasure in you," says Yahweh of Armies, "neither will I accept an offering at your hand.

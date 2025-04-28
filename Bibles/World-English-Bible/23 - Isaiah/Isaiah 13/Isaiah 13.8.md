@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall be dismayed; pangs and sorrows shall take hold [of them] ; they shall be in pain as a woman in travail: they shall look in amazement one at another; their faces [shall be] faces of flame.
+They will be dismayed. Pangs and sorrows will seize them. They will be in pain like a woman in labor. They will look in amazement one at another. Their faces will be faces of flame.

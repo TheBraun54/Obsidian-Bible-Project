@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he was come near to enter into Egypt, that he said unto Sarai his wife, Behold now, I know that thou art a fair woman to look upon:
+It happened, when he had come near to enter Egypt, that he said to Sarai his wife, "See now, I know that you are a beautiful woman to look at.

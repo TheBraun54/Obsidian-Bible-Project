@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests went in unto the inner part of the house of Jehovah, to cleanse it, and brought out all the uncleanness that they found in the temple of Jehovah into the court of the house of Jehovah. And the Levites took it, to carry it out abroad to the brook Kidron.
+The priests went in to the inner part of the house of Yahweh, to cleanse it, and brought out all the uncleanness that they found in the temple of Yahweh into the court of the house of Yahweh. The Levites took it, to carry it out abroad to the brook Kidron.

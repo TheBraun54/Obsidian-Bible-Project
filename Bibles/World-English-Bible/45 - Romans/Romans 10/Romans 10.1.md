@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, my heart's desire and my supplication to God is for them, that they may be saved.
+Brothers, my heart's desire and my prayer to God is for Israel, that they may be saved.

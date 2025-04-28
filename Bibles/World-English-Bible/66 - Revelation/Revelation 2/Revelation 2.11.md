@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath an ear, let him hear what the Spirit saith to the churches. He that overcometh shall not be hurt of the second death.
+He who has an ear, let him hear what the Spirit says to the assemblies. He who overcomes won't be harmed by the second death.

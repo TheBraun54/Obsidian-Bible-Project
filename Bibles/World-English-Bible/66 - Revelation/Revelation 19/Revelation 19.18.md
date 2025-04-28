@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye may eat the flesh of kings, and the flesh of captains, and the flesh of mighty men, and the flesh of horses and of them that sit thereon, and the flesh of all men, both free and bond, and small and great.
+that you may eat the flesh of kings, the flesh of captains, the flesh of mighty men, and the flesh of horses and of those who sit on them, and the flesh of all men, both free and slave, and small and great."

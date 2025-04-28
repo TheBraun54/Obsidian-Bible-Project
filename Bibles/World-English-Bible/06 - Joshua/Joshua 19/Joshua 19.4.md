@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Eltolad, and Bethul, and Hormah,
+Eltolad, Bethul, Hormah,

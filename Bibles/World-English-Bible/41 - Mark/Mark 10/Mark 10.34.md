@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall mock him, and shall spit upon him, and shall scourge him, and shall kill him; and after three days he shall rise again.
+They will mock him, spit on him, scourge him, and kill him. On the third day he will rise again."

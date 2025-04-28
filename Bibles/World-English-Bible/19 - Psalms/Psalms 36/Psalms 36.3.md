@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of his mouth are iniquity and deceit: He hath ceased to be wise [and] to do good.
+The words of his mouth are iniquity and deceit. He has ceased to be wise and to do good.

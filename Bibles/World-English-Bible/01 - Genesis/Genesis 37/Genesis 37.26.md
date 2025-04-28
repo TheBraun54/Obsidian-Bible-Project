@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah said unto his brethren, What profit is it if we slay our brother and conceal his blood?
+Judah said to his brothers, "What profit is it if we kill our brother and conceal his blood?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And then shall many stumble, and shall deliver up one another, and shall hate one another.
+Then many will stumble, and will deliver up one another, and will hate one another.

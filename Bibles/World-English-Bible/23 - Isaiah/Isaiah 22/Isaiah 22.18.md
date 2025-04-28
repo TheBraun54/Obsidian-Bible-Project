@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will surely wind thee round and round, [and toss thee] like a ball into a large country; there shalt thou die, and there shall be the chariots of thy glory, thou shame of thy lord's house.
+He will surely wind you around and around, and throw you like a ball into a large country. There you will die, and there the chariots of your glory will be, you shame of your lord's house.

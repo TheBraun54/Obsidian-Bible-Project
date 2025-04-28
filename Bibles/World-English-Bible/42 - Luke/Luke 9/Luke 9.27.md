@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I tell you of a truth, There are some of them that stand here, who shall in no wise taste of death, till they see the kingdom of God.
+But I tell you the truth: There are some of those who stand here, who will in no way taste of death, until they see the Kingdom of God."

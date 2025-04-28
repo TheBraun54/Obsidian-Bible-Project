@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the thresholds, and the closed windows, and the galleries round about on their three stories, over against the threshold, ceiled with wood round about, and [from] the ground up to the windows, (now the windows were covered),
+the thresholds, and the closed windows, and the galleries around on their three stories, over against the threshold, with wood ceilings all around, and [from] the ground up to the windows, (now the windows were covered),

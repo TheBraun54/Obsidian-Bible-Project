@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Ebed-melech took the men with him, and went into the house of the king under the treasury, and took thence rags and worn-out garments, and let them down by cords into the dungeon to Jeremiah.
+So Ebedmelech took the men with him, and went into the house of the king under the treasury, and took there rags and worn-out garments, and let them down by cords into the dungeon to Jeremiah.

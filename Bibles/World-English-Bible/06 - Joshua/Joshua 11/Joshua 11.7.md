@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua came, and all the people of war with him, against them by the waters of Merom suddenly, and fell upon them.
+So Joshua came, and all the people of war with him, against them by the waters of Merom suddenly, and fell on them.

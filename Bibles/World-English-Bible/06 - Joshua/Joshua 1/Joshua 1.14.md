@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your wives, your little ones, and your cattle, shall abide in the land which Moses gave you beyond the Jordan; but ye shall pass over before your brethren armed, all the mighty men of valor, and shall help them;
+Your wives, your little ones, and your livestock, shall live in the land which Moses gave you beyond the Jordan; but you shall pass over before your brothers armed, all the mighty men of valor, and shall help them

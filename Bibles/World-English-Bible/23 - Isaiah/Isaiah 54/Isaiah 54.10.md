@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the mountains may depart, and the hills be removed; but my lovingkindness shall not depart from thee, neither shall my covenant of peace be removed, saith Jehovah that hath mercy on thee.
+For the mountains may depart, and the hills be removed; but my loving kindness shall not depart from you, neither shall my covenant of peace be removed," says Yahweh who has mercy on you.

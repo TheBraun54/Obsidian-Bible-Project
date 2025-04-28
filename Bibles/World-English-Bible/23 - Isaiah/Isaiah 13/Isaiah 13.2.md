@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set ye up an ensign upon the bare mountain, lift up the voice unto them, wave the hand, that they may go into the gates of the nobles.
+Set up a banner on the bare mountain! Lift up your voice to them! Wave your hand, that they may go into the gates of the nobles.

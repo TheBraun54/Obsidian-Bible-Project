@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Even thus shall the children of Israel eat their bread unclean, among the nations whither I will drive them.
+Yahweh said, Even thus shall the children of Israel eat their bread unclean, among the nations where I will drive them.

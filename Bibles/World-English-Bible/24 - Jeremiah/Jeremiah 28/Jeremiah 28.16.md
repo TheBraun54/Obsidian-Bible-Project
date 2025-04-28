@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah, Behold, I will send thee away from off the face of the earth: this year thou shalt die, because thou hast spoken rebellion against Jehovah.
+Therefore thus says Yahweh, Behold, I will send you away from off the surface of the earth: this year you shall die, because you have spoken rebellion against Yahweh.

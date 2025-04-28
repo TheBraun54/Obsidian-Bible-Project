@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Till Jehovah look down, and behold from heaven.
+Until Yahweh look down, and see from heaven.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put it before the veil that is by the ark of the testimony, before the mercy-seat that is over the testimony, where I will meet with thee.
+You shall put it before the veil that is by the ark of the testimony, before the mercy seat that is over the testimony, where I will meet with you.

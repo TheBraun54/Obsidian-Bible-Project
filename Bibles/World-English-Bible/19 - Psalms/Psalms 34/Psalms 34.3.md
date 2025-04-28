@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh magnify Jehovah with me, And let us exalt his name together.
+Oh magnify Yahweh with me. Let us exalt his name together.

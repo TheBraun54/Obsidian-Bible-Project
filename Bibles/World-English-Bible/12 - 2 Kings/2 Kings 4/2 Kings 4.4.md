@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt go in, and shut the door upon thee and upon thy sons, and pour out into all those vessels; and thou shalt set aside that which is full.
+You shall go in, and shut the door on you and on your sons, and pour out into all those containers; and you shall set aside that which is full."

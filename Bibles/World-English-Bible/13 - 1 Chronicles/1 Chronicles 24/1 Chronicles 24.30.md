@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Mushi: Mahli, and Eder, and Jerimoth. These were the sons of the Levites after their fathers' houses.
+The sons of Mushi: Mahli, and Eder, and Jerimoth. These were the sons of the Levites after their fathers' houses.

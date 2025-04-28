@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were also two others, malefactors, led with him to be put to death.
+There were also others, two criminals, led with him to be put to death.

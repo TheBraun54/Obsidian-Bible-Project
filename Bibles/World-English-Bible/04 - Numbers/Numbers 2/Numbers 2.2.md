@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Israel shall encamp every man by his own standard, with the ensigns of their fathers' houses: over against the tent of meeting shall they encamp round about.
+"The children of Israel shall encamp every man by his own standard, with the banners of their fathers' houses: at a distance from the Tent of Meeting shall they encamp around it."

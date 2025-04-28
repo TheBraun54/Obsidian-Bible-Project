@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am against thee, saith Jehovah of hosts, and I will uncover thy skirts upon thy face; and I will show the nations thy nakedness, and the kingdoms thy shame.
+"Behold, I am against you," says Yahweh of Armies, "and I will lift your skirts over your face. I will show the nations your nakedness, and the kingdoms your shame.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the pillars thereof shall be twenty, and their sockets twenty, of brass; the hooks of the pillars and their fillets [shall be] of silver.
+and its pillars shall be twenty, and their sockets twenty, of brass; the hooks of the pillars and their fillets shall be of silver.

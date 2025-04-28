@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they were about five thousand men. And he said unto his disciples, Make them sit down in companies, about fifty each.
+For they were about five thousand men. He said to his disciples, "Make them sit down in groups of about fifty each."

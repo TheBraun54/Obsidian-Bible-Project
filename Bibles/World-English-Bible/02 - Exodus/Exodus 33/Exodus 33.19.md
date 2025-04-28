@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I will make all my goodness pass before thee, and will proclaim the name of Jehovah before thee; and I will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy.
+He said, "I will make all my goodness pass before you, and will proclaim the name of Yahweh before you. I will be gracious to whom I will be gracious, and will show mercy on whom I will show mercy."

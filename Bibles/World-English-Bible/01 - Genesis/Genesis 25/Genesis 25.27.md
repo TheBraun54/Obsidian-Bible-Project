@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the boys grew: and Esau was a skilful hunter, a man of the field; and Jacob was a quiet man, dwelling in tents.
+The boys grew. Esau was a skillful hunter, a man of the field. Jacob was a quiet man, living in tents.

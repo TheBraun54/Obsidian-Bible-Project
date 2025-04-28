@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he brought us out from thence, that he might bring us in, to give us the land which he sware unto our fathers.
+and he brought us out from there, that he might bring us in, to give us the land which he swore to our fathers.

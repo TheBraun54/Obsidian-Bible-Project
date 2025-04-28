@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For out of the north there cometh up a nation against her, which shall make her land desolate, and none shall dwell therein: they are fled, they are gone, both man and beast.
+For out of the north there comes up a nation against her, which shall make her land desolate, and none shall dwell therein: they are fled, they are gone, both man and animal.

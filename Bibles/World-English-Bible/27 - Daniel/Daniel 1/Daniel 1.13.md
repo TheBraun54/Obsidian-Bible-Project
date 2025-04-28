@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then let our countenances be looked upon before thee, and the countenance of the youths that eat of the king's dainties; and as thou seest, deal with thy servants.
+Then let our faces be looked on before you, and the face of the youths who eat of the king's dainties; and as you see, deal with your servants.

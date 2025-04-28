@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the angels he saith, Who maketh his angels winds, And his ministers a flame of fire:
+Of the angels he says, "Who makes his angels winds, and his servants a flame of fire."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, forty years didst thou sustain them in the wilderness, [and] they lacked nothing; their clothes waxed not old, and their feet swelled not.
+"Yes, forty years you sustained them in the wilderness. They lacked nothing. Their clothes didn't grow old, and their feet didn't swell.

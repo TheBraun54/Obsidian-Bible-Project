@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was also perfect with him, And I kept myself from mine iniquity.
+I was also blameless with him. I kept myself from my iniquity.

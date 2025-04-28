@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It also shall be carried unto Assyria for a present to king Jareb: Ephraim shall receive shame, and Israel shall be ashamed of his own counsel.
+It also will be carried to Assyria for a present to a great king. Ephraim will receive shame, and Israel will be ashamed of his own counsel.

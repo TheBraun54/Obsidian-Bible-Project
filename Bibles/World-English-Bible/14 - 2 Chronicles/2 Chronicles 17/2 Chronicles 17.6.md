@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his heart was lifted up in the ways of Jehovah: and furthermore he took away the high places and the Asherim out of Judah.
+His heart was lifted up in the ways of Yahweh: and furthermore he took away the high places and the Asherim out of Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Enos, the [son] of Seth, the [son] of Adam, the [son] of God.
+the son of Enos, the son of Seth, the son of Adam, the son of God.

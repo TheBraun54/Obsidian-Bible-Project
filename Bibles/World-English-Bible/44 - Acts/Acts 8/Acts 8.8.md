@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was much joy in that city.
+There was great joy in that city.

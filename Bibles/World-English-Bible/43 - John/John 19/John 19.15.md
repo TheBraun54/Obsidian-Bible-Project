@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They therefore cried out, Away with [him], away with [him], crucify him! Pilate saith unto them, Shall I crucify your King? The chief priests answered, We have no king but Caesar.
+They cried out, "Away with him! Away with him! Crucify him!" Pilate said to them, "Shall I crucify your King?" The chief priests answered, "We have no king but Caesar!"

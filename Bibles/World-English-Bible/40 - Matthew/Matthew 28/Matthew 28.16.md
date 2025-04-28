@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the eleven disciples went into Galilee, unto the mountain where Jesus had appointed them.
+But the eleven disciples went into Galilee, to the mountain where Jesus had sent them.

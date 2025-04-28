@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Zeresh his wife and all his friends unto him, Let a gallows be made fifty cubits high, and in the morning speak thou unto the king that Mordecai may be hanged thereon: then go thou in merrily with the king unto the banquet. And the thing pleased Haman; and he caused the gallows to be made.
+Then Zeresh his wife and all his friends said to him, "Let a gallows be made fifty cubits high, and in the morning speak to the king about hanging Mordecai on it. Then go in merrily with the king to the banquet." This pleased Haman, so he had the gallows made.

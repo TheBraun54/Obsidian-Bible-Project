@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And leaving the multitude, they take him with them, even as he was, in the boat. And other boats were with him.
+Leaving the multitude, they took him with them, even as he was, in the boat. Other small boats were also with him.

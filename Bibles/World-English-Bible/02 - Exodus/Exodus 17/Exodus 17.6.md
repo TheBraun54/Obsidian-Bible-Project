@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will stand before thee there upon the rock in Horeb; and thou shalt smite the rock, and there shall come water out of it, that the people may drink. And Moses did so in the sight of the elders of Israel.
+Behold, I will stand before you there on the rock in Horeb. You shall strike the rock, and water will come out of it, that the people may drink." Moses did so in the sight of the elders of Israel.

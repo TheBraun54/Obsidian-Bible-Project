@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is the seed yet in the barn? yea, the vine, and the fig-tree, and the pomegranate, and the olive-tree have not brought forth; from this day will I bless [you] .
+Is the seed yet in the barn? Yes, the vine, the fig tree, the pomegranate, and the olive tree haven't brought forth. From this day will I bless you.'"

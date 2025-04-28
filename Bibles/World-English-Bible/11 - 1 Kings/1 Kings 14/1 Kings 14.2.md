@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeroboam said to his wife, Arise, I pray thee, and disguise thyself, that thou be not known to be the wife of Jeroboam; and get thee to Shiloh: behold, there is Ahijah the prophet, who spake concerning me that I should be king over this people.
+Jeroboam said to his wife, "Please get up and disguise yourself, that you won't be recognized as the wife of Jeroboam. Go to Shiloh. Behold, there is Ahijah the prophet, who spoke concerning me that I should be king over this people.

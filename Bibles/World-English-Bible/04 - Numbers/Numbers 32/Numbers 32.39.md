@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Machir the son of Manasseh went to Gilead, and took it, and dispossessed the Amorites that were therein.
+The children of Machir the son of Manasseh went to Gilead, and took it, and dispossessed the Amorites who were therein.

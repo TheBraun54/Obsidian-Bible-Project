@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then these men were bound in their hosen, their tunics, and their mantles, and their [other] garments, and were cast into the midst of the burning fiery furnace.
+Then these men were bound in their pants, their tunics, and their mantles, and their [other] garments, and were cast into the midst of the burning fiery furnace.

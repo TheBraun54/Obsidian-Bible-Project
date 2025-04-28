@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the child grew, and she brought him unto Pharaoh's daughter, and he became her son. And she called his name Moses, and said, Because I drew him out of the water. [
+The child grew, and she brought him to Pharaoh's daughter, and he became her son. She named him Moses, and said, "Because I drew him out of the water."

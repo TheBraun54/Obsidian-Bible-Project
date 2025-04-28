@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For better is it that it be said unto thee, Come up hither, Than that thou shouldest be put lower in the presence of the prince, Whom thine eyes have seen.
+for it is better that it be said to you, "Come up here," than that you should be put lower in the presence of the prince, whom your eyes have seen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that were numbered of the Levites, whom Moses and Aaron numbered at the commandment of Jehovah, by their families, all the males from a month old and upward, were twenty and two thousand.
+All who were numbered of the Levites, whom Moses and Aaron numbered at the commandment of Yahweh, by their families, all the males from a month old and upward, were twenty-two thousand.

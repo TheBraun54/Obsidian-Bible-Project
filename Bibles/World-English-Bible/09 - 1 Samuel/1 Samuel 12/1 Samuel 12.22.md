@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah will not forsake his people for his great name's sake, because it hath pleased Jehovah to make you a people unto himself.
+For Yahweh will not forsake his people for his great name's sake, because it has pleased Yahweh to make you a people to himself.

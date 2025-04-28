@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jezebel his wife came to him, and said unto him, Why is thy spirit so sad, that thou eatest no bread?
+But Jezebel his wife came to him, and said to him, "Why is your spirit so sad, that you eat no bread?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the captains of the chariots saw that it was not the king of Israel, that they turned back from pursuing him.
+It happened, when the captains of the chariots saw that it was not the king of Israel, that they turned back from pursuing him.

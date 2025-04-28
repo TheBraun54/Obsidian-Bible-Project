@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having the glory of God: her light was like unto a stone most precious, as it were a jasper stone, clear as crystal:
+having the glory of God. Her light was like a most precious stone, as if it was a jasper stone, clear as crystal;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I know your readiness, of which I glory on your behalf to them of Macedonia, that Achaia hath been prepared for a year past; and your zeal hath stirred up very many of them.
+for I know your readiness, of which I boast on your behalf to them of Macedonia, that Achaia has been prepared for a year past. Your zeal has stirred up very many of them.

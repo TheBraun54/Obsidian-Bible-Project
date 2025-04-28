@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the last shall be first, and the first last.
+So the last will be first, and the first last. For many are called, but few are chosen."

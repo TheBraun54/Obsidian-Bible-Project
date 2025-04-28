@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of forty days, that Noah opened the window of the ark which he had made:
+It happened at the end of forty days, that Noah opened the window of the ship which he had made,

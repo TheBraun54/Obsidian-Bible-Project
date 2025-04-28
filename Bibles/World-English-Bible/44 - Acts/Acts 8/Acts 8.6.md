@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitudes gave heed with one accord unto the things that were spoken by Philip, when they heard, and saw the signs which he did.
+The multitudes listened with one accord to the things that were spoken by Philip, when they heard and saw the signs which he did.

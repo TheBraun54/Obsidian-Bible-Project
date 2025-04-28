@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto her, Thou art mad. But she confidently affirmed that it was even so. And they said, It is his angel.
+They said to her, "You are crazy!" But she insisted that it was so. They said, "It is his angel."

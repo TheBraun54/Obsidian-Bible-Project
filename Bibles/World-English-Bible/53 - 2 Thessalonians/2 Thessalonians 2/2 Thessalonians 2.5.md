@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember ye not, that, when I was yet with you, I told you these things?
+Don't you remember that, when I was still with you, I told you these things?

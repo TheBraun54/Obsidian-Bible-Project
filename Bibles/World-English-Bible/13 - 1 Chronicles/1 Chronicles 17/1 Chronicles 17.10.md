@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and [as] from the day that I commanded judges to be over my people Israel; and I will subdue all thine enemies. Moreover I tell thee that Jehovah will build thee a house.
+and from the day that I commanded judges to be over my people Israel; and I will subdue all your enemies. Moreover I tell you that Yahweh will build you a house.

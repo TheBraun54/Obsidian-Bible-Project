@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-promising them liberty, while they themselves are bondservants of corruption; for of whom a man is overcome, of the same is he also brought into bondage.
+promising them liberty, while they themselves are bondservants of corruption; for a man is brought into bondage by whoever overcomes him.

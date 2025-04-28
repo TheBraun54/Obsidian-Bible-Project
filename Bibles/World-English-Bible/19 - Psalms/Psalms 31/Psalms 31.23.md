@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh love Jehovah, all ye his saints: Jehovah preserveth the faithful, And plentifully rewardeth him that dealeth proudly.
+Oh love Yahweh, all you his saints! Yahweh preserves the faithful, and fully recompenses him who behaves arrogantly.

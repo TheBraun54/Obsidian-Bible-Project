@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Would that Job were tried unto the end, Because of his answering like wicked men.
+I wish that Job were tried to the end, because of his answering like wicked men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For when I shall have brought them into the land which I sware unto their fathers, flowing with milk and honey, and they shall have eaten and filled themselves, and waxed fat; then will they turn unto other gods, and serve them, and despise me, and break my covenant.
+For when I shall have brought them into the land which I swore to their fathers, flowing with milk and honey, and they shall have eaten and filled themselves, and grown fat; then will they turn to other gods, and serve them, and despise me, and break my covenant.

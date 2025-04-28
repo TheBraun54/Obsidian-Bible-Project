@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-besides Solomon's chief officers that were over the work, three thousand and three hundred, who bare rule over the people that wrought in the work.
+besides Solomon's chief officers who were over the work, three thousand and three hundred, who bore rule over the people who labored in the work.

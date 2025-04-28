@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah smote Benjamin before Israel; and the children of Israel destroyed of Benjamin that day twenty and five thousand and a hundred men: all these drew the sword.
+Yahweh struck Benjamin before Israel; and the children of Israel destroyed of Benjamin that day twenty-five thousand one hundred men: all these drew the sword.

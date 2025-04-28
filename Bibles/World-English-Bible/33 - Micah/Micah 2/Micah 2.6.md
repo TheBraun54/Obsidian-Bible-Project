@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Prophesy ye not, [thus] they prophesy. They shall not prophesy to these: reproaches shall not depart.
+"Don't prophesy!" They prophesy. "Don't prophesy about these things. Disgrace won't overtake us."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-without understanding, covenant-breakers, without natural affection, unmerciful:
+without understanding, covenant breakers, without natural affection, unforgiving, unmerciful;

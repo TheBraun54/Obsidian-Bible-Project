@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as it is written in Isaiah the prophet, Behold, I send my messenger before thy face, Who shall prepare thy way.
+As it is written in the prophets, "Behold, I send my messenger before your face, who will prepare your way before you.

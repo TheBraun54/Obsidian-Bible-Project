@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were the chief officers that were over Solomon's work, five hundred and fifty, who bare rule over the people that wrought in the work.
+These were the chief officers who were over Solomon's work, five hundred fifty, who bore rule over the people who labored in the work.

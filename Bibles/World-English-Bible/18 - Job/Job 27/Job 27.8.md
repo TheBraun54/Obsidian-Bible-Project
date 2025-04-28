@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what is the hope of the godless, though he get him gain, When God taketh away his soul?
+For what is the hope of the godless, when he is cut off, when God takes away his life?

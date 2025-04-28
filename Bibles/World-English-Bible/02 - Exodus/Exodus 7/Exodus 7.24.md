@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the Egyptians digged round about the river for water to drink; for they could not drink of the water of the river.
+All the Egyptians dug around the river for water to drink; for they couldn't drink of the water of the river.

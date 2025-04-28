@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were astonished at his teaching: For he taught them as having authority, and not as the scribes.
+They were astonished at his teaching, for he taught them as having authority, and not as the scribes.

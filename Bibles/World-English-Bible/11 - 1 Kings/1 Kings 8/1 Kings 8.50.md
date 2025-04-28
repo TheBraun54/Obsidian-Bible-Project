@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and forgive thy people who have sinned against thee, and all their transgressions wherein they have transgressed against thee; and give them compassion before those who carried them captive, that they may have compassion on them
+and forgive your people who have sinned against you, and all their transgressions in which they have transgressed against you; and give them compassion before those who carried them captive, that they may have compassion on them

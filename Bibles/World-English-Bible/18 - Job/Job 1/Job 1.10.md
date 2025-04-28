@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast not thou made a hedge about him, and about his house, and about all that he hath, on every side? thou hast blessed the work of his hands, and his substance is increased in the land.
+Haven't you made a hedge around him, and around his house, and around all that he has, on every side? You have blessed the work of his hands, and his substance is increased in the land.

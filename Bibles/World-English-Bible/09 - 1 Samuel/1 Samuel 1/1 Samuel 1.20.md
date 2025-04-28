@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the time was come about, that Hannah conceived, and bare a son; and she called his name Samuel, [saying], Because I have asked him of Jehovah.
+It happened, when the time had come, that Hannah conceived, and bore a son; and she named him Samuel, [saying], "Because I have asked him of Yahweh."

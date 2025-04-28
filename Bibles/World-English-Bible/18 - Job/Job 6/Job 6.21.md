@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For now ye are nothing; Ye see a terror, and are afraid.
+For now you are nothing. You see a terror, and are afraid.

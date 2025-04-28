@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the heavens shall praise thy wonders, O Jehovah; Thy faithfulness also in the assembly of the holy ones.
+The heavens will praise your wonders, Yahweh; your faithfulness also in the assembly of the holy ones.

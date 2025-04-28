@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seek the peace of the city whither I have caused you to be carried away captive, and pray unto Jehovah for it; for in the peace thereof shall ye have peace.
+Seek the peace of the city where I have caused you to be carried away captive, and pray to Yahweh for it; for in its peace you shall have peace.

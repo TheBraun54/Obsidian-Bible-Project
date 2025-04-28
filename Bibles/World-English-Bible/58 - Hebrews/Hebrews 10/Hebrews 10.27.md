@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but a certain fearful expectation of judgment, and a fierceness of fire which shall devour the adversaries.
+but a certain fearful expectation of judgment, and a fierceness of fire which will devour the adversaries.

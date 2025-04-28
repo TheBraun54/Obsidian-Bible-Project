@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But what went ye out to see? a man clothed in soft [raiment] ? Behold, they that wear soft [raiment] are in kings' houses.
+But what did you go out to see? A man in soft clothing? Behold, those who wear soft clothing are in king's houses.

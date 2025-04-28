@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His troops come on together, And cast up their way against me, And encamp round about my tent.
+His troops come on together, build a siege ramp against me, and encamp around my tent.

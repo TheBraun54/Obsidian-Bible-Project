@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the fat, and the kidneys, and the caul from the liver of the sin-offering, he burnt upon the altar; as Jehovah commanded Moses.
+but the fat, and the kidneys, and the cover from the liver of the sin offering, he burned upon the altar; as Yahweh commanded Moses.

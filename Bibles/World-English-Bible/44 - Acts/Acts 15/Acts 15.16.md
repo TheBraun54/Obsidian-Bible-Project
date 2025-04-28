@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things I will return, And I will build again the tabernacle of David, which is fallen; And I will build again the ruins thereof, And I will set it up:
+'After these things I will return. I will again build the tabernacle of David, which has fallen. I will again build its ruins. I will set it up,

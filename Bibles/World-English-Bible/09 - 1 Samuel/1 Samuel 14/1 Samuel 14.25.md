@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people came into the forest; and there was honey upon the ground.
+All the people came into the forest; and there was honey on the ground.

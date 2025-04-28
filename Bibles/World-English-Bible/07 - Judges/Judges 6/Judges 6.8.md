@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Jehovah sent a prophet unto the children of Israel: and he said unto them, Thus saith Jehovah, the God of Israel, I brought you up from Egypt, and brought you forth out of the house of bondage;
+that Yahweh sent a prophet to the children of Israel: and he said to them, "Thus says Yahweh, the God of Israel, 'I brought you up from Egypt, and brought you forth out of the house of bondage;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they that conducted Paul brought him as far as Athens: and receiving a commandment unto Silas and Timothy that they should come to him with all speed, they departed.
+But those who escorted Paul brought him as far as Athens. Receiving a commandment to Silas and Timothy that they should come to him very quickly, they departed.

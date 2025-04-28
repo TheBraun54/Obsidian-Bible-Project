@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, brethren, I know that in ignorance ye did it, as did also your rulers.
+"Now, brothers, I know that you did this in ignorance, as did also your rulers.

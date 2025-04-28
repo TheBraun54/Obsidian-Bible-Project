@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That I may see the prosperity of thy chosen, That I may rejoice in the gladness of thy nation, That I may glory with thine inheritance.
+that I may see the prosperity of your chosen, that I may rejoice in the gladness of your nation, that I may glory with your inheritance.

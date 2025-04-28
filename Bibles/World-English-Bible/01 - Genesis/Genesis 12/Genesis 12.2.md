@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will make of thee a great nation, and I will bless thee, and make they name great; and be thou a blessing:
+I will make of you a great nation. I will bless you and make your name great. You will be a blessing.

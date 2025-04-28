@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that rejecteth me, and receiveth not my sayings, hath one that judgeth him: the word that I spake, the same shall judge him in the last day.
+He who rejects me, and doesn't receive my sayings, has one who judges him. The word that I spoke, the same will judge him in the last day.

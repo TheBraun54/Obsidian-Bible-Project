@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Merari: Mahli and Mushi. And these are the families of the Levites according to their fathers' [houses] .
+The sons of Merari: Mahli and Mushi. These are the families of the Levites according to their fathers' [houses].

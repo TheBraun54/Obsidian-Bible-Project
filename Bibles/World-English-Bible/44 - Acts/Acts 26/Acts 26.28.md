@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Agrippa [said] unto Paul, With but little persuasion thou wouldest fain make me a Christian.
+Agrippa said to Paul, "With a little persuasion are you trying to make me a Christian?"

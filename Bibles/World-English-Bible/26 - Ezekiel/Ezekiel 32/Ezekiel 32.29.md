@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is Edom, her kings and all her princes, who in their might are laid with them that are slain by the sword: they shall lie with the uncircumcised, and with them that go down to the pit. [
+There is Edom, her kings and all her princes, who in their might are laid with those who are slain by the sword: they shall lie with the uncircumcised, and with those who go down to the pit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One thing have I asked of Jehovah, that will I seek after; That I may dwell in the house of Jehovah all the days of my life, To behold the beauty of Jehovah, And to inquire in his temple.
+One thing I have asked of Yahweh, that I will seek after, that I may dwell in the house of Yahweh all the days of my life, to see Yahweh's beauty, and to inquire in his temple.

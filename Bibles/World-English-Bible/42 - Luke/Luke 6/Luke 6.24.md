@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But woe unto you that are rich! for ye have received your consolation.
+"But woe to you who are rich! For you have received your consolation.

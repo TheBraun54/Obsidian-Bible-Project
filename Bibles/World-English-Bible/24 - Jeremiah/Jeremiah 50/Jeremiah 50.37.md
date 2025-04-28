@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A sword is upon their horses, and upon their chariots, and upon all the mingled people that are in the midst of her; and they shall become as women: a sword is upon her treasures, and they shall be robbed.
+A sword is on their horses, and on their chariots, and on all the mixed people who are in the midst of her; and they shall become as women: a sword is on her treasures, and they shall be robbed.

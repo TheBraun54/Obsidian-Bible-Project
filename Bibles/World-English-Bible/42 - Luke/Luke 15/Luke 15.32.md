@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it was meet to make merry and be glad: for this thy brother was dead, and is alive [again] ; and [was] lost, and is found.
+But it was appropriate to celebrate and be glad, for this, your brother, was dead, and is alive again. He was lost, and is found.'"

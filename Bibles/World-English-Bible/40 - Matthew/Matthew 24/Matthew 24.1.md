@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus went out from the temple, and was going on his way; and his disciples came to him to show him the buildings of the temple.
+Jesus went out from the temple, and was going on his way. His disciples came to him to show him the buildings of the temple.

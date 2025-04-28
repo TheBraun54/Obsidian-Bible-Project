@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will yet bring unto thee, O inhabitant of Mareshah, him that shall possess thee: the glory of Israel shall come even unto Adullam.
+I will yet bring to you, inhabitant of Mareshah. He who is the glory of Israel will come to Adullam.

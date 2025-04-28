@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy kingdom come. Thy will be done, as in heaven, so on earth.
+Let your Kingdom come. Let your will be done, as in heaven, so on earth.

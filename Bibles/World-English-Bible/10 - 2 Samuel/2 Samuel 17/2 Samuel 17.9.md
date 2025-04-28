@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he is hid now in some pit, or in some [other] place: and it will come to pass, when some of them are fallen at the first, that whosoever heareth it will say, There is a slaughter among the people that follow Absalom.
+Behold, he is now hidden in some pit, or in some other place. It will happen, when some of them have fallen at the first, that whoever hears it will say, 'There is a slaughter among the people who follow Absalom!'

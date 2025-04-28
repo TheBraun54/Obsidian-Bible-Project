@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And yet for all this her treacherous sister Judah hath not returned unto me with her whole heart, but feignedly, saith Jehovah.
+Yet for all this her treacherous sister, Judah, has not returned to me with her whole heart, but only in pretense," says Yahweh.

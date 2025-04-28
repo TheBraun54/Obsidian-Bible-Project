@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when we had sailed across the sea which is off Cilicia and Pamphylia, we came to Myra, [a city] of Lycia.
+When we had sailed across the sea which is off Cilicia and Pamphylia, we came to Myra, a city of Lycia.

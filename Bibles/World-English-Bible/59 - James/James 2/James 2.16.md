@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and one of you say unto them, Go in peace, be ye warmed and filled; and yet ye give them not the things needful to the body; what doth it profit?
+and one of you tells them, "Go in peace, be warmed and filled;" and yet you didn't give them the things the body needs, what good is it?

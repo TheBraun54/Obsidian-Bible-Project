@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A grievous vision is declared unto me; the treacherous man dealeth treacherously, and the destroyer destroyeth. Go up, O Elam; besiege, O Media; all the sighing thereof have I made to cease.
+A grievous vision is declared to me. The treacherous man deals treacherously, and the destroyer destroys. Go up, Elam; attack! I have stopped all of Media's sighing.

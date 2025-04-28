@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the house be worthy, let your peace come upon it: but if it be not worthy, let your peace return to you.
+If the household is worthy, let your peace come on it, but if it isn't worthy, let your peace return to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art the daughter of thy mother, that loatheth her husband and her children; and thou art the sister of thy sisters, who loathed their husbands and their children: your mother was a Hittite, and your father an Amorite.
+You are the daughter of your mother, who loathes her husband and her children; and you are the sister of your sisters, who loathed their husbands and their children: your mother was a Hittite, and your father an Amorite.

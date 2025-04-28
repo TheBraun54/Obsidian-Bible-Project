@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he said thus, The speckled shall be thy wages; then all the flock bare speckled: and if he said thus, The ringstreaked shall be thy wages; then bare all the flock ringstreaked.
+If he said this, 'The speckled will be your wages,' then all the flock bore speckled. If he said this, 'The streaked will be your wages,' then all the flock bore streaked.

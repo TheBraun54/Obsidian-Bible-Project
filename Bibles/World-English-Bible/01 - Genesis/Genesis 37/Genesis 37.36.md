@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Midianites sold him into Egypt unto Potiphar, an officer of Pharaoh's, the captain of the guard.
+The Midianites sold him into Egypt to Potiphar, an officer of Pharaoh's, the captain of the guard.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while they were there, the days were fulfilled that she should be delivered.
+It happened, while they were there, that the day had come that she should give birth.

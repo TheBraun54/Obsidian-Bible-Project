@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah brought Judah low because of Ahaz king of Israel; for he had dealt wantonly in Judah, and trespassed sore against Jehovah.
+For Yahweh brought Judah low because of Ahaz king of Israel; for he had dealt wantonly in Judah, and trespassed severely against Yahweh.

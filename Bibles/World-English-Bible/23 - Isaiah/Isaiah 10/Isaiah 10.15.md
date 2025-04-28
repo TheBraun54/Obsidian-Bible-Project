@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall the axe boast itself against him that heweth therewith? shall the saw magnify itself against him that wieldeth it? as if a rod should wield them that lift it up, [or] as if a staff should lift up [him that is] not wood.
+Should an axe brag against him who chops with it? Should a saw exalt itself above him who saws with it? As if a rod should lift those who lift it up, or as if a staff should lift up someone who is not wood.

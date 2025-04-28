@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, I go bound in the spirit unto Jerusalem, not knowing the things that shall befall me there:
+Now, behold, I go bound by the Spirit to Jerusalem, not knowing what will happen to me there;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered him, If I have spoken evil, bear witness of the evil: but if well, why smitest thou me?
+Jesus answered him, "If I have spoken evil, testify of the evil; but if well, why do you beat me?"

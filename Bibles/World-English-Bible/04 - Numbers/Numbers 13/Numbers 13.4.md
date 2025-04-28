@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these were their names: Of the tribe of Reuben, Shammua the son of Zaccur.
+These were their names: Of the tribe of Reuben, Shammua the son of Zaccur.

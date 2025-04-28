@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Like as I entered into judgment with your fathers in the wilderness of the land of Egypt, so will I enter into judgment with you, saith the Lord Jehovah.
+Like as I entered into judgment with your fathers in the wilderness of the land of Egypt, so will I enter into judgment with you, says the Lord Yahweh.

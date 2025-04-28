@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A third part shalt thou burn in the fire in the midst of the city, when the days of the siege are fulfilled; and thou shalt take a third part, and smite with the sword round about it; and a third part thou shalt scatter to the wind, and I will draw out a sword after them.
+A third part you shall burn in the fire in the midst of the city, when the days of the siege are fulfilled; and you shall take a third part, and strike with the sword around it; and a third part you shall scatter to the wind, and I will draw out a sword after them.

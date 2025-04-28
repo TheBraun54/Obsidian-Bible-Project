@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These may ye eat of all that are in the waters: whatsoever hath fins and scales in the waters, in the seas, and in the rivers, that may ye eat.
+"'These you may eat of all that are in the waters: whatever has fins and scales in the waters, in the seas, and in the rivers, that you may eat.

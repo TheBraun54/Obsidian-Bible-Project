@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast moreover multiplied thy whoredom unto the land of traffic, unto Chaldea; and yet thou wast not satisfied herewith.
+You have moreover multiplied your prostitution to the land of merchants, to Chaldea; and yet you weren't satisfied with this.

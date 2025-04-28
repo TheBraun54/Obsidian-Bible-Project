@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the three and twentieth to Mahazioth, his sons and his brethren, twelve:
+for the three and twentieth to Mahazioth, his sons and his brothers, twelve:

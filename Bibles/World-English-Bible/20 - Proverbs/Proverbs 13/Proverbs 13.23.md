@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Much food [is in] the tillage of the poor; But there is that is destroyed by reason of injustice.
+An abundance of food is in poor people's fields, but injustice sweeps it away.

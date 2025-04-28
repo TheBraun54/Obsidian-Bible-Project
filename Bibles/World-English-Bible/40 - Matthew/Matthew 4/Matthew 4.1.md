@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was Jesus led up of the Spirit into the wilderness to be tempted of the devil.
+Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil.

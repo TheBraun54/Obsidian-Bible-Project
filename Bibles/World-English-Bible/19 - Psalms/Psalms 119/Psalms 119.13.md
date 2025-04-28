@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With my lips have I declared All the ordinances of thy mouth.
+With my lips, I have declared all the ordinances of your mouth.

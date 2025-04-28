@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the land shall not be sold in perpetuity; for the land is mine: for ye are strangers and sojourners with me.
+"'The land shall not be sold in perpetuity, for the land is mine; for you are strangers and live as foreigners with me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As Jehovah thy God liveth, there is no nation or kingdom, whither my lord hath not sent to seek thee: and when they said, He is not here, he took an oath of the kingdom and nation, that they found thee not.
+As Yahweh your God lives, there is no nation or kingdom, where my lord has not sent to seek you. When they said, 'He is not here,' he took an oath of the kingdom and nation, that they didn't find you.

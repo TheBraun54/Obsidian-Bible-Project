@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The kingdom of heaven is like unto a treasure hidden in the field; which a man found, and hid; and in his joy he goeth and selleth all that he hath, and buyeth that field.
+"Again, the Kingdom of Heaven is like a treasure hidden in the field, which a man found, and hid. In his joy, he goes and sells all that he has, and buys that field.

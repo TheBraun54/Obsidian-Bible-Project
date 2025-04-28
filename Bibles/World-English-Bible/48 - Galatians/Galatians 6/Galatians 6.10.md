@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then, as we have opportunity, let us work that which is good toward all men, and especially toward them that are of the household of the faith.
+So then, as we have opportunity, let's do what is good toward all men, and especially toward those who are of the household of the faith.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He said moreover, I have somewhat to say unto thee. And she said, Say on.
+He said moreover, I have something to tell you." She said, "Say on."

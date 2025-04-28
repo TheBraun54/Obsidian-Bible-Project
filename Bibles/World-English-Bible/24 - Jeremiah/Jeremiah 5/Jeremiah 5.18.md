@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But even in those days, saith Jehovah, I will not make a full end with you.
+"But even in those days," says Yahweh, "I will not make a full end with you.

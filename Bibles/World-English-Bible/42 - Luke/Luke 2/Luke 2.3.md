@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all went to enrol themselves, every one to his own city.
+All went to enroll themselves, everyone to his own city.

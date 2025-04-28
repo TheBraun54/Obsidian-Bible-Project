@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the wages of sin is death; but the free gift of God is eternal life in Christ Jesus our Lord.
+For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.

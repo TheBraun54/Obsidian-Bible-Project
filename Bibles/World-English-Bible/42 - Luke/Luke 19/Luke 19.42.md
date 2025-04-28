@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, If thou hadst known in this day, even thou, the things which belong unto peace! but now they are hid from thine eyes.
+saying, "If you, even you, had known today the things which belong to your peace! But now, they are hidden from your eyes.

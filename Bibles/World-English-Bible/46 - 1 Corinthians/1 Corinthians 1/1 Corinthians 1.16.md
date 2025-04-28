@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I baptized also the household of Stephanas: besides, I know not whether I baptized any other.
+(I also baptized the household of Stephanas; besides them, I don't know whether I baptized any other.)

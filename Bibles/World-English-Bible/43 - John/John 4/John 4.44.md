@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jesus himself testified, that a prophet hath no honor in his own country.
+For Jesus himself testified that a prophet has no honor in his own country.

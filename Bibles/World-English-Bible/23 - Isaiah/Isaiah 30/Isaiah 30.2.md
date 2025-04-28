@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that set out to go down into Egypt, and have not asked at my mouth; to strengthen themselves in the strength of Pharaoh, and to take refuge in the shadow of Egypt!
+who set out to go down into Egypt, and have not asked my advice; to strengthen themselves in the strength of Pharaoh, and to take refuge in the shadow of Egypt!

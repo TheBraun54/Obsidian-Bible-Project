@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought near the he-goats for the sin-offering before the king and the assembly; and they laid their hands upon them:
+They brought near the male goats for the sin offering before the king and the assembly; and they laid their hands on them:

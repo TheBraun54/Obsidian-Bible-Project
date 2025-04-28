@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to his father he sent after this manner: ten asses laden with the good things of Egypt, and ten she-asses laden with grain and bread and provision for his father by the way.
+He sent the following to his father: ten donkeys loaded with the good things of Egypt, and ten female donkeys loaded with grain and bread and provision for his father by the way.

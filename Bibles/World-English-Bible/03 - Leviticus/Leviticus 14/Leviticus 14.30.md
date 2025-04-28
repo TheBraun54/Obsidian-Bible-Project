@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall offer one of the turtle-doves, or of the young pigeons, such as he is able to get,
+He shall offer one of the turtledoves, or of the young pigeons, such as he is able to afford,

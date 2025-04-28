@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall thy wonders be known in the dark? And thy righteousness in the land of forgetfulness?
+Are your wonders made known in the dark? Or your righteousness in the land of forgetfulness?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Samuel turned again after Saul; and Saul worshipped Jehovah.
+So Samuel went back with Saul; and Saul worshiped Yahweh.

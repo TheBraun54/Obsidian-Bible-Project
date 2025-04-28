@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall offer it before Jehovah, and make atonement for her; and she shall be cleansed from the fountain of her blood. This is the law for her that beareth, whether a male or a female.
+and he shall offer it before Yahweh, and make atonement for her; and she shall be cleansed from the fountain of her blood. "'This is the law for her who bears, whether a male or a female.

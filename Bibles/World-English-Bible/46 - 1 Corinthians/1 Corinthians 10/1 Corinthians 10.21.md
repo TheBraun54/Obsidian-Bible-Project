@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye cannot drink the cup of the Lord, and the cup of demons: ye cannot partake of the table of the Lord, and of the table of demons.
+You can't both drink the cup of the Lord and the cup of demons. You can't both partake of the table of the Lord, and of the table of demons.

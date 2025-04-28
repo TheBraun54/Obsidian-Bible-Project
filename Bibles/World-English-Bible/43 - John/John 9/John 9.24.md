@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they called a second time the man that was blind, and said unto him, Give glory to God: we know that this man is a sinner.
+So they called the man who was blind a second time, and said to him, "Give glory to God. We know that this man is a sinner."

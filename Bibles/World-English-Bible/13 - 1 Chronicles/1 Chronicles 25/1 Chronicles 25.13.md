@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the sixth to Bukkiah, his sons and his brethren, twelve:
+the sixth to Bukkiah, his sons and his brothers, twelve:

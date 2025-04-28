@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he charged him to tell no man: but go thy way, and show thyself to the priest, and offer for thy cleansing, according as Moses commanded, for a testimony unto them.
+He commanded him to tell no one, "But go your way, and show yourself to the priest, and offer for your cleansing according to what Moses commanded, for a testimony to them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the third lot came up for the children of Zebulun according to their families; and the border of their inheritance was unto Sarid;
+The third lot came up for the children of Zebulun according to their families. The border of their inheritance was to Sarid.

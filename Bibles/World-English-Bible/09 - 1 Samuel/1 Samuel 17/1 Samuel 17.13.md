@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the three eldest sons of Jesse had gone after Saul to the battle: and the names of his three sons that went to the battle were Eliab the first-born, and next unto him Abinadab, and the third Shammah.
+The three eldest sons of Jesse had gone after Saul to the battle: and the names of his three sons who went to the battle were Eliab the firstborn, and next to him Abinadab, and the third Shammah.

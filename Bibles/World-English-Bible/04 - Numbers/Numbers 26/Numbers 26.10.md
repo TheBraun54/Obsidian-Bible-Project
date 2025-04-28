@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the earth opened its mouth, and swallowed them up together with Korah, when that company died; what time the fire devoured two hundred and fifty men, and they became a sign.
+and the earth opened its mouth, and swallowed them up together with Korah, when that company died; what time the fire devoured two hundred fifty men, and they became a sign.

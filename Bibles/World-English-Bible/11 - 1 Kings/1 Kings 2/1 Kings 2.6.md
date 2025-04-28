@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do therefore according to thy wisdom, and let not his hoar head go down to Sheol in peace.
+Do therefore according to your wisdom, and don't let his gray head go down to Sheol in peace.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after two full years, that Absalom had sheep-shearers in Baal-hazor, which is beside Ephraim: and Absalom invited all the king's sons.
+It happened after two full years, that Absalom had sheepshearers in Baal Hazor, which is beside Ephraim: and Absalom invited all the king's sons.

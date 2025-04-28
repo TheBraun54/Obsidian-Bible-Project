@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were heads of fathers' [houses] throughout their generations, chief men: these dwelt in Jerusalem.
+These were heads of fathers' [houses] throughout their generations, chief men: these lived in Jerusalem.

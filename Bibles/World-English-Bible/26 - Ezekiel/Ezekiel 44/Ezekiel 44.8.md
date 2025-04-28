@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye have not kept the charge of my holy things; but ye have set keepers of my charge in my sanctuary for yourselves.
+You have not performed the duty of my holy things; but you have set performers of my duty in my sanctuary for yourselves.

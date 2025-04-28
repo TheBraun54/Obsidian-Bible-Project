@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I sent Moses and Aaron, and I plagued Egypt, according to that which I did in the midst thereof: and afterward I brought you out.
+"'I sent Moses and Aaron, and I plagued Egypt, according to that which I did in its midst: and afterward I brought you out.

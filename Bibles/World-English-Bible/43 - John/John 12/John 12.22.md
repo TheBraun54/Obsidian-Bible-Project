@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Philip cometh and telleth Andrew: Andrew cometh, and Philip, and they tell Jesus.
+Philip came and told Andrew, and in turn, Andrew came with Philip, and they told Jesus.

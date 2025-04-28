@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will judge thy people with righteousness, And thy poor with justice.
+He will judge your people with righteousness, and your poor with justice.

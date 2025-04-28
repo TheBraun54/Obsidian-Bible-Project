@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember thy congregation, which thou hast gotten of old, Which thou hast redeemed to be the tribe of thine inheritance; [And] mount Zion, wherein thou hast dwelt.
+Remember your congregation, which you purchased of old, which you have redeemed to be the tribe of your inheritance; Mount Zion, in which you have lived.

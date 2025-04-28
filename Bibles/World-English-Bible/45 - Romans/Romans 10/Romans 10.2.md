@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I bear them witness that they have a zeal for God, but not according to knowledge.
+For I testify about them that they have a zeal for God, but not according to knowledge.

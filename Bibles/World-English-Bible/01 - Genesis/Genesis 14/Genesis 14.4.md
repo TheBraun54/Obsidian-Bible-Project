@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Twelve years they served Chedorlaomer, and in the thirteenth year they rebelled.
+Twelve years they served Chedorlaomer, and in the thirteenth year, they rebelled.

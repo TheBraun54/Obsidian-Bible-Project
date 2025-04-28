@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of thy bereavement shall yet say in thine ears, The place is too strait for me; give place to me that I may dwell.
+The children of your bereavement shall yet say in your ears, The place is too small for me; give place to me that I may dwell.

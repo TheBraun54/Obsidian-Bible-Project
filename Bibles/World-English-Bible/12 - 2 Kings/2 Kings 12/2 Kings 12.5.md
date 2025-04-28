@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let the priests take it to them, every man from his acquaintance; and they shall repair the breaches of the house, wheresoever any breach shall be found.
+let the priests take it to them, every man from his acquaintance; and they shall repair the breaches of the house, wherever any breach shall be found."

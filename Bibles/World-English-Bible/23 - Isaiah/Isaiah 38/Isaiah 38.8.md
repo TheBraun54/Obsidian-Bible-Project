@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, I will cause the shadow on the steps, which is gone down on the dial of Ahaz with the sun, to return backward ten steps. So the sun returned ten steps on the dial whereon it was gone down.
+Behold, I will cause the shadow on the sundial, which has gone down on the sundial of Ahaz with the sun, to return backward ten steps. So the sun returned ten steps on the sundial on which it had gone down."'"

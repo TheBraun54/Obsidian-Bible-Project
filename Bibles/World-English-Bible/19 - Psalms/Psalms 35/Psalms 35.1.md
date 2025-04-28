@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Strive thou, O Jehovah, with them that strive with me: Fight thou against them that fight against me.
+Contend, Yahweh, with those who contend with me. Fight against those who fight against me.

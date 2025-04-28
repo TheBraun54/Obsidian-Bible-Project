@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye know [this], my beloved brethren. But let every man be swift to hear, slow to speak, slow to wrath:
+So, then, my beloved brothers, let every man be swift to hear, slow to speak, and slow to anger;

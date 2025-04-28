@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they buried him in the city of David among the kings, because he had done good in Israel, and toward God and his house.
+They buried him in the city of David among the kings, because he had done good in Israel, and toward God and his house.

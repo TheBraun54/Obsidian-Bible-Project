@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I Paul write it with mine own hand, I will repay it: that I say not unto thee that thou owest to me even thine own self besides.
+I, Paul, write this with my own hand: I will repay it (not to mention to you that you owe to me even your own self besides).

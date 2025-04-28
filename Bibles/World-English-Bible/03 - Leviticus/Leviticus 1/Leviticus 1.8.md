@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Aaron's sons, the priests, shall lay the pieces, the head, and the fat, in order upon the wood that is on the fire which is upon the altar:
+and Aaron's sons, the priests, shall lay the pieces, the head, and the fat in order on the wood that is on the fire which is on the altar;

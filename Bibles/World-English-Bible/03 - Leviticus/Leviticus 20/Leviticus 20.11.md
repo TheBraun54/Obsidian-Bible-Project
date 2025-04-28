@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man that lieth with his father's wife hath uncovered his father's nakedness: both of them shall surely be put to death; their blood shall be upon them.
+"'The man who lies with his father's wife has uncovered his father's nakedness: both of them shall surely be put to death; their blood shall be upon them.

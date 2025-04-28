@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore answered and said unto him, What sign showest thou unto us, seeing that thou doest these things?
+The Jews therefore answered him, "What sign do you show us, seeing that you do these things?"

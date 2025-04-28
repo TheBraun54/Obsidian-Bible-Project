@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he that is prudent shall keep silence in such a time; for it is an evil time.
+Therefore a prudent person keeps silent in such a time, for it is an evil time.

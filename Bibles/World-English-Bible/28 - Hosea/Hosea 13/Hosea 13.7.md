@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore am I unto them as a lion; as a leopard will I watch by the way;
+Therefore I am like a lion to them. Like a leopard, I will lurk by the path.

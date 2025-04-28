@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the multitudes were gathering together unto him, he began to say, This generation is an evil generation: it seeketh after a sign; and there shall no sign be given to it but the sign of Jonah.
+When the multitudes were gathering together to him, he began to say, "This is an evil generation. It seeks after a sign. No sign will be given to it but the sign of Jonah, the prophet.

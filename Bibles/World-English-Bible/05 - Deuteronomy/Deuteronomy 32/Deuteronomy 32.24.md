@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ They shall be] wasted with hunger, and devoured with burning heat And bitter destruction; And the teeth of beasts will I send upon them, With the poison of crawling things of the dust. [
+[They shall be] wasted with hunger, and devoured with burning heat and bitter destruction. I will send the teeth of animals on them, With the poison of crawling things of the dust.

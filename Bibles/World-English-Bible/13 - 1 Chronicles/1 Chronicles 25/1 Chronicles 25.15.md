@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the eighth to Jeshaiah, his sons and his brethren, twelve:
+the eighth to Jeshaiah, his sons and his brothers, twelve:

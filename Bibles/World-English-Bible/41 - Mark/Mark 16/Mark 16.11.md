@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, when they heard that he was alive, and had been seen of her, disbelieved.
+When they heard that he was alive, and had been seen by her, they disbelieved.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were departed from Rephidim, and were come to the wilderness of Sinai, they encamped in the wilderness; and there Israel encamped before the mount.
+When they had departed from Rephidim, and had come to the wilderness of Sinai, they encamped in the wilderness; and there Israel encamped before the mountain.

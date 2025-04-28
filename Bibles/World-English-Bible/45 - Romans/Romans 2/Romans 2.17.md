@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou bearest the name of a Jew, and restest upon the law, and gloriest in God,
+Indeed you bear the name of a Jew, and rest on the law, and glory in God,

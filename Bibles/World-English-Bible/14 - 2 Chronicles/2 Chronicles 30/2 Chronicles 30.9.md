@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if ye turn again unto Jehovah, your brethren and your children shall find compassion before them that led them captive, and shall come again into this land: for Jehovah your God is gracious and merciful, and will not turn away his face from you, if ye return unto him.
+For if you turn again to Yahweh, your brothers and your children shall find compassion before those who led them captive, and shall come again into this land: for Yahweh your God is gracious and merciful, and will not turn away his face from you, if you return to him."

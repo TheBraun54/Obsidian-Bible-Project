@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border of their inheritance was Zorah, and Eshtaol, and Ir-shemesh,
+The border of their inheritance was Zorah, Eshtaol, Irshemesh,

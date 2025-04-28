@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deacons in like manner [must be] grave, not double-tongued, not given to much wine, not greedy of filthy lucre;
+Servants, in the same way, must be reverent, not double-tongued, not addicted to much wine, not greedy for money;

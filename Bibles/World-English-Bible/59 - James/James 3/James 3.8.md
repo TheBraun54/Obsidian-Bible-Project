@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the tongue can no man tame; [it is] a restless evil, [it is] full of deadly poison.
+But nobody can tame the tongue. It is a restless evil, full of deadly poison.

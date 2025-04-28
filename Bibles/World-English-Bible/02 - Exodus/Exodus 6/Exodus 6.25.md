@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eleazar Aaron's son took him one of the daughters of Putiel to wife; and she bare him Phinehas. These are the heads of the fathers' [houses] of the Levites according to their families.
+Eleazar Aaron's son took one of the daughters of Putiel as his wife; and she bore him Phinehas. These are the heads of the fathers' houses of the Levites according to their families.

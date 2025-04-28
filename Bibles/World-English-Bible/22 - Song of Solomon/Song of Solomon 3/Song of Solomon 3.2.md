@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ I said], I will rise now, and go about the city; In the streets and in the broad ways I will seek him whom my soul loveth: I sought him, but I found him not.
+I will get up now, and go about the city; in the streets and in the squares I will seek him whom my soul loves. I sought him, but I didn't find him.

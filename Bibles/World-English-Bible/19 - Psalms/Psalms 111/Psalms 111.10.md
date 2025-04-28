@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah is the beginning of wisdom; A good understanding have all they that do [his commandments] : His praise endureth for ever.
+The fear of Yahweh is the beginning of wisdom. All those who do his work have a good understanding. His praise endures forever!

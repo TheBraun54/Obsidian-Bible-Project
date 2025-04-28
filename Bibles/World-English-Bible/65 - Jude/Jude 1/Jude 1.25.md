@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the only God our Saviour, through Jesus Christ our Lord, [be] glory, majesty, dominion and power, before all time, and now, and for evermore. Amen.
+to God our Savior, who alone is wise, be glory and majesty, dominion and power, both now and forever. Amen.

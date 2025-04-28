@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he refused, and said unto his master's wife, Behold, my master knoweth not what is with me in the house, and he hath put all that he hath into my hand:
+But he refused, and said to his master's wife, "Behold, my master doesn't know what is with me in the house, and he has put all that he has into my hand.

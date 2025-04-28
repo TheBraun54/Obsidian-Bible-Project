@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they who make separations, sensual, having not the Spirit.
+These are they who cause divisions, and are sensual, not having the Spirit.

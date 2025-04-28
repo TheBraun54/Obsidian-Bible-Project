@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he asked them, What question ye with them?
+He asked the scribes, "What are you asking them?"

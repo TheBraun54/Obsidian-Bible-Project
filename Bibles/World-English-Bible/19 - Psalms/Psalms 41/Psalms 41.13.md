@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah, the God of Israel, From everlasting and to everlasting. Amen, and Amen.
+Blessed be Yahweh, the God of Israel, from everlasting and to everlasting! Amen and amen. BOOK II For the Chief Musician. A contemplation by the sons of Korah.

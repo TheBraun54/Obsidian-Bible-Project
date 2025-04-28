@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your eyes have seen what Jehovah did because of Baal-peor; for all the men that followed Baal-peor, Jehovah thy God hath destroyed them from the midst of thee.
+Your eyes have seen what Yahweh did because of Baal Peor; for all the men who followed Baal Peor, Yahweh your God has destroyed them from the midst of you.

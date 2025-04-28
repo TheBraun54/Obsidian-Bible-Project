@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the remnant of Jacob shall be in the midst of many peoples as dew from Jehovah, as showers upon the grass, that tarry not for man, nor wait for the sons of men.
+The remnant of Jacob will be in the midst of many peoples, like dew from Yahweh, like showers on the grass, that don't wait for man, nor wait for the sons of men.

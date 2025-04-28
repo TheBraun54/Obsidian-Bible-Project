@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the word spoken through angels proved stedfast, and every transgression and disobedience received a just recompense of reward;
+For if the word spoken through angels proved steadfast, and every transgression and disobedience received a just recompense;

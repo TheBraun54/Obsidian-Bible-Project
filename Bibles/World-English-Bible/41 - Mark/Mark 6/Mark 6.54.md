@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come out of the boat, straightway [the people] knew him,
+When they had come out of the boat, immediately the people recognized him,

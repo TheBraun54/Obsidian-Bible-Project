@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus lifted up himself, and said unto her, Woman, where are they? did no man condemn thee?
+Jesus, standing up, saw her and said, "Woman, where are your accusers? Did no one condemn you?"

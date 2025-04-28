@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto Jehovah; for he hath done excellent things: let this be known in all the earth.
+Sing to Yahweh, for he has done excellent things! Let this be known in all the earth!

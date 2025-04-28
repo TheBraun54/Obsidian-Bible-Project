@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be with him an angel, An interpreter, one among a thousand, To show unto man what is right for him;
+"If there is beside him an angel, an interpreter, one among a thousand, to show to man what is right for him;

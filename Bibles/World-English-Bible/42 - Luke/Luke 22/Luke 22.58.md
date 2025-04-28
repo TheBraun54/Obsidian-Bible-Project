@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after a little while another saw him, and said, Thou also art [one] of them. But Peter said, Man, I am not.
+After a little while someone else saw him, and said, "You also are one of them!" But Peter answered, "Man, I am not!"

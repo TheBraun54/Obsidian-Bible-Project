@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that confirmeth the word of his servant, and performeth the counsel of his messengers; that saith of Jerusalem, She shall be inhabited; and of the cities of Judah, They shall be built, and I will raise up the waste places thereof;
+who confirms the word of his servant, and performs the counsel of his messengers; who says of Jerusalem, 'She will be inhabited;' and of the cities of Judah, 'They will be built,' and 'I will raise up its waste places;'

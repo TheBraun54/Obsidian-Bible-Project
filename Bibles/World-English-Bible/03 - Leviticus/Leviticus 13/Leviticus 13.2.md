@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When a man shall have in the skin of his flesh a rising, or a scab, or a bright spot, and it become in the skin of his flesh the plague of leprosy, then he shall be brought unto Aaron the priest, or unto one of his sons the priests:
+"When a man shall have a rising in his body's skin, or a scab, or a bright spot, and it becomes in the skin of his body the plague of leprosy, then he shall be brought to Aaron the priest, or to one of his sons, the priests:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye offer a sacrifice of peace-offerings unto Jehovah, ye shall offer it that ye may be accepted.
+"'When you offer a sacrifice of peace offerings to Yahweh, you shall offer it so that you may be accepted.

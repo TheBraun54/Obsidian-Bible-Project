@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the third took her; and likewise the seven also left no children, and died.
+The third took her, and likewise the seven all left no children, and died.

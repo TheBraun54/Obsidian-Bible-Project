@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bless them that persecute you; bless, and curse not.
+Bless those who persecute you; bless, and don't curse.

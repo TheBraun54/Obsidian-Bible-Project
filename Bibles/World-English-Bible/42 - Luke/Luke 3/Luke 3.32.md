@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Jesse, the [son] of Obed, the [son] of Boaz, the [son] of Salmon, the [son] of Nahshon,
+the son of Jesse, the son of Obed, the son of Boaz, the son of Salmon, the son of Nahshon,

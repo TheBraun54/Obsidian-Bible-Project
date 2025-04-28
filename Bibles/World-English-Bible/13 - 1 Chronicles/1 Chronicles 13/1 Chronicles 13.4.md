@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the assembly said that they would do so; for the thing was right in the eyes of all the people.
+All the assembly said that they would do so; for the thing was right in the eyes of all the people.

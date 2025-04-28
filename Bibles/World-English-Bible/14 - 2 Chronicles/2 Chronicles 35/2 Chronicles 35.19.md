@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the eighteenth year of the reign of Josiah was this passover kept.
+In the eighteenth year of the reign of Josiah was this Passover kept.

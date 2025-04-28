@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no sin-offering, whereof any of the blood is brought into the tent of meeting to make atonement in the holy place, shall be eaten: it shall be burnt with fire.
+No sin offering, of which any of the blood is brought into the Tent of Meeting to make atonement in the Holy Place, shall be eaten: it shall be burned with fire.

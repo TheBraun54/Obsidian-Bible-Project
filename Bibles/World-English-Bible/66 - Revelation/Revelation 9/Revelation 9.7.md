@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the shapes of the locusts were like unto horses prepared for war; and upon their heads as it were crowns like unto gold, and their faces were as men's faces.
+The shapes of the locusts were like horses prepared for war. On their heads were something like golden crowns, and their faces were like people's faces.

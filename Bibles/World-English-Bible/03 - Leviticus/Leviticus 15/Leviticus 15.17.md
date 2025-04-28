@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every garment, and every skin, whereon is the seed of copulation, shall be washed with water, and be unclean until the even.
+Every garment, and every skin, whereon the semen is, shall be washed with water, and be unclean until the evening.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As yet exaltest thou thyself against my people, that thou wilt not let them go?
+as you still exalt yourself against my people, that you won't let them go.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet to abide in the flesh is more needful for your sake.
+Yet, to remain in the flesh is more needful for your sake.

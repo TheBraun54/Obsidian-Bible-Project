@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, I have marked that which Amalek did to Israel, how he set himself against him in the way, when he came up out of Egypt.
+Thus says Yahweh of Armies, 'I have marked that which Amalek did to Israel, how he set himself against him in the way, when he came up out of Egypt.

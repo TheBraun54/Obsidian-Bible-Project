@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall bring the bullock unto the door of the tent of meeting before Jehovah; and he shall lay his hand upon the head of the bullock, and kill the bullock before Jehovah.
+He shall bring the bull to the door of the Tent of Meeting before Yahweh; and he shall lay his hand on the head of the bull, and kill the bull before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come to the king, the king said unto him, Micaiah, shall we go to Ramoth-gilead to battle, or shall we forbear? And he answered him, Go up and prosper; and Jehovah will deliver it into the hand of the king.
+When he had come to the king, the king said to him, "Micaiah, shall we go to Ramoth Gilead to battle, or shall we forbear?" He answered him, "Go up and prosper; and Yahweh will deliver it into the hand of the king."

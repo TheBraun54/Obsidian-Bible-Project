@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which Nebuchadnezzar king of Babylon took not, when he carried away captive Jeconiah the son of Jehoiakim, king of Judah, from Jerusalem to Babylon, and all the nobles of Judah and Jerusalem;
+which Nebuchadnezzar king of Babylon didn't take, when he carried away captive Jeconiah the son of Jehoiakim, king of Judah, from Jerusalem to Babylon, and all the nobles of Judah and Jerusalem;

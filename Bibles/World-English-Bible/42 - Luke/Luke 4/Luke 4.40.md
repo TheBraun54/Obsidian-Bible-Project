@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the sun was setting, all they that had any sick with divers diseases brought them unto him; and he laid his hands on every one of them, and healed them.
+When the sun was setting, all those who had any sick with various diseases brought them to him; and he laid his hands on every one of them, and healed them.

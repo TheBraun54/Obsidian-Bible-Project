@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had taken him, he put him in prison, and delivered him to four quaternions of soldiers to guard him; intending after the Passover to bring him forth to the people.
+When he had arrested him, he put him in prison, and delivered him to four squads of four soldiers each to guard him, intending to bring him out to the people after the Passover.

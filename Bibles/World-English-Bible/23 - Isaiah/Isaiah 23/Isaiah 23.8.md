@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath purposed this against Tyre, the bestower of crowns, whose merchants are princes, whose traffickers are the honorable of the earth?
+Who has planned this against Tyre, the giver of crowns, whose merchants are princes, whose traffickers are the honorable of the earth?

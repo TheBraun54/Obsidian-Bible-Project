@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, behold, I have taken the Levites from among the children of Israel instead of all the first-born that openeth the womb among the children of Israel; and the Levites shall be mine:
+"Behold, I have taken the Levites from among the children of Israel instead of all the firstborn who open the womb among the children of Israel; and the Levites shall be mine:

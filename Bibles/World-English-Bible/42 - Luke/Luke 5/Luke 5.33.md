@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, The disciples of John fast often, and make supplications; likewise also the [disciples] of the Pharisees; but thine eat and drink.
+They said to him, "Why do John's disciples often fast and pray, likewise also the disciples of the Pharisees, but yours eat and drink?"

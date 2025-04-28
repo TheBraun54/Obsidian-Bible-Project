@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now go, lead the people unto [the place] of which I have spoken unto thee: behold, mine angel shall go before thee; nevertheless in the day when I visit, I will visit their sin upon them.
+Now go, lead the people to the place of which I have spoken to you. Behold, my angel shall go before you. Nevertheless in the day when I punish, I will punish them for their sin."

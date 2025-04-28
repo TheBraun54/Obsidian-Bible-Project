@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Mishma, and Dumah, and Massa,
+Mishma, Dumah, Massa,

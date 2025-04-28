@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, There must be an inheritance for them that are escaped of Benjamin, that a tribe be not blotted out from Israel.
+They said, "There must be an inheritance for those who are escaped of Benjamin, that a tribe not be blotted out from Israel.

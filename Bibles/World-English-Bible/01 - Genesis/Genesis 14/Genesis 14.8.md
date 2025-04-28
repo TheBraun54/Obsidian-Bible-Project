@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went out the king of Sodom, and the king of Gomorrah, and the king of Admah, and the king of Zeboiim, and the king of Bela (the same is Zoar); and they set the battle in array against them in the vale of Siddim;
+The king of Sodom, and the king of Gomorrah, and the king of Admah, and the king of Zeboiim, and the king of Bela (the same is Zoar) went out; and they set the battle in array against them in the valley of Siddim;

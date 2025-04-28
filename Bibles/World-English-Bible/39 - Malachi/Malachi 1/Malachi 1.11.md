@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For from the rising of the sun even unto the going down of the same my name [shall be] great among the Gentiles; and in every place incense [shall be] offered unto my name, and a pure offering: for my name [shall be] great among the Gentiles, saith Jehovah of hosts.
+For from the rising of the sun even to the going down of the same, my name is great among the nations, and in every place incense will be offered to my name, and a pure offering: for my name is great among the nations," says Yahweh of Armies.

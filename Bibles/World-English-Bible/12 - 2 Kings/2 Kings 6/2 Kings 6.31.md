@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he said, God do so to me, and more also, if the head of Elisha the son of Shaphat shall stand on him this day.
+Then he said, "God do so to me, and more also, if the head of Elisha the son of Shaphat shall stay on him this day."

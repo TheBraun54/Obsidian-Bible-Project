@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not depart out of darkness; The flame shall dry up his branches, And by the breath of [God's] mouth shall he go away.
+He shall not depart out of darkness. The flame shall dry up his branches. By the breath of God's mouth shall he go away.

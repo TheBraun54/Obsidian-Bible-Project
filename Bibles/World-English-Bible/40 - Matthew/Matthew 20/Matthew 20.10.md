@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the first came, they supposed that they would receive more; and they likewise received every man a shilling.
+When the first came, they supposed that they would receive more; and they likewise each received a denarius.

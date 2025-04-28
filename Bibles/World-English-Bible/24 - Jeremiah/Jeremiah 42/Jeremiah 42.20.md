@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye have dealt deceitfully against your own souls; for ye sent me unto Jehovah your God, saying, Pray for us unto Jehovah our God; and according unto all that Jehovah our God shall say, so declare unto us, and we will do it:
+For you have dealt deceitfully against your own souls; for you sent me to Yahweh your God, saying, Pray for us to Yahweh our God; and according to all that Yahweh our God shall say, so declare to us, and we will do it:

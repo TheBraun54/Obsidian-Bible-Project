@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh called Joseph's name Zaphenath-paneah; and he gave him to wife Asenath, the daughter of Poti-phera priest of On. And Joseph went out over the land of Egypt.
+Pharaoh called Joseph's name Zaphenath-Paneah; and he gave him Asenath, the daughter of Potiphera priest of On as a wife. Joseph went out over the land of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: Ask now the priests concerning the law, saying,
+"Thus says Yahweh of Armies: Ask now the priests concerning the law, saying,

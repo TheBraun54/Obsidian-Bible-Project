@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul arose from the earth; and when his eyes were opened, he saw nothing; and they led him by the hand, and brought him into Damascus.
+Saul arose from the ground, and when his eyes were opened, he saw no one. They led him by the hand, and brought him into Damascus.

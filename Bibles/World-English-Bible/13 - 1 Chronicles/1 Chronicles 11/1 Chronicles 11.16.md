@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David was then in the stronghold, and the garrison of the Philistines was then in Beth-lehem.
+David was then in the stronghold, and the garrison of the Philistines was then in Bethlehem.

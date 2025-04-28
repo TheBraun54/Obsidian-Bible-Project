@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Mithkah, and encamped in Hashmonah.
+They traveled from Mithkah, and encamped in Hashmonah.

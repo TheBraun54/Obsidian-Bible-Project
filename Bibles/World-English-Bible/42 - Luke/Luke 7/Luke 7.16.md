@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fear took hold on all: and they glorified God, saying, A great prophet is arisen among us: and, God hath visited his people.
+Fear took hold of all, and they glorified God, saying, "A great prophet has arisen among us!" and, "God has visited his people!"

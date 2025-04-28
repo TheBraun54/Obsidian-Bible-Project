@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah repented concerning this: It shall not be, saith Jehovah.
+Yahweh relented concerning this. "It shall not be," says Yahweh.

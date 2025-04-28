@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that this shall be no grief unto thee, nor offence of heart unto my lord, either that thou hast shed blood without cause, or that my lord hath avenged himself. And when Jehovah shall have dealt well with my lord, then remember thy handmaid.
+that this shall be no grief to you, nor offense of heart to my lord, either that you have shed blood without cause, or that my lord has avenged himself. When Yahweh has dealt well with my lord, then remember your handmaid."

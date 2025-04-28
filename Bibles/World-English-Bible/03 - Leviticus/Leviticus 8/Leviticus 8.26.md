@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and out of the basket of unleavened bread, that was before Jehovah, he took one unleavened cake, and one cake of oiled bread, and one wafer, and placed them on the fat, and upon the right thigh:
+and out of the basket of unleavened bread, that was before Yahweh, he took one unleavened cake, and one cake of oiled bread, and one wafer, and placed them on the fat, and on the right thigh.

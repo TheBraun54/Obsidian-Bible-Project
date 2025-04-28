@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto her, There is none of thy kindred that is called by this name.
+They said to her, "There is no one among your relatives who is called by this name."

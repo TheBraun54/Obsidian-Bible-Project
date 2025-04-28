@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the disciples, and said unto him, Knowest thou that the Pharisees were offended, when they heard this saying?
+Then the disciples came, and said to him, "Do you know that the Pharisees were offended, when they heard this saying?"

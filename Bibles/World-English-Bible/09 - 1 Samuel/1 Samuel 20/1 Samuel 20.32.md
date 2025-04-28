@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan answered Saul his father, and said unto him, Wherefore should he be put to death? what hath he done?
+Jonathan answered Saul his father, and said to him, "Why should he be put to death? What has he done?"

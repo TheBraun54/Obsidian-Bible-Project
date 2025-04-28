@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he had in his right hand seven stars: and out of his mouth proceeded a sharp two-edged sword: and his countenance was as the sun shineth in his strength.
+He had seven stars in his right hand. Out of his mouth proceeded a sharp two-edged sword. His face was like the sun shining at its brightest.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy two breasts are like two fawns That are twins of a roe.
+Your two breasts are like two fawns, that are twins of a roe.

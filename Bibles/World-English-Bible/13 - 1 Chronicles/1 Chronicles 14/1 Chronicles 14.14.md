@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David inquired again of God; and God said unto him, Thou shalt not go up after them: turn away from them, and come upon them over against the mulberry-trees.
+David inquired again of God; and God said to him, "You shall not go up after them. Turn away from them, and come on them over against the mulberry trees.

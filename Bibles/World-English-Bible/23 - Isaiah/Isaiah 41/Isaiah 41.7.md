@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the carpenter encourageth the goldsmith, [and] he that smootheth with the hammer him that smiteth the anvil, saying of the soldering, It is good; and he fasteneth it with nails, that it should not be moved.
+So the carpenter encourages the goldsmith. He who smoothes with the hammer encourages him who strikes the anvil, saying of the soldering, "It is good;" and he fastens it with nails, that it might not totter.

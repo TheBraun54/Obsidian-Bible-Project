@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they blasphemed the God of heaven because of their pains and their sores; and they repented not of their works.
+and they blasphemed the God of heaven because of their pains and their sores. They didn't repent of their works.

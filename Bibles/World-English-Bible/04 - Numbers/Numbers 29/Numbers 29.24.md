@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-their meal-offering and their drink-offerings for the bullocks, for the rams, and for the lambs, according to their number, after the ordinance;
+their meal offering and their drink offerings for the bulls, for the rams, and for the lambs, according to their number, after the ordinance;

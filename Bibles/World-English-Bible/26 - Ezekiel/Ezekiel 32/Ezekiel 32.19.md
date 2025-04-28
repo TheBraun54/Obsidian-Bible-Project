@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whom dost thou pass in beauty? go down, and be thou laid with the uncircumcised.
+Whom do you pass in beauty? Go down, and be laid with the uncircumcised.

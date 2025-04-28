@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were saying among themselves, Who shall roll us away the stone from the door of the tomb?
+They were saying among themselves, "Who will roll away the stone from the door of the tomb for us?"

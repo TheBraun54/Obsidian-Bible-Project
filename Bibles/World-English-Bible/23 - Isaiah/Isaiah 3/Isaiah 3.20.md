@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the headtires, and the ankle chains, and the sashes, and the perfume-boxes, and the amulets;
+the headdresses, the ankle chains, the sashes, the perfume bottles, the charms,

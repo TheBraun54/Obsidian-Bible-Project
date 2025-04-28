@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only ye shall not eat the blood; thou shalt pour it out upon the earth as water.
+Only you shall not eat the blood; you shall pour it out on the earth as water.

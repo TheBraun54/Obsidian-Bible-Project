@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man [is] for captivity, into captivity he goeth: if any man shall kill with the sword, with the sword must he be killed. Here is the patience and the faith of the saints.
+If anyone is to go into captivity, he will go into captivity. If anyone is to be killed with the sword, he must be killed. Here is the endurance and the faith of the saints.

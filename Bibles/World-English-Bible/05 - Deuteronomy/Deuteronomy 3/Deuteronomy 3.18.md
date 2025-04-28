@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I commanded you at that time, saying, Jehovah your God hath given you this land to possess it: ye shall pass over armed before your brethren the children of Israel, all the men of valor.
+I commanded you at that time, saying, "Yahweh your God has given you this land to possess it: you shall pass over armed before your brothers the children of Israel, all the men of valor.

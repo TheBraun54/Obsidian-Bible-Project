@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the locusts went up over all the land of Egypt, and rested in all the borders of Egypt; very grievous were they; before them there were no such locusts as they, neither after them shall be such.
+The locusts went up over all the land of Egypt, and rested in all the borders of Egypt. They were very grievous. Before them there were no such locusts as they, neither after them shall be such.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thy children have sinned against him, And he hath delivered them into the hand of their transgression;
+If your children have sinned against him, He has delivered them into the hand of their disobedience.

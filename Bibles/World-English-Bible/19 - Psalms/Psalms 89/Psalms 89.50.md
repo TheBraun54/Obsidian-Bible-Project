@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, Lord, the reproach of thy servants; How I do bear in my bosom [the reproach of] all the mighty peoples,
+Remember, Lord, the reproach of your servants, how I bear in my heart the taunts of all the mighty peoples,

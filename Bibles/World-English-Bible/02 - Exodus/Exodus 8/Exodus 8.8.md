@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Pharaoh called for Moses and Aaron, and said, Entreat Jehovah, that he take away the frogs from me, and from my people; and I will let the people go, that they may sacrifice unto Jehovah.
+Then Pharaoh called for Moses and Aaron, and said, "Entreat Yahweh, that he take away the frogs from me, and from my people; and I will let the people go, that they may sacrifice to Yahweh."

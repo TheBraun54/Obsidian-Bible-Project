@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Uzziel: Mishael, and Elzaphan, and Sithri.
+The sons of Uzziel: Mishael, and Elzaphan, and Sithri.

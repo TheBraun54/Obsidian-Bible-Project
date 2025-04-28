@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lip of truth shall be established for ever; But a lying tongue is but for a moment.
+Truth's lips will be established forever, but a lying tongue is only momentary.

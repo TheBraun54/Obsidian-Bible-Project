@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but camest back, and hast eaten bread and drunk water in the place of which he said to thee, Eat no bread, and drink no water; thy body shall not come unto the sepulchre of thy fathers.
+but came back, and have eaten bread and drunk water in the place of which he said to you, "Eat no bread, and drink no water;" your body shall not come to the tomb of your fathers.'"

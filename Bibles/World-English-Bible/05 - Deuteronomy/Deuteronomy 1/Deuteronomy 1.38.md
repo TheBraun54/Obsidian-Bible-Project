@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Joshua the son of Nun, who standeth before thee, he shall go in thither: encourage thou him; for he shall cause Israel to inherit it.
+Joshua the son of Nun, who stands before you, he shall go in there: encourage you him; for he shall cause Israel to inherit it.

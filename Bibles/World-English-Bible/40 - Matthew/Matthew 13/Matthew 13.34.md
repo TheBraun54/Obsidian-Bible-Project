@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All these things spake Jesus in parables unto the multitudes; and without a parable spake he nothing unto them:
+Jesus spoke all these things in parables to the multitudes; and without a parable, he didn't speak to them,

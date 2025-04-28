@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And certain also of the Epicurean and Stoic philosophers encountered him. And some said, What would this babbler say? others, He seemeth to be a setter forth of strange gods: because he preached Jesus and the resurrection.
+Some of the Epicurean and Stoic philosophers also were conversing with him. Some said, "What does this babbler want to say?" Others said, "He seems to be advocating foreign deities," because he preached Jesus and the resurrection.

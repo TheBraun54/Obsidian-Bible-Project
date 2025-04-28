@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it turned toward the sunrising to Beth-dagon, and reached to Zebulun, and to the valley of Iphtah-el northward to Beth-emek and Neiel; and it went out to Cabul on the left hand,
+It turned toward the sunrise to Beth Dagon, and reached to Zebulun, and to the valley of Iphtah El northward to Beth Emek and Neiel. It went out to Cabul on the left hand,

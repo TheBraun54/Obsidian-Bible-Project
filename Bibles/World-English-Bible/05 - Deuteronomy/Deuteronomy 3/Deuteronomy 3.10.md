@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all the cities of the plain, and all Gilead, and all Bashan, unto Salecah and Edrei, cities of the kingdom of Og in Bashan.
+all the cities of the plain, and all Gilead, and all Bashan, to Salecah and Edrei, cities of the kingdom of Og in Bashan.

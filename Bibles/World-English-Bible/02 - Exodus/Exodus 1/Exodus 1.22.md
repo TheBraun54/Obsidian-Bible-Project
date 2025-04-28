@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh charged all his people, saying, Every son that is born ye shall cast into the river, and every daughter ye shall save alive.
+Pharaoh commanded all his people, saying, "You shall cast every son who is born into the river, and every daughter you shall save alive."

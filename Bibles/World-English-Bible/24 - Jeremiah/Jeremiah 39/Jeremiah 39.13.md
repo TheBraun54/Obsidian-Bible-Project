@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Nebuzaradan the captain of the guard sent, and Nebushazban, Rab-saris, and Nergal-sharezer, Rab-mag, and all the chief officers of the king of Babylon;
+So Nebuzaradan the captain of the guard sent, and Nebushazban, Rabsaris, and Nergal Sharezer, Rabmag, and all the chief officers of the king of Babylon;

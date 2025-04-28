@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, O God, didst send a plentiful rain, Thou didst confirm thine inheritance, when it was weary.
+You, God, sent a plentiful rain. You confirmed your inheritance, when it was weary.

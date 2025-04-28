@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the soldiers platted a crown of thorns, and put it on his head, and arrayed him in a purple garment;
+The soldiers twisted thorns into a crown, and put it on his head, and dressed him in a purple garment.

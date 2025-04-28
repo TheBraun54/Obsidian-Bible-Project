@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless the men rowed hard to get them back to the land; but they could not: for the sea grew more and more tempestuous against them.
+Nevertheless the men rowed hard to get them back to the land; but they could not, for the sea grew more and more stormy against them.

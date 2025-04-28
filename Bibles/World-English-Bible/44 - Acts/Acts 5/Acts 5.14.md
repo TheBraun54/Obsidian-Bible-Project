@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and believers were the more added to the Lord, multitudes both of men and women;
+More believers were added to the Lord, multitudes of both men and women.

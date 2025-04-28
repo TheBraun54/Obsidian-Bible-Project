@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they have not hearkened to my words, saith Jehovah, wherewith I sent unto them my servants the prophets, rising up early and sending them; but ye would not hear, saith Jehovah.
+because they have not listened to my words, says Yahweh, with which I sent to them my servants the prophets, rising up early and sending them; but you would not hear, says Yahweh.

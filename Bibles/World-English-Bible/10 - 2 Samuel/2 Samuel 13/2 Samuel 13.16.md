@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto him, Not so, because this great wrong in putting me forth is [worse] than the other that thou didst unto me. But he would not hearken unto her.
+She said to him, "Not so, because this great wrong in sending me away is worse than the other that you did to me!" But he would not listen to her.

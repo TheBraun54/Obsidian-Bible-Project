@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, Friend, [do] that for which thou art come. Then they came and laid hands on Jesus, and took him.
+Jesus said to him, "Friend, why are you here?" Then they came and laid hands on Jesus, and took him.

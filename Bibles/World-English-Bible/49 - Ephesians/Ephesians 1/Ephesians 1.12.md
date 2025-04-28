@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the end that we should be unto the praise of his glory, we who had before hoped in Christ:
+to the end that we should be to the praise of his glory, we who had before hoped in Christ:

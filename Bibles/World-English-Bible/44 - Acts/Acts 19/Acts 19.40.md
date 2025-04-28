@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For indeed we are in danger to be accused concerning this day's riot, there being no cause [for it] : and as touching it we shall not be able to give account of this concourse.
+For indeed we are in danger of being accused concerning this day's riot, there being no cause. Concerning it, we wouldn't be able to give an account of this commotion."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after many days, that the word of Jehovah came to Elijah, in the third year, saying, Go, show thyself unto Ahab; and I will send rain upon the earth.
+It happened after many days, that the word of Yahweh came to Elijah, in the third year, saying, "Go, show yourself to Ahab; and I will send rain on the earth."

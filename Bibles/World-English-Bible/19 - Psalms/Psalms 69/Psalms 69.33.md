@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah heareth the needy, And despiseth not his prisoners.
+For Yahweh hears the needy, and doesn't despise his captive people.

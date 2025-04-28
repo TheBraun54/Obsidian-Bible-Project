@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the witness is this, that God gave unto us eternal life, and this life is in his Son.
+The testimony is this, that God gave to us eternal life, and this life is in his Son.

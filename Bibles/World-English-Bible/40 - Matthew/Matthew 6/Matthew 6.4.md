@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thine alms may be in secret: and thy Father who seeth in secret shall recompense thee.
+so that your merciful deeds may be in secret, then your Father who sees in secret will reward you openly.

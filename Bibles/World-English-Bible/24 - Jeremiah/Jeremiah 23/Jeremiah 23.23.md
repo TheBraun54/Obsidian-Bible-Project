@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Am I a God at hand, saith Jehovah, and not a God afar off?
+Am I a God at hand, says Yahweh, and not a God afar off?

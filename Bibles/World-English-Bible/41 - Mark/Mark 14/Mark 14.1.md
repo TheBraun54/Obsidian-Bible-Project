@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after two days was [the feast of] the passover and the unleavened bread: and the chief priests and the scribes sought how they might take him with subtlety, and kill him:
+It was now two days before the feast of the Passover and the unleavened bread, and the chief priests and the scribes sought how they might seize him by deception, and kill him.

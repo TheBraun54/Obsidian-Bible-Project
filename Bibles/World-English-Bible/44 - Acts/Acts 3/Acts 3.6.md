@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter said, Silver and gold have I none; but what I have, that give I thee. In the name of Jesus Christ of Nazareth, walk.
+But Peter said, "Silver and gold have I none, but what I have, that I give you. In the name of Jesus Christ of Nazareth, get up and walk!"

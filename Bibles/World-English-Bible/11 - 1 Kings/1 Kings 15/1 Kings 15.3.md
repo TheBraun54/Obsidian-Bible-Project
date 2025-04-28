@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he walked in all the sins of his father, which he had done before him; and his heart was not perfect with Jehovah his God, as the heart of David his father.
+He walked in all the sins of his father, which he had done before him; and his heart was not perfect with Yahweh his God, as the heart of David his father.

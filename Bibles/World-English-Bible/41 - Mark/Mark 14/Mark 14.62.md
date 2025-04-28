@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said, I am: and ye shall see the Son of man sitting at the right hand of Power, and coming with the clouds of heaven.
+Jesus said, "I am. You will see the Son of Man sitting at the right hand of Power, and coming with the clouds of the sky."

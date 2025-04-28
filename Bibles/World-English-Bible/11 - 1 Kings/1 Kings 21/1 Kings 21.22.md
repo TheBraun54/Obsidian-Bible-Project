@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will make thy house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah for the provocation wherewith thou hast provoked me to anger, and hast made Israel to sin.
+I will make your house like the house of Jeroboam the son of Nebat, and like the house of Baasha the son of Ahijah for the provocation with which you have provoked me to anger, and have made Israel to sin."

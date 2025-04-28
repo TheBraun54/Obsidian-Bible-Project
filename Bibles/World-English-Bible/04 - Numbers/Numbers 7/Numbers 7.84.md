@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This was the dedication of the altar, in the day when it was anointed, by the princes of Israel: twelve silver platters, twelve silver bowls, twelve golden spoons;
+This was the dedication of the altar, on the day when it was anointed, by the princes of Israel: twelve silver platters, twelve silver bowls, twelve golden ladles;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye call me, Teacher, and, Lord: and ye say well; for so I am.
+You call me, 'Teacher' and 'Lord.' You say so correctly, for so I am.

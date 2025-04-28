@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Gehazi followed after Naaman. And when Naaman saw one running after him, he alighted from the chariot to meet him, and said, Is all well?
+So Gehazi followed after Naaman. When Naaman saw one running after him, he came down from the chariot to meet him, and said, "Is all well?"

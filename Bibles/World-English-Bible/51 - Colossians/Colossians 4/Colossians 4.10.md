@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Aristarchus my fellow-prisoner saluteth you, and Mark, the cousin of Barnabas (touching whom ye received commandments; if he come unto you, receive him),
+Aristarchus, my fellow prisoner, greets you, and Mark, the cousin of Barnabas (concerning whom you received commandments, "if he comes to you, receive him"),

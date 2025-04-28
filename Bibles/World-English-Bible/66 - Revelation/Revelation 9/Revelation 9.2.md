@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he opened the pit of the abyss; and there went up a smoke out of the pit, as the smoke of a great furnace; and the sun and the air were darkened by reason of the smoke of the pit.
+He opened the pit of the abyss, and smoke went up out of the pit, like the smoke from a burning furnace. The sun and the air were darkened because of the smoke from the pit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah thy God hath chosen him out of all thy tribes, to stand to minister in the name of Jehovah, him and his sons for ever.
+For Yahweh your God has chosen him out of all your tribes, to stand to minister in the name of Yahweh, him and his sons for ever.

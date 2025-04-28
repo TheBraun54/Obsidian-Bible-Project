@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the ark, and the staves thereof, the mercy-seat, and the veil of the screen;
+the ark, and its poles, the mercy seat, the veil of the screen;

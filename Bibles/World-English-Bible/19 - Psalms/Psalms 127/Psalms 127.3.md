@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, children are a heritage of Jehovah; [And] the fruit of the womb is [his] reward.
+Behold, children are a heritage of Yahweh. The fruit of the womb is his reward.

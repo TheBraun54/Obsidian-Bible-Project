@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The arrogant shall not stand in thy sight: Thou hatest all workers of iniquity.
+The arrogant shall not stand in your sight. You hate all workers of iniquity.

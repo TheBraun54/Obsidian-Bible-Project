@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was no more war unto the five and thirtieth year of the reign of Asa.
+There was no more war to the five and thirtieth year of the reign of Asa.

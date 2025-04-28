@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the hearing of all the people he said unto his disciples,
+In the hearing of all the people, he said to his disciples,

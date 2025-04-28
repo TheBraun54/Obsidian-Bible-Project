@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many sorrows shall be to the wicked; But he that trusteth in Jehovah, lovingkindness shall compass him about.
+Many sorrows come to the wicked, but loving kindness shall surround him who trusts in Yahweh.

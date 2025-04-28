@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, Whosoever shall say unto this mountain, Be thou taken up and cast into the sea; and shall not doubt in his heart, but shall believe that what he saith cometh to pass; he shall have it.
+For most certainly I tell you, whoever may tell this mountain, 'Be taken up and cast into the sea,' and doesn't doubt in his heart, but believes that what he says is happening; he shall have whatever he says.

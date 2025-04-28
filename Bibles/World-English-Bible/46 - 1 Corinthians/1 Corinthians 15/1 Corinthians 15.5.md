@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that he appeared to Cephas; then to the twelve;
+and that he appeared to Cephas, then to the twelve.

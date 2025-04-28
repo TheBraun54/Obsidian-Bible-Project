@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and we went on board the ship, but they returned home again.
+After saying goodbye to each other, we went on board the ship, and they returned home again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shallum the son of Jabesh conspired against him, and smote him before the people, and slew him, and reigned in his stead.
+Shallum the son of Jabesh conspired against him, and struck him before the people, and killed him, and reigned in his place.

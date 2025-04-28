@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a harlot is a deep ditch; And a foreign woman is a narrow pit.
+For a prostitute is a deep pit; and a wayward wife is a narrow well.

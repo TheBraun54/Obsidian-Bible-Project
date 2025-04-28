@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A feast is made for laughter, and wine maketh glad the life; and money answereth all things.
+A feast is made for laughter, and wine makes the life glad; and money is the answer for all things.

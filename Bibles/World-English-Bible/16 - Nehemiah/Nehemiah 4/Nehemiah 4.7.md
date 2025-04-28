@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it came to pass that, when Sanballat, and Tobiah, and the Arabians, and the Ammonites, and the Ashdodites, heard that the repairing of the walls of Jerusalem went forward, [and] that the breaches began to be stopped, then they were very wroth;
+But it happened that when Sanballat, Tobiah, the Arabians, the Ammonites, and the Ashdodites heard that the repairing of the walls of Jerusalem went forward, [and] that the breaches began to be stopped, then they were very angry;

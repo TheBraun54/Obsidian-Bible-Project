@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall spring up among the grass, as willows by the watercourses.
+and they will spring up among the grass, as willows by the watercourses.

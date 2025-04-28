@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As Jehovah hath been with my lord the king, even so be he with Solomon, and make his throne greater than the throne of my lord king David.
+As Yahweh has been with my lord the king, even so may he be with Solomon, and make his throne greater than the throne of my lord king David."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, my servant, whom I uphold; my chosen, in whom my soul delighteth: I have put my Spirit upon him; he will bring forth justice to the Gentiles.
+"Behold, my servant, whom I uphold; my chosen, in whom my soul delights-- I have put my Spirit on him. He will bring justice to the nations.

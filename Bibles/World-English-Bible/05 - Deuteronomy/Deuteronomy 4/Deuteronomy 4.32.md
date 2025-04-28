@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ask now of the days that are past, which were before thee, since the day that God created man upon the earth, and from the one end of heaven unto the other, whether there hath been [any such thing] as this great thing is, or hath been heard like it?
+For ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been [any such thing] as this great thing is, or has been heard like it?

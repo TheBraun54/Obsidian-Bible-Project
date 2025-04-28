@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus, being moved with compassion, touched their eyes; and straightway they received their sight, and followed him.
+Jesus, being moved with compassion, touched their eyes; and immediately their eyes received their sight, and they followed him.

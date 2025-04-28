@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the Hebrews that were with the Philistines as beforetime, and that went up with them into the camp, [from the country] round about, even they also [turned] to be with the Israelites that were with Saul and Jonathan.
+Now the Hebrews who were with the Philistines as before, and who went up with them into the camp, [from the country] all around, even they also [turned] to be with the Israelites who were with Saul and Jonathan.

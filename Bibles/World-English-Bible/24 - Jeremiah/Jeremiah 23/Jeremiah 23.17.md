@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say continually unto them that despise me, Jehovah hath said, Ye shall have peace; and unto every one that walketh in the stubbornness of his own heart they say, No evil shall come upon you.
+They say continually to those who despise me, Yahweh has said, You shall have peace; and to everyone who walks in the stubbornness of his own heart they say, No evil shall come on you.

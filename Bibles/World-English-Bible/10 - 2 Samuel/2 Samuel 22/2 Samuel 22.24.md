@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was also perfect toward him; And I kept myself from mine iniquity.
+I was also perfect toward him. I kept myself from my iniquity.

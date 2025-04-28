@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the fourth year of Jehoiakim the son of Josiah, king of Judah, that this word came unto Jeremiah from Jehovah, saying,
+It happened in the fourth year of Jehoiakim the son of Josiah, king of Judah, that this word came to Jeremiah from Yahweh, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the waters of Dimon are full of blood; for I will bring yet more upon Dimon, a lion upon them of Moab that escape, and upon the remnant of the land.
+For the waters of Dimon are full of blood; for I will bring yet more on Dimon, a lion on those of Moab who escape, and on the remnant of the land.

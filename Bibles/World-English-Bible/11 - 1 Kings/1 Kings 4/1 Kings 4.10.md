@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ben-hesed, in Arubboth (to him [pertained] Socoh, and all the land of Hepher);
+Ben Hesed, in Arubboth (to him [pertained] Socoh, and all the land of Hepher);

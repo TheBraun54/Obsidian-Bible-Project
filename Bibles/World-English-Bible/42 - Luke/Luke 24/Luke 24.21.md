@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we hoped that it was he who should redeem Israel. Yea and besides all this, it is now the third day since these things came to pass.
+But we were hoping that it was he who would redeem Israel. Yes, and besides all this, it is now the third day since these things happened.

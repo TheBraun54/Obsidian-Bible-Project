@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the goat shall bear upon him all their iniquities unto a solitary land: and he shall let go the goat in the wilderness.
+The goat shall carry all their iniquities on himself to a solitary land, and he shall let the goat go in the wilderness.

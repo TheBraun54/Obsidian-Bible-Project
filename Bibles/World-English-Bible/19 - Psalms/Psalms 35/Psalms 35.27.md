@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them shout for joy, and be glad, that favor my righteous cause: Yea, let them say continually, Jehovah be magnified, Who hath pleasure in the prosperity of his servant.
+Let them shout for joy and be glad, who favor my righteous cause. Yes, let them say continually, "Yahweh be magnified, who has pleasure in the prosperity of his servant!"

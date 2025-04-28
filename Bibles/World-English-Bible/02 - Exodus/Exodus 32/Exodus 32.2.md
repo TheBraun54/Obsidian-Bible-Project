@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron said unto them, Break off the golden rings, which are in the ears of your wives, of your sons, and of your daughters, and bring them unto me.
+Aaron said to them, "Take off the golden rings, which are in the ears of your wives, of your sons, and of your daughters, and bring them to me."

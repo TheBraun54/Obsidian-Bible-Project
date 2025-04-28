@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the water in the bottle was spent, and she cast the child under one of the shrubs.
+The water in the bottle was spent, and she cast the child under one of the shrubs.

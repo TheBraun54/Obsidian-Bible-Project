@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David took more wives at Jerusalem; and David begat more sons and daughters.
+David took more wives at Jerusalem; and David became the father of more sons and daughters.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the silver and gold that thou shalt find in all the province of Babylon, with the freewill-offering of the people, and of the priests, offering willingly for the house of their God which is in Jerusalem;
+and all the silver and gold that you shall find in all the province of Babylon, with the freewill offering of the people, and of the priests, offering willingly for the house of their God which is in Jerusalem;

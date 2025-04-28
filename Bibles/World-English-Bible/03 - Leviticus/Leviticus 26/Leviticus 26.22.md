@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will send the beast of the field among you, which shall rob you of your children, and destroy your cattle, and make you few in number; and your ways shall become desolate.
+I will send the wild animals among you, which will rob you of your children, destroy your livestock, and make you few in number; and your roads will become desolate.

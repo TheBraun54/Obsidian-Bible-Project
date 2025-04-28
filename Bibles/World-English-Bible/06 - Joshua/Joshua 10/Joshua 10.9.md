@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Joshua therefore came upon them suddenly; [for] he went up from Gilgal all the night.
+Joshua therefore came on them suddenly. He went up from Gilgal all night.

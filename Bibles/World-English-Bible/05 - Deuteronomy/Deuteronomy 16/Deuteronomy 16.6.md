@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but at the place which Jehovah thy God shall choose, to cause his name to dwell in, there thou shalt sacrifice the passover at even, at the going down of the sun, at the season that thou camest forth out of Egypt.
+but at the place which Yahweh your God shall choose, to cause his name to dwell in, there you shall sacrifice the Passover at evening, at the going down of the sun, at the season that you came forth out of Egypt.

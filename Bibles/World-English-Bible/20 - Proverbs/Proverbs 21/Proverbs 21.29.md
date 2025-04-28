@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wicked man hardeneth his face; But as for the upright, he establisheth his ways.
+A wicked man hardens his face; but as for the upright, he establishes his ways.

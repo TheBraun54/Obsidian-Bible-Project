@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was together Simon Peter, and Thomas called Didymus, and Nathanael of Cana in Galilee, and the [sons] of Zebedee, and two other of his disciples.
+Simon Peter, Thomas called Didymus, Nathanael of Cana in Galilee, and the sons of Zebedee, and two others of his disciples were together.

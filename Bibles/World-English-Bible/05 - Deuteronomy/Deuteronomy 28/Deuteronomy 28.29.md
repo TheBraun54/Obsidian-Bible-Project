@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt grope at noonday, as the blind gropeth in darkness, and thou shalt not prosper in thy ways: and thou shalt be only oppressed and robbed alway, and there shall be none to save thee.
+and you shall grope at noonday, as the blind gropes in darkness, and you shall not prosper in your ways: and you shall be only oppressed and robbed always, and there shall be none to save you.

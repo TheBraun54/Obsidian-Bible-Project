@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this we say unto you by the word of the Lord, that we that are alive, that are left unto the coming of the Lord, shall in no wise precede them that are fallen asleep.
+For this we tell you by the word of the Lord, that we who are alive, who are left to the coming of the Lord, will in no way precede those who have fallen asleep.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard a great voice out of the throne saying, Behold, the tabernacle of God is with men, and he shall dwell with them, and they shall be his peoples, and God himself shall be with them, [ [and be] their God:
+I heard a loud voice out of heaven saying, "Behold, God's dwelling is with people, and he will dwell with them, and they will be his people, and God himself will be with them as their God.

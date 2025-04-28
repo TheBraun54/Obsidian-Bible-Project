@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his men that were with him did David bring up, every man with his household: and they dwelt in the cities of Hebron.
+David brought up his men who were with him, every man with his household. They lived in the cities of Hebron.

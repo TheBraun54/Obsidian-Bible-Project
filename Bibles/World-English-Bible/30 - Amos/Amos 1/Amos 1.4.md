@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will send a fire into the house of Hazael, and it shall devour the palaces of Ben-hadad.
+but I will send a fire into the house of Hazael, and it will devour the palaces of Ben Hadad.

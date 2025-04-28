@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he established the heavens, I was there: When he set a circle upon the face of the deep,
+When he established the heavens, I was there; when he set a circle on the surface of the deep,

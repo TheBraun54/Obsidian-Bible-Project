@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he learned it of the centurion, he granted the corpse to Joseph.
+When he found out from the centurion, he granted the body to Joseph.

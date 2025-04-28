@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were gone up into the boat, the wind ceased.
+When they got up into the boat, the wind ceased.

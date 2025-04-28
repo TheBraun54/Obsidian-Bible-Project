@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, uttering great swelling [words] of vanity, they entice in the lusts of the flesh, by lasciviousness, those who are just escaping from them that live in error;
+For, uttering great swelling words of emptiness, they entice in the lusts of the flesh, by licentiousness, those who are indeed escaping from those who live in error;

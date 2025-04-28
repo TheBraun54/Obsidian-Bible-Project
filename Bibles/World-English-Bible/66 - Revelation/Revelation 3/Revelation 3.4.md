@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou hast a few names in Sardis that did not defile their garments: and they shall walk with me in white; for they are worthy.
+Nevertheless you have a few names in Sardis that did not defile their garments. They will walk with me in white, for they are worthy.

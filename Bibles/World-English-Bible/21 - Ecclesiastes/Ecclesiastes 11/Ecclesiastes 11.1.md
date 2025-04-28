@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast thy bread upon the waters; for thou shalt find it after many days.
+Cast your bread on the waters; for you shall find it after many days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All they that know thee among the peoples shall be astonished at thee: thou art become a terror, and thou shalt nevermore have any being.
+All those who know you among the peoples shall be astonished at you: you have become a terror, and you shall nevermore have any being.

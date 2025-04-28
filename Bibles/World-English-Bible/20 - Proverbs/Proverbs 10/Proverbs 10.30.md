@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous shall never be removed; But the wicked shall not dwell in the land.
+The righteous will never be removed, but the wicked will not dwell in the land.

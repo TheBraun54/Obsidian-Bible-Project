@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I would not, brethren, have you ignorant, that our fathers were all under the cloud, and all passed through the sea;
+Now I would not have you ignorant, brothers, that our fathers were all under the cloud, and all passed through the sea;

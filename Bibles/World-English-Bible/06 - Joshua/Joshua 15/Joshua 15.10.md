@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border turned about from Baalah westward unto mount Seir, and passed along unto the side of mount Jearim on the north (the same is Chesalon), and went down to Beth-shemesh, and passed along by Timnah;
+and the border turned about from Baalah westward to Mount Seir, and passed along to the side of Mount Jearim on the north (the same is Chesalon), and went down to Beth Shemesh, and passed along by Timnah;

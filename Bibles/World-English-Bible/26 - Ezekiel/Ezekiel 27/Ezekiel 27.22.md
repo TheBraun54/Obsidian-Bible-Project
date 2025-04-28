@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The traffickers of Sheba and Raamah, they were thy traffickers; they traded for thy wares with the chief of all spices, and with all precious stones, and gold.
+The traffickers of Sheba and Raamah, they were your traffickers; they traded for your wares with the chief of all spices, and with all precious stones, and gold.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if ye cannot declare it unto me, then shall ye give me thirty linen garments and thirty changes of raiment. And they said unto him, Put forth thy riddle, that we may hear it.
+but if you can't declare it to me, then you shall give me thirty linen garments and thirty changes of clothing." They said to him, "Put forth your riddle, that we may hear it."

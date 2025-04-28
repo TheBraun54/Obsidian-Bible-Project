@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall cry unto me, My God, we Israel know thee.
+They cry to me, 'My God, we Israel acknowledge you!'

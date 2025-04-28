@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the vow of a widow, or of her that is divorced, [even] everything wherewith she hath bound her soul, shall stand against her.
+"But the vow of a widow, or of her who is divorced, [even] everything with which she has bound her soul, shall stand against her.

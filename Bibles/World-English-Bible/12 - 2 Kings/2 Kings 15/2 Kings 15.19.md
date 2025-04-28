@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There came against the land Pul the king of Assyria; and Menahem gave Pul a thousand talents of silver, that his hand might be with him to confirm the kingdom in his hand.
+There came against the land Pul the king of Assyria; and Menahem gave Pul one thousand talents of silver, that his hand might be with him to confirm the kingdom in his hand.

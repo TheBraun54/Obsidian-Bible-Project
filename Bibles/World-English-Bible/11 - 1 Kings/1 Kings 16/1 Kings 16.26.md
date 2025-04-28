@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he walked in all the way of Jeroboam the son of Nebat, and in his sins wherewith he made Israel to sin, to provoke Jehovah, the God of Israel, to anger with their vanities.
+For he walked in all the way of Jeroboam the son of Nebat, and in his sins with which he made Israel to sin, to provoke Yahweh, the God of Israel, to anger with their vanities.

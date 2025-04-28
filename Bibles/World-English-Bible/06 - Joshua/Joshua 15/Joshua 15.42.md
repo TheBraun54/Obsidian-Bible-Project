@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Libnah, and Ether, and Ashan,
+Libnah, Ether, Ashan,

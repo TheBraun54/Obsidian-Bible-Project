@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou instructed, O Jerusalem, lest my soul be alienated from thee; lest I make thee a desolation, a land not inhabited.
+Be instructed, Jerusalem, lest my soul be alienated from you; lest I make you a desolation, a land not inhabited."

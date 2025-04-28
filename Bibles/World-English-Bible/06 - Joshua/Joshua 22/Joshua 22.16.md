@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the whole congregation of Jehovah, What trespass is this that ye have committed against the God of Israel, to turn away this day from following Jehovah, in that ye have builded you an altar, to rebel this day against Jehovah?
+"Thus says the whole congregation of Yahweh, 'What trespass is this that you have committed against the God of Israel, to turn away this day from following Yahweh, in that you have built you an altar, to rebel this day against Yahweh?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye were bought with a price; become not bondservants of men.
+You were bought with a price. Don't become bondservants of men.

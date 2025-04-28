@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said, Father, forgive them; for they know not what they do. And parting his garments among them, they cast lots.
+Jesus said, "Father, forgive them, for they don't know what they are doing." Dividing his garments among them, they cast lots.

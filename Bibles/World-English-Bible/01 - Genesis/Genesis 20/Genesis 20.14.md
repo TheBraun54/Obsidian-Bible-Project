@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech took sheep and oxen, and men-servants and women-servants, and gave them unto Abraham, and restored him Sarah his wife.
+Abimelech took sheep and cattle, male servants and female servants, and gave them to Abraham, and restored Sarah, his wife, to him.

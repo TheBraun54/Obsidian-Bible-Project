@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely the Lord Jehovah will do nothing, except he reveal his secret unto his servants the prophets.
+Surely the Lord Yahweh will do nothing, unless he reveals his secret to his servants the prophets.

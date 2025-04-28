@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the captains of the chariots saw Jehoshaphat, that they said, Surely it is the king of Israel; and they turned aside to fight against him: and Jehoshaphat cried out.
+It happened, when the captains of the chariots saw Jehoshaphat, that they said, "Surely that is the king of Israel!" and they turned aside to fight against him. Jehoshaphat cried out.

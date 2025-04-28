@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also that every man should eat and drink, and enjoy good in all his labor, is the gift of God.
+Also that every man should eat and drink, and enjoy good in all his labor, is the gift of God.

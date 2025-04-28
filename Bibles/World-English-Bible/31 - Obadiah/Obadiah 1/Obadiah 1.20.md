@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the captives of this host of the children of Israel, that are [among] the Canaanites, [shall possess] even unto Zarephath; and the captives of Jerusalem, that are in Sepharad, shall possess the cities of the South.
+The captives of this army of the children of Israel, who are among the Canaanites, will possess even to Zarephath; and the captives of Jerusalem, who are in Sepharad, will possess the cities of the Negev.

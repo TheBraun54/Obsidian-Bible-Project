@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Uzziah slept with his fathers; and they buried him with his fathers in the field of burial which belonged to the kings; for they said, He is a leper: and Jotham his son reigned in his stead.
+So Uzziah slept with his fathers; and they buried him with his fathers in the field of burial which belonged to the kings; for they said, "He is a leper." Jotham his son reigned in his place.

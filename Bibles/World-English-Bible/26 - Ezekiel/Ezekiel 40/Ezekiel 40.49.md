@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The length of the porch was twenty cubits, and the breadth eleven cubits; even by the steps whereby they went up to it: and there were pillars by the posts, one on this side, and another on that side.
+The length of the porch was twenty cubits, and the breadth eleven cubits; even by the steps by which they went up to it: and there were pillars by the posts, one on this side, and another on that side.

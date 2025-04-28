@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if we discerned ourselves, we should not be judged.
+For if we discerned ourselves, we wouldn't be judged.

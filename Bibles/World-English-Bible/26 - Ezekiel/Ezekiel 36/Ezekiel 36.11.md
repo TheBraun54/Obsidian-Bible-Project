@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will multiply upon you man and beast; and they shall increase and be fruitful; and I will cause you to be inhabited after your former estate, and will do better [unto you] than at your beginnings: and ye shall know that I am Jehovah.
+and I will multiply on you man and animal; and they shall increase and be fruitful; and I will cause you to be inhabited after your former estate, and will do better [to you] than at your beginnings: and you shall know that I am Yahweh.

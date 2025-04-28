@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did Moses, and Aaron, and all the congregation of the children of Israel, unto the Levites: according unto all that Jehovah commanded Moses touching the Levites, so did the children of Israel unto them.
+Moses, and Aaron, and all the congregation of the children of Israel did so to the Levites. According to all that Yahweh commanded Moses concerning the Levites, so the children of Israel did to them.

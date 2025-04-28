@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah Most High is terrible; He is a great King over all the earth.
+For Yahweh Most High is awesome. He is a great King over all the earth.

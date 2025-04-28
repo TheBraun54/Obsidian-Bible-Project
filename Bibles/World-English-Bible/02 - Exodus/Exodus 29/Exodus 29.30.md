@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seven days shall the son that is priest in his stead put them on, when he cometh into the tent of meeting to minister in the holy place.
+Seven days shall the son who is priest in his place put them on, when he comes into the Tent of Meeting to minister in the holy place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And hath delivered us from our adversaries; For his lovingkindness [endureth] for ever:
+And has delivered us from our adversaries; for his loving kindness endures forever:

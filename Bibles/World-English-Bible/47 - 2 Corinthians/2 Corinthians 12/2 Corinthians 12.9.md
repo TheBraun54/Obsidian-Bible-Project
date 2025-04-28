@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath said unto me, My grace is sufficient for thee: for [my] power is made perfect in weakness. Most gladly therefore will I rather glory in my weaknesses, that the power of Christ may rest upon me.
+He has said to me, "My grace is sufficient for you, for my power is made perfect in weakness." Most gladly therefore I will rather glory in my weaknesses, that the power of Christ may rest on me.

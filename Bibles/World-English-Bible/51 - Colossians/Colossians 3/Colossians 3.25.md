@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that doeth wrong shall receive again for the wrong that he hath done: and there is no respect of persons.
+But he who does wrong will receive again for the wrong that he has done, and there is no partiality.

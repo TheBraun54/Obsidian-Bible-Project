@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Absalom fled, and went to Talmai the son of Ammihur, king of Geshur. And [David] mourned for his son every day.
+But Absalom fled, and went to Talmai the son of Ammihur, king of Geshur. David mourned for his son every day.

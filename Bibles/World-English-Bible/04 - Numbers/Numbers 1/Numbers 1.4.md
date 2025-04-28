@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with you there shall be a man of every tribe; every one head of his fathers' house.
+With you there shall be a man of every tribe; everyone head of his fathers' house.

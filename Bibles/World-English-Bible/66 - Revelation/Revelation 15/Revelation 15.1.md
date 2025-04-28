@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw another sign in heaven, great and marvellous, seven angels having seven plagues, [which are] the last, for in them is finished the wrath of God.
+I saw another great and marvelous sign in the sky: seven angels having the seven last plagues, for in them God's wrath is finished.

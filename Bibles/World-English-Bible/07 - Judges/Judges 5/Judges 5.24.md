@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed above women shall Jael be, The wife of Heber the Kenite; Blessed shall she be above women in the tent.
+"Jael shall be blessed above women, the wife of Heber the Kenite; blessed shall she be above women in the tent.

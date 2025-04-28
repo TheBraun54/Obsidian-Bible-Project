@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if his oblation be of the flock, of the sheep, or of the goats, for a burnt-offering; he shall offer it a male without blemish.
+"'If his offering is from the flock, from the sheep, or from the goats, for a burnt offering, he shall offer a male without blemish.

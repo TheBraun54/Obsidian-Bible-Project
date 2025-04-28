@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the Levites in the house of Jehovah with cymbals, with psalteries, and with harps, according to the commandment of David, and of Gad the king's seer, and Nathan the prophet; for the commandment was of Jehovah by his prophets.
+He set the Levites in the house of Yahweh with cymbals, with stringed instruments, and with harps, according to the commandment of David, and of Gad the king's seer, and Nathan the prophet; for the commandment was of Yahweh by his prophets.

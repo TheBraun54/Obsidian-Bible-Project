@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye have not known him: but I know him; and if I should say, I know him not, I shall be like unto you, a liar: but I know him, and keep his word.
+You have not known him, but I know him. If I said, 'I don't know him,' I would be like you, a liar. But I know him, and keep his word.

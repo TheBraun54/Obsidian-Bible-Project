@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my master made me swear, saying, Thou shalt not take a wife for my son of the daughters of the Canaanites, in whose land I dwell:
+My master made me swear, saying, 'You shall not take a wife for my son of the daughters of the Canaanites, in whose land I live,

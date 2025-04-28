@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there are diversities of ministrations, and the same Lord.
+There are various kinds of service, and the same Lord.

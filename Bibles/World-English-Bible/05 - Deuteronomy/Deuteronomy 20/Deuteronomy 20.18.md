@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they teach you not to do after all their abominations, which they have done unto their gods; so would ye sin against Jehovah your God.
+that they not teach you to do after all their abominations, which they have done to their gods; so would you sin against Yahweh your God.

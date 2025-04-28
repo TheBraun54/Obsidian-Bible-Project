@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy priest be clothed with righteousness; And let thy saints shout for joy.
+Let your priest be clothed with righteousness. Let your saints shout for joy!"

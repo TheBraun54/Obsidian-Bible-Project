@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet setteth he the needy on high from affliction, And maketh [him] families like a flock.
+Yet he lifts the needy out of their affliction, and increases their families like a flock.

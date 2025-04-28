@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall not they teach thee, and tell thee, And utter words out of their heart?
+Shall they not teach you, tell you, and utter words out of their heart?

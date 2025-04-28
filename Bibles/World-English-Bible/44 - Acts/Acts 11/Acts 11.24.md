@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he was a good man, and full of the Holy Spirit and of faith: and much people was added unto the Lord.
+For he was a good man, and full of the Holy Spirit and of faith, and many people were added to the Lord.

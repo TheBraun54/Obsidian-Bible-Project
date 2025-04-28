@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, I beheld Satan fallen as lightning from heaven.
+He said to them, "I saw Satan having fallen like lightning from heaven.

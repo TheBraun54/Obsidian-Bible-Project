@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he numbered them in Bezek; and the children of Israel were three hundred thousand, and the men of Judah thirty thousand.
+He numbered them in Bezek; and the children of Israel were three hundred thousand, and the men of Judah thirty thousand.

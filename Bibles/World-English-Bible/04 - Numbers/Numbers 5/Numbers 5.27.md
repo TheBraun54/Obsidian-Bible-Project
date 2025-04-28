@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he hath made her drink the water, then it shall come to pass, if she be defiled, and have committed a trespass against her husband, that the water that causeth the curse shall enter into her [and become] bitter, and her body shall swell, and her thigh shall fall away: and the woman shall be a curse among her people.
+When he has made her drink the water, then it shall happen, if she is defiled, and has committed a trespass against her husband, that the water that causes the curse will enter into her and become bitter, and her body will swell, and her thigh will fall away: and the woman will be a curse among her people.

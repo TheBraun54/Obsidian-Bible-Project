@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our mouth is open unto you, O Corinthians, our heart is enlarged.
+Our mouth is open to you, Corinthians. Our heart is enlarged.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this he said not of himself: but, being high priest that year, he prophesied that Jesus should die for the nation;
+Now he didn't say this of himself, but being high priest that year, he prophesied that Jesus would die for the nation,

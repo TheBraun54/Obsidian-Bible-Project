@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The anger of Jehovah shall not return, until he have executed, and till he have performed the intents of his heart: in the latter days ye shall understand it perfectly.
+The anger of Yahweh shall not return, until he has executed, and until he have performed the intents of his heart: in the latter days you shall understand it perfectly.

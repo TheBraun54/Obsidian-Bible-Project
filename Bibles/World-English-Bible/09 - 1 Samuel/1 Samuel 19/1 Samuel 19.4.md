@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan spake good of David unto Saul his father, and said unto him, Let not the king sin against his servant, against David; because he hath not sinned against thee, and because his works have been to thee-ward very good:
+Jonathan spoke good of David to Saul his father, and said to him, "Don't let the king sin against his servant, against David; because he has not sinned against you, and because his works have been very good toward you;

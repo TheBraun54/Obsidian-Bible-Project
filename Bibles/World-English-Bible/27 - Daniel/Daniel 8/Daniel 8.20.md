@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ram which thou sawest, that had the two horns, they are the kings of Media and Persia.
+The ram which you saw, that had the two horns, they are the kings of Media and Persia.

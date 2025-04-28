@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, The whole land shall be a desolation; yet will I not make a full end.
+For thus says Yahweh, "The whole land shall be a desolation; yet will I not make a full end.

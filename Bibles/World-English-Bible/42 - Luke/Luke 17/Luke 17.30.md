@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-after the same manner shall it be in the day that the Son of man is revealed.
+It will be the same way in the day that the Son of Man is revealed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Observe and hear all these words which I command thee, that it may go well with thee, and with thy children after thee for ever, when thou doest that which is good and right in the eyes of Jehovah thy God.
+Observe and hear all these words which I command you, that it may go well with you, and with your children after you forever, when you do that which is good and right in the eyes of Yahweh your God.

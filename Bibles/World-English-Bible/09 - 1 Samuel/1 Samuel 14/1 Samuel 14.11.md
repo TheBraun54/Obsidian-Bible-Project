@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And both of them disclosed themselves unto the garrison of the Philistines: and the Philistines said, Behold, the Hebrews come forth out of the holes where they had hid themselves.
+Both of them revealed themselves to the garrison of the Philistines: and the Philistines said, "Behold, the Hebrews are coming out of the holes where they had hidden themselves!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will cut down the thickets of the forest with iron, and Lebanon shall fall by a mighty one.
+He will cut down the thickets of the forest with iron, and Lebanon will fall by the Mighty One.

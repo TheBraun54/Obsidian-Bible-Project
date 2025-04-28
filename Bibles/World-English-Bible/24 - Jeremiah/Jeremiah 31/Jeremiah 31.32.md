@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not according to the covenant that I made with their fathers in the day that I took them by the hand to bring them out of the land of Egypt; which my covenant they brake, although I was a husband unto them, saith Jehovah.
+not according to the covenant that I made with their fathers in the day that I took them by the hand to bring them out of the land of Egypt; which my covenant they broke, although I was a husband to them, says Yahweh.

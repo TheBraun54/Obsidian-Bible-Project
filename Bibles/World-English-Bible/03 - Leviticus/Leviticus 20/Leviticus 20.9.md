@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every one that curseth his father or his mother shall surely be put to death: he hath cursed his father or his mother; his blood shall be upon him.
+"'For everyone who curses his father or his mother shall surely be put to death: he has cursed his father or his mother; his blood shall be upon him.

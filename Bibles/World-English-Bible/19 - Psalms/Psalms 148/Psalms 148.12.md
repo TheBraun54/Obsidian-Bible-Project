@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Both young men and virgins; Old men and children:
+both young men and maidens; old men and children:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be in the last days, saith God, I will pour forth of my Spirit upon all flesh: And your sons and your daughters shall prophesy, And your young men shall see visions, And your old men shall dream dreams:
+'It will be in the last days, says God, that I will pour out my Spirit on all flesh. Your sons and your daughters will prophesy. Your young men will see visions. Your old men will dream dreams.

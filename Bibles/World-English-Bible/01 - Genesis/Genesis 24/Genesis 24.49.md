@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now if ye will deal kindly and truly with my master, tell me: and if not, tell me; that I may turn to the right hand, or to the left.
+Now if you will deal kindly and truly with my master, tell me. If not, tell me, that I may turn to the right hand, or to the left."

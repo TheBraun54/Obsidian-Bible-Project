@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But neither he, nor his servants, nor the people of the land, did hearken unto the words of Jehovah, which he spake by the prophet Jeremiah.
+But neither he, nor his servants, nor the people of the land, did listen to the words of Yahweh, which he spoke by the prophet Jeremiah.

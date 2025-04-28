@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he went in, and stood before his master. And Elisha said unto him, Whence comest thou, Gehazi? And he said, Thy servant went no whither.
+But he went in, and stood before his master. Elisha said to him, "Where did you come from, Gehazi?" He said, "Your servant went nowhere."

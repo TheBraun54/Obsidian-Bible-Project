@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If [any of] thine outcasts be in the uttermost parts of heaven, from thence will Jehovah thy God gather thee, and from thence will he fetch thee:
+If [any of] your outcasts are in the uttermost parts of the heavens, from there will Yahweh your God gather you, and from there he will bring you back:

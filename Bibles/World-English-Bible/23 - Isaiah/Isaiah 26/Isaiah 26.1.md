@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall this song be sung in the land of Judah: we have a strong city; salvation will he appoint for walls and bulwarks.
+In that day, this song will be sung in the land of Judah: "We have a strong city. God appoints salvation for walls and bulwarks.

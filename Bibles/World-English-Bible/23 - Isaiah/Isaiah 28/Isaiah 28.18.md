@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your covenant with death shall be annulled, and your agreement with Sheol shall not stand; when the overflowing scourge shall pass through, then ye shall be trodden down by it.
+Your covenant with death shall be annulled, and your agreement with Sheol shall not stand. When the overflowing scourge passes through, then you will be trampled down by it.

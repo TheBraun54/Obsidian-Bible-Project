@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom dwelt two full years in Jerusalem; and he saw not the king's face.
+Absalom lived two full years in Jerusalem; and he didn't see the king's face.

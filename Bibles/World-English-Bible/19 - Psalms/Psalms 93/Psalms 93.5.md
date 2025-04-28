@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy testimonies are very sure: Holiness becometh thy house, O Jehovah, for evermore.
+Your statutes stand firm. Holiness adorns your house, Yahweh, forevermore.

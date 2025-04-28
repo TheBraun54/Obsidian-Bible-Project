@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherein ye also once walked, when ye lived in these things;
+You also once walked in those, when you lived in them;

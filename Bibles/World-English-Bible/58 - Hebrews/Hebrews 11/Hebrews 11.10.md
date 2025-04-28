@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he looked for the city which hath the foundations, whose builder and maker is God.
+For he looked for the city which has the foundations, whose builder and maker is God.

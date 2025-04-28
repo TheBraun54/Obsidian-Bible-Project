@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel heard say, Behold, the children of Reuben and the children of Gad and the half-tribe of Manasseh have built an altar in the forefront of the land of Canaan, in the region about the Jordan, on the side that pertaineth to the children of Israel.
+The children of Israel heard this, "Behold, the children of Reuben and the children of Gad and the half-tribe of Manasseh have built an altar in the forefront of the land of Canaan, in the region about the Jordan, on the side that pertains to the children of Israel."

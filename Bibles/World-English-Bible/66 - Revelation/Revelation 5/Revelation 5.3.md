@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no one in the heaven, or on the earth, or under the earth, was able to open the book, or to look thereon.
+No one in heaven above, or on the earth, or under the earth, was able to open the book, or to look in it.

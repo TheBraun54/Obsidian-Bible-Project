@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king sware, and said, As Jehovah liveth, who hath redeemed my soul out of all adversity,
+The king swore, and said, "As Yahweh lives, who has redeemed my soul out of all adversity,

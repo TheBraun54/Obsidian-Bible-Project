@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why then hast thou not kept the oath of Jehovah, and the commandment that I have charged thee with?
+Why then have you not kept the oath of Yahweh, and the commandment that I have instructed you with?"

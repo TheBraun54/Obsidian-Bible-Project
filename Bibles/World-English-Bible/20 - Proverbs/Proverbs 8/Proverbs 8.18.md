@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Riches and honor are with me; [Yea], durable wealth and righteousness.
+With me are riches, honor, enduring wealth, and prosperity.

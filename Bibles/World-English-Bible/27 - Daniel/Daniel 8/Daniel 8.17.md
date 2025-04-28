@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he came near where I stood; and when he came, I was affrighted, and fell upon my face: but he said unto me, Understand, O son of man; for the vision belongeth to the time of the end.
+So he came near where I stood; and when he came, I was frightened, and fell on my face: but he said to me, Understand, son of man; for the vision belongs to the time of the end.

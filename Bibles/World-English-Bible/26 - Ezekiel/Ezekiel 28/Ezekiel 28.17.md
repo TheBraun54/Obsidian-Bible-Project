@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy heart was lifted up because of thy beauty; thou hast corrupted thy wisdom by reason of thy brightness: I have cast thee to the ground; I have laid thee before kings, that they may behold thee.
+Your heart was lifted up because of your beauty; you have corrupted your wisdom by reason of your brightness: I have cast you to the ground; I have laid you before kings, that they may see you.

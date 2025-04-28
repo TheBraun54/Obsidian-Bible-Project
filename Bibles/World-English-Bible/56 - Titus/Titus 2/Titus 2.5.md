@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ to be] sober-minded, chaste, workers at home, kind, being in subjection to their own husbands, that the word of God be not blasphemed:
+to be sober minded, chaste, workers at home, kind, being in subjection to their own husbands, that God's word may not be blasphemed.

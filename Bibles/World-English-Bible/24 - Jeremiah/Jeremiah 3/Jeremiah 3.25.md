@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us lie down in our shame, and let our confusion cover us; for we have sinned against Jehovah our God, we and our fathers, from our youth even unto this day; and we have not obeyed the voice of Jehovah our God.
+Let us lie down in our shame, and let our confusion cover us; for we have sinned against Yahweh our God, we and our fathers, from our youth even to this day. We have not obeyed the voice of Yahweh our God."

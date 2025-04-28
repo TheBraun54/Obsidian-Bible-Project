@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As far as the east is from the west, So far hath he removed our transgressions from us.
+As far as the east is from the west, so far has he removed our transgressions from us.

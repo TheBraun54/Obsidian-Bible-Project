@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Daniel requested of the king, and he appointed Shadrach, Meshach, and Abed-nego, over the affairs of the province of Babylon: but Daniel was in the gate of the king.
+Daniel requested of the king, and he appointed Shadrach, Meshach, and Abednego, over the affairs of the province of Babylon: but Daniel was in the gate of the king.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the staves of acacia wood, and overlay them with gold.
+You shall make the poles of acacia wood, and overlay them with gold.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and brought them out and said, Sirs, what must I do to be saved?
+and brought them out and said, "Sirs, what must I do to be saved?"

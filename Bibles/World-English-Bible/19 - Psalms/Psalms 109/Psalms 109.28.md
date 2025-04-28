@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them curse, but bless thou: When they arise, they shall be put to shame, But thy servant shall rejoice.
+They may curse, but you bless. When they arise, they will be shamed, but your servant shall rejoice.

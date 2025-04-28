@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The days of our years are threescore years and ten, Or even by reason of strength fourscore years; Yet is their pride but labor and sorrow; For it is soon gone, and we fly away.
+The days of our years are seventy, or even by reason of strength eighty years; yet their pride is but labor and sorrow, for it passes quickly, and we fly away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I exhorted thee to tarry at Ephesus, when I was going into Macedonia, that thou mightest charge certain men not to teach a different doctrine,
+As I urged you when I was going into Macedonia, stay at Ephesus that you might command certain men not to teach a different doctrine,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. [A Psalm] of David]. In Jehovah do I take refuge: How say ye to my soul, Flee [as] a bird to your mountain;
+In Yahweh, I take refuge. How can you say to my soul, "Flee as a bird to your mountain!"

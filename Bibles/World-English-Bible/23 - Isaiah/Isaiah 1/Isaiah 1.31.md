@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the strong shall be as tow, and his work as a spark; and they shall both burn together, and none shall quench them.
+The strong will be like tinder, and his work like a spark. They will both burn together, and no one will quench them."

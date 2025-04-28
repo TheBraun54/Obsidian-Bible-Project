@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, The God of our fathers hath appointed thee to know his will, and to see the Righteous One, and to hear a voice from his mouth.
+He said, 'The God of our fathers has appointed you to know his will, and to see the Righteous One, and to hear a voice from his mouth.

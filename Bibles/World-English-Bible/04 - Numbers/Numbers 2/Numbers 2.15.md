@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his host, and those that were numbered of them, were forty and five thousand and six hundred and fifty.
+His division, and those who were numbered of them, were forty-five thousand six hundred fifty.

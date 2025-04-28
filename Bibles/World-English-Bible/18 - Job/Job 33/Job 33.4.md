@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Spirit of God hath made me, And the breath of the Almighty giveth me life.
+The Spirit of God has made me, and the breath of the Almighty gives me life.

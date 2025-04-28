@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will fetch my knowledge from afar, And will ascribe righteousness to my Maker.
+I will get my knowledge from afar, and will ascribe righteousness to my Maker.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servant took ten camels, of the camels of his master, and departed, having all goodly things of his master's in his hand: and he arose, and went to Mesopotamia, unto the city of Nahor.
+The servant took ten camels, of his master's camels, and departed, having a variety of good things of his master's with him. He arose, and went to Mesopotamia, to the city of Nahor.

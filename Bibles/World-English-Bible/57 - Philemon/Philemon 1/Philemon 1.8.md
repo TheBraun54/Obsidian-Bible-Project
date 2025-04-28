@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, though I have all boldness in Christ to enjoin thee that which is befitting,
+Therefore, though I have all boldness in Christ to command you that which is appropriate,

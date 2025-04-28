@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore, What is this that he saith, A little while? We know not what he saith.
+They said therefore, "What is this that he says, 'A little while?' We don't know what he is saying."

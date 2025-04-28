@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Phinehas the son of Eleazar the priest said unto the children of Reuben, and to the children of Gad, and to the children of Manasseh, This day we know that Jehovah is in the midst of us, because ye have not committed this trespass against Jehovah: now have ye delivered the children of Israel out of the hand of Jehovah.
+Phinehas the son of Eleazar the priest said to the children of Reuben, to the children of Gad, and to the children of Manasseh, "Today we know that Yahweh is in the midst of us, because you have not committed this trespass against Yahweh. Now you have delivered the children of Israel out of the hand of Yahweh."

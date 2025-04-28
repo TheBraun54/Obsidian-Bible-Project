@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: For three transgressions of Gaza, yea, for four, I will not turn away the punishment thereof; because they carried away captive the whole people, to deliver them up to Edom. [
+Thus says Yahweh: "For three transgressions of Gaza, yes, for four, I will not turn away its punishment; because they carried away captive the whole community, to deliver them up to Edom;

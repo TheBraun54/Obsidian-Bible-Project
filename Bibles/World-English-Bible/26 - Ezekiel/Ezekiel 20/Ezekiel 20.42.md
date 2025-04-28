@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall know that I am Jehovah, when I shall bring you into the land of Israel, into the country which I sware to give unto your fathers.
+You shall know that I am Yahweh, when I shall bring you into the land of Israel, into the country which I swore to give to your fathers.

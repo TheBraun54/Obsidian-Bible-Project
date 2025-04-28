@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the three mighty men brake through the host of the Philistines, and drew water out of the well of Beth-lehem, that was by the gate, and took it, and brought it to David: but he would not drink thereof, but poured it out unto Jehovah.
+The three mighty men broke through the army of the Philistines, and drew water out of the well of Bethlehem, that was by the gate, and took it, and brought it to David: but he would not drink of it, but poured it out to Yahweh.

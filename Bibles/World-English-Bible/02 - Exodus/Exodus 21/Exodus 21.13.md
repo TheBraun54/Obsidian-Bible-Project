@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man lie not in wait, but God deliver [him] into his hand; then I will appoint thee a place whither he shall flee.
+but not if it is unintentional, but God allows it to happen: then I will appoint you a place where he shall flee.

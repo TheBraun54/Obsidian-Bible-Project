@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In like manner also the chief priests mocking [him] among themselves with the scribes said, He saved others; himself he cannot save.
+Likewise, also the chief priests mocking among themselves with the scribes said, "He saved others. He can't save himself.

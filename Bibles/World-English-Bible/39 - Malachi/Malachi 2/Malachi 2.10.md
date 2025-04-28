@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have we not all one father? hath not one God created us? why do we deal treacherously every man against his brother, profaning the covenant of our fathers?
+Don't we all have one father? Hasn't one God created us? Why do we deal treacherously every man against his brother, profaning the covenant of our fathers?

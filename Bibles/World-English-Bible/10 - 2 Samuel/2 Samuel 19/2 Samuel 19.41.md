@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, all the men of Israel came to the king, and said unto the king, Why have our brethren the men of Judah stolen thee away, and brought the king, and his household, over the Jordan, and all David's men with him?
+Behold, all the men of Israel came to the king, and said to the king, "Why have our brothers the men of Judah stolen you away, and brought the king, and his household, over the Jordan, and all David's men with him?"

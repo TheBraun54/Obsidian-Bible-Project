@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeremiah wrote in a book all the evil that should come upon Babylon, even all these words that are written concerning Babylon.
+Jeremiah wrote in a book all the evil that should come on Babylon, even all these words that are written concerning Babylon.

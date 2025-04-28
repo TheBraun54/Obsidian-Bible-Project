@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That I may cause those that love me to inherit substance, And that I may fill their treasuries.
+That I may give wealth to those who love me. I fill their treasuries.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My net also will I spread upon him, and he shall be taken in my snare; and I will bring him to Babylon to the land of the Chaldeans; yet shall he not see it, though he shall die there.
+My net also will I spread on him, and he shall be taken in my snare; and I will bring him to Babylon to the land of the Chaldeans; yet shall he not see it, though he shall die there.

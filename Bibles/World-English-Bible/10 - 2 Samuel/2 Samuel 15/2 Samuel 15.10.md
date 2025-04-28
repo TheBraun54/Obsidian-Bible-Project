@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Absalom sent spies throughout all the tribes of Israel, saying, As soon as ye hear the sound of the trumpet, then ye shall say, Absalom is king in Hebron.
+But Absalom sent spies throughout all the tribes of Israel, saying, "As soon as you hear the sound of the trumpet, then you shall say, 'Absalom is king in Hebron!'"

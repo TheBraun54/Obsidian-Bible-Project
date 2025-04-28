@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the drunkard and the glutton shall come to poverty; And drowsiness will clothe [a man] with rags.
+for the drunkard and the glutton shall become poor; and drowsiness clothes them in rags.

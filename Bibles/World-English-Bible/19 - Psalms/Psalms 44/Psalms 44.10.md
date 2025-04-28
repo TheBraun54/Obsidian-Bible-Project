@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou makest us to turn back from the adversary; And they that hate us take spoil for themselves.
+You make us turn back from the adversary. Those who hate us take spoil for themselves.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stood before the altar of Jehovah in the presence of all the assembly of Israel, and spread forth his hands;
+He stood before the altar of Yahweh in the presence of all the assembly of Israel, and spread forth his hands

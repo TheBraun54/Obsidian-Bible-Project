@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou makest us a byword among the nations, A shaking of the head among the peoples.
+You make us a byword among the nations, a shaking of the head among the peoples.

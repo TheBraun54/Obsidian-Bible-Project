@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not be afraid of evil tidings: His heart is fixed, trusting in Jehovah.
+He will not be afraid of evil news. His heart is steadfast, trusting in Yahweh.

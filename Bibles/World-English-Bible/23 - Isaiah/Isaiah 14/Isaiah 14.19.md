@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou art cast forth away from thy sepulchre like an abominable branch, clothed with the slain, that are thrust through with the sword, that go down to the stones of the pit; as a dead body trodden under foot.
+But you are cast away from your tomb like an abominable branch, clothed with the slain, who are thrust through with the sword, who go down to the stones of the pit; like a dead body trodden under foot.

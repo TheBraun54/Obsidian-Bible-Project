@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, came this word from Jehovah, saying,
+In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, came this word from Yahweh, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gird up now thy loins like a man; For I will demand of thee, and declare thou unto me.
+Brace yourself like a man, for I will question you, then you answer me!

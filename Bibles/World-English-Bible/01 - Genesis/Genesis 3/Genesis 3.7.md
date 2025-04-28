@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the eyes of them both were opened, and they knew that they were naked; and they sewed fig-leaves together, and made themselves aprons.
+The eyes of both of them were opened, and they knew that they were naked. They sewed fig leaves together, and made themselves aprons.

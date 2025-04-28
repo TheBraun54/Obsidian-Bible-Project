@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram was very rich in cattle, in silver, and in gold.
+Abram was very rich in livestock, in silver, and in gold.

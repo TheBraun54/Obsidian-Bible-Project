@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt stumble in the day, and the prophet also shall stumble with thee in the night; and I will destroy thy mother.
+You will stumble in the day, and the prophet will also stumble with you in the night; and I will destroy your mother.

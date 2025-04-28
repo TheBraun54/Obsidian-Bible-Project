@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But your wives, and your little ones, and your cattle, (I know that ye have much cattle,) shall abide in your cities which I have given you,
+But your wives, and your little ones, and your livestock, (I know that you have much livestock), shall live in your cities which I have given you,

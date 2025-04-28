@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereby, when ye read, ye can perceive my understanding in the mystery of Christ;
+by which, when you read, you can perceive my understanding in the mystery of Christ;

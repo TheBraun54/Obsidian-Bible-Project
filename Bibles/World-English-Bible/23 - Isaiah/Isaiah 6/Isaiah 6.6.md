@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then flew one of the seraphim unto me, having a live coal in his hand, which he had taken with the tongs from off the altar:
+Then one of the seraphim flew to me, having a live coal in his hand, which he had taken with the tongs from off the altar.

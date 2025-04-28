@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The soul of the sluggard desireth, and hath nothing; But the soul of the diligent shall be made fat.
+The soul of the sluggard desires, and has nothing, but the desire of the diligent shall be fully satisfied.

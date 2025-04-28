@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He taketh away understanding from the chiefs of the people of the earth, And causeth them to wander in a wilderness where there is no way.
+He takes away understanding from the chiefs of the people of the earth, and causes them to wander in a wilderness where there is no way.

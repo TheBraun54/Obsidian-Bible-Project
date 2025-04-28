@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will sing unto Jehovah as long as I live: I will sing praise to my God while I have any being.
+I will sing to Yahweh as long as I live. I will sing praise to my God while I have any being.

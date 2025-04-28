@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt write them upon the door-posts of thy house, and upon thy gates.
+You shall write them on the door posts of your house, and on your gates.

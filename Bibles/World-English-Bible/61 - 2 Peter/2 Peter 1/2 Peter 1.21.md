@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For no prophecy ever came by the will of man: but men spake from God, being moved by the Holy Spirit.
+For no prophecy ever came by the will of man: but holy men of God spoke, being moved by the Holy Spirit.

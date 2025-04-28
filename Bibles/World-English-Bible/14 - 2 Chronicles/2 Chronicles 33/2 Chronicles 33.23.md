@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he humbled not himself before Jehovah, as Manasseh his father had humbled himself; but this same Amon trespassed more and more.
+He didn't humble himself before Yahweh, as Manasseh his father had humbled himself; but this same Amon trespassed more and more.

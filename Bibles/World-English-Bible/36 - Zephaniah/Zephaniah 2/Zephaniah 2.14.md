@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And herds shall lie down in the midst of her, all the beasts of the nations: both the pelican and the porcupine shall lodge in the capitals thereof; [their] voice shall sing in the windows; desolation shall be in the thresholds: for he hath laid bare the cedar-work.
+Herds will lie down in the midst of her, all the animals of the nations. Both the pelican and the porcupine will lodge in its capitals. Their calls will echo through the windows. Desolation will be in the thresholds, for he has laid bare the cedar beams.

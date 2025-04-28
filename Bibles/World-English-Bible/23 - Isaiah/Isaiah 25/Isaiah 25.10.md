@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in this mountain will the hand of Jehovah rest; and Moab shall be trodden down in his place, even as straw is trodden down in the water of the dunghill.
+For in this mountain the hand of Yahweh will rest. Moab will be trodden down in his place, even like straw is trodden down in the water of the dunghill.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jesus saw him lying, and knew that he had been now a long time [in that case], he saith unto him, Wouldest thou be made whole?
+When Jesus saw him lying there, and knew that he had been sick for a long time, he asked him, "Do you want to be made well?"

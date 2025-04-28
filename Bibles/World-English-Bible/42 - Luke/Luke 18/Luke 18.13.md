@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the publican, standing afar off, would not lift up so much as his eyes unto heaven, but smote his breast, saying, God, be thou merciful to me a sinner.
+But the tax collector, standing far away, wouldn't even lift up his eyes to heaven, but beat his breast, saying, 'God, be merciful to me, a sinner!'

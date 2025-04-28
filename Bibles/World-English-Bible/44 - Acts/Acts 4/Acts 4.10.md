@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-be it known unto you all, and to all the people of Israel, that in the name of Jesus Christ of Nazareth, whom ye crucified, whom God raised from the dead, [even] in him doth this man stand here before you whole.
+be it known to you all, and to all the people of Israel, that in the name of Jesus Christ of Nazareth, whom you crucified, whom God raised from the dead, in him does this man stand here before you whole.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for ye know how we dwelt in the land of Egypt, and how we came through the midst of the nations through which ye passed;
+(for you know how we lived in the land of Egypt, and how we came through the midst of the nations through which you passed;

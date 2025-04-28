@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But on the morrow they left the horsemen to go with him, and returned to the castle:
+But on the next day they left the horsemen to go with him, and returned to the barracks.

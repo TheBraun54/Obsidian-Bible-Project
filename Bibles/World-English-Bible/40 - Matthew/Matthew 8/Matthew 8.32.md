@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Go. And they came out, and went into the swine: and behold, the whole herd rushed down the steep into the sea, and perished in the waters.
+He said to them, "Go!" They came out, and went into the herd of pigs: and behold, the whole herd of pigs rushed down the cliff into the sea, and died in the water.

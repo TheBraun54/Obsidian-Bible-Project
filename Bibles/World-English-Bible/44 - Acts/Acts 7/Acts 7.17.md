@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as the time of the promise drew nigh which God vouchsafed unto Abraham, the people grew and multiplied in Egypt,
+"But as the time of the promise came close which God had sworn to Abraham, the people grew and multiplied in Egypt,

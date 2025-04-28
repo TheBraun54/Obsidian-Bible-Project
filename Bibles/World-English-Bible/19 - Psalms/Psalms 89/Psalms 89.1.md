@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Maschil of Ethan the Ezrahite]. I will sing of the lovingkindness of Jehovah for ever: With my mouth will I make known thy faithfulness to all generations.
+I will sing of the loving kindness of Yahweh forever. With my mouth, I will make known your faithfulness to all generations.

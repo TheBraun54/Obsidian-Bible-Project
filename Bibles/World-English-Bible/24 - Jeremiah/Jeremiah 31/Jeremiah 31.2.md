@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, The people that were left of the sword found favor in the wilderness; even Israel, when I went to cause him to rest.
+Thus says Yahweh, The people who were left of the sword found favor in the wilderness; even Israel, when I went to cause him to rest.

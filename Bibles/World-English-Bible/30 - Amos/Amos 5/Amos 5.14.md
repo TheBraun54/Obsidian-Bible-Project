@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seek good, and not evil, that ye may live; and so Jehovah, the God of hosts, will be with you, as ye say.
+Seek good, and not evil, that you may live; and so Yahweh, the God of Armies, will be with you, as you say.

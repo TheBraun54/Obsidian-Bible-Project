@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for we brought nothing into the world, for neither can we carry anything out;
+For we brought nothing into the world, and we certainly can't carry anything out.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have not sat with men of falsehood; Neither will I go in with dissemblers.
+I have not sat with deceitful men, neither will I go in with hypocrites.

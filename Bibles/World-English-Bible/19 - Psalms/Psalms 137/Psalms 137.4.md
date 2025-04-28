@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How shall we sing Jehovah's song In a foreign land?
+How can we sing Yahweh's song in a foreign land?

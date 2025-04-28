@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is vain for you to rise up early, To take rest late, To eat the bread of toil; [For] so he giveth unto his beloved sleep.
+It is vain for you to rise up early, to stay up late, eating the bread of toil; for he gives sleep to his loved ones.

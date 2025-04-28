@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For David ascended not into the heavens: but he saith himself, The Lord said unto my Lord, Sit thou on my right hand,
+For David didn't ascend into the heavens, but he says himself, 'The Lord said to my Lord, "Sit by my right hand,

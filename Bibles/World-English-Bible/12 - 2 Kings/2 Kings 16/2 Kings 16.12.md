@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the king was come from Damascus, the king saw the altar: and the king drew near unto the altar, and offered thereon.
+When the king was come from Damascus, the king saw the altar: and the king drew near to the altar, and offered thereon.

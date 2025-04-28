@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let no man therefore despise him. But set him forward on his journey in peace, that he may come unto me: for I expect him with the brethren.
+Therefore let no one despise him. But set him forward on his journey in peace, that he may come to me; for I expect him with the brothers.

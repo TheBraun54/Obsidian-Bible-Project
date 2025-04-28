@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there appeared unto him an angel of the Lord standing on the right side of altar of incense.
+An angel of the Lord appeared to him, standing on the right side of the altar of incense.

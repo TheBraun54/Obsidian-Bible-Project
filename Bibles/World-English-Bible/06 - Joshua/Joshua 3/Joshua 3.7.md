@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Joshua, This day will I begin to magnify thee in the sight of all Israel, that they may know that, as I was with Moses, so I will be with thee.
+Yahweh said to Joshua, "Today I will begin to magnify you in the sight of all Israel, that they may know that as I was with Moses, so I will be with you.

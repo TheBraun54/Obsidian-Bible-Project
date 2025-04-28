@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the sons of Oholibamah, Esau's wife: chief Jeush, chief Jalam, chief Korah: these are the chiefs that came of Oholibamah the daughter of Anah, Esau's wife.
+These are the sons of Oholibamah, Esau's wife: chief Jeush, chief Jalam, chief Korah: these are the chiefs who came of Oholibamah the daughter of Anah, Esau's wife.

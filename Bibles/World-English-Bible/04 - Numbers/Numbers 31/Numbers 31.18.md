@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all the women-children, that have not known man by lying with him, keep alive for yourselves.
+But all the girls, who have not known man by lying with him, keep alive for yourselves.

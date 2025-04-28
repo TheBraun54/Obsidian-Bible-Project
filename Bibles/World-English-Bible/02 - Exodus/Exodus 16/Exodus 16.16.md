@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the thing which Jehovah hath commanded. Gather ye of it every man according to his eating; an omer a head, according to the number of your persons, shall ye take it, every man for them that are in his tent.
+This is the thing which Yahweh has commanded: "Gather of it everyone according to his eating; an omer a head, according to the number of your persons, you shall take it, every man for those who are in his tent."

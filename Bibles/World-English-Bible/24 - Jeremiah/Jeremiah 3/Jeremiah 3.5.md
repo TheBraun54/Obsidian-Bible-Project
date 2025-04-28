@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will he retain [his anger] for ever? will he keep it to the end? Behold, thou hast spoken and hast done evil things, and hast had thy way.
+"'Will he retain [his anger] forever? Will he keep it to the end?' Behold, you have spoken and have done evil things, and have had your way."

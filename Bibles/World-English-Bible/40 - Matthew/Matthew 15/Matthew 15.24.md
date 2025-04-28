@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said, I was not sent but unto the lost sheep of the house of Israel.
+But he answered, "I wasn't sent to anyone but the lost sheep of the house of Israel."

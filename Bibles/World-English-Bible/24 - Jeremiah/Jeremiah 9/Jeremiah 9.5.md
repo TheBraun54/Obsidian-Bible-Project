@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they will deceive every one his neighbor, and will not speak the truth: they have taught their tongue to speak lies; they weary themselves to commit iniquity.
+They will deceive everyone his neighbor, and will not speak the truth: they have taught their tongue to speak lies; they weary themselves to commit iniquity.

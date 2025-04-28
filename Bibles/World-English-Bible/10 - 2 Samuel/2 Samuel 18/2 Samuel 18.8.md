@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the battle was there spread over the face of all the country; and the forest devoured more people that day than the sword devoured.
+For the battle was there spread over the surface of all the country; and the forest devoured more people that day than the sword devoured.

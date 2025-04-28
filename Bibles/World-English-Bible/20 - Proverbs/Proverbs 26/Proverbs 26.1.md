@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As snow in summer, and as rain in harvest, So honor is not seemly for a fool.
+Like snow in summer, and as rain in harvest, so honor is not fitting for a fool.

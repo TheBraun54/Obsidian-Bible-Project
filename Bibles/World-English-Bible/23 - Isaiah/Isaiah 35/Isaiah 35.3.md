@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Strengthen ye the weak hands, and confirm the feeble knees.
+Strengthen the weak hands, and make firm the feeble knees.

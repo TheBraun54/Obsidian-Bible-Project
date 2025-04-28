@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the sabbath day we went forth without the gate by a river side, where we supposed there was a place of prayer; and we sat down, and spake unto the women that were come together.
+On the Sabbath day we went forth outside of the city by a riverside, where we supposed there was a place of prayer, and we sat down, and spoke to the women who had come together.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of the just is uprightness: thou that art upright dost direct the path of the just.
+The way of the just is uprightness. You who are upright make the path of the righteous level.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, The Son of man is lord of the sabbath.
+He said to them, "The Son of Man is lord of the Sabbath."

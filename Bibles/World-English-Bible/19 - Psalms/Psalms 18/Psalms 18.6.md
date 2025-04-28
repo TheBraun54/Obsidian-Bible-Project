@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In my distress I called upon Jehovah, And cried unto my God: He heard my voice out of his temple, And my cry before him came into his ears.
+In my distress I called on Yahweh, and cried to my God. He heard my voice out of his temple. My cry before him came into his ears.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when they continued asking him, he lifted up himself, and said unto them, He that is without sin among you, let him first cast a stone at her.
+But when they continued asking him, he looked up and said to them, "He who is without sin among you, let him throw the first stone at her."

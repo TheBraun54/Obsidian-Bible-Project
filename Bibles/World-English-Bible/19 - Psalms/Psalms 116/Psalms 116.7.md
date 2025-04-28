@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Return unto thy rest, O my soul; For Jehovah hath dealt bountifully with thee.
+Return to your rest, my soul, for Yahweh has dealt bountifully with you.

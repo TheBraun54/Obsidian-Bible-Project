@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went his way, and began to publish in Decapolis how great things Jesus had done for him: and all men marvelled.
+He went his way, and began to proclaim in Decapolis how Jesus had done great things for him, and everyone marveled.

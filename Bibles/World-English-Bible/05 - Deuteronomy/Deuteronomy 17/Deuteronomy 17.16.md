@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only he shall not multiply horses to himself, nor cause the people to return to Egypt, to the end that he may multiply horses; forasmuch as Jehovah hath said unto you, Ye shall henceforth return no more that way.
+Only he shall not multiply horses to himself, nor cause the people to return to Egypt, to the end that he may multiply horses; because Yahweh has said to you, "You shall not go back that way again."

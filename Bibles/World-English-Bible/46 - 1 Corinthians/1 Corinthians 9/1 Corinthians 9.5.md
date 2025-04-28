@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have we no right to lead about a wife that is a believer, even as the rest of the apostles, and the brethren of the Lord, and Cephas?
+Have we no right to take along a wife who is a believer, even as the rest of the apostles, and the brothers of the Lord, and Cephas?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he shall separate himself from wine and strong drink; he shall drink no vinegar of wine, or vinegar of strong drink, neither shall he drink any juice of grapes, nor eat fresh grapes or dried.
+he shall separate himself from wine and strong drink. He shall drink no vinegar of wine, or vinegar of fermented drink, neither shall he drink any juice of grapes, nor eat fresh grapes or dried.

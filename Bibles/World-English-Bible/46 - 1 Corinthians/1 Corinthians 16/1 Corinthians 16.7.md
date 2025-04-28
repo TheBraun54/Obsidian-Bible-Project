@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I do not wish to see you now by the way; for I hope to tarry a while with you, if the Lord permit.
+For I do not wish to see you now in passing, but I hope to stay a while with you, if the Lord permits.

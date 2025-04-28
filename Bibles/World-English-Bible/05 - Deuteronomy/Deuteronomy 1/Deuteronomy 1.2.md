@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is eleven days' [journey] from Horeb by the way of mount Seir unto Kadesh-barnea.
+It is eleven days' [journey] from Horeb by the way of Mount Seir to Kadesh Barnea.

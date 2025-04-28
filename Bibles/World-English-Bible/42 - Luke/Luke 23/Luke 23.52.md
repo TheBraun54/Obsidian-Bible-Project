@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-this man went to Pilate, and asked for the body of Jesus.
+this man went to Pilate, and asked for Jesus' body.

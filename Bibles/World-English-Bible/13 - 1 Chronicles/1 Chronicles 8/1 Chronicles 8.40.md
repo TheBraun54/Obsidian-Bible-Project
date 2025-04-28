@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Ulam were mighty men of valor, archers, and had many sons, and sons' sons, a hundred and fifty. All these were of the sons of Benjamin.
+The sons of Ulam were mighty men of valor, archers, and had many sons, and sons' sons, one hundred fifty. All these were of the sons of Benjamin.

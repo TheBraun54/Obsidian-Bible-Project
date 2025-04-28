@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oil and perfume rejoice the heart; So doth the sweetness of a man's friend [that cometh] of hearty counsel.
+Perfume and incense bring joy to the heart; so does earnest counsel from a man's friend.

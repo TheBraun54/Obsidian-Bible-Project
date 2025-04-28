@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the iron be blunt, and one do not whet the edge, then must he put to more strength: but wisdom is profitable to direct.
+If the axe is blunt, and one doesn't sharpen the edge, then he must use more strength; but skill brings success.

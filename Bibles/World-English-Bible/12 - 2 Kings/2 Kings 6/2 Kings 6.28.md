@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto her, What aileth thee? And she answered, This woman said unto me, Give thy son, that we may eat him to-day, and we will eat my son to-morrow.
+The king said to her, "What ails you?" She answered, "This woman said to me, 'Give your son, that we may eat him today, and we will eat my son tomorrow.'

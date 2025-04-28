@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For out of prison he came forth to be king; yea, even in his kingdom he was born poor.
+For out of prison he came forth to be king; yes, even in his kingdom he was born poor.

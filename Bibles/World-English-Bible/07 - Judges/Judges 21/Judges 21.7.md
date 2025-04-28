@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How shall we do for wives for them that remain, seeing we have sworn by Jehovah that we will not give them of our daughters to wives?
+How shall we provide wives for those who remain, since we have sworn by Yahweh that we will not give them of our daughters to wives?"

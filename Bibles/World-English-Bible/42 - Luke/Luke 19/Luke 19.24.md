@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them that stood by, Take away from him the pound, and give it unto him that hath the ten pounds.
+He said to those who stood by, 'Take the mina away from him, and give it to him who has the ten minas.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then they shall bring out the damsel to the door of her father's house, and the men of her city shall stone her to death with stones, because she hath wrought folly in Israel, to play the harlot in her father's house: so shalt thou put away the evil from the midst of thee.
+then they shall bring out the young lady to the door of her father's house, and the men of her city shall stone her to death with stones, because she has done folly in Israel, to play the prostitute in her father's house: so you shall put away the evil from the midst of you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye say, We will not dwell in this land; so that ye obey not the voice of Jehovah your God,
+But if you say, We will not dwell in this land; so that you don't obey the voice of Yahweh your God,

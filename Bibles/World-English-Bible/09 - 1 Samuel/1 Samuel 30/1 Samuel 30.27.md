@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To them that were in Beth-el, and to them that were in Ramoth of the South, and to them that were in Jattir,
+He sent it to those who were in Bethel, and to those who were in Ramoth of the South, and to those who were in Jattir,

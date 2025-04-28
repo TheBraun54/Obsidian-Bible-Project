@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore have we fasted, [say they], and thou seest not? [wherefore] have we afflicted our soul, and thou takest no knowledge? Behold, in the day of your fast ye find [your own] pleasure, and exact all your labors.
+'Why have we fasted,' [say they], 'and you don't see? [why] have we afflicted our soul, and you take no knowledge?' "Behold, in the day of your fast you find pleasure, and exact all your labors.

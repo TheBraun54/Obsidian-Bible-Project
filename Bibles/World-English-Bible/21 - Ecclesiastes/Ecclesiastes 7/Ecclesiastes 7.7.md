@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely extortion maketh the wise man foolish; and a bribe destroyeth the understanding.
+Surely extortion makes the wise man foolish; and a bribe destroys the understanding.

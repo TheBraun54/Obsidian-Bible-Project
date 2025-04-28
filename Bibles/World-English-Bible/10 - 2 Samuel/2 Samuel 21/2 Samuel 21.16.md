@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ishbibenob, who was of the sons of the giant, the weight of whose spear was three hundred [shekels] of brass in weight, he being girded with a new [sword], thought to have slain David.
+and Ishbibenob, who was of the sons of the giant, the weight of whose spear was three hundred [shekels] of brass in weight, he being armed with a new [sword], thought to have slain David.

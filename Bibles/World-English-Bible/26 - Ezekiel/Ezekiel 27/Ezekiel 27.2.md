@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, take up a lamentation over Tyre;
+You, son of man, take up a lamentation over Tyre;

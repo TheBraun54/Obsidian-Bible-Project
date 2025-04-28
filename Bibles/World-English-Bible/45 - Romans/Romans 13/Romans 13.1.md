@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let every soul be in subjection to the higher powers: for there is no power but of God; and the [powers] that be are ordained of God.
+Let every soul be in subjection to the higher authorities, for there is no authority except from God, and those who exist are ordained by God.

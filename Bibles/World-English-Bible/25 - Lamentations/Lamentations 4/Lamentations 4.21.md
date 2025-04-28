@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice and be glad, O daughter of Edom, that dwellest in the land of Uz: The cup shall pass through unto thee also; thou shalt be drunken, and shalt make thyself naked.
+Rejoice and be glad, daughter of Edom, that dwell in the land of Uz: The cup shall pass through to you also; you shall be drunken, and shall make yourself naked.

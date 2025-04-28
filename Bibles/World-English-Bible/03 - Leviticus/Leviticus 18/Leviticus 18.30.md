@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall ye keep my charge, that ye practise not any of these abominable customs, which were practised before you, and that ye defile not yourselves therein: I am Jehovah your God.
+Therefore you shall keep my requirements, that you do not practice any of these abominable customs, which were practiced before you, and that you do not defile yourselves with them: I am Yahweh your God.'"

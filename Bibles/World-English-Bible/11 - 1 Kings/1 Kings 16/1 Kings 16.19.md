@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for his sins which he sinned in doing that which was evil in the sight of Jehovah, in walking in the way of Jeroboam, and in his sin which he did, to make Israel to sin.
+for his sins which he sinned in doing that which was evil in the sight of Yahweh, in walking in the way of Jeroboam, and in his sin which he did, to make Israel to sin.

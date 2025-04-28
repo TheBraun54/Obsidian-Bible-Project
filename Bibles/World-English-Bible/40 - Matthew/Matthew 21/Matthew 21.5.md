@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell ye the daughter of Zion, Behold, thy King cometh unto thee, Meek, and riding upon an ass, And upon a colt the foal of an ass.
+"Tell the daughter of Zion, behold, your King comes to you, humble, and riding on a donkey, on a colt, the foal of a donkey."

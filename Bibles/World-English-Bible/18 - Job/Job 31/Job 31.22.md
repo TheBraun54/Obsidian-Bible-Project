@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then let my shoulder fall from the shoulder-blade, And mine arm be broken from the bone.
+then let my shoulder fall from the shoulder blade, and my arm be broken from the bone.

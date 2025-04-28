@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can the rush grow up without mire? Can the flag grow without water?
+"Can the papyrus grow up without mire? Can the rushes grow without water?

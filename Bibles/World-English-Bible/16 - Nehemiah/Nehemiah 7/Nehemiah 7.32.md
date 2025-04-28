@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Beth-el and Ai, a hundred twenty and three.
+The men of Bethel and Ai, a hundred twenty-three.

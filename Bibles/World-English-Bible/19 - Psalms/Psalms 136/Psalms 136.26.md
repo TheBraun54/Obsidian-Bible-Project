@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh give thanks unto the God of heaven; For his lovingkindness [endureth] for ever.
+Oh give thanks to the God of heaven; for his loving kindness endures forever.

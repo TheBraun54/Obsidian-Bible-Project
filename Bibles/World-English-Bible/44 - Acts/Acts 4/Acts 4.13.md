@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when they beheld the boldness of Peter and John, and had perceived that they were unlearned and ignorant men, they marvelled; and they took knowledge of them, that they had been with Jesus.
+Now when they saw the boldness of Peter and John, and had perceived that they were unlearned and ignorant men, they marveled. They recognized that they had been with Jesus.

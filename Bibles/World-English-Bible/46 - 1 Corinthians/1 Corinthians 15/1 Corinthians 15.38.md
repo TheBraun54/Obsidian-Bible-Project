@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but God giveth it a body even as it pleased him, and to each seed a body of its own.
+But God gives it a body even as it pleased him, and to each seed a body of its own.

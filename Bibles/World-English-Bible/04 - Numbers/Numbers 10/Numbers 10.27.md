@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the host of the tribe of the children of Naphtali was Ahira the son of Enan.
+Ahira the son of Enan was over the army of the tribe of the children of Naphtali.

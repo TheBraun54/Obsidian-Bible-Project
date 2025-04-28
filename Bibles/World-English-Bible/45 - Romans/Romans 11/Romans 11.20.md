@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Well; by their unbelief they were broken off, and thou standest by thy faith. Be not highminded, but fear:
+True; by their unbelief they were broken off, and you stand by your faith. Don't be conceited, but fear;

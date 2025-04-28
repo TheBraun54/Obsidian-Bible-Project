@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the precious things of the earth and the fulness thereof, And the good will of him that dwelt in the bush. Let [the blessing] come upon the head of Joseph, And upon the crown of the head of him that was separate from his brethren.
+for the precious things of the earth and its fullness, the good will of him who lived in the bush. Let [the blessing] come on the head of Joseph, On the crown of the head of him who was separate from his brothers.

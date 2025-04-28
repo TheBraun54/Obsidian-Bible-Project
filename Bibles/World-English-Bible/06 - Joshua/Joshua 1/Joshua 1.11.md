@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pass through the midst of the camp, and command the people, saying, Prepare you victuals; for within three days ye are to pass over this Jordan, to go in to possess the land, which Jehovah your God giveth you to possess it.
+"Pass through the midst of the camp, and command the people, saying, 'Prepare food; for within three days you are to pass over this Jordan, to go in to possess the land, which Yahweh your God gives you to possess it.'"

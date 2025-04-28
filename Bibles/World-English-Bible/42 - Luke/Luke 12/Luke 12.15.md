@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Take heed, and keep yourselves from all covetousness: for a man's life consisteth not in the abundance of the things which he possesseth.
+He said to them, "Beware! Keep yourselves from covetousness, for a man's life doesn't consist of the abundance of the things which he possesses."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she spake unto him according to these words, saying, The Hebrew servant, whom thou hast brought unto us, came in unto me to mock me:
+She spoke to him according to these words, saying, "The Hebrew servant, whom you have brought to us, came in to me to mock me,

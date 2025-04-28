@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent them to Bethlehem, and said, Go and search out exactly concerning the young child; and when ye have found [him], bring me word, that I also may come and worship him.
+He sent them to Bethlehem, and said, "Go and search diligently for the young child. When you have found him, bring me word, so that I also may come and worship him."

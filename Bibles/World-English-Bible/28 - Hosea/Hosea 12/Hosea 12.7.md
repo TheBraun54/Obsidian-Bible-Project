@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[He is] a trafficker, the balances of deceit are in his hand: he loveth to oppress.
+A merchant has dishonest scales in his hand. He loves to defraud.

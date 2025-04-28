@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is the wise man, that may understand this? and [who is] he to whom the mouth of Jehovah hath spoken, that he may declare it? wherefore is the land perished and burned up like a wilderness, so that none passeth through?
+Who is the wise man, that may understand this? and [who is] he to whom the mouth of Yahweh has spoken, that he may declare it? why is the land perished and burned up like a wilderness, so that none passes through?

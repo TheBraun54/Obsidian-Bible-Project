@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Daniel continued even unto the first year of king Cyrus.
+Daniel continued even to the first year of king Cyrus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise and thresh, O daughter of Zion; for I will make thy horn iron, and I will make thy hoofs brass; and thou shalt beat in pieces many peoples: and I will devote their gain unto Jehovah, and their substance unto the Lord of the whole earth.
+Arise and thresh, daughter of Zion; for I will make your horn iron, and I will make your hoofs brass; and you will beat in pieces many peoples: and I will devote their gain to Yahweh, and their substance to the Lord of the whole earth.

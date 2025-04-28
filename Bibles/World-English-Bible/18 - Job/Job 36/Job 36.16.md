@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, he would have allured thee out of distress Into a broad place, where there is no straitness; And that which is set on thy table would be full of fatness.
+Yes, he would have allured you out of distress, into a broad place, where there is no restriction. That which is set on your table would be full of fatness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If these men die the common death of all men, or if they be visited after the visitation of all men; then Jehovah hath not sent me.
+If these men die the common death of all men, or if they be visited after the visitation of all men; then Yahweh hasn't sent me.

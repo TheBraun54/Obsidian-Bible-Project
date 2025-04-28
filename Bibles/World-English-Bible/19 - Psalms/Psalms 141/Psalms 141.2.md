@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my prayer be set forth as incense before thee; The lifting up of my hands as the evening sacrifice.
+Let my prayer be set before you like incense; the lifting up of my hands like the evening sacrifice.

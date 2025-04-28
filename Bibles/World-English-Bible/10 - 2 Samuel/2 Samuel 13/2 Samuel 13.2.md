@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Amnon was so vexed that he fell sick because of his sister Tamar; for she was a virgin; and it seemed hard to Amnon to do anything unto her.
+Amnon was so troubled that he fell sick because of his sister Tamar; for she was a virgin; and it seemed hard to Amnon to do anything to her.

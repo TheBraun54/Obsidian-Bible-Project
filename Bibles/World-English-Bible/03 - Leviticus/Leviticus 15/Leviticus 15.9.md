@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And what saddle soever he that hath the issue rideth upon shall be unclean.
+"'Whatever saddle he who has the discharge rides on shall be unclean.

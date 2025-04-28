@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and behold, a man having a withered hand. And they asked him, saying, Is it lawful to heal on the sabbath day? that they might accuse him.
+And behold there was a man with a withered hand. They asked him, "Is it lawful to heal on the Sabbath day?" that they might accuse him.

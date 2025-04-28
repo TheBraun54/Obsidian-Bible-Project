@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-your little ones, your wives, and thy sojourner that is in the midst of thy camps, from the hewer of thy wood unto the drawer of thy water;
+your little ones, your wives, and your foreigner who is in the midst of your camps, from the one who cuts your wood to the one who draws your water;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We will pass over armed before Jehovah into the land of Canaan, and the possession of our inheritance [shall remain] with us beyond the Jordan.
+We will pass over armed before Yahweh into the land of Canaan, and the possession of our inheritance [shall remain] with us beyond the Jordan."

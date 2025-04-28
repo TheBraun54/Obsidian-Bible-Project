@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As hath been done this day, so Jehovah hath commanded to do, to make atonement for you.
+What has been done this day, so Yahweh has commanded to do, to make atonement for you.

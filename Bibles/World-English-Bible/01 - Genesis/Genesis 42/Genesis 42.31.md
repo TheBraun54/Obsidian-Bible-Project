@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we said unto him, We are true men; we are no spies:
+We said to him, 'We are honest men. We are no spies.

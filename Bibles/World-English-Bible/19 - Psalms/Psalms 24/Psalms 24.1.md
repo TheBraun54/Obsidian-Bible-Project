@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. The earth is Jehovah's, and the fulness thereof; The world, and they that dwell therein.
+The earth is Yahweh's, with its fullness; the world, and those who dwell therein.

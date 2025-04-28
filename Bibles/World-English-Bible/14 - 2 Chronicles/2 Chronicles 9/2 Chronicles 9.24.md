@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought every man his tribute, vessels of silver, and vessels of gold, and raiment, armor, and spices, horses, and mules, a rate year by year.
+They brought every man his tribute, vessels of silver, and vessels of gold, and clothing, armor, and spices, horses, and mules, a rate year by year.

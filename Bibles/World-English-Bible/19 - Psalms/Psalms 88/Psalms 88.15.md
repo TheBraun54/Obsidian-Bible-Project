@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am afflicted and ready to die from my youth up: While I suffer thy terrors I am distracted.
+I am afflicted and ready to die from my youth up. While I suffer your terrors, I am distracted.

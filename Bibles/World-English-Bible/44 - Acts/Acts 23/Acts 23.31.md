@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the soldiers, as it was commanded them, took Paul and brought him by night to Antipatris.
+So the soldiers, carrying out their orders, took Paul and brought him by night to Antipatris.

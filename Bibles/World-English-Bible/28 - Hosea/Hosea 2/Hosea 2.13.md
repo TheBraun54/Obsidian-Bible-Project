@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will visit upon her the days of the Baalim, unto which she burned incense, when she decked herself with her ear-rings and her jewels, and went after her lovers, and forgat me, saith Jehovah.
+I will visit on her the days of the Baals, to which she burned incense, when she decked herself with her earrings and her jewels, and went after her lovers, and forgot me," says Yahweh.

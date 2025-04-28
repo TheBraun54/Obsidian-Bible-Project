@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy mother was like a vine, in thy blood, planted by the waters: it was fruitful and full of branches by reason of many waters.
+Your mother was like a vine, in your blood, planted by the waters: it was fruitful and full of branches by reason of many waters.

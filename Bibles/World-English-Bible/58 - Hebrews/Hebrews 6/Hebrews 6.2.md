@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the teaching of baptisms, and of laying on of hands, and of resurrection of the dead, and of eternal judgment.
+of the teaching of baptisms, of laying on of hands, of resurrection of the dead, and of eternal judgment.

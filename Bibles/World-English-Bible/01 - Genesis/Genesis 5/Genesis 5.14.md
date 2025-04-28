@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the days of Kenan were nine hundred and ten years: and he died.
+and all the days of Kenan were nine hundred ten years, then he died.

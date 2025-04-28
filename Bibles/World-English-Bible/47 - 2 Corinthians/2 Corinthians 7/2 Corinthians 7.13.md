@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore we have been comforted: And in our comfort we joyed the more exceedingly for the joy of Titus, because his spirit hath been refreshed by you all.
+Therefore we have been comforted. In our comfort we rejoiced the more exceedingly for the joy of Titus, because his spirit has been refreshed by you all.

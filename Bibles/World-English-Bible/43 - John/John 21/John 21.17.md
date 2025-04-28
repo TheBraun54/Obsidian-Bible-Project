@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith unto him the third time, Simon, [son] of John, lovest thou me? Peter was grieved because he said unto him the third time, Lovest thou me? And he said unto him, Lord, thou knowest all things; thou knowest that I love thee. Jesus saith unto him, Feed my sheep.
+He said to him the third time, "Simon, son of Jonah, do you have affection for me?" Peter was grieved because he asked him the third time, "Do you have affection for me?" He said to him, "Lord, you know everything. You know that I have affection for you." Jesus said to him, "Feed my sheep.

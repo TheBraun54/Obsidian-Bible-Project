@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man take a wife, and go in unto her, and hate her,
+If any man takes a wife, and goes in to her, and hates her,

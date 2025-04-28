@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I would have you know, brethren, that the things [which happened] unto me have fallen out rather unto the progress of the gospel;
+Now I desire to have you know, brothers, that the things which happened to me have turned out rather to the progress of the Good News;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Miriam answered them, Sing ye to Jehovah, for he hath triumphed gloriously; The horse and his rider hath he thrown into the sea.
+Miriam answered them, "Sing to Yahweh, for he has triumphed gloriously. The horse and his rider he has thrown into the sea."

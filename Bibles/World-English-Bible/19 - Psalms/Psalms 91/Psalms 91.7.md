@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A thousand shall fall at thy side, And ten thousand at thy right hand; [But] it shall not come nigh thee.
+A thousand may fall at your side, and ten thousand at your right hand; but it will not come near you.

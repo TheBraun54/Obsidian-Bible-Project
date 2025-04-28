@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In one house shall it be eaten; thou shalt not carry forth aught of the flesh abroad out of the house; neither shall ye break a bone thereof.
+In one house shall it be eaten; you shall not carry forth anything of the flesh abroad out of the house; neither shall you break a bone of it.

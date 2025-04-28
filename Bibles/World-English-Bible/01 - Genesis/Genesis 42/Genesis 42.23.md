@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they knew not that Joseph understood them; for there was an interpreter between them.
+They didn't know that Joseph understood them; for there was an interpreter between them.

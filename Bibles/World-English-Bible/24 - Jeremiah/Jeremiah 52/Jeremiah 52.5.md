@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the city was besieged unto the eleventh year of king Zedekiah.
+So the city was besieged to the eleventh year of king Zedekiah.

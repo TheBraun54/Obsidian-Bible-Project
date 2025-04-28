@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-SHIN. Princes have persecuted me without a cause; But my heart standeth in awe of thy words.
+Princes have persecuted me without a cause, but my heart stands in awe of your words.

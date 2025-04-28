@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the apostles and the elders were gathered together to consider of this matter.
+The apostles and the elders were gathered together to see about this matter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall lean upon his house, but it shall not stand: He shall hold fast thereby, but it shall not endure.
+He shall lean on his house, but it shall not stand. He shall cling to it, but it shall not endure.

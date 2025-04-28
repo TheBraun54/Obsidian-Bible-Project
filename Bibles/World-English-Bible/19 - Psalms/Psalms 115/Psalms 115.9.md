@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Israel, trust thou in Jehovah: He is their help and their shield.
+Israel, trust in Yahweh! He is their help and their shield.

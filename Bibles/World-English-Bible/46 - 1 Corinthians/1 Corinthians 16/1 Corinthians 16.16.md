@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye also be in subjection unto such, and to every one that helpeth in the work and laboreth.
+that you also be in subjection to such, and to everyone who helps in the work and labors.

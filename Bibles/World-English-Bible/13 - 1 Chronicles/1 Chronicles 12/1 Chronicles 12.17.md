@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David went out to meet them, and answered and said unto them, If ye be come peaceably unto me to help me, my heart shall be knit unto you; but if [ye be come] to betray me to mine adversaries, seeing there is no wrong in my hands, the God of our fathers look thereon, and rebuke it.
+David went out to meet them, and answered them, "If you have come peaceably to me to help me, my heart shall be knit to you; but if you have come to betray me to my adversaries, since there is no wrong in my hands, may the God of our fathers look thereon, and rebuke it."

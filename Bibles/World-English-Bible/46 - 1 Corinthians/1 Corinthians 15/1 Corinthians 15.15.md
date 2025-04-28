@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, we are found false witnesses of God; because we witnessed of God that he raised up Christ: whom he raised not up, if so be that the dead are not raised.
+Yes, we are found false witnesses of God, because we testified about God that he raised up Christ, whom he didn't raise up, if it is so that the dead are not raised.

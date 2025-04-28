@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the birds of the heavens made their nests in its boughs; and under its branches did all the beasts of the field bring forth their young; and under its shadow dwelt all great nations.
+All the birds of the sky made their nests in its boughs; and under its branches did all the animals of the field bring forth their young; and under its shadow lived all great nations.

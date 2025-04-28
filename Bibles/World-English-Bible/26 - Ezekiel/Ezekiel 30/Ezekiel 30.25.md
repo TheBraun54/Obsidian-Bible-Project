@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will hold up the arms of the king of Babylon; and the arms of Pharaoh shall fall down; and they shall know that I am Jehovah, when I shall put my sword into the hand of the king of Babylon, and he shall stretch it out upon the land of Egypt.
+I will hold up the arms of the king of Babylon; and the arms of Pharaoh shall fall down; and they shall know that I am Yahweh, when I shall put my sword into the hand of the king of Babylon, and he shall stretch it out on the land of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel: Add your burnt-offerings unto your sacrifices, and eat ye flesh.
+Thus says Yahweh of Armies, the God of Israel: Add your burnt offerings to your sacrifices, and eat meat.

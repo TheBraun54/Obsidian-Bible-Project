@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rain was upon the earth forty days and forty nights.
+The rain was on the earth forty days and forty nights.

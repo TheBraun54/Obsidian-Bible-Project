@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the heavens shall declare his righteousness; For God is judge himself. {{Selah
+The heavens shall declare his righteousness, for God himself is judge. Selah.

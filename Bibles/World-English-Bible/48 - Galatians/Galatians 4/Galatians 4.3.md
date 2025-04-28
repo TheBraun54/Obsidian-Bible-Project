@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So we also, when we were children, were held in bondage under the rudiments of the world:
+So we also, when we were children, were held in bondage under the elemental principles of the world.

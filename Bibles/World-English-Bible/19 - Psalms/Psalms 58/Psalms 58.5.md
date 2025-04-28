@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which hearkeneth not to the voice of charmers, Charming never so wisely.
+which doesn't listen to the voice of charmers, no matter how skillful the charmer may be.

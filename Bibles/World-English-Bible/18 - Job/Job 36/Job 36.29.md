@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, can any understand the spreadings of the clouds, The thunderings of his pavilion?
+Yes, can any understand the spreading of the clouds, and the thunderings of his pavilion?

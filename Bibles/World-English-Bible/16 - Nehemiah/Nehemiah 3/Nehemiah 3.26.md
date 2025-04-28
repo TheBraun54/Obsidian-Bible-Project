@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Now the Nethinim dwelt in Ophel, unto the place over against the water gate toward the east, and the tower that standeth out.)
+(Now the Nethinim lived in Ophel, to the place over against the water gate toward the east, and the tower that stands out.)

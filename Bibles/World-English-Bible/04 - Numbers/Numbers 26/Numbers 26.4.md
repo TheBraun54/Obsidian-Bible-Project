@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Take the sum of the people], from twenty years old and upward; as Jehovah commanded Moses and the children of Israel, that came forth out of the land of Egypt.
+"[Take a census of the people], from twenty years old and upward; as Yahweh commanded Moses and the children of Israel." These are those that came out of the land of Egypt.

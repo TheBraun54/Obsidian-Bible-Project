@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab gave up the sum of the numbering of the people unto the king: and there were in Israel eight hundred thousand valiant men that drew the sword; and the men of Judah were five hundred thousand men.
+Joab gave up the sum of the numbering of the people to the king: and there were in Israel eight hundred thousand valiant men who drew the sword; and the men of Judah were five hundred thousand men.

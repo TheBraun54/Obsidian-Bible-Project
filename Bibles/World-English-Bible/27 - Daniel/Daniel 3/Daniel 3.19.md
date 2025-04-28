@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was Nebuchadnezzar full of fury, and the form of his visage was changed against Shadrach, Meshach, and Abed-nego: [therefore] he spake, and commanded that they should heat the furnace seven times more than it was wont to be heated.
+Then was Nebuchadnezzar full of fury, and the form of his appearance was changed against Shadrach, Meshach, and Abednego: [therefore] he spoke, and commanded that they should heat the furnace seven times more than it was usually heated.

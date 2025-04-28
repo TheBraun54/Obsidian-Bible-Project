@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Mishma: Hammuel his son, Zaccur his son, Shimei his son.
+The sons of Mishma: Hammuel his son, Zaccur his son, Shimei his son.

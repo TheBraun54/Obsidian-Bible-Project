@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac gave up the ghost, and died, and was gathered unto his people, old and full of days: and Esau and Jacob his sons buried him.
+Isaac gave up the spirit, and died, and was gathered to his people, old and full of days. Esau and Jacob, his sons, buried him.

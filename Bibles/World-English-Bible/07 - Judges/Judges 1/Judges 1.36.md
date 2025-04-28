@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the border of the Amorites was from the ascent of Akrabbim, from the rock, and upward.
+The border of the Amorites was from the ascent of Akrabbim, from the rock, and upward.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A rebuke entereth deeper into one that hath understanding Than a hundred stripes into a fool.
+A rebuke enters deeper into one who has understanding than a hundred lashes into a fool.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that the salvation of Israel were come out of Zion! When Jehovah bringeth back the captivity of his people, Then shall Jacob rejoice, [and] Israel shall be glad.
+Oh that the salvation of Israel would come out of Zion! When Yahweh restores the fortunes of his people, then Jacob shall rejoice, and Israel shall be glad. A Psalm by David.

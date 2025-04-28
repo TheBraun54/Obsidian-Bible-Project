@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon made a navy of ships in Ezion-geber, which is beside Eloth, on the shore of the Red Sea, in the land of Edom.
+King Solomon made a navy of ships in Ezion Geber, which is beside Eloth, on the shore of the Red Sea, in the land of Edom.

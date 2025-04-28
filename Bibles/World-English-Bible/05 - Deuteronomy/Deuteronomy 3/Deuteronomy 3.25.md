@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let me go over, I pray thee, and see the good land that is beyond the Jordan, that goodly mountain, and Lebanon.
+Please let me go over and see the good land that is beyond the Jordan, that goodly mountain, and Lebanon."

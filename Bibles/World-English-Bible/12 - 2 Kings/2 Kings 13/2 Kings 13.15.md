@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha said unto him, Take bow and arrows; and he took unto him bow and arrows.
+Elisha said to him, "Take bow and arrows;" and he took to him bow and arrows.

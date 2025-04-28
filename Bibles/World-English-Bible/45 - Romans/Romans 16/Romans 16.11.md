@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Herodion my kinsman. Salute them of the [household] of Narcissus, that are in the Lord.
+Greet Herodion, my kinsman. Greet them of the household of Narcissus, who are in the Lord.

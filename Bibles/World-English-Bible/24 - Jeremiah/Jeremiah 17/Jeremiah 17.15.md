@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, they say unto me, Where is the word of Jehovah? let it come now.
+Behold, they tell me, Where is the word of Yahweh? let it come now.

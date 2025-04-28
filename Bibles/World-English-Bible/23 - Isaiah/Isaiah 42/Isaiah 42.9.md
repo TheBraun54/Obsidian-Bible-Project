@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the former things are come to pass, and new things do I declare; before they spring forth I tell you of them.
+Behold, the former things have happened, and I declare new things. I tell you about them before they come up."

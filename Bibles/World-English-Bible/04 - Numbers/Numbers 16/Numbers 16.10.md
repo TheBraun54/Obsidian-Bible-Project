@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that he hath brought thee near, and all thy brethren the sons of Levi with thee? and seek ye the priesthood also?
+and that he has brought you near, and all your brothers the sons of Levi with you? and do you seek the priesthood also?

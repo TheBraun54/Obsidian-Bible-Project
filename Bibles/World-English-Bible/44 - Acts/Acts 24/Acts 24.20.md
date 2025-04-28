@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or else let these men themselves say what wrong-doing they found when I stood before the council,
+Or else let these men themselves say what injustice they found in me when I stood before the council,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto her, I that speak unto thee am [he] .
+Jesus said to her, "I am he, the one who speaks to you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I rose in the morning to give my child suck, behold, it was dead; but when I had looked at it in the morning, behold, it was not my son, whom I did bear.
+When I rose in the morning to nurse my child, behold, it was dead; but when I had looked at it in the morning, behold, it was not my son, whom I bore."

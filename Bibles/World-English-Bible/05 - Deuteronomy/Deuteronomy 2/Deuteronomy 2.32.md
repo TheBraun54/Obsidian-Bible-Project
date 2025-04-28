@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Sihon came out against us, he and all his people, unto battle at Jahaz.
+Then Sihon came out against us, he and all his people, to battle at Jahaz.

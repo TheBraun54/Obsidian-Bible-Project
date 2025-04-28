@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought it out of the house of Abinadab, which was in the hill, with the ark of God: and Ahio went before the ark.
+They brought it out of the house of Abinadab, which was in the hill, with the ark of God: and Ahio went before the ark.

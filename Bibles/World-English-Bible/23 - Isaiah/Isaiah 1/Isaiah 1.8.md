@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the daughter of Zion is left as a booth in a vineyard, as a lodge in a garden of cucumbers, as a besieged city.
+The daughter of Zion is left like a shelter in a vineyard, like a hut in a field of melons, like a besieged city.

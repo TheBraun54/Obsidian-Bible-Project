@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul is weary of my life; I will give free course to my complaint; I will speak in the bitterness of my soul.
+"My soul is weary of my life. I will give free course to my complaint. I will speak in the bitterness of my soul.

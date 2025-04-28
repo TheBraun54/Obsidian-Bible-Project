@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the apostles and the brethren that were in Judaea heard that the Gentiles also had received the word of God.
+Now the apostles and the brothers who were in Judea heard that the Gentiles had also received the word of God.

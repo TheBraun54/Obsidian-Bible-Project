@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul melteth for heaviness: Strengthen thou me according unto thy word.
+My soul is weary with sorrow: strengthen me according to your word.

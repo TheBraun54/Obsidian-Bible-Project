@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now I beseech you, brethren, by our Lord Jesus Christ, and by the love of the Spirit, that ye strive together with me in your prayers to God for me;
+Now I beg you, brothers, by our Lord Jesus Christ, and by the love of the Spirit, that you strive together with me in your prayers to God for me,

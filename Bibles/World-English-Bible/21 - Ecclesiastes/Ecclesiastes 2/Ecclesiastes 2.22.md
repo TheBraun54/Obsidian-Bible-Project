@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what hath a man of all his labor, and of the striving of his heart, wherein he laboreth under the sun?
+For what has a man of all his labor, and of the striving of his heart, in which he labors under the sun?

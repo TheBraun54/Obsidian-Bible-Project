@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when the flock were feeble, he put them not in: so the feebler were Laban's, and the stronger Jacob's.
+but when the flock were feeble, he didn't put them in. So the feebler were Laban's, and the stronger Jacob's.

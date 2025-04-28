@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now no man at the table knew for what intent he spake this unto him.
+Now no man at the table knew why he said this to him.

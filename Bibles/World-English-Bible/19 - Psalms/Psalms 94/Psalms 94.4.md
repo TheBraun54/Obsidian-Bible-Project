@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They prate, they speak arrogantly: All the workers of iniquity boast themselves.
+They pour out arrogant words. All the evildoers boast.

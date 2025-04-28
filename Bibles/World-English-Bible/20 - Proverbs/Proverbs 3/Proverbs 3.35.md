@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wise shall inherit glory; But shame shall be the promotion of fools.
+The wise will inherit glory, but shame will be the promotion of fools.

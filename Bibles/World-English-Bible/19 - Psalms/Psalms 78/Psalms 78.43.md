@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How he set his signs in Egypt, And his wonders in the field of Zoan,
+how he set his signs in Egypt, his wonders in the field of Zoan,

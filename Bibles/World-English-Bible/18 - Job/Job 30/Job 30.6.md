@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that they dwell in frightful valleys, In holes of the earth and of the rocks.
+So that they dwell in frightful valleys, and in holes of the earth and of the rocks.

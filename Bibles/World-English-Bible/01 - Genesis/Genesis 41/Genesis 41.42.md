@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh took off his signet ring from his hand, and put it upon Joseph's hand, and arrayed him in vestures of fine linen, and put a gold chain about his neck;
+Pharaoh took off his signet ring from his hand, and put it on Joseph's hand, and arrayed him in robes of fine linen, and put a gold chain about his neck,

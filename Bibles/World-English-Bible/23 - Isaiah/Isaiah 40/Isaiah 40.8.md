@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The grass withereth, the flower fadeth; but the word of our God shall stand forever.
+The grass withers, the flower fades; but the word of our God stands forever."

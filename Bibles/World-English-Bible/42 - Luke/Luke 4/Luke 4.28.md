@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were all filled with wrath in the synagogue, as they heard these things;
+They were all filled with wrath in the synagogue, as they heard these things.

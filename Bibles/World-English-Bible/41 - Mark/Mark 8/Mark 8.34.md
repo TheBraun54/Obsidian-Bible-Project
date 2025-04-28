@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called unto him the multitude with his disciples, and said unto them, If any man would come after me, let him deny himself, and take up his cross, and follow me.
+He called the multitude to himself with his disciples, and said to them, "Whoever wants to come after me, let him deny himself, and take up his cross, and follow me.

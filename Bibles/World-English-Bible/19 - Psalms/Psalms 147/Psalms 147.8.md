@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who covereth the heavens with clouds, Who prepareth rain for the earth, Who maketh grass to grow upon the mountains.
+who covers the sky with clouds, who prepares rain for the earth, who makes grass grow on the mountains.

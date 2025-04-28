@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they saw not one another, neither rose any one from his place for three days: but all the children of Israel had light in their dwellings.
+They didn't see one another, neither did anyone rise from his place for three days; but all the children of Israel had light in their dwellings.

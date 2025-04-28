@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Moses commanded the Levites, that bare the ark of the covenant of Jehovah, saying,
+that Moses commanded the Levites, who bore the ark of the covenant of Yahweh, saying,

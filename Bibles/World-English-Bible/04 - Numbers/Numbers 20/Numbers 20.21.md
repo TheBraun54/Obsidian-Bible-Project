@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus Edom refused to give Israel passage through his border: wherefore Israel turned away from him.
+Thus Edom refused to give Israel passage through his border, so Israel turned away from him.

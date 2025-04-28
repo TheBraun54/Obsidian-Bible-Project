@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I permit not a woman to teach, nor to have dominion over a man, but to be in quietness.
+But I don't permit a woman to teach, nor to exercise authority over a man, but to be in quietness.

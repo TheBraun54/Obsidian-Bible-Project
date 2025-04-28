@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah hardened Pharaoh's heart, and he did not let the children of Israel go.
+But Yahweh hardened Pharaoh's heart, and he didn't let the children of Israel go.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the sabbath was past, Mary Magdalene, and Mary the [mother] of James, and Salome, bought spices, that they might come and anoint him.
+When the Sabbath was past, Mary Magdalene, and Mary the mother of James, and Salome, bought spices, that they might come and anoint him.

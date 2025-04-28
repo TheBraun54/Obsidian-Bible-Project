@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Enoch was born Irad: and Irad begat Mehujael; and Mehujael begat Methushael; and Methushael begat Lamech.
+To Enoch was born Irad. Irad became the father of Mehujael. Mehujael became the father of Methushael. Methushael became the father of Lamech.

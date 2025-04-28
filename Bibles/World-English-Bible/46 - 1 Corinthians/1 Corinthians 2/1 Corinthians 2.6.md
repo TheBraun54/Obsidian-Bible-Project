@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We speak wisdom, however, among them that are fullgrown: yet a wisdom not of this world, nor of the rulers of this world, who are coming to nought:
+We speak wisdom, however, among those who are full grown; yet a wisdom not of this world, nor of the rulers of this world, who are coming to nothing.

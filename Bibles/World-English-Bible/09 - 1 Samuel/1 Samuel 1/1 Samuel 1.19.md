@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rose up in the morning early, and worshipped before Jehovah, and returned, and came to their house to Ramah: and Elkanah knew Hannah his wife; and Jehovah remembered her.
+They rose up in the morning early, and worshiped before Yahweh, and returned, and came to their house to Ramah: and Elkanah knew Hannah his wife; and Yahweh remembered her.

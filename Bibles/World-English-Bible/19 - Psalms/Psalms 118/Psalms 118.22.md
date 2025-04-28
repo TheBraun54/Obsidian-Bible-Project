@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The stone which the builders rejected Is become the head of the corner.
+The stone which the builders rejected has become the head of the corner.

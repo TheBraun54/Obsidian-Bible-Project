@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I made me great works; I builded me houses; I planted me vineyards;
+I made myself great works. I built myself houses. I planted myself vineyards.

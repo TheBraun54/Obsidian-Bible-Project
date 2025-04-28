@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my soul was grieved, And I was pricked in my heart:
+For my soul was grieved. I was embittered in my heart.

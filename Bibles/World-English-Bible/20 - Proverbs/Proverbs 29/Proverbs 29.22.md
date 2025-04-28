@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An angry man stirreth up strife, And a wrathful man aboundeth in transgression.
+An angry man stirs up strife, and a wrathful man abounds in sin.

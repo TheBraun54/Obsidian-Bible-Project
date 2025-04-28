@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My frame was not hidden from thee, When I was made in secret, [And] curiously wrought in the lowest parts of the earth.
+My frame wasn't hidden from you, when I was made in secret, woven together in the depths of the earth.

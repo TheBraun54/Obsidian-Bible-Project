@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but shun foolish questionings, and genealogies, and strifes, and fightings about law; for they are unprofitable and vain.
+but shun foolish questionings, genealogies, strife, and disputes about the law; for they are unprofitable and vain.

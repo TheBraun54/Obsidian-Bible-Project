@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O Jehovah, thou art God, and hast promised this good thing unto thy servant:
+Now, Yahweh, you are God, and have promised this good thing to your servant.

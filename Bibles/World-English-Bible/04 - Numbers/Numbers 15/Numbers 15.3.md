@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and will make an offering by fire unto Jehovah, a burnt-offering, or a sacrifice, to accomplish a vow, or as a freewill-offering, or in your set feasts, to make a sweet savor unto Jehovah, of the herd, or of the flock;
+and will make an offering by fire to Yahweh, a burnt offering, or a sacrifice, to accomplish a vow, or as a freewill offering, or in your set feasts, to make a pleasant aroma to Yahweh, of the herd, or of the flock;

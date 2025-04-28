@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-this Ezra went up from Babylon: and he was a ready scribe in the law of Moses, which Jehovah, the God of Israel, had given; and the king granted him all his request, according to the hand of Jehovah his God upon him.
+this Ezra went up from Babylon: and he was a ready scribe in the law of Moses, which Yahweh, the God of Israel, had given; and the king granted him all his request, according to the hand of Yahweh his God on him.

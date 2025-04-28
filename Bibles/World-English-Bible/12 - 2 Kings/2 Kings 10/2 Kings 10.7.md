@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the letter came to them, that they took the king's sons, and slew them, even seventy persons, and put their heads in baskets, and sent them unto him to Jezreel.
+It happened, when the letter came to them, that they took the king's sons, and killed them, even seventy persons, and put their heads in baskets, and sent them to him to Jezreel.

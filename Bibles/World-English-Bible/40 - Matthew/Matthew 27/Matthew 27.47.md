@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of them stood there, when they heard it, said, This man calleth Elijah.
+Some of them who stood there, when they heard it, said, "This man is calling Elijah."

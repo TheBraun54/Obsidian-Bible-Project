@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The whole assembly together was forty and two thousand three hundred and threescore,
+The whole assembly together was forty-two thousand three hundred sixty,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto thee, Arise, take up thy bed, and go unto thy house.
+"I tell you, arise, take up your mat, and go to your house."

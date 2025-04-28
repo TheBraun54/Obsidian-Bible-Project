@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sixth angel sounded, and I heard a voice from the horns of the golden altar which is before God,
+The sixth angel sounded. I heard a voice from the horns of the golden altar which is before God,

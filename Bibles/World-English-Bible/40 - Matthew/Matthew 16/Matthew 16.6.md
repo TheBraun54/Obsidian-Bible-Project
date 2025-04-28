@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, Take heed and beware of the leaven of the Pharisees and Sadducees.
+Jesus said to them, "Take heed and beware of the yeast of the Pharisees and Sadducees."

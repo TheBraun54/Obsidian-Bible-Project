@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that giveth unto the poor shall not lack; But he that hideth his eyes shall have many a curse.
+One who gives to the poor has no lack; but one who closes his eyes will have many curses.

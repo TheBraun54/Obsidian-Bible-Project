@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the building of the wall thereof was jasper: and the city was pure gold, like unto pure glass.
+The construction of its wall was jasper. The city was pure gold, like pure glass.

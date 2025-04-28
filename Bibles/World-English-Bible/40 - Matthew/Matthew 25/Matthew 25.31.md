@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the Son of man shall come in his glory, and all the angels with him, then shall he sit on the throne of his glory:
+"But when the Son of Man comes in his glory, and all the holy angels with him, then he will sit on the throne of his glory.

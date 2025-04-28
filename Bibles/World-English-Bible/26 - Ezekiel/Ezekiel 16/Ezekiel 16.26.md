@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast also committed fornication with the Egyptians, thy neighbors, great of flesh; and hast multiplied thy whoredom, to provoke me to anger.
+You have also committed sexual immorality with the Egyptians, your neighbors, great of flesh; and have multiplied your prostitution, to provoke me to anger.

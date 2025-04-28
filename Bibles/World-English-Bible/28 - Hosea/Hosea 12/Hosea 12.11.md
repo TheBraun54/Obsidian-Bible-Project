@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is Gilead iniquity? they are altogether false; in Gilgal they sacrifice bullocks; yea, their altars are as heaps in the furrows of the field.
+If Gilead is wicked, surely they are worthless. In Gilgal they sacrifice bulls. Indeed, their altars are like heaps in the furrows of the field.

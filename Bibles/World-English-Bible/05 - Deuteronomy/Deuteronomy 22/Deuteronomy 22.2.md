@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy brother be not nigh unto thee, or if thou know him not, then thou shalt bring it home to thy house, and it shall be with thee until thy brother seek after it, and thou shalt restore it to him.
+If your brother isn't near to you, or if you don't know him, then you shall bring it home to your house, and it shall be with you until your brother seek after it, and you shall restore it to him.

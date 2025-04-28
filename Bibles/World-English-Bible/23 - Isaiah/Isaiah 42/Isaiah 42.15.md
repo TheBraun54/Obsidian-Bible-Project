@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will lay waste mountains and hills, and dry up all their herbs; and I will make the rivers islands, and will dry up the pools.
+I will destroy mountains and hills, and dry up all their herbs. I will make the rivers islands, and will dry up the pools.

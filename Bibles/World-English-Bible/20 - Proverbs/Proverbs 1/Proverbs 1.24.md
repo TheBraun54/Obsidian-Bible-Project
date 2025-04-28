@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because I have called, and ye have refused; I have stretched out my hand, and no man hath regarded;
+Because I have called, and you have refused; I have stretched out my hand, and no one has paid attention;

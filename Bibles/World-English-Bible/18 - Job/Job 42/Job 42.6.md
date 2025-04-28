@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I abhor [myself], And repent in dust and ashes.
+Therefore I abhor myself, and repent in dust and ashes."

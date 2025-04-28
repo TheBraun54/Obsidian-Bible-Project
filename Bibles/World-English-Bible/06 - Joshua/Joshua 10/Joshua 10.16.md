@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these five kings fled, and hid themselves in the cave at Makkedah.
+These five kings fled, and hid themselves in the cave at Makkedah.

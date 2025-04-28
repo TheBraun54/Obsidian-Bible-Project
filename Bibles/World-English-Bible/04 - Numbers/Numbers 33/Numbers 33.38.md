@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron the priest went up into mount Hor at the commandment of Jehovah, and died there, in the fortieth year after the children of Israel were come out of the land of Egypt, in the fifth month, on the first day of the month.
+Aaron the priest went up into Mount Hor at the commandment of Yahweh, and died there, in the fortieth year after the children of Israel were come out of the land of Egypt, in the fifth month, on the first day of the month.

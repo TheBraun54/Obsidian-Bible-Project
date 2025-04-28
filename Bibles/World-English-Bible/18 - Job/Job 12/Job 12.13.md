@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With [God] is wisdom and might; He hath counsel and understanding.
+"With God is wisdom and might. He has counsel and understanding.

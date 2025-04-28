@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that a man shall keep alive a young cow, and two sheep;
+It shall happen in that day that a man shall keep alive a young cow, and two sheep;

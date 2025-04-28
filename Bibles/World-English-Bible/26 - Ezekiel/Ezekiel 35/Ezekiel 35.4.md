@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will lay thy cities waste, and thou shalt be desolate; and thou shalt know that I am Jehovah.
+I will lay your cities waste, and you shall be desolate; and you shall know that I am Yahweh.

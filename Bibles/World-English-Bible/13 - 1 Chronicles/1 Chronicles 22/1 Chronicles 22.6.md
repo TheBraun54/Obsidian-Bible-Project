@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he called for Solomon his son, and charged him to build a house for Jehovah, the God of Israel.
+Then he called for Solomon his son, and commanded him to build a house for Yahweh, the God of Israel.

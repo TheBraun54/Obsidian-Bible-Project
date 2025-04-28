@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called ten servants of his, and gave them ten pounds, and said unto them, Trade ye [herewith] till I come.
+He called ten servants of his, and gave them ten mina coins, and told them, 'Conduct business until I come.'

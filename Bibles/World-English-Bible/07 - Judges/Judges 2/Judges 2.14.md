@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anger of Jehovah was kindled against Israel, and he delivered them into the hands of spoilers that despoiled them; and he sold them into the hands of their enemies round about, so that they could not any longer stand before their enemies.
+The anger of Yahweh was kindled against Israel, and he delivered them into the hands of spoilers who despoiled them; and he sold them into the hands of their enemies all around, so that they could not any longer stand before their enemies.

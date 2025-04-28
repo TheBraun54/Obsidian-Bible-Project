@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One of themselves, a prophet of their own, said, Cretans are always liars, evil beasts, idle gluttons.
+One of them, a prophet of their own, said, "Cretans are always liars, evil beasts, and idle gluttons."

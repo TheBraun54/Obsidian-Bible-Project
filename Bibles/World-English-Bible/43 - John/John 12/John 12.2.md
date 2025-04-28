@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they made him a supper there: and Martha served; but Lazarus was one of them that sat at meat with him.
+So they made him a supper there. Martha served, but Lazarus was one of those who sat at the table with him.

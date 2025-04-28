@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore that field was called, the field of blood, unto this day.
+Therefore that field was called "The Field of Blood" to this day.

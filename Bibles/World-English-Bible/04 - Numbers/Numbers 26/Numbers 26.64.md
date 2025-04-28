@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But among these there was not a man of them that were numbered by Moses and Aaron the priest, who numbered the children of Israel in the wilderness of Sinai.
+But among these there was not a man of them who were numbered by Moses and Aaron the priest, who numbered the children of Israel in the wilderness of Sinai.

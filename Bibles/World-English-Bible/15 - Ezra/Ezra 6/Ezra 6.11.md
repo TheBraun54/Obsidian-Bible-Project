@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also I have made a decree, that whosoever shall alter this word, let a beam be pulled out from his house, and let him be lifted up and fastened thereon; and let his house be made a dunghill for this:
+Also I have made a decree, that whoever shall alter this word, let a beam be pulled out from his house, and let him be lifted up and fastened thereon; and let his house be made a dunghill for this:

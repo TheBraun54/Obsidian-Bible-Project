@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore he said unto the messengers of Ben-hadad, Tell my lord the king, All that thou didst send for to thy servant at the first I will do; but this thing I may not do. And the messengers departed, and brought him word again.
+Therefore he said to the messengers of Ben Hadad, "Tell my lord the king, 'All that you sent for to your servant at the first I will do; but this thing I cannot do.'" The messengers departed, and brought him back the message.

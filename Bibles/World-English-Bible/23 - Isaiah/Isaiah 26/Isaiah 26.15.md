@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast increased the nation, O Jehovah, thou hast increased the nation; thou art glorified; thou hast enlarged all the borders of the land.
+You have increased the nation, O Yahweh. You have increased the nation! You are glorified! You have enlarged all the borders of the land.

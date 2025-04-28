@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then thou scarest me with dreams, And terrifiest me through visions:
+then you scare me with dreams, and terrify me through visions:

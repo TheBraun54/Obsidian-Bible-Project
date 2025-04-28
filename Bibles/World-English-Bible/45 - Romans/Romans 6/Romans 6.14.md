@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For sin shall not have dominion over you: for ye are not under law, but under grace.
+For sin will not have dominion over you. For you are not under law, but under grace.

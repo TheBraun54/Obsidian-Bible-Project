@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And your threshing shall reach unto the vintage, and the vintage shall reach unto the sowing time; and ye shall eat your bread to the full, and dwell in your land safely.
+Your threshing shall reach to the vintage, and the vintage shall reach to the sowing time; and you shall eat your bread to the full, and dwell in your land safely.

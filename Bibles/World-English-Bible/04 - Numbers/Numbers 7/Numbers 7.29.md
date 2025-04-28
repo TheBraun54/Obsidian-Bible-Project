@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for the sacrifice of peace-offerings, two oxen, five rams, five he-goats, five he-lambs a year old: this was the oblation of Eliab the son of Helon.
+and for the sacrifice of peace offerings, two head of cattle, five rams, five male goats, and five male lambs a year old. This was the offering of Eliab the son of Helon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A voice was heard in Ramah, weeping and great mourning, Rachel weeping for her children; And she would not be comforted, because they are not.
+"A voice was heard in Ramah, lamentation, weeping and great mourning, Rachel weeping for her children; she wouldn't be comforted, because they are no more."

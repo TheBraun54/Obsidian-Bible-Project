@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and last of all, as to the [child] untimely born, he appeared to me also.
+and last of all, as to the child born at the wrong time, he appeared to me also.

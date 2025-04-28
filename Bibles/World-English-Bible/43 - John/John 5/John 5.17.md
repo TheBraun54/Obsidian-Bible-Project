@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus answered them, My Father worketh even until now, and I work.
+But Jesus answered them, "My Father is still working, so I am working, too."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah said, What shall we say unto my lord? what shall we speak? or how shall we clear ourselves? God hath found out the iniquity of thy servants: behold, we are my lord's bondmen, both we, and he also in whose hand the cup is found.
+Judah said, "What will we tell my lord? What will we speak? Or how will we clear ourselves? God has found out the iniquity of your servants. Behold, we are my lord's bondservants, both we, and he also in whose hand the cup is found."

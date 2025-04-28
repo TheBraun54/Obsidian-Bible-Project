@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a river went out of Eden to water the garden; and from thence it was parted, and became four heads.
+A river went out of Eden to water the garden; and from there it was parted, and became four heads.

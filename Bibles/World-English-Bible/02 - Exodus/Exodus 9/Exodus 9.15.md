@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For now I had put forth my hand, and smitten thee and thy people with pestilence, and thou hadst been cut off from the earth:
+For now I would have put forth my hand, and struck you and your people with pestilence, and you would have been cut off from the earth;

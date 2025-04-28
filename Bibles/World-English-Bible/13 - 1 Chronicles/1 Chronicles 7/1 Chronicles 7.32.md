@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Heber begat Japhlet, and Shomer, and Hotham, and Shua their sister.
+Heber became the father of Japhlet, and Shomer, and Hotham, and Shua their sister.

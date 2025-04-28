@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that maketh many friends [doeth it] to his own destruction; But there is a friend that sticketh closer than a brother.
+A man of many companions may be ruined, but there is a friend who sticks closer than a brother.

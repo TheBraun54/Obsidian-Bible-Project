@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore it shall be night unto you, that ye shall have no vision; and it shall be dark unto you, that ye shall not divine; and the sun shall go down upon the prophets, and the day shall be black over them.
+"Therefore night is over you, with no vision, and it is dark to you, that you may not divine; and the sun will go down on the prophets, and the day will be black over them.

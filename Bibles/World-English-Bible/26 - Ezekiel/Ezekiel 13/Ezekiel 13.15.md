@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus will I accomplish my wrath upon the wall, and upon them that have daubed it with untempered [mortar] ; and I will say unto you, The wall is no more, neither they that daubed it;
+Thus will I accomplish my wrath on the wall, and on those who have plastered it with whitewash; and I will tell you, The wall is no more, neither those who plastered it;

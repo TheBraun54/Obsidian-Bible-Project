@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who had his dwelling in the tombs: and no man could any more bind him, no, not with a chain;
+He lived in the tombs. Nobody could bind him any more, not even with chains,

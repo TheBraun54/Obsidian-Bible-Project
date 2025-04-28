@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and think not to say within yourselves, We have Abraham to our father: for I say unto you, that God is able of these stones to raise up children unto Abraham.
+Don't think to yourselves, 'We have Abraham for our father,' for I tell you that God is able to raise up children to Abraham from these stones.

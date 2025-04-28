@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And under him were Eden, and Miniamin, and Jeshua, and Shemaiah, Amariah, and Shecaniah, in the cities of the priests, in their office of trust, to give to their brethren by courses, as well to the great as to the small:
+Under him were Eden, and Miniamin, and Jeshua, and Shemaiah, Amariah, and Shecaniah, in the cities of the priests, in their office of trust, to give to their brothers by divisions, as well to the great as to the small:

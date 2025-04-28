@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to Ophir, and fetched from thence gold, four hundred and twenty talents, and brought it to king Solomon.
+They came to Ophir, and fetched from there gold, four hundred and twenty talents, and brought it to king Solomon.

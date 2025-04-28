@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I thought to disclose it unto thee, saying, Buy it before them that sit here, and before the elders of my people. If thou wilt redeem it, redeem it: but if thou wilt not redeem it, then tell me, that I may know; for there is none to redeem it besides thee; and I am after thee. And he said, I will redeem it.
+I thought to disclose it to you, saying, 'Buy it before those who sit here, and before the elders of my people.' If you will redeem it, redeem it; but if you will not redeem it, then tell me, that I may know. For there is no one to redeem it besides you; and I am after you." He said, "I will redeem it."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he passed by, he saw a man blind from his birth.
+As he passed by, he saw a man blind from birth.

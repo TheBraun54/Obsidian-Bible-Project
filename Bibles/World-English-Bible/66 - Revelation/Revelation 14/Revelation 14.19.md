@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel cast his sickle into the earth, and gathered the vintage of the earth, and cast it into the winepress, the great [winepress], of the wrath of God.
+The angel thrust his sickle into the earth, and gathered the vintage of the earth, and threw it into the great winepress of the wrath of God.

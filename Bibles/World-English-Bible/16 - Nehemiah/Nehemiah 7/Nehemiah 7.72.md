@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that which the rest of the people gave was twenty thousand darics of gold, and two thousand pounds of silver, and threescore and seven priests' garments.
+That which the rest of the people gave was twenty thousand darics of gold, and two thousand minas of silver, and sixty-seven priests' garments.

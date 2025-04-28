@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear this, ye old men, and give ear, all ye inhabitants of the land. Hath this been in your days, or in the days of your fathers?
+Hear this, you elders, And listen, all you inhabitants of the land. Has this ever happened in your days, or in the days of your fathers?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Gibbar, ninety and five.
+The children of Gibbar, ninety-five.

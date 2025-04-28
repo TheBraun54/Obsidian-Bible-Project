@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David rose up early, he and his men, to depart in the morning, to return into the land of the Philistines. And the Philistines went up to Jezreel.
+So David rose up early, he and his men, to depart in the morning, to return into the land of the Philistines. The Philistines went up to Jezreel.

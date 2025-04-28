@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He smote the Philistines unto Gaza and the borders thereof, from the tower of the watchmen to the fortified city.
+He struck the Philistines to Gaza and its borders, from the tower of the watchmen to the fortified city.

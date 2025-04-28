@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No man can serve two masters; for either he will hate the one, and love the other; or else he will hold to one, and despise the other. Ye cannot serve God and mammon.
+"No one can serve two masters, for either he will hate the one and love the other; or else he will be devoted to one and despise the other. You can't serve both God and Mammon.

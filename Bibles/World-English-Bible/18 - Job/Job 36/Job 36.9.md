@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he showeth them their work, And their transgressions, that they have behaved themselves proudly.
+then he shows them their work, and their transgressions, that they have behaved themselves proudly.

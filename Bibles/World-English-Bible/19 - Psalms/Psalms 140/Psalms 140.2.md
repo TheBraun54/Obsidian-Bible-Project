@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who devise mischiefs in their heart; Continually do they gather themselves together for war.
+those who devise mischief in their hearts. They continually gather themselves together for war.

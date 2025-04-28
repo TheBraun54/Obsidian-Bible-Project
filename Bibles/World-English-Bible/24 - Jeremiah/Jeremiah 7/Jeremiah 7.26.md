@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet they hearkened not unto me, nor inclined their ear, but made their neck stiff: they did worse than their fathers.
+yet they didn't listen to me, nor inclined their ear, but made their neck stiff: they did worse than their fathers.

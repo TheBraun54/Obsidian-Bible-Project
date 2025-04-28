@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall waste the land of Assyria with the sword, and the land of Nimrod in the entrances thereof: and he shall deliver us from the Assyrian, when he cometh into our land, and when he treadeth within our border.
+They will rule the land of Assyria with the sword, and the land of Nimrod in its gates. He will deliver us from the Assyrian, when he invades our land, and when he marches within our border.

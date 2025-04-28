@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the first [place] the standard of the camp of the children of Judah set forward according to their hosts: and over his host was Nahshon the son of Amminadab.
+First, the standard of the camp of the children of Judah went forward according to their armies. Nahshon the son of Amminadab was over his army.

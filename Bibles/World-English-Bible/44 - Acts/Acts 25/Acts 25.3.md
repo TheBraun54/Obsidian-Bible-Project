@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-asking a favor against him, that he would send for him to Jerusalem; laying a plot to kill him on the way.
+asking a favor against him, that he would summon him to Jerusalem; plotting to kill him on the way.

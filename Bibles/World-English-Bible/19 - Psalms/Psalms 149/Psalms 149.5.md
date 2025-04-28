@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the saints exult in glory: Let them sing for joy upon their beds.
+Let the saints rejoice in honor. Let them sing for joy on their beds.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then will I pluck them up by the roots out of my land which I have given them; and this house, which I have hallowed for my name, will I cast out of my sight, and I will make it a proverb and a byword among all peoples.
+then I will pluck them up by the roots out of my land which I have given them; and this house, which I have made holy for my name, I will cast out of my sight, and I will make it a proverb and a byword among all peoples.

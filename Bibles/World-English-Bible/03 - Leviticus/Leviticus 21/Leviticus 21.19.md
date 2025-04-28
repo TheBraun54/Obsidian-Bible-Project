@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or a man that is broken-footed, or broken-handed,
+or a man who has an injured foot, or an injured hand,

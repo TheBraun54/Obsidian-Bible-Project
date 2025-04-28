@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as ye know how we [dealt with] each one of you, as a father with his own children, exhorting you, and encouraging [you], and testifying,
+As you know, we exhorted, comforted, and implored every one of you, as a father does his own children,

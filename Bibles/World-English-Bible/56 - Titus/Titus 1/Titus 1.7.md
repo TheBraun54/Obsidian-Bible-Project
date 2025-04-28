@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the bishop must be blameless, as God's steward; not self-willed, not soon angry, no brawler, no striker, not greedy of filthy lucre;
+For the overseer must be blameless, as God's steward; not self-pleasing, not easily angered, not given to wine, not violent, not greedy for dishonest gain;

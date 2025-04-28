@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-his oblation was one silver platter, the weight whereof was a hundred a thirty [shekels], one silver bowl of seventy shekels, after the shekel of the sanctuary; both of them full of fine flour mingled with oil for a meal-offering;
+gave his offering: one silver platter, the weight of which was one hundred thirty shekels, one silver bowl of seventy shekels, after the shekel of the sanctuary; both of them full of fine flour mixed with oil for a meal offering;

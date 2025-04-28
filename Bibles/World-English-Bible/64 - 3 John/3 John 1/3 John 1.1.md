@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The elder unto Gaius the beloved, whom I love in truth.
+The elder to Gaius the beloved, whom I love in truth.

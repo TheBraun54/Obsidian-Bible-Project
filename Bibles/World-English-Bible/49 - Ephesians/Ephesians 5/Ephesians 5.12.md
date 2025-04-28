@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the things which are done by them in secret it is a shame even to speak of.
+For the things which are done by them in secret, it is a shame even to speak of.

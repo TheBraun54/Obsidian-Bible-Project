@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thanks be to God for his unspeakable gift.
+Now thanks be to God for his unspeakable gift!

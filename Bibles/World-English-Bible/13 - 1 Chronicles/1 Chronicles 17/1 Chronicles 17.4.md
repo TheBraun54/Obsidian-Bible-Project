@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go and tell David my servant, Thus saith Jehovah, Thou shalt not build me a house to dwell in:
+"Go and tell David my servant, 'Thus says Yahweh, "You shall not build me a house to dwell in;

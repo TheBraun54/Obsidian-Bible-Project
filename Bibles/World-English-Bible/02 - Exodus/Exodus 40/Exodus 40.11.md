@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt anoint the laver and its base, and sanctify it.
+You shall anoint the basin and its base, and sanctify it.

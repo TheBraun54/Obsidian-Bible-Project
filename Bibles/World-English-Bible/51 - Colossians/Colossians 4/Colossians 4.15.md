@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute the brethren that are in Laodicea, and Nymphas, and the church that is in their house.
+Greet the brothers who are in Laodicea, and Nymphas, and the assembly that is in his house.

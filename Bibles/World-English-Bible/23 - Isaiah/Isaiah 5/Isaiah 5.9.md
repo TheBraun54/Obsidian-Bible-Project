@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In mine ears [saith] Jehovah of hosts, Of a truth many houses shall be desolate, even great and fair, without inhabitant.
+In my ears, Yahweh of Armies says: "Surely many houses will be desolate, even great and beautiful, unoccupied.

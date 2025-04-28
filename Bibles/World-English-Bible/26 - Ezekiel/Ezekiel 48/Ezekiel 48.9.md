@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The oblation that ye shall offer unto Jehovah shall be five and twenty thousand [reeds] in length, and ten thousand in breadth.
+The offering that you shall offer to Yahweh shall be twenty-five thousand [reeds] in length, and ten thousand in breadth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But, beloved, we are persuaded better things of you, and things that accompany salvation, though we thus speak:
+But, beloved, we are persuaded of better things for you, and things that accompany salvation, even though we speak like this.

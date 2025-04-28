@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In all things I gave you an example, that so laboring ye ought to help the weak, and to remember the words of the Lord Jesus, that he himself said, It is more blessed to give than to receive.
+In all things I gave you an example, that so laboring you ought to help the weak, and to remember the words of the Lord Jesus, that he himself said, 'It is more blessed to give than to receive.'"

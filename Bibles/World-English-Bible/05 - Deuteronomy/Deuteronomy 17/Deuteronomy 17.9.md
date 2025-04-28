@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt come unto the priests the Levites, and unto the judge that shall be in those days: and thou shalt inquire; and they shall show thee the sentence of judgment.
+and you shall come to the priests the Levites, and to the judge who shall be in those days: and you shall inquire; and they shall show you the sentence of judgment.

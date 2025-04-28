@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was again war with the Philistines at Gob; and Elhanan the son of Jaareoregim the Beth-lehemite slew Goliath the Gittite, the staff of whose spear was like a weaver's beam.
+There was again war with the Philistines at Gob; and Elhanan the son of Jaareoregim the Bethlehemite killed Goliath the Gittite's brother, the staff of whose spear was like a weaver's beam.

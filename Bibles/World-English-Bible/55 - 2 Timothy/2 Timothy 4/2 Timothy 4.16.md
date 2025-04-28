@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At my first defence no one took my part, but all forsook me: may it not be laid to their account.
+At my first defense, no one came to help me, but all left me. May it not be held against them.

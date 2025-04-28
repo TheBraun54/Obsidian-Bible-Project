@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim [was] a watchman with my God: as for the prophet, a fowler's snare is in all his ways, [and] enmity in the house of his God.
+A prophet watches over Ephraim with my God. A fowler's snare is on all of his paths, and hostility in the house of his God.

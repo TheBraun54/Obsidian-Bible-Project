@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the land of Egypt is before thee; in the best of the land make thy father and thy brethren to dwell; in the land of Goshen let them dwell: and if thou knowest any able men among them, then make them rulers over my cattle.
+The land of Egypt is before you. Make your father and your brothers dwell in the best of the land. Let them dwell in the land of Goshen. If you know any able men among them, then put them in charge of my livestock."

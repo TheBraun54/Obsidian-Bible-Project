@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For John said unto Herod, It is not lawful for thee to have thy brother's wife.
+For John said to Herod, "It is not lawful for you to have your brother's wife."

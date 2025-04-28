@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the beginnings of your months ye shall offer a burnt-offering unto Jehovah: two young bullocks, and one ram, seven he-lambs a year old without blemish;
+"'In the beginnings of your months you shall offer a burnt offering to Yahweh: two young bulls, and one ram, seven male lambs a year old without blemish;

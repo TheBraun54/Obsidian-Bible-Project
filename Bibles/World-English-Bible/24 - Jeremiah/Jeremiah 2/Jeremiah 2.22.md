@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though thou wash thee with lye, and take thee much soap, yet thine iniquity is marked before me, saith the Lord Jehovah.
+For though you wash yourself with lye, and use much soap, yet your iniquity is marked before me," says the Lord Yahweh.

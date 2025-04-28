@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the word of the cross is to them that perish foolishness; but unto us who are saved it is the power of God.
+For the word of the cross is foolishness to those who are dying, but to us who are saved it is the power of God.

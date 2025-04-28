@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that there came men from Shechem, from Shiloh, and from Samaria, even fourscore men, having their beards shaven and their clothes rent, and having cut themselves, with meal-offerings and frankincense in their hand, to bring them to the house of Jehovah.
+that there came men from Shechem, from Shiloh, and from Samaria, even eighty men, having their beards shaved and their clothes torn, and having cut themselves, with meal offerings and frankincense in their hand, to bring them to the house of Yahweh.

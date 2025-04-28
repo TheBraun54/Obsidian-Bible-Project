@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord Jehovah, thou hast begun to show thy servant thy greatness, and thy strong hand: for what god is there in heaven or in earth, that can do according to thy works, and according to thy mighty acts?
+"Lord Yahweh, you have begun to show your servant your greatness, and your strong hand: for what god is there in heaven or in earth, that can do according to your works, and according to your mighty acts?

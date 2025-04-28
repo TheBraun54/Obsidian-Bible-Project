@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The waters saw thee, O God; The waters saw thee, they were afraid: The depths also trembled.
+The waters saw you, God. The waters saw you, and they writhed. The depths also convulsed.

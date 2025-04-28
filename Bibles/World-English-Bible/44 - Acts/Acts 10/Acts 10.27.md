@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he talked with him, he went in, and findeth many come together:
+As he talked with him, he went in and found many gathered together.

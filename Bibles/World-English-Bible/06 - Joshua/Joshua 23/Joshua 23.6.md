@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore be ye very courageous to keep and to do all that is written in the book of the law of Moses, that ye turn not aside therefrom to the right hand or to the left;
+"Therefore be very courageous to keep and to do all that is written in the book of the law of Moses, that you not turn aside from it to the right hand or to the left;

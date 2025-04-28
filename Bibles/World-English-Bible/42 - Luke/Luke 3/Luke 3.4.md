@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as it is written in the book of the words of Isaiah the prophet, The voice of one crying in the wilderness, Make ye ready the way of the Lord, Make his paths straight.
+As it is written in the book of the words of Isaiah the prophet, "The voice of one crying in the wilderness, 'Make ready the way of the Lord. Make his paths straight.

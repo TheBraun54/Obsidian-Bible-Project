@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Jehovah spake unto Moses, saying, I am Jehovah: speak thou unto Pharaoh king of Egypt all that I speak unto thee.
+that Yahweh spoke to Moses, saying, "I am Yahweh. Speak to Pharaoh king of Egypt all that I speak to you."

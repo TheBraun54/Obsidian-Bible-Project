@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they tied unto it a lace of blue, to fasten it upon the mitre above; as Jehovah commanded Moses.
+They tied to it a lace of blue, to fasten it on the turban above, as Yahweh commanded Moses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Abraham and Sarah were old, [and] well stricken in age; it had ceased to be with Sarah after the manner of women.
+Now Abraham and Sarah were old, well advanced in age. Sarah had passed the age of childbearing.

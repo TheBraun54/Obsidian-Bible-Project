@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I removed his shoulder from the burden: His hands were freed from the basket.
+"I removed his shoulder from the burden. His hands were freed from the basket.

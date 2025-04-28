@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ The covenant] which he made with Abraham, And his oath unto Isaac,
+[the covenant] which he made with Abraham, his oath to Isaac.

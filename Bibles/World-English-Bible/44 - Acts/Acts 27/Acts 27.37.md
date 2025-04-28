@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we were in all in the ship two hundred threescore and sixteen souls.
+In all, we were two hundred seventy-six souls on the ship.

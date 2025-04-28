@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall have like portions to eat, besides that which cometh of the sale of his patrimony.
+They shall have like portions to eat, besides that which comes of the sale of his patrimony.

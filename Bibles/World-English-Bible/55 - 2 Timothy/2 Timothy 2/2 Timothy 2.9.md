@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherein I suffer hardship unto bonds, as a malefactor; but the word of God is not bound.
+in which I suffer hardship to the point of chains as a criminal. But God's word isn't chained.

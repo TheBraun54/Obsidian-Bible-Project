@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in the day that Lot went out from Sodom it rained fire and brimstone from heaven, and destroyed them all:
+but in the day that Lot went out from Sodom, it rained fire and sulfur from the sky, and destroyed them all.

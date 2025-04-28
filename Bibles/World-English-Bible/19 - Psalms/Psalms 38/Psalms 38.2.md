@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thine arrows stick fast in me, And thy hand presseth me sore.
+For your arrows have pierced me, your hand presses hard on me.

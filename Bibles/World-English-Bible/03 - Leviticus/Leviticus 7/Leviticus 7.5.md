@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall burn them upon the altar for an offering made by fire unto Jehovah: it is a trespass-offering.
+and the priest shall burn them on the altar for an offering made by fire to Yahweh: it is a trespass offering.

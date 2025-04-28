@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We took sweet counsel together; We walked in the house of God with the throng.
+We took sweet fellowship together. We walked in God's house with company.

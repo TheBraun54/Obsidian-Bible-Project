@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All thy lovers have forgotten thee; they seek thee not: for I have wounded thee with the wound of an enemy, with the chastisement of a cruel one, for the greatness of thine iniquity, because thy sins were increased.
+All your lovers have forgotten you; they don't seek you: for I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your iniquity, because your sins were increased.

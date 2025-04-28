@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that doubteth is condemned if he eat, because [he eateth] not of faith; and whatsoever is not of faith is sin.
+But he who doubts is condemned if he eats, because it isn't of faith; and whatever is not of faith is sin.

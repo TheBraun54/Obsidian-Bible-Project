@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she conceived again, and bare a son; and said, Now this time will my husband be joined unto me, because I have borne him three sons: therefore was his name called Levi.
+She conceived again, and bore a son. Said, "Now this time will my husband be joined to me, because I have borne him three sons." Therefore was his name called Levi.

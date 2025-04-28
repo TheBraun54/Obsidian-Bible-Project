@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ he fleeth] because he is a hireling, and careth not for the sheep.
+The hired hand flees because he is a hired hand, and doesn't care for the sheep.

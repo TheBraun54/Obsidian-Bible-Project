@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The horseleach hath two daughters, [crying], Give, give. There are three things that are never satisfied, [Yea], four that say not, Enough:
+"The leach has two daughters: 'Give, give.' "There are three things that are never satisfied; four that don't say, 'Enough:'

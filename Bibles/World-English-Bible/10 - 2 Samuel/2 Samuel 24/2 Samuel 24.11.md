@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when David rose up in the morning, the word of Jehovah came unto the prophet Gad, David's seer, saying,
+When David rose up in the morning, the word of Yahweh came to the prophet Gad, David's seer, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I believe, for I will speak: I was greatly afflicted:
+I believed, therefore I said, "I was greatly afflicted."

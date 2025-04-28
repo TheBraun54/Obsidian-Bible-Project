@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some believed the things which were spoken, and some disbelieved.
+Some believed the things which were spoken, and some disbelieved.

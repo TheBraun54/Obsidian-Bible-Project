@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For on the day thou goest out, and passest over the brook Kidron, know thou for certain that thou shalt surely die: thy blood shall be upon thine own head.
+For on the day you go out, and pass over the brook Kidron, know for certain that you shall surely die: your blood shall be on your own head."

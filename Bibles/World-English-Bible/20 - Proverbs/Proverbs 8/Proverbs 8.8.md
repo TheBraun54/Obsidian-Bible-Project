@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the words of my mouth are in righteousness; There is nothing crooked or perverse in them.
+All the words of my mouth are in righteousness. There is nothing crooked or perverse in them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fields shall be bought in this land, whereof ye say, It is desolate, without man or beast; it is given into the hand of the Chaldeans.
+Fields shall be bought in this land, about which you say, It is desolate, without man or animal; it is given into the hand of the Chaldeans.

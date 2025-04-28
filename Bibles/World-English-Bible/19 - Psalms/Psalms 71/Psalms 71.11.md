@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Saying, God hath forsaken him: Pursue and take him; For there is none to deliver.
+saying, "God has forsaken him. Pursue and take him, for no one will rescue him."

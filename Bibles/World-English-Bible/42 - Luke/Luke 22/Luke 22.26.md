@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye [shall] not [be] so: but he that is the greater among you, let him become as the younger; and he that is chief, as he that doth serve.
+But not so with you. But one who is the greater among you, let him become as the younger, and one who is governing, as one who serves.

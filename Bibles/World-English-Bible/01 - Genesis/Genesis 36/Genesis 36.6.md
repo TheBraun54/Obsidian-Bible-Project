@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esau took his wives, and his sons, and his daughters, and all the souls of his house, and his cattle, and all his beasts, and all his possessions, which he had gathered in the land of Canaan; and went into a land away from his brother Jacob.
+Esau took his wives, his sons, his daughters, and all the members of his household, with his livestock, all his animals, and all his possessions, which he had gathered in the land of Canaan, and went into a land away from his brother Jacob.

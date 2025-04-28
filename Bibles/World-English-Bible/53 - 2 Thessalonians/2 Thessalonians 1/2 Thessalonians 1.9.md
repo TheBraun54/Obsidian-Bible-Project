@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who shall suffer punishment, [even] eternal destruction from the face of the Lord and from the glory of his might,
+who will pay the penalty: eternal destruction from the face of the Lord and from the glory of his might,

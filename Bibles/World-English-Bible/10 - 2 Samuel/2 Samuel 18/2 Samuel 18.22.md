@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Ahimaaz the son of Zadok yet again to Joab, But come what may, let me, I pray thee, also run after the Cushite. And Joab said, Wherefore wilt thou run, my son, seeing that thou wilt have no reward for the tidings?
+Then Ahimaaz the son of Zadok said yet again to Joab, "But come what may, please let me also run after the Cushite." Joab said, "Why do you want to run, my son, since that you will have no reward for the news?"

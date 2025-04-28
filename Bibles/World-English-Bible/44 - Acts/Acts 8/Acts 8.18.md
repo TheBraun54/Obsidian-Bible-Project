@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Simon saw that through the laying on of the apostles' hands the Holy Spirit was given, he offered them money,
+Now when Simon saw that the Holy Spirit was given through the laying on of the apostles' hands, he offered them money,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon Elam will I bring the four winds from the four quarters of heaven, and will scatter them toward all those winds; and there shall be no nation whither the outcasts of Elam shall not come.
+On Elam will I bring the four winds from the four quarters of the sky, and will scatter them toward all those winds; and there shall be no nation where the outcasts of Elam shall not come.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the men of Israel saw that Abimelech was dead, they departed every man unto his place.
+When the men of Israel saw that Abimelech was dead, they departed every man to his place.

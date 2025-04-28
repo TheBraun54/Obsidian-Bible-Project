@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My God will cast them away, because they did not hearken unto him; and they shall be wanderers among the nations.
+My God will cast them away, because they did not listen to him; and they will be wanderers among the nations.

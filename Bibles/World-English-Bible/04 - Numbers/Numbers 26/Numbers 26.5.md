@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Reuben, the first-born of Israel; the sons of Reuben: [of] Hanoch, the family of the Hanochites; of Pallu, the family of the Palluites;
+Reuben, the firstborn of Israel; the sons of Reuben: [of] Hanoch, the family of the Hanochites; of Pallu, the family of the Palluites;

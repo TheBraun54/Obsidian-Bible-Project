@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it was shown to me that there would be a plot against the man, I sent him to thee forthwith, charging his accusers also to speak against him before thee.
+When I was told that the Jews lay in wait for the man, I sent him to you immediately, charging his accusers also to bring their accusations against him before you. Farewell."

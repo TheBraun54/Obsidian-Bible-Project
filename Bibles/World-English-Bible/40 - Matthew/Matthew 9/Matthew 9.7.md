@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he arose, and departed to his house.
+He arose and departed to his house.

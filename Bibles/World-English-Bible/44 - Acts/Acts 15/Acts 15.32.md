@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judas and Silas, being themselves also prophets, exhorted the brethren with many words, and confirmed them.
+Judas and Silas, also being prophets themselves, encouraged the brothers with many words, and strengthened them.

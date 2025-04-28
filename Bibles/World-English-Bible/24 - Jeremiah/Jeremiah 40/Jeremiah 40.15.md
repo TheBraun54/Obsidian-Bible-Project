@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Johanan the son of Kareah spake to Gedaliah in Mizpah secretly, saying, Let me go, I pray thee, and I will slay Ishmael the son of Nethaniah, and no man shall know it: wherefore should he take thy life, that all the Jews that are gathered unto thee should be scattered, and the remnant of Judah perish?
+Then Johanan the son of Kareah spoke to Gedaliah in Mizpah secretly, saying, Please let me go, and I will kill Ishmael the son of Nethaniah, and no man shall know it: why should he take your life, that all the Jews who are gathered to you should be scattered, and the remnant of Judah perish?

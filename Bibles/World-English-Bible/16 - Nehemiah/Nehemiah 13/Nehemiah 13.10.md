@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I perceived that the portions of the Levites had not been given them; so that the Levites and the singers, that did the work, were fled every one to his field.
+I perceived that the portions of the Levites had not been given them; so that the Levites and the singers, who did the work, had fled everyone to his field.

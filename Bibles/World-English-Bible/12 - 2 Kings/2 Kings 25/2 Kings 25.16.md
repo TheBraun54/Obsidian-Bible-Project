@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The two pillars, the one sea, and the bases, which Solomon had made for the house of Jehovah, the brass of all these vessels was without weight.
+The two pillars, the one sea, and the bases, which Solomon had made for the house of Yahweh, the brass of all these vessels was without weight.

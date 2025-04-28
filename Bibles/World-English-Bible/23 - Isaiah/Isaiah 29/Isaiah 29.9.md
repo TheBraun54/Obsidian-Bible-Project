@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tarry ye and wonder; take your pleasure and be blind: they are drunken, but not with wine; they stagger, but not with strong drink.
+Pause and wonder! Blind yourselves and be blind! They are drunken, but not with wine; they stagger, but not with strong drink.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The labor of the righteous [tendeth] to life; The increase of the wicked, to sin.
+The labor of the righteous leads to life. The increase of the wicked leads to sin.

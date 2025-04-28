@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Josiah: the first-born Johanan, the second Jehoiakim, the third Zedekiah, the fourth Shallum.
+The sons of Josiah: the firstborn Johanan, the second Jehoiakim, the third Zedekiah, the fourth Shallum.

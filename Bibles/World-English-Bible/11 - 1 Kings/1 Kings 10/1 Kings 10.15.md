@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-besides [that which] the traders [brought], and the traffic of the merchants, and of all the kings of the mingled people, and of the governors of the country.
+besides [that which] the traders [brought], and the traffic of the merchants, and of all the kings of the mixed people, and of the governors of the country.

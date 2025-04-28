@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are they that dwell in thy house: They will be still praising thee. {{Selah
+Blessed are those who dwell in your house. They are always praising you. Selah.

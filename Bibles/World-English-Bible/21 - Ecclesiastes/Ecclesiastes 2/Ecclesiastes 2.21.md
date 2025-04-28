@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is a man whose labor is with wisdom, and with knowledge, and with skilfulness; yet to a man that hath not labored therein shall he leave it for his portion. This also is vanity and a great evil.
+For there is a man whose labor is with wisdom, with knowledge, and with skillfulness; yet he shall leave it for his portion to a man who has not labored for it. This also is vanity and a great evil.

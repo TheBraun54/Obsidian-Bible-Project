@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the priesthood being changed, there is made of necessity a change also of the law.
+For the priesthood being changed, there is of necessity a change made also in the law.

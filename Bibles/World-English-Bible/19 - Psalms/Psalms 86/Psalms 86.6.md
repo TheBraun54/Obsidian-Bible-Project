@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give ear, O Jehovah, unto my prayer; And hearken unto the voice of my supplications.
+Hear, Yahweh, my prayer. Listen to the voice of my petitions.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He spake, and the locust came, And the grasshopper, and that without number,
+He spoke, and the locusts came, and the grasshoppers, without number,

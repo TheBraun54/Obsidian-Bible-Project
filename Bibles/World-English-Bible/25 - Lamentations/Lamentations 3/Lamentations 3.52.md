@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have chased me sore like a bird, they that are mine enemies without cause.
+They have chased me relentlessly like a bird, those who are my enemies without cause.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah was sore displeased with your fathers.
+"Yahweh was very displeased with your fathers.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-though I myself might have confidence even in the flesh: if any other man thinketh to have confidence in the flesh, I yet more:
+though I myself might have confidence even in the flesh. If any other man thinks that he has confidence in the flesh, I yet more:

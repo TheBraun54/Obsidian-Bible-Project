@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah possessed me in the beginning of his way, Before his works of old.
+"Yahweh possessed me in the beginning of his work, before his deeds of old.

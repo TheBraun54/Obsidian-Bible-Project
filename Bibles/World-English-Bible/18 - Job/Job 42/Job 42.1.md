@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Job answered Jehovah, and said,
+Then Job answered Yahweh,

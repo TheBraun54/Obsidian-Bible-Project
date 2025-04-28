@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man hath ears to hear, let him hear.
+If any man has ears to hear, let him hear."

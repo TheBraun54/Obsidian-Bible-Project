@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So his fellow-servant fell down and besought him, saying, Have patience with me, and I will pay thee.
+"So his fellow servant fell down at his feet and begged him, saying, 'Have patience with me, and I will repay you!'

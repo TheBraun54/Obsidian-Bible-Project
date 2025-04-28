@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, why hast thou not rebuked Jeremiah of Anathoth, who maketh himself a prophet to you,
+Now therefore, why have you not rebuked Jeremiah of Anathoth, who makes himself a prophet to you,

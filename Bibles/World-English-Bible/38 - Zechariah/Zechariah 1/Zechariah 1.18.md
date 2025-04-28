@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I lifted up mine eyes, and saw, and, behold, four horns.
+I lifted up my eyes, and saw, and behold, four horns.

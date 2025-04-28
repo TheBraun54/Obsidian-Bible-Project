@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the ark set forward, that Moses said, Rise up, O Jehovah, and let thine enemies be scattered; and let them that hate thee flee before thee.
+It happened, when the ark went forward, that Moses said, "Rise up, Yahweh, and let your enemies be scattered! Let those who hate you flee before you!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The trees of Jehovah are filled [with moisture], The cedars of Lebanon, which he hath planted;
+Yahweh's trees are well watered, the cedars of Lebanon, which he has planted;

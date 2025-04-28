@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The meek have seen it, and are glad: Ye that seek after God, let your heart live.
+The humble have seen it, and are glad. You who seek after God, let your heart live.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Swear unto me: and he sware unto him. And Israel bowed himself upon the bed's head.
+He said, "Swear to me," and he swore to him. Israel bowed himself on the bed's head.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For where a testament is, there must of necessity be the death of him that made it.
+For where a last will and testament is, there must of necessity be the death of him who made it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My skin is black, [and falleth] from me, And my bones are burned with heat.
+My skin grows black and peels from me. My bones are burned with heat.

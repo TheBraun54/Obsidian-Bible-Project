@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the day following Paul went in with us unto James; and all the elders were present.
+The day following, Paul went in with us to James; and all the elders were present.

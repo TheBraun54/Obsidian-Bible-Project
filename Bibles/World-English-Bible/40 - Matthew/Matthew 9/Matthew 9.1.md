@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he entered into a boat, and crossed over, and came into his own city.
+He entered into a boat, and crossed over, and came into his own city.

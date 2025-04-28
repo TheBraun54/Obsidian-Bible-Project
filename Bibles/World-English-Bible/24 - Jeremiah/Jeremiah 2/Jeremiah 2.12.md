@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be astonished, O ye heavens, at this, and be horribly afraid, be ye very desolate, saith Jehovah.
+"Be astonished, you heavens, at this, and be horribly afraid. Be very desolate," says Yahweh.

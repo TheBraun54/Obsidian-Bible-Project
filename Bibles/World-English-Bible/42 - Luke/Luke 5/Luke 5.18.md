@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, men bring on a bed a man that was palsied: and they sought to bring him in, and to lay him before him.
+Behold, men brought a paralyzed man on a cot, and they sought to bring him in to lay before Jesus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The plowers plowed upon my back; They made long their furrows.
+The plowers plowed on my back. They made their furrows long.

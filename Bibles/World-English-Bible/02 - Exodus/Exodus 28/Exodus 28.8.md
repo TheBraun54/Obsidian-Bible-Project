@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the skilfully woven band, which is upon it, wherewith to gird it on, shall be like the work thereof [and] of the same piece; of gold, of blue, and purple, and scarlet, and fine twined linen.
+The skillfully woven band, which is on it, that is on him, shall be like its work and of the same piece; of gold, of blue, and purple, and scarlet, and fine twined linen.

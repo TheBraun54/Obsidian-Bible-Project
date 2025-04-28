@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The kingdom of heaven is likened unto a certain king, who made a marriage feast for his son,
+"The Kingdom of Heaven is like a certain king, who made a marriage feast for his son,

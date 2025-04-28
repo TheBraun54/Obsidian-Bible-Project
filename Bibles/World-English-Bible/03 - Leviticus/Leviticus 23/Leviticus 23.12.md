@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the day when ye wave the sheaf, ye shall offer a he-lamb without blemish a year old for a burnt-offering unto Jehovah.
+On the day when you wave the sheaf, you shall offer a male lamb without blemish a year old for a burnt offering to Yahweh.

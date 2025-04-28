@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also all that generation were gathered unto their fathers: and there arose another generation after them, that knew not Jehovah, nor yet the work which he had wrought for Israel.
+Also all that generation were gathered to their fathers: and there arose another generation after them, who didn't know Yahweh, nor yet the work which he had worked for Israel.

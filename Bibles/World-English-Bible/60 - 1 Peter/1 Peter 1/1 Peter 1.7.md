@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the proof of your faith, [being] more precious than gold that perisheth though it is proved by fire, may be found unto praise and glory and honor at the revelation of Jesus Christ:
+that the proof of your faith, which is more precious than gold that perishes even though it is tested by fire, may be found to result in praise, glory, and honor at the revelation of Jesus Christ--

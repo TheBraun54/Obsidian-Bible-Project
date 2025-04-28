@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cry aloud with thy voice, O daughter of Gallim! hearken, O Laishah! O thou poor Anathoth!
+Cry aloud with your voice, daughter of Gallim! Listen, Laishah! You poor Anathoth!

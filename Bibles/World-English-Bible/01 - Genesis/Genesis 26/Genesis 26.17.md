@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac departed thence, and encamped in the valley of Gerar, and dwelt there.
+Isaac departed from there, encamped in the valley of Gerar, and lived there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, I will call all the families of the kingdoms of the north, saith Jehovah; and they shall come, and they shall set every one his throne at the entrance of the gates of Jerusalem, and against all the walls thereof round about, and against all the cities of Judah.
+For, behold, I will call all the families of the kingdoms of the north," says Yahweh; "and they shall come, and they shall each set his throne at the entrance of the gates of Jerusalem, and against all its walls all around, and against all the cities of Judah.

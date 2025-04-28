@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that smiteth a beast mortally shall make it good, life for life.
+He who strikes an animal mortally shall make it good, life for life.

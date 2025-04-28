@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to these also Enoch, the seventh from Adam, prophesied, saying, Behold, the Lord came with ten thousands of his holy ones,
+About these also Enoch, the seventh from Adam, prophesied, saying, "Behold, the Lord came with ten thousands of his holy ones,

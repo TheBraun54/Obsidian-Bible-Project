@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a vanity which is done upon the earth, that there are righteous men unto whom it happeneth according to the work of the wicked; again, there are wicked men to whom it happeneth according to the work of the righteous: I said that this also is vanity.
+There is a vanity which is done on the earth, that there are righteous men to whom it happens according to the work of the wicked. Again, there are wicked men to whom it happens according to the work of the righteous. I said that this also is vanity.

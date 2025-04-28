@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of their children that were left after them in the land, whom the children of Israel consumed not, of them did Solomon raise a levy [of bondservants] unto this day.
+of their children who were left after them in the land, whom the children of Israel didn't consume, of them Solomon conscripted forced labor to this day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, When thou goest back into Egypt, see that thou do before Pharaoh all the wonders which I have put in thy hand: but I will harden his heart, and he will not let the people go.
+Yahweh said to Moses, "When you go back into Egypt, see that you do before Pharaoh all the wonders which I have put in your hand, but I will harden his heart and he will not let the people go.

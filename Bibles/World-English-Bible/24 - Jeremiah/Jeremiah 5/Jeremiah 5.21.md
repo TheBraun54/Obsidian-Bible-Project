@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear now this, O foolish people, and without understanding; that have eyes, and see not; that have ears, and hear not:
+'Hear now this, foolish people, and without understanding; who have eyes, and don't see; who have ears, and don't hear:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as we have borne the image of the earthy, we shall also bear the image of the heavenly.
+As we have borne the image of those made of dust, let's also bear the image of the heavenly.

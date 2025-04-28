@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of the oppression of the poor, because of the sighing of the needy, Now will I arise, saith Jehovah; I will set him in the safety he panteth for.
+"Because of the oppression of the weak and because of the groaning of the needy, I will now arise," says Yahweh; "I will set him in safety from those who malign him."

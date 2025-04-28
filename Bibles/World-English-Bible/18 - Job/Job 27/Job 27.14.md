@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If his children be multiplied, it is for the sword; And his offspring shall not be satisfied with bread.
+If his children are multiplied, it is for the sword. His offspring shall not be satisfied with bread.

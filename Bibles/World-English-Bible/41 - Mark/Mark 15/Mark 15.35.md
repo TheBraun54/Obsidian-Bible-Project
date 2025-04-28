@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of them that stood by, when they heard it, said, Behold, he calleth Elijah.
+Some of those who stood by, when they heard it, said, "Behold, he is calling Elijah."

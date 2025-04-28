@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If it be possible, as much as in you lieth, be at peace with all men.
+If it is possible, as much as it is up to you, be at peace with all men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For [God] shall hurl at him, and not spare: He would fain flee out of his hand.
+For it hurls at him, and does not spare, as he flees away from his hand.

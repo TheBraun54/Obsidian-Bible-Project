@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I write unto you, [my] little children, because your sins are forgiven you for his name's sake.
+I write to you, little children, because your sins are forgiven you for his name's sake.

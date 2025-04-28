@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our Redeemer, Jehovah of hosts is his name, the Holy One of Israel.
+Our Redeemer, Yahweh of Armies is his name, the Holy One of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So when they had gone to and from through all the land, they came to Jerusalem at the end of nine months and twenty days.
+So when they had gone back and forth through all the land, they came to Jerusalem at the end of nine months and twenty days.

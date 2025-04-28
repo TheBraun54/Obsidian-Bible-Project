@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he closed the book, and gave it back to the attendant, and sat down: and the eyes of all in the synagogue were fastened on him.
+He closed the book, gave it back to the attendant, and sat down. The eyes of all in the synagogue were fastened on him.

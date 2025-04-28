@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As they went up the ascent to the city, they found young maidens going out to draw water, and said unto them, Is the seer here?
+As they went up the ascent to the city, they found young maidens going out to draw water, and said to them, "Is the seer here?"

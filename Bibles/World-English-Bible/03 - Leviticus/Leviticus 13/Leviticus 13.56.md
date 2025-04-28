@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the priest look, and, behold, the plague be dim after the washing thereof, then he shall rend it out of the garment, or out of the skin, or out of the warp, or out of the woof:
+If the priest looks, and behold, the plague has faded after it is washed, then he shall tear it out of the garment, or out of the skin, or out of the warp, or out of the woof:

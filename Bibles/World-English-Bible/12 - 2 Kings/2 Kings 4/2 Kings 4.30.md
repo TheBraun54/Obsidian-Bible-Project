@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the mother of the child said, As Jehovah liveth, and as thy soul liveth, I will not leave thee. And he arose, and followed her.
+The mother of the child said, "As Yahweh lives, and as your soul lives, I will not leave you." He arose, and followed her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, We are able. And Jesus said unto them, The cup that I drink ye shall drink; and with the baptism that I am baptized withal shall ye be baptized:
+They said to him, "We are able." Jesus said to them, "You shall indeed drink the cup that I drink, and you shall be baptized with the baptism that I am baptized with;

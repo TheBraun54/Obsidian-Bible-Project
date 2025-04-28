@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered Joshua, saying, All that thou hast commanded us we will do, and whithersoever thou sendest us we will go.
+They answered Joshua, saying, "All that you have commanded us we will do, and wherever you send us we will go.

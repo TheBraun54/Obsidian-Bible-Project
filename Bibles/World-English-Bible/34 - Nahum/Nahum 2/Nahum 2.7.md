@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it is decreed: she is uncovered, she is carried away; and her handmaids moan as with the voice of doves, beating upon their breasts.
+It is decreed: she is uncovered, she is carried away; and her handmaids moan as with the voice of doves, beating on their breasts.

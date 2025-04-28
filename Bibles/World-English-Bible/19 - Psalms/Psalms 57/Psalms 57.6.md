@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have prepared a net for my steps; My soul is bowed down: They have digged a pit before me; They are fallen into the midst thereof themselves. {{Selah
+They have prepared a net for my steps. My soul is bowed down. They dig a pit before me. They fall into its midst themselves. Selah.

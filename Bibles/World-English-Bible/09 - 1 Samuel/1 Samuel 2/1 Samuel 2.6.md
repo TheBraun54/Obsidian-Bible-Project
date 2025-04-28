@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah killeth, and maketh alive: He bringeth down to Sheol, and bringeth up.
+"Yahweh kills, and makes alive. He brings down to Sheol, and brings up.

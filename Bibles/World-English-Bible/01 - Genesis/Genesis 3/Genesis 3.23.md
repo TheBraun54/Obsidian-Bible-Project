@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore Jehovah God sent him forth from the garden of Eden, to till the ground from whence he was taken.
+Therefore Yahweh God sent him forth from the garden of Eden, to till the ground from which he was taken.

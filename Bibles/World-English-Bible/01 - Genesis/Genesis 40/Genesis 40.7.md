@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he asked Pharaoh's officers that were with him in ward in his master's house, saying, Wherefore look ye so sad to-day?
+He asked Pharaoh's officers who were with him in custody in his master's house, saying, "Why do you look so sad today?"

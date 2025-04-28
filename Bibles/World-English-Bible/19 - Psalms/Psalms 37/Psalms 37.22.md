@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For such as are blessed of him shall inherit the land; And they that are cursed of him shall be cut off.
+For such as are blessed by him shall inherit the land. Those who are cursed by him shall be cut off.

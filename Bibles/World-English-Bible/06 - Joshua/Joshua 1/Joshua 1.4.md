@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the wilderness, and this Lebanon, even unto the great river, the river Euphrates, all the land of the Hittites, and unto the great sea toward the going down of the sun, shall be your border.
+From the wilderness, and this Lebanon, even to the great river, the river Euphrates, all the land of the Hittites, and to the great sea toward the going down of the sun, shall be your border.

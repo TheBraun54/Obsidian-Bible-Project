@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath delivered me out of all trouble; And mine eye hath seen [my desire] upon mine enemies.
+For he has delivered me out of all trouble. My eye has seen triumph over my enemies. For the Chief Musician. On stringed instruments. A contemplation by David.

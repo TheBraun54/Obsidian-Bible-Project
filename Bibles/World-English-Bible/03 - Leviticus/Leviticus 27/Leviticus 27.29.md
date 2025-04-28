@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No one devoted, that shall be devoted from among men, shall be ransomed; he shall surely be put to death.
+"'No one devoted, who shall be devoted from among men, shall be ransomed; he shall surely be put to death.

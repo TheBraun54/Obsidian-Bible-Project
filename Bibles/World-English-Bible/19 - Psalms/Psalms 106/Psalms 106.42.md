@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their enemies also oppressed them, And they were brought into subjection under their hand.
+Their enemies also oppressed them. They were brought into subjection under their hand.

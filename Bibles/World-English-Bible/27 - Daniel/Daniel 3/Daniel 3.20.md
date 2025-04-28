@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he commanded certain mighty men that were in his army to bind Shadrach, Meshach, and Abed-nego, [and] to cast them into the burning fiery furnace.
+He commanded certain mighty men who were in his army to bind Shadrach, Meshach, and Abednego, [and] to cast them into the burning fiery furnace.

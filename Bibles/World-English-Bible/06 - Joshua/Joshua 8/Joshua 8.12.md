@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took about five thousand men, and set them in ambush between Beth-el and Ai, on the west side of the city.
+He took about five thousand men, and set them in ambush between Bethel and Ai, on the west side of the city.

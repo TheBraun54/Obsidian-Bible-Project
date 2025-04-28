@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let him sit alone and keep silence, because he hath laid it upon him.
+Let him sit alone and keep silence, because he has laid it on him.

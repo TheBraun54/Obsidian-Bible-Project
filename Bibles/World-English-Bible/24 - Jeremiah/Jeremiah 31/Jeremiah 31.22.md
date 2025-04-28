@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long wilt thou go hither and thither, O thou backsliding daughter? for Jehovah hath created a new thing in the earth: a woman shall encompass a man.
+How long will you go here and there, you backsliding daughter? for Yahweh has created a new thing in the earth: a woman shall encompass a man.

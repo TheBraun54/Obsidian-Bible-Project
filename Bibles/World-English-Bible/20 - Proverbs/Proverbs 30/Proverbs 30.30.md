@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lion, which is mightiest among beasts, And turneth not away for any;
+The lion, which is mightiest among animals, and doesn't turn away for any;

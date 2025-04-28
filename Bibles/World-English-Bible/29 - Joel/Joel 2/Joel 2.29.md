@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and also upon the servants and upon the handmaids in those days will I pour out my Spirit.
+And also on the servants and on the handmaids in those days, I will pour out my Spirit.

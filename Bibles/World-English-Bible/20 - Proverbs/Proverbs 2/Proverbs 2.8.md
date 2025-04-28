@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That he may guard the paths of justice, And preserve the way of his saints.
+that he may guard the paths of justice, and preserve the way of his saints.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have made thee a trier [and] a fortress among my people; that thou mayest know and try their way.
+"I have made you a tester of metals [and] a fortress among my people; that you may know and try their way.

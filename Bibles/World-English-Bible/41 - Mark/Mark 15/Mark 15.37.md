@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus uttered a loud voice, and gave up the ghost.
+Jesus cried out with a loud voice, and gave up the spirit.

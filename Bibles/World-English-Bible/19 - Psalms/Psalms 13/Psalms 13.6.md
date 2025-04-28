@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will sing unto Jehovah, Because he hath dealt bountifully with me.
+I will sing to Yahweh, because he has been good to me. For the Chief Musician. By David.

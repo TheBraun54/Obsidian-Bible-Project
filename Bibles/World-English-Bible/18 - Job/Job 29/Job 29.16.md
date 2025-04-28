@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was a father to the needy: And the cause of him that I knew not I searched out.
+I was a father to the needy. The cause of him who I didn't know, I searched out.

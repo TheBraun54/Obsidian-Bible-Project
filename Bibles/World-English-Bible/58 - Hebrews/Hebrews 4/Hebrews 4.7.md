@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he again defineth a certain day, To-day, saying in David so long a time afterward (even as hath been said before), To-day if ye shall hear his voice, Harden not your hearts.
+he again defines a certain day, today, saying through David so long a time afterward (just as has been said), "Today if you will hear his voice, don't harden your hearts."

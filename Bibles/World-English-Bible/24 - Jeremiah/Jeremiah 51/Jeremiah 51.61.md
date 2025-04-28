@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeremiah said to Seraiah, When thou comest to Babylon, then see that thou read all these words,
+Jeremiah said to Seraiah, When you come to Babylon, then see that you read all these words,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of the daughter of Asher was Serah.
+The name of the daughter of Asher was Serah.

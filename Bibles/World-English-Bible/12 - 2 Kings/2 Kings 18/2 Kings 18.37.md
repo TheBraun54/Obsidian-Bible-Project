@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came Eliakim the son of Hilkiah, who was over the household, and Shebna the scribe, and Joah the son of Asaph the recorder, to Hezekiah with their clothes rent, and told him the words of Rabshakeh.
+Then Eliakim the son of Hilkiah, who was over the household, came with Shebna the scribe, and Joah the son of Asaph the recorder, to Hezekiah with their clothes torn, and told him the words of Rabshakeh.

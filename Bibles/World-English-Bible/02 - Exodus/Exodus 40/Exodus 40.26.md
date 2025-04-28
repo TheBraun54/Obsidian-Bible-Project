@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he put the golden altar in the tent of meeting before the veil:
+He put the golden altar in the Tent of Meeting before the veil;

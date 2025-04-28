@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A day for building thy walls! in that day shall the decree be far removed.
+A day to build your walls-- In that day, he will extend your boundary.

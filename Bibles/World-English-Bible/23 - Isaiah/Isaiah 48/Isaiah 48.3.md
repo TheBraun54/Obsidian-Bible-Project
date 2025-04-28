@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have declared the former things from of old; yea, they went forth out of my mouth, and I showed them: suddenly I did them, and they came to pass.
+I have declared the former things from of old; yes, they went forth out of my mouth, and I showed them: suddenly I did them, and they happened.

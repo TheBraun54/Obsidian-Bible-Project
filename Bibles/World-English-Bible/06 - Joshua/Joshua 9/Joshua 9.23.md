@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore ye are cursed, and there shall never fail to be of you bondmen, both hewers of wood and drawers of water for the house of my God.
+Now therefore you are cursed, and some of you will never fail to be bondservants, both wood cutters and drawers of water for the house of my God."

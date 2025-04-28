@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that overcometh shall inherit these things; and I will be his God, and he shall be my son.
+He who overcomes, I will give him these things. I will be his God, and he will be my son.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, my servant whom I have chosen; My beloved in whom my soul is well pleased: I will put my Spirit upon him, And he shall declare judgment to the Gentiles.
+"Behold, my servant whom I have chosen; my beloved in whom my soul is well pleased: I will put my Spirit on him. He will proclaim justice to the nations.

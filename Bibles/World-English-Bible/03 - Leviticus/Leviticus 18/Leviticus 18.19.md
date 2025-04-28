@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt not approach unto a woman to uncover her nakedness, as long as she is impure by her uncleanness.
+"'You shall not approach a woman to uncover her nakedness, as long as she is impure by her uncleanness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they all left him, and fled.
+They all left him, and fled.

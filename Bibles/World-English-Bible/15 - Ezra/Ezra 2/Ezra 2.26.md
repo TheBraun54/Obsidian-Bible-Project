@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Ramah and Geba, six hundred twenty and one.
+The children of Ramah and Geba, six hundred twenty-one.

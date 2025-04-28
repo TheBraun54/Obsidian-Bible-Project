@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Shaalabbin, and Aijalon, and Ithlah,
+Shaalabbin, Aijalon, Ithlah,

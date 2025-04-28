@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lay hands hastily on no man, neither be partaker of other men's sins: keep thyself pure.
+Lay hands hastily on no one, neither be a participant in other men's sins. Keep yourself pure.

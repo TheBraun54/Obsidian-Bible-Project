@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah thy God will circumcise thy heart, and the heart of thy seed, to love Jehovah thy God with all thy heart, and with all thy soul, that thou mayest live.
+Yahweh your God will circumcise your heart, and the heart of your seed, to love Yahweh your God with all your heart, and with all your soul, that you may live.

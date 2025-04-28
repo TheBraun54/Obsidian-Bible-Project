@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will again have compassion upon us; he will tread our iniquities under foot; and thou wilt cast all their sins into the depths of the sea.
+He will again have compassion on us. He will tread our iniquities under foot; and you will cast all their sins into the depths of the sea.

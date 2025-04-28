@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the four and twenty elders shall fall down before him that sitteth on the throne, and shall worship him that liveth for ever and ever, and shall cast their crowns before the throne, saying,
+the twenty-four elders fall down before him who sits on the throne, and worship him who lives forever and ever, and throw their crowns before the throne, saying,

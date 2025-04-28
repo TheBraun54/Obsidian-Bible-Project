@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to the number that ye shall prepare, so shall ye do to every one according to their number.
+According to the number that you shall prepare, so you shall do to everyone according to their number.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was nothing lacking to them, neither small nor great, neither sons nor daughters, neither spoil, nor anything that they had taken to them: David brought back all.
+There was nothing lacking to them, neither small nor great, neither sons nor daughters, neither spoil, nor anything that they had taken to them. David brought back all.

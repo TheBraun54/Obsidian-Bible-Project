@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have understanding as well as you; I am not inferior to you: Yea, who knoweth not such things as these?
+But I have understanding as well as you; I am not inferior to you. Yes, who doesn't know such things as these?

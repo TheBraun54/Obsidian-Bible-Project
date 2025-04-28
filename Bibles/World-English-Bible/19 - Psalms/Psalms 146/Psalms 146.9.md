@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah preserveth the sojourners; He upholdeth the fatherless and widow; But the way of the wicked he turneth upside down.
+Yahweh preserves the foreigners. He upholds the fatherless and widow, but the way of the wicked he turns upside down.

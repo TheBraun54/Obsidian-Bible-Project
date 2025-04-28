@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a voice came out of the cloud, saying, This is my Son, my chosen: hear ye him.
+A voice came out of the cloud, saying, "This is my beloved Son. Listen to him!"

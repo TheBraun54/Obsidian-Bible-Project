@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore kill every male among the little ones, and kill every woman that hath known man by lying with him.
+Now therefore kill every male among the little ones, and kill every woman who has known man by lying with him.

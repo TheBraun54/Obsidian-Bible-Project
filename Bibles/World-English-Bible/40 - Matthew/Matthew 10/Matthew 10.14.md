@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever shall not receive you, nor hear your words, as ye go forth out of that house or that city, shake off the dust of your feet.
+Whoever doesn't receive you, nor hear your words, as you go out of that house or that city, shake off the dust from your feet.

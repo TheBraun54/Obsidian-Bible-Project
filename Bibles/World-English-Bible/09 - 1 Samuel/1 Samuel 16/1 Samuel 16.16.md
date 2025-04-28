@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let our lord now command thy servants, that are before thee, to seek out a man who is a skilful player on the harp: and it shall come to pass, when the evil spirit from God is upon thee, that he shall play with his hand, and thou shalt be well.
+Let our lord now command your servants who are before you, to seek out a man who is a skillful player on the harp. It shall happen, when the evil spirit from God is on you, that he shall play with his hand, and you shall be well."

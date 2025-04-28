@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah said, Let her take it to her, lest we be put to shame: behold, I sent this kid, and thou hast not found her.
+Judah said, "Let her keep it, lest we be shamed. Behold, I sent this young goat, and you haven't found her."

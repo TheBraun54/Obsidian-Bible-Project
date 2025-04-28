@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he saith, I will return into my house whence I came out; and when he is come, he findeth it empty, swept, and garnished.
+Then he says, 'I will return into my house from which I came out,' and when he has come back, he finds it empty, swept, and put in order.

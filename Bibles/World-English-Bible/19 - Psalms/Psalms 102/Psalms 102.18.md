@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This shall be written for the generation to come; And a people which shall be created shall praise Jehovah.
+This will be written for the generation to come. A people which will be created will praise Yah.

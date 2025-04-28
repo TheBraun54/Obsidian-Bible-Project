@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the prince shall enter, he shall go in by the way of the porch of the gate, and he shall go forth by the way thereof.
+When the prince shall enter, he shall go in by the way of the porch of the gate, and he shall go forth by its way.

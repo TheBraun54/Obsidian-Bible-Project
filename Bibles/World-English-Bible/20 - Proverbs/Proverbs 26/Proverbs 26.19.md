@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So is the man that deceiveth his neighbor, And saith, Am not I in sport?
+is the man who deceives his neighbor and says, "Am I not joking?"

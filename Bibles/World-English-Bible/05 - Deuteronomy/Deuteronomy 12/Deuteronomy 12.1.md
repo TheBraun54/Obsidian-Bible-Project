@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the statutes and the ordinances which ye shall observe to do in the land which Jehovah, the God of thy fathers, hath given thee to possess it, all the days that ye live upon the earth.
+These are the statutes and the ordinances which you shall observe to do in the land which Yahweh, the God of your fathers, has given you to possess it, all the days that you live on the earth.

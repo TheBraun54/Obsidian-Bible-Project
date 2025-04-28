@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who then is the faithful and wise servant, whom his lord hath set over his household, to give them their food in due season?
+"Who then is the faithful and wise servant, whom his lord has set over his household, to give them their food in due season?

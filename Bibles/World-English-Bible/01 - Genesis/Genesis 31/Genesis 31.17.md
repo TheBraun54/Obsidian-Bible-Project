@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jacob rose up, and set his sons and his wives upon the camels;
+Then Jacob rose up, and set his sons and his wives on the camels,

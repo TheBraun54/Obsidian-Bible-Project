@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember, forget thou not, how thou provokedst Jehovah thy God to wrath in the wilderness: from the day that thou wentest forth out of the land of Egypt, until ye came unto this place, ye have been rebellious against Jehovah.
+Remember, don't forget, how you provoked Yahweh your God to wrath in the wilderness: from the day that you went forth out of the land of Egypt, until you came to this place, you have been rebellious against Yahweh.

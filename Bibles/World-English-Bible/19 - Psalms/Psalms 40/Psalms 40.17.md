@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I am poor and needy; [Yet] the Lord thinketh upon me: Thou art my help and my deliverer; Make no tarrying, O my God.
+But I am poor and needy. May the Lord think about me. You are my help and my deliverer. Don't delay, my God. For the Chief Musician. A Psalm by David.

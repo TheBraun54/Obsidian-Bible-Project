@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of the voice of the enemy, Because of the oppression of the wicked; For they cast iniquity upon me, And in anger they persecute me.
+Because of the voice of the enemy, Because of the oppression of the wicked. For they bring suffering on me. In anger they hold a grudge against me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To Shuppim and Hosah westward, by the gate of Shallecheth, at the causeway that goeth up, watch against watch.
+To Shuppim and Hosah westward, by the gate of Shallecheth, at the causeway that goes up, watch against watch.

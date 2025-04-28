@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall he kill the goat of the sin-offering, that is for the people, and bring his blood within the veil, and do with his blood as he did with the blood of the bullock, and sprinkle it upon the mercy-seat, and before the mercy-seat:
+"Then he shall kill the goat of the sin offering, that is for the people, and bring his blood within the veil, and do with his blood as he did with the blood of the bull, and sprinkle it on the mercy seat, and before the mercy seat:

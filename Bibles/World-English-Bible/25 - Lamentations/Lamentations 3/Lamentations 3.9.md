@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath walled up my ways with hewn stone; he hath made my paths crooked.
+He has walled up my ways with cut stone; he has made my paths crooked.

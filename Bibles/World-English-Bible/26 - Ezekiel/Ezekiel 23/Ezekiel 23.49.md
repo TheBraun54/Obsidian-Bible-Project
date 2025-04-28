@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall recompense your lewdness upon you, and ye shall bear the sins of your idols; and ye shall know that I am the Lord Jehovah.
+They shall recompense your lewdness on you, and you shall bear the sins of your idols; and you shall know that I am the Lord Yahweh.

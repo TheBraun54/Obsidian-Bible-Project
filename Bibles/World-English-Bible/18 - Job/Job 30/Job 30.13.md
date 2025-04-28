@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They mar my path, They set forward my calamity, [Even] men that have no helper.
+They mar my path, They set forward my calamity, without anyone's help.

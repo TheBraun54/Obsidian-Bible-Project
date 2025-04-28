@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Was not Abraham our father justified by works, in that he offered up Isaac his son upon the altar?
+Wasn't Abraham our father justified by works, in that he offered up Isaac his son on the altar?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the king was talking with Gehazi the servant of the man of God, saying, Tell me, I pray thee, all the great things that Elisha hath done.
+Now the king was talking with Gehazi the servant of the man of God, saying, "Please tell me all the great things that Elisha has done."

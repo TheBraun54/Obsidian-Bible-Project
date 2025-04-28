@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The noise of a multitude in the mountains, as of a great people! the noise of a tumult of the kingdoms of the nations gathered together! Jehovah of hosts is mustering the host for the battle.
+The noise of a multitude is in the mountains, as of a great people; the noise of an uproar of the kingdoms of the nations gathered together! Yahweh of Armies is mustering the army for the battle.

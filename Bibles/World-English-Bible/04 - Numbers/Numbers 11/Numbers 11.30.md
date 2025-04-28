@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses gat him into the camp, he and the elders of Israel.
+Moses went into the camp, he and the elders of Israel.

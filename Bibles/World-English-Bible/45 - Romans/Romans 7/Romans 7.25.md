@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank God through Jesus Christ our Lord. So then I of myself with the mind, indeed, serve the law of God; but with the flesh the law of sin.
+I thank God through Jesus Christ, our Lord! So then with the mind, I myself serve God's law, but with the flesh, the sin's law.

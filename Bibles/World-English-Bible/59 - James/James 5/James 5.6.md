@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have condemned, ye have killed the righteous [one] ; he doth not resist you.
+You have condemned, you have murdered the righteous one. He doesn't resist you.

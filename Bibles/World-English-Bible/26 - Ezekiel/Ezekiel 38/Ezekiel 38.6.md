@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gomer, and all his hordes; the house of Togarmah in the uttermost parts of the north, and all his hordes; even many peoples with thee.
+Gomer, and all his hordes; the house of Togarmah in the uttermost parts of the north, and all his hordes; even many peoples with you.

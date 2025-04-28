@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, This man said, I am able to destroy the temple of God, and to build it in three days.
+and said, "This man said, 'I am able to destroy the temple of God, and to build it in three days.'"

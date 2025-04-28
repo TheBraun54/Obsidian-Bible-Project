@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ornan turned back, and saw the angel; and his four sons that were with him hid themselves. Now Ornan was threshing wheat.
+Ornan turned back, and saw the angel; and his four sons who were with him hid themselves. Now Ornan was threshing wheat.

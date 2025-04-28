@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thirty and two years old was he when he began to reign, and he reigned in Jerusalem eight years: and he departed without being desired; and they buried him in the city of David, but not in the sepulchres of the kings.
+Thirty-two years old was he when he began to reign, and he reigned in Jerusalem eight years: and he departed without being desired; and they buried him in the city of David, but not in the tombs of the kings.

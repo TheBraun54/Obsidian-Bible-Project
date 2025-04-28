@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument; for they hear thy words, but they do them not.
+Behold, you are to them as a very lovely song of one who has a pleasant voice, and can play well on an instrument; for they hear your words, but they don't do them.

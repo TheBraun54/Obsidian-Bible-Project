@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And what can David say more unto thee? for thou knowest thy servant, O Lord Jehovah.
+What more can David say to you? For you know your servant, Lord Yahweh.

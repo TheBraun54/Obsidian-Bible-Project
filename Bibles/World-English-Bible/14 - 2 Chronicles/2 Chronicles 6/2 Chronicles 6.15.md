@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who hast kept with thy servant David my father that which thou didst promise him: yea, thou spakest with thy mouth, and hast fulfilled it with thy hand, as it is this day.
+who have kept with your servant David my father that which you promised him: yes, you spoke with your mouth, and have fulfilled it with your hand, as it is this day.

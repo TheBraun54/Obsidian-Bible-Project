@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth not the ear try words, Even as the palate tasteth its food?
+Doesn't the ear try words, even as the palate tastes its food?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why hast thou broken down its walls, So that all they that pass by the way do pluck it?
+Why have you broken down its walls, so that all those who pass by the way pluck it?

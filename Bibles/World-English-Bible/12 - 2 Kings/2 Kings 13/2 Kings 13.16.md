@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said to the king of Israel, Put thy hand upon the bow; and he put his hand [upon it] . And Elisha laid his hands upon the king's hands.
+He said to the king of Israel, "Put your hand on the bow;" and he put his hand [on it]. Elisha laid his hands on the king's hands.

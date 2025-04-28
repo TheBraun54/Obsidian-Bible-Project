@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave him a piece of a broiled fish .
+They gave him a piece of a broiled fish and some honeycomb.

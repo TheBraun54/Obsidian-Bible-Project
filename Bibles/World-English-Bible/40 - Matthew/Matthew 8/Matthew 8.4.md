@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus saith unto him, See thou tell no man; but go, show thyself to the priest, and offer the gift that Moses commanded, for a testimony unto them.
+Jesus said to him, "See that you tell nobody, but go, show yourself to the priest, and offer the gift that Moses commanded, as a testimony to them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Elisha was fallen sick of his sickness whereof he died: and Joash the king of Israel came down unto him, and wept over him, and said, My father, my father, the chariots of Israel and the horsemen thereof!
+Now Elisha was fallen sick of his sickness of which he died: and Joash the king of Israel came down to him, and wept over him, and said, "My father, my father, the chariots of Israel and its horsemen!"

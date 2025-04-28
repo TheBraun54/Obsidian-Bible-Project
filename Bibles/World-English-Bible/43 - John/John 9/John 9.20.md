@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His parents answered and said, We know that this is our son, and that he was born blind:
+His parents answered them, "We know that this is our son, and that he was born blind;

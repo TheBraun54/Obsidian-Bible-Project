@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Israel, thy prophets have been like foxes in the waste places.
+Israel, your prophets have been like foxes in the waste places.

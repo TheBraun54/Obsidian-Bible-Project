@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was come down from the mountain, great multitudes followed him.
+When he came down from the mountain, great multitudes followed him.

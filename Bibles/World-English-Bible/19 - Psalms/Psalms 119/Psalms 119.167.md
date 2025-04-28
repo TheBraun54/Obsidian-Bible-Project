@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul hath observed thy testimonies; And I love them exceedingly.
+My soul has observed your testimonies. I love them exceedingly.

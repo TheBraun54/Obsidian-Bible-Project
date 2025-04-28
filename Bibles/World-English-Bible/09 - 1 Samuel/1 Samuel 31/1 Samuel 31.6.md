@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Saul died, and his three sons, and his armorbearer, and all his men, that same day together.
+So Saul died, and his three sons, and his armor bearer, and all his men, that same day together.

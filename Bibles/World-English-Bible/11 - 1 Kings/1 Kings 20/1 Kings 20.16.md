@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went out at noon. But Ben-hadad was drinking himself drunk in the pavilions, he and the kings, the thirty and two kings that helped him.
+They went out at noon. But Ben Hadad was drinking himself drunk in the pavilions, he and the kings, the thirty-two kings who helped him.

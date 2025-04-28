@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came thither unto a cave, and lodged there; and, behold, the word of Jehovah came to him, and he said unto him, What doest thou here, Elijah?
+He came there to a cave, and lodged there; and behold, the word of Yahweh came to him, and he said to him, "What are you doing here, Elijah?"

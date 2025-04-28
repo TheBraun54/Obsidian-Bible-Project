@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman took the two men, and hid them; and she said, Yea, the men came unto me, but I knew not whence they were:
+The woman took the two men and hid them. Then she said, "Yes, the men came to me, but I didn't know where they came from.

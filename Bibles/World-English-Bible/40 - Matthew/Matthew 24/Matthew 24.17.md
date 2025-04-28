@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let him that is on the housetop not go down to take out things that are in his house:
+Let him who is on the housetop not go down to take out things that are in his house.

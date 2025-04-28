@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when [Ben-hadad] heard this message, as he was drinking, he and the kings, in the pavilions, that he said unto his servants, Set [yourselves in array] . And they set [themselves in array] against the city.
+It happened, when Ben Hadad heard this message, as he was drinking, he and the kings, in the pavilions, that he said to his servants, "Prepare to attack!" They prepared to attack the city.

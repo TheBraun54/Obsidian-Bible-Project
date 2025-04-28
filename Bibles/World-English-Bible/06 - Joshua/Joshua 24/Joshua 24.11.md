@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye went over the Jordan, and came unto Jericho: and the men of Jericho fought against you, the Amorite, and the Perizzite, and the Canaanite, and the Hittite, and the Girgashite, the Hivite, and the Jebusite; and I delivered them into your hand.
+"'You went over the Jordan, and came to Jericho. The men of Jericho fought against you, the Amorite, the Perizzite, the Canaanite, the Hittite, the Girgashite, the Hivite, and the Jebusite; and I delivered them into your hand.

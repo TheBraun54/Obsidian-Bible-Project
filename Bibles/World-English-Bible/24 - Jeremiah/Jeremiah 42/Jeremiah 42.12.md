@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will grant you mercy, that he may have mercy upon you, and cause you to return to your own land.
+I will grant you mercy, that he may have mercy on you, and cause you to return to your own land.

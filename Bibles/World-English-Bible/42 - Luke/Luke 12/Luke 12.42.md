@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord said, Who then is the faithful and wise steward, whom his lord shall set over his household, to give them their portion of food in due season?
+The Lord said, "Who then is the faithful and wise steward, whom his lord will set over his household, to give them their portion of food at the right times?

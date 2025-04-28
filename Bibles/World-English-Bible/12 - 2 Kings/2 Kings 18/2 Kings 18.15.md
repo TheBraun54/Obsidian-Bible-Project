@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah gave [him] all the silver that was found in the house of Jehovah, and in the treasures of the king's house.
+Hezekiah gave [him] all the silver that was found in the house of Yahweh, and in the treasures of the king's house.

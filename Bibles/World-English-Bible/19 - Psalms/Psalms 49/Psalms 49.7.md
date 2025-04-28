@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-None [of them] can by any means redeem his brother, Nor give to God a ransom for him;
+none of them can by any means redeem his brother, nor give God a ransom for him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ye also helping together on our behalf by your supplication; that, for the gift bestowed upon us by means of many, thanks may be given by many persons on our behalf.
+you also helping together on our behalf by your supplication; that, for the gift bestowed on us by means of many, thanks may be given by many persons on your behalf.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because he remembered not to show kindness, But persecuted the poor and needy man, And the broken in heart, to slay [them] .
+because he didn't remember to show kindness, but persecuted the poor and needy man, the broken in heart, to kill them.

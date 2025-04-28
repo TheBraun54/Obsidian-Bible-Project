@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Beth-peor, and the slopes of Pisgah, and Beth-jeshimoth,
+Beth Peor, the slopes of Pisgah, Beth Jeshimoth,

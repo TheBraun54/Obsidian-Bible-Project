@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and looking up, they see that the stone is rolled back: for it was exceeding great.
+for it was very big. Looking up, they saw that the stone was rolled back.

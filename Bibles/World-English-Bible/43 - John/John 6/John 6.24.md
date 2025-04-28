@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when the multitude therefore saw that Jesus was not there, neither his disciples, they themselves got into the boats, and came to Capernaum, seeking Jesus.
+When the multitude therefore saw that Jesus wasn't there, nor his disciples, they themselves got into the boats, and came to Capernaum, seeking Jesus.

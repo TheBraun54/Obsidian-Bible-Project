@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A perfect and just weight shalt thou have; a perfect and just measure shalt thou have: that thy days may be long in the land which Jehovah thy God giveth thee.
+You shall have a perfect and just weight. You shall have a perfect and just measure, that your days may be long in the land which Yahweh your God gives you.

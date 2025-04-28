@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall bring it to Aaron's sons the priests; and he shall take thereout his handful of the fine flour thereof, and of the oil thereof, with all the frankincense thereof. And the priest shall burn [it as] the memorial thereof upon the altar, an offering made by fire, of a sweet savor unto Jehovah:
+He shall bring it to Aaron's sons, the priests; and he shall take his handful of its fine flour, and of its oil, with all its frankincense; and the priest shall burn its memorial on the altar, an offering made by fire, of a pleasant aroma to Yahweh.

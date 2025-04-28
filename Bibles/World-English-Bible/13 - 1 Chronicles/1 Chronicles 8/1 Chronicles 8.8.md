@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shaharaim begat children in the field of Moab, after he had sent them away; Hushim and Baara were his wives.
+Shaharaim became the father of children in the field of Moab, after he had sent them away; Hushim and Baara were his wives.

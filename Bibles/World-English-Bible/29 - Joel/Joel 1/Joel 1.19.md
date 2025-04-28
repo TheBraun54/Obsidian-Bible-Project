@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, to thee do I cry; for the fire hath devoured the pastures of the wilderness, and the flame hath burned all the trees of the field.
+Yahweh, I cry to you, For the fire has devoured the pastures of the wilderness, and the flame has burned all the trees of the field.

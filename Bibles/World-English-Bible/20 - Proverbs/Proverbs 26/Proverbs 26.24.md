@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hateth dissembleth with his lips; But he layeth up deceit within him:
+A malicious man disguises himself with his lips, but he harbors evil in his heart.

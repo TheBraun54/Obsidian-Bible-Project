@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus stood still, and called them, and said, What will ye that I should do unto you?
+Jesus stood still, and called them, and asked, "What do you want me to do for you?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And concerning Jehoiakim king of Judah thou shalt say, Thus saith Jehovah: Thou hast burned this roll, saying, Why hast thou written therein, saying, The king of Babylon shall certainly come and destroy this land, and shall cause to cease from thence man and beast?
+Concerning Jehoiakim king of Judah you shall say, Thus says Yahweh: You have burned this scroll, saying, Why have you written therein, saying, The king of Babylon shall certainly come and destroy this land, and shall cause to cease from there man and animal?

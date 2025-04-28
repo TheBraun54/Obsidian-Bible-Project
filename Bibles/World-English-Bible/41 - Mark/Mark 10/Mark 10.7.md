@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause shall a man leave his father and mother, and shall cleave to his wife;
+For this cause a man will leave his father and mother, and will join to his wife,

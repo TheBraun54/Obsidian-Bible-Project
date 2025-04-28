@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he that goeth in to his neighbor's wife; Whosoever toucheth her shall not be unpunished.
+So is he who goes in to his neighbor's wife. Whoever touches her will not be unpunished.

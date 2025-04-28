@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ben-abinadab, in all the height of Dor (he had Taphath the daughter of Solomon to wife);
+Ben Abinadab, in all the height of Dor (he had Taphath the daughter of Solomon as wife);

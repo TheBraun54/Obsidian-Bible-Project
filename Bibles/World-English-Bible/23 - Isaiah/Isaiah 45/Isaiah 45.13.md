@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have raised him up in righteousness, and I will make straight all his ways: he shall build my city, and he shall let my exiles go free, not for price nor reward, saith Jehovah of hosts.
+I have raised him up in righteousness, and I will make straight all his ways. He shall build my city, and he shall let my exiles go free, not for price nor reward," says Yahweh of Armies.

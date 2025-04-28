@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast heard their reproach, O Jehovah, and all their devices against me,
+You have heard their reproach, Yahweh, and all their devices against me,

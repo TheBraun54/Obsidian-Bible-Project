@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another, a second angel, followed, saying, Fallen, fallen is Babylon the great, that hath made all the nations to drink of the wine of the wrath of her fornication.
+Another, a second angel, followed, saying, "Babylon the great has fallen, which has made all the nations to drink of the wine of the wrath of her sexual immorality."

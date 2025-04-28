@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thrice was I beaten with rods, once was I stoned, thrice I suffered shipwreck, a night and a day have I been in the deep;
+Three times I was beaten with rods. Once I was stoned. Three times I suffered shipwreck. I have been a night and a day in the deep.

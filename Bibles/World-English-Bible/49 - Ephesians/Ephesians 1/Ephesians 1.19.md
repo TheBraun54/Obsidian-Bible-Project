@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and what the exceeding greatness of his power to us-ward who believe, according to that working of the strength of his might
+and what is the exceeding greatness of his power toward us who believe, according to that working of the strength of his might

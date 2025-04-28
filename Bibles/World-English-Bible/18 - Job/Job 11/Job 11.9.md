@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The measure thereof is longer than the earth, And broader than the sea.
+Its measure is longer than the earth, and broader than the sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And without controversy great is the mystery of godliness; He who was manifested in the flesh, Justified in the spirit, Seen of angels, Preached among the nations, Believed on in the world, Received up in glory.
+Without controversy, the mystery of godliness is great: God was revealed in the flesh, justified in the spirit, seen by angels, preached among the nations, believed on in the world, and received up in glory.

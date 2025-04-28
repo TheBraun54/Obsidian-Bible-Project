@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their horses were seven hundred thirty and six; their mules, two hundred forty and five;
+Their horses were seven hundred thirty-six; their mules, two hundred forty-five;

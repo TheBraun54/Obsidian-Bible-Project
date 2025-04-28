@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Love suffereth long, [and] is kind; love envieth not; love vaunteth not itself, is not puffed up,
+Love is patient and is kind; love doesn't envy. Love doesn't brag, is not proud,

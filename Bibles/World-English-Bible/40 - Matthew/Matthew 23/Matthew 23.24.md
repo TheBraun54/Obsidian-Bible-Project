@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye blind guides, that strain out the gnat, and swallow the camel!
+You blind guides, who strain out a gnat, and swallow a camel!

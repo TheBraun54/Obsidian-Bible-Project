@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before the mountains were settled, Before the hills was I brought forth;
+Before the mountains were settled in place, before the hills, I was brought forth;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God called unto the man, and said unto him, Where art thou?
+Yahweh God called to the man, and said to him, "Where are you?"

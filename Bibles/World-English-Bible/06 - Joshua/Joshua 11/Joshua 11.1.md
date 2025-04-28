@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jabin king of Hazor heard thereof, that he sent to Jobab king of Madon, and to the king of Shimron, and to the king of Achshaph,
+It happened, when Jabin king of Hazor heard of it, that he sent to Jobab king of Madon, to the king of Shimron, to the king of Achshaph,

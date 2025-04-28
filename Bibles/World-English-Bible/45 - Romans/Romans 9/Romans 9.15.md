@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he saith to Moses, I will have mercy on whom I have mercy, and I will have compassion on whom I have compassion.
+For he said to Moses, "I will have mercy on whom I have mercy, and I will have compassion on whom I have compassion."

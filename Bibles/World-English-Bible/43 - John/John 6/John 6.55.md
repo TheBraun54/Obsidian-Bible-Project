@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my flesh is meat indeed, and my blood is drink indeed.
+For my flesh is food indeed, and my blood is drink indeed.

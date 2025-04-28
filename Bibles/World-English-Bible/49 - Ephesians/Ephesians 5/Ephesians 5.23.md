@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the husband is the head of the wife, as Christ also is the head of the church, [being] himself the saviour of the body.
+For the husband is the head of the wife, and Christ also is the head of the assembly, being himself the savior of the body.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses stretched forth his hand over the sea, and the sea returned to its strength when the morning appeared; and the Egyptians fled against it; and Jehovah overthrew the Egyptians in the midst of the sea.
+Moses stretched out his hand over the sea, and the sea returned to its strength when the morning appeared; and the Egyptians fled against it. Yahweh overthrew the Egyptians in the midst of the sea.

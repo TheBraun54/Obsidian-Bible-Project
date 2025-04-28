@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who provideth for the raven his prey, When his young ones cry unto God, [And] wander for lack of food?
+Who provides for the raven his prey, when his young ones cry to God, and wander for lack of food?

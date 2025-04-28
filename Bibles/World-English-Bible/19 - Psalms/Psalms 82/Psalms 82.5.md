@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They know not, neither do they understand; They walk to and fro in darkness: All the foundations of the earth are shaken.
+They don't know, neither do they understand. They walk back and forth in darkness. All the foundations of the earth are shaken.

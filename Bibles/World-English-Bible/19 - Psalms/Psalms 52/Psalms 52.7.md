@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, this is the man that made not God his strength, But trusted in the abundance of his riches, And strengthened himself in his wickedness.
+"Behold, this is the man who didn't make God his strength, but trusted in the abundance of his riches, and strengthened himself in his wickedness."

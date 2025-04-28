@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, say unto the children of thy people, The righteousness of the righteous shall not deliver him in the day of his transgression; and as for the wickedness of the wicked, he shall not fall thereby in the day that he turneth from his wickedness; neither shall he that is righteous be able to live thereby in the day that he sinneth.
+You, son of man, tell the children of your people, The righteousness of the righteous shall not deliver him in the day of his disobedience; and as for the wickedness of the wicked, he shall not fall thereby in the day that he turns from his wickedness; neither shall he who is righteous be able to live thereby in the day that he sins.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For yet a very little while, and the indignation [against thee] shall be accomplished, and mine anger [shall be directed] to his destruction.
+For yet a very little while, and the indignation against you will be accomplished, and my anger will be directed to his destruction."

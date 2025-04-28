@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, because thou hast trusted in thy works and in thy treasures, thou also shalt be taken: and Chemosh shall go forth into captivity, his priests and his princes together.
+For, because you have trusted in your works and in your treasures, you also shall be taken: and Chemosh shall go forth into captivity, his priests and his princes together.

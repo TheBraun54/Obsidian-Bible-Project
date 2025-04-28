@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will pray the Father, and he shall give you another Comforter, that he may be with you for ever,
+I will pray to the Father, and he will give you another Counselor, that he may be with you forever,--

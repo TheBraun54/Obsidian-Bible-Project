@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They also that seek after my life lay snares [for me] ; And they that seek my hurt speak mischievous things, And meditate deceits all the day long.
+They also who seek after my life lay snares. Those who seek my hurt speak mischievous things, and meditate deceits all day long.

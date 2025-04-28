@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall stumble one upon another, as it were before the sword, when none pursueth: and ye shall have no power to stand before your enemies.
+They will stumble over one another, as it were before the sword, when no one pursues: and you will have no power to stand before your enemies.

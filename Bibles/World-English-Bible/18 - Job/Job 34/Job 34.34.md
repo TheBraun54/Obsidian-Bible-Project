@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Men of understanding will say unto me, Yea, every wise man that heareth me:
+Men of understanding will tell me, yes, every wise man who hears me:

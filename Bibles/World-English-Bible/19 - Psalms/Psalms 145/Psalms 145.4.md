@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One generation shall laud thy works to another, And shall declare thy mighty acts.
+One generation will commend your works to another, and will declare your mighty acts.

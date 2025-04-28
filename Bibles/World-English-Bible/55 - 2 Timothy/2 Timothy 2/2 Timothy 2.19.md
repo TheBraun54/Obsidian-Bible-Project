@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit the firm foundation of God standeth, having this seal, The Lord knoweth them that are his: and, Let every one that nameth the name of the Lord depart from unrighteousness.
+However God's firm foundation stands, having this seal, "The Lord knows those who are his," and, "Let every one who names the name of the Lord depart from unrighteousness."

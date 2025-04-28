@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sanctify unto me all the first-born, whatsoever openeth the womb among the children of Israel, both of man and of beast: it is mine.
+"Sanctify to me all of the firstborn, whatever opens the womb among the children of Israel, both of man and of animal. It is mine."

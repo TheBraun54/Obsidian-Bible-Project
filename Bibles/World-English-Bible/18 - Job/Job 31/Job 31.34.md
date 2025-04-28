@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because I feared the great multitude, And the contempt of families terrified me, So that I kept silence, and went not out of the door--
+because I feared the great multitude, and the contempt of families terrified me, so that I kept silence, and didn't go out of the door--

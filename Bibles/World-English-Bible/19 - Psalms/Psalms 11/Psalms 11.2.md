@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, the wicked bend the bow, They make ready their arrow upon the string, That they may shoot in darkness at the upright in heart;
+For, behold, the wicked bend their bows. They set their arrows on the strings, that they may shoot in darkness at the upright in heart.

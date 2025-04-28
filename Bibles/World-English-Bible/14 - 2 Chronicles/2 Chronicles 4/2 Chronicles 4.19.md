@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon made all the vessels that were in the house of God, the golden altar also, and the tables whereon was the showbread;
+Solomon made all the vessels that were in the house of God, the golden altar also, and the tables with the show bread on them;

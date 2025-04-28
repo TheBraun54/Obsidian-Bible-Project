@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we all, with unveiled face beholding as in a mirror the glory of the Lord, are transformed into the same image from glory to glory, even as from the Lord the Spirit.
+But we all, with unveiled face beholding as in a mirror the glory of the Lord, are transformed into the same image from glory to glory, even as from the Lord, the Spirit.

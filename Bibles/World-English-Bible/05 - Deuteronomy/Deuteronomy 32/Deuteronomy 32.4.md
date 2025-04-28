@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Rock, his work is perfect; For all his ways are justice: A God of faithfulness and without iniquity, Just and right is he.
+The Rock, his work is perfect, for all his ways are justice: a God of faithfulness and without iniquity, just and right is he.

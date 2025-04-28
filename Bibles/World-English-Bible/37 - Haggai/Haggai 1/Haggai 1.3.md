@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the word of Jehovah by Haggai the prophet, saying,
+Then the Word of Yahweh came by Haggai, the prophet, saying,

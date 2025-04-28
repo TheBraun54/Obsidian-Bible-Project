@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My beloved is white and ruddy, The chiefest among ten thousand.
+My beloved is white and ruddy. The best among ten thousand.

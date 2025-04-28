@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Aaron saw [this], he built an altar before it; and Aaron made proclamation, and said, To-morrow shall be a feast to Jehovah.
+When Aaron saw this, he built an altar before it; and Aaron made a proclamation, and said, "Tomorrow shall be a feast to Yahweh."

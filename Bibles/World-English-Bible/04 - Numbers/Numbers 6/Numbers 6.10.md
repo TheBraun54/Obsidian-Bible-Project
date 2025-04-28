@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the eighth day he shall bring two turtle-doves, or two young pigeons, to the priest, to the door of the tent of meeting:
+On the eighth day he shall bring two turtledoves or two young pigeons to the priest, to the door of the Tent of Meeting.

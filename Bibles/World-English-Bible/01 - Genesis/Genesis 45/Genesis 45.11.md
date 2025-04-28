@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there will I nourish thee; for there are yet five years of famine; lest thou come to poverty, thou, and thy household, and all that thou hast.
+There I will nourish you; for there are yet five years of famine; lest you come to poverty, you, and your household, and all that you have."'

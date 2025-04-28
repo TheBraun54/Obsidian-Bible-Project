@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set the golden altar for incense before the ark of the testimony, and put the screen of the door to the tabernacle.
+You shall set the golden altar for incense before the ark of the testimony, and put the screen of the door to the tabernacle.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He therefore that supplieth to you the Spirit, and worketh miracles among you, [doeth he it] by the works of the law, or by the hearing of faith?
+He therefore who supplies the Spirit to you, and works miracles among you, does he do it by the works of the law, or by hearing of faith?

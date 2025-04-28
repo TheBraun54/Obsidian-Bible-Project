@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-searching what [time] or what manner of time the Spirit of Christ which was in them did point unto, when it testified beforehand the sufferings of Christ, and the glories that should follow them.
+searching for who or what kind of time the Spirit of Christ, which was in them, pointed to, when he predicted the sufferings of Christ, and the glories that would follow them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because for the work of Christ he came nigh unto death, hazarding his life to supply that which was lacking in your service toward me.
+because for the work of Christ he came near to death, risking his life to supply that which was lacking in your service toward me.

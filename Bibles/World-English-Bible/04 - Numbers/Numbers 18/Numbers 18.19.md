@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the heave-offerings of the holy things, which the children of Israel offer unto Jehovah, have I given thee, and thy sons and thy daughters with thee, as a portion for ever: it is a covenant of salt for ever before Jehovah unto thee and to thy seed with thee.
+All the wave offerings of the holy things, which the children of Israel offer to Yahweh, have I given you, and your sons and your daughters with you, as a portion forever: it is a covenant of salt forever before Yahweh to you and to your seed with you."

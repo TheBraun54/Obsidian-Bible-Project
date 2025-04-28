@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king communed with them; and among them all was found none like Daniel, Hananiah, Mishael, and Azariah: therefore stood they before the king.
+The king talked with them; and among them all was found none like Daniel, Hananiah, Mishael, and Azariah: therefore stood they before the king.

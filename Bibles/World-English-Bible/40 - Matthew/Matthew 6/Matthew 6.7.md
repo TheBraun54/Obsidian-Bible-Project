@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in praying use not vain repetitions, as the Gentiles do: for they think that they shall be heard for their much speaking.
+In praying, don't use vain repetitions, as the Gentiles do; for they think that they will be heard for their much speaking.

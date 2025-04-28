@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses called unto them; and Aaron and all the rulers of the congregation returned unto him: and Moses spake to them.
+Moses called to them, and Aaron and all the rulers of the congregation returned to him; and Moses spoke to them.

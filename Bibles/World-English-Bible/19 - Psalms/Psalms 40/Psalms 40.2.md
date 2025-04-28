@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He brought me up also out of a horrible pit, out of the miry clay; And he set my feet upon a rock, and established my goings.
+He brought me up also out of a horrible pit, out of the miry clay. He set my feet on a rock, and gave me a firm place to stand.

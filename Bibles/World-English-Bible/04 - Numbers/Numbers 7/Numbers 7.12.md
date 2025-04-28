@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that offered his oblation the first day was Nahshon the son of Amminadab, of the tribe of Judah:
+He who offered his offering the first day was Nahshon the son of Amminadab, of the tribe of Judah,

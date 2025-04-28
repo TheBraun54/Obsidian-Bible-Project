@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this man rose up Judas of Galilee in the days of the enrolment, and drew away [some of the] people after him: he also perished; and all, as many as obeyed him, were scattered abroad.
+After this man, Judas of Galilee rose up in the days of the enrollment, and drew away some people after him. He also perished, and all, as many as obeyed him, were scattered abroad.

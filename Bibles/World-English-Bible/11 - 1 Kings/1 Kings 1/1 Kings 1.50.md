@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Adonijah feared because of Solomon; and he arose, and went, and caught hold on the horns of the altar.
+Adonijah feared because of Solomon; and he arose, and went, and caught hold on the horns of the altar.

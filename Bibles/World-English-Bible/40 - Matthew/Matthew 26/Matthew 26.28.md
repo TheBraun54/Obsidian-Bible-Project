@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for this is my blood of the covenant, which is poured out for many unto remission of sins.
+for this is my blood of the new covenant, which is poured out for many for the remission of sins.

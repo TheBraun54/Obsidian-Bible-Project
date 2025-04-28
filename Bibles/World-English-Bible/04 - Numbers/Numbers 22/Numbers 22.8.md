@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Lodge here this night, and I will bring you word again, as Jehovah shall speak unto me: and the princes of Moab abode with Balaam.
+He said to them, "Lodge here this night, and I will bring you word again, as Yahweh shall speak to me." The princes of Moab stayed with Balaam.

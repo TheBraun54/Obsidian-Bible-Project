@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then justice shall dwell in the wilderness; and righteousness shall abide in the fruitful field.
+Then justice will dwell in the wilderness; and righteousness will remain in the fruitful field.

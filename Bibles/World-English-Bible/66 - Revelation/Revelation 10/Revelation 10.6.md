@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and sware by him that liveth for ever and ever, who created the heaven and the things that are therein, and the earth and the things that are therein, and the sea and the things that are therein, that there shall be delay no longer:
+and swore by him who lives forever and ever, who created heaven and the things that are in it, the earth and the things that are in it, and the sea and the things that are in it, that there will no longer be delay,

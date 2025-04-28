@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But that ye may know that the Son of man hath authority on earth to forgive sins (he said unto him that was palsied), I say unto thee, Arise, and take up thy couch, and go unto thy house.
+But that you may know that the Son of Man has authority on earth to forgive sins" (he said to the paralyzed man), "I tell you, arise, and take up your cot, and go to your house."

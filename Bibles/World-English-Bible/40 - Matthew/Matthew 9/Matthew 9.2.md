@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, they brought to him a man sick of the palsy, lying on a bed: and Jesus seeing their faith said unto the sick of the palsy, Son, be of good cheer; thy sins are forgiven.
+Behold, they brought to him a man who was paralyzed, lying on a bed. Jesus, seeing their faith, said to the paralytic, "Son, cheer up! Your sins are forgiven you."

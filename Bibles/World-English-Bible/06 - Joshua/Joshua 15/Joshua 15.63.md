@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for the Jebusites, the inhabitants of Jerusalem, the children of Judah could not drive them out: but the Jebusites dwell with the children of Judah at Jerusalem unto this day.
+As for the Jebusites, the inhabitants of Jerusalem, the children of Judah couldn't drive them out; but the Jebusites live with the children of Judah at Jerusalem to this day.

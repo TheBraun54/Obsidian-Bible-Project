@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he strictly charged him, and straightway sent him out,
+He strictly warned him, and immediately sent him out,

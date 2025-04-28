@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are established for ever and ever; They are done in truth and uprightness.
+They are established forever and ever. They are done in truth and uprightness.

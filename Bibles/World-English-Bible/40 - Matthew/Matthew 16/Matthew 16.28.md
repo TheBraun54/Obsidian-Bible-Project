@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, there are some of them that stand here, who shall in no wise taste of death, till they see the Son of man coming in his kingdom.
+Most certainly I tell you, there are some standing here who will in no way taste of death, until they see the Son of Man coming in his Kingdom."

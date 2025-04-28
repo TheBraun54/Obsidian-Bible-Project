@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will put hooks in thy jaws, and I will cause the fish of thy rivers to stick unto thy scales; and I will bring thee up out of the midst of thy rivers, with all the fish of thy rivers which stick unto thy scales.
+I will put hooks in your jaws, and I will make the fish of your rivers stick to your scales; and I will bring you up out of the midst of your rivers, with all the fish of your rivers which stick to your scales.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will put in the wilderness the cedar, the acacia, and the myrtle, and the oil-tree; I will set in the desert the fir-tree, the pine, and the box-tree together:
+I will put cedar, acacia, myrtle, and oil trees in the wilderness. I will set fir trees, pine, and box trees together in the desert;

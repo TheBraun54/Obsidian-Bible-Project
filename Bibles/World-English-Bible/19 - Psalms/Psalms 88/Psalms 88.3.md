@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my soul is full of troubles, And my life draweth nigh unto Sheol.
+For my soul is full of troubles. My life draws near to Sheol.

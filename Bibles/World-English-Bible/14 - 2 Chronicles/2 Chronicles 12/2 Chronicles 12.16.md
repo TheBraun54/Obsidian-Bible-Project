@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rehoboam slept with his fathers, and was buried in the city of David: and Abijah his son reigned in his stead.
+Rehoboam slept with his fathers, and was buried in the city of David: and Abijah his son reigned in his place.

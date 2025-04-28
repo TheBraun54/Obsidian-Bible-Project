@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless in thy manifold mercies thou didst not make a full end of them, nor forsake them; for thou art a gracious and merciful God.
+"Nevertheless in your manifold mercies you did not make a full end of them, nor forsake them; for you are a gracious and merciful God.

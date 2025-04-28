@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she went out, and said unto her mother, What shall I ask? And she said, The head of John the Baptizer.
+She went out, and said to her mother, "What shall I ask?" She said, "The head of John the Baptizer."

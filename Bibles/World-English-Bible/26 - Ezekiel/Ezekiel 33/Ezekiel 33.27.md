@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shalt thou say unto them, Thus saith the Lord Jehovah: As I live, surely they that are in the waste places shall fall by the sword; and him that is in the open field will I give to the beasts to be devoured; and they that are in the strongholds and in the caves shall die of the pestilence.
+You shall tell them, Thus says the Lord Yahweh: As I live, surely those who are in the waste places shall fall by the sword; and him who is in the open field will I give to the animals to be devoured; and those who are in the strongholds and in the caves shall die of the pestilence.

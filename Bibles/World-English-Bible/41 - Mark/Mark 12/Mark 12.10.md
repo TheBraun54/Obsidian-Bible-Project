@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have ye not read even this scripture: The stone which the builders rejected, The same was made the head of the corner;
+Haven't you even read this Scripture: 'The stone which the builders rejected, the same was made the head of the corner.

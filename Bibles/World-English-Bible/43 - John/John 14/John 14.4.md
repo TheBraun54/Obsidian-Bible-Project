@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whither I go, ye know the way.
+Where I go, you know, and you know the way."

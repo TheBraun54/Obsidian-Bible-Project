@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet it pleased Jehovah to bruise him; he hath put him to grief: when thou shalt make his soul an offering for sin, he shall see [his] seed, he shall prolong his days, and the pleasure of Jehovah shall prosper in his hand.
+Yet it pleased Yahweh to bruise him. He has caused him to suffer. When you make his soul an offering for sin, he shall see his seed. He shall prolong his days, and the pleasure of Yahweh shall prosper in his hand.

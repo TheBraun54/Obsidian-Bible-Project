@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teacher, which is the great commandment in the law?
+"Teacher, which is the greatest commandment in the law?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth God pervert justice? Or doth the Almighty pervert righteousness?
+Does God pervert justice? Or does the Almighty pervert righteousness?

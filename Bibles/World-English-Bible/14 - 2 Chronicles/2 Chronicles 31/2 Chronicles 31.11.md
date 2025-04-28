@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Hezekiah commanded to prepare chambers in the house of Jehovah; and they prepared them.
+Then Hezekiah commanded them to prepare rooms in the house of Yahweh; and they prepared them.

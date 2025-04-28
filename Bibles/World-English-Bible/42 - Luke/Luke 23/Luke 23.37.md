@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saying, If thou art the King of the Jews, save thyself.
+and saying, "If you are the King of the Jews, save yourself!"

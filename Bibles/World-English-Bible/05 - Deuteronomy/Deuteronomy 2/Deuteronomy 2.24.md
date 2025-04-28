@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rise ye up, take your journey, and pass over the valley of the Arnon: behold, I have given into thy hand Sihon the Amorite, king of Heshbon, and his land; begin to possess it, and contend with him in battle.
+"Rise up, take your journey, and pass over the valley of the Arnon: behold, I have given into your hand Sihon the Amorite, king of Heshbon, and his land; begin to possess it, and contend with him in battle.

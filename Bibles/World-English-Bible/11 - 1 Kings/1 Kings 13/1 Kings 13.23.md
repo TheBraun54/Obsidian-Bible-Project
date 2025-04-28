@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, after he had eaten bread, and after he had drunk, that he saddled for him the ass, [to wit], for the prophet whom he had brought back.
+It happened, after he had eaten bread, and after he had drunk, that he saddled the donkey for the prophet whom he had brought back.

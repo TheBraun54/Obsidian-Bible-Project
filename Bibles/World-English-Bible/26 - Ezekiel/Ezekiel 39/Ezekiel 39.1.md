@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, prophesy against Gog, and say, Thus saith the Lord Jehovah: Behold, I am against thee, O Gog, prince of Rosh, Meshech, and Tubal:
+You, son of man, prophesy against Gog, and say, Thus says the Lord Yahweh: Behold, I am against you, Gog, prince of Rosh, Meshech, and Tubal:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I know that, when I come unto you, I shall come in the fulness of the blessing of Christ.
+I know that, when I come to you, I will come in the fullness of the blessing of the Good News of Christ.

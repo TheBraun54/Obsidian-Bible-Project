@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By myself have I sworn, the word is gone forth from my mouth [in] righteousness, and shall not return, that unto me every knee shall bow, every tongue shall swear.
+I have sworn by myself, the word has gone out of my mouth in righteousness, and will not return, that to me every knee shall bow, every tongue shall take an oath.

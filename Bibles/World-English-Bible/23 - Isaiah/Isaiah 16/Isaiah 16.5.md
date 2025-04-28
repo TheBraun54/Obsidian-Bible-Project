@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a throne shall be established in lovingkindness; and one shall sit thereon in truth, in the tent of David, judging, and seeking justice, and swift to do righteousness.
+A throne will be established in loving kindness. One will sit on it in truth, in the tent of David, judging, seeking justice, and swift to do righteousness.

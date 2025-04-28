@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The bricks are fallen, but we will build with hewn stone; the sycomores are cut down, but we will put cedars in their place.
+"The bricks have fallen, but we will build with cut stone. The sycamore fig trees have been cut down, but we will put cedars in their place."

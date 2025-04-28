@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that which thou sowest, thou sowest not the body that shall be, but a bare grain, it may chance of wheat, or of some other kind;
+That which you sow, you don't sow the body that will be, but a bare grain, maybe of wheat, or of some other kind.

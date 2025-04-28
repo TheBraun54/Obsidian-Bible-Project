@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a day in thy courts is better than a thousand. I had rather be a doorkeeper in the house of my God, Than to dwell in the tents of wickedness.
+For a day in your courts is better than a thousand. I would rather be a doorkeeper in the house of my God, than to dwell in the tents of wickedness.

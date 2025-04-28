@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank my God always concerning you, for the grace of God which was given you in Christ Jesus;
+I always thank my God concerning you, for the grace of God which was given you in Christ Jesus;

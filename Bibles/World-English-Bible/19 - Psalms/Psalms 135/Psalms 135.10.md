@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who smote many nations, And slew mighty kings,
+who struck many nations, and killed mighty kings,

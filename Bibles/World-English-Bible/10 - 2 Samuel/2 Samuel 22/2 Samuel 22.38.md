@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have pursued mine enemies, and destroyed them; Neither did I turn again till they were consumed.
+I have pursued my enemies and destroyed them. I didn't turn again until they were consumed.

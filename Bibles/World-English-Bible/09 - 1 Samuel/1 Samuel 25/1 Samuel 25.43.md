@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David also took Ahinoam of Jezreel; and they became both of them his wives.
+David also took Ahinoam of Jezreel; and they both became his wives.

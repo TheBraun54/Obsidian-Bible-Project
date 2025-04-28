@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when she pressed him daily with her words, and urged him, that his soul was vexed unto death.
+It happened, when she pressed him daily with her words, and urged him, that his soul was troubled to death.

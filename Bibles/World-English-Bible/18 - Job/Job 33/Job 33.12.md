@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will answer thee, in this thou art not just; For God is greater than man.
+"Behold, I will answer you. In this you are not just, for God is greater than man.

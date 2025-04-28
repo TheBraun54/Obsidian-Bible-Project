@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zedekiah was one and twenty years old when he began to reign; and he reigned eleven years in Jerusalem: and his mother's name was Hamutal the daughter of Jeremiah of Libnah.
+Zedekiah was twenty-one years old when he began to reign; and he reigned eleven years in Jerusalem: and his mother's name was Hamutal the daughter of Jeremiah of Libnah.

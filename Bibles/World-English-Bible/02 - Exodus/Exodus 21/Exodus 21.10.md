@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he take him another [wife] ; her food, her raiment, and her duty of marriage, shall he not diminish.
+If he takes another wife to himself, he shall not diminish her food, her clothing, and her marital rights.

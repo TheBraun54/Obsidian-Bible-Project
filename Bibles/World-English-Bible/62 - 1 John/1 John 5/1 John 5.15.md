@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if we know that he heareth us whatsoever we ask, we know that we have the petitions which we have asked of him.
+And if we know that he listens to us, whatever we ask, we know that we have the petitions which we have asked of him.

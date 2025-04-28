@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua smote all the land, the hill-country, and the South, and the lowland, and the slopes, and all their kings: he left none remaining, but he utterly destroyed all that breathed, as Jehovah, the God of Israel, commanded.
+So Joshua struck all the land, the hill country, and the South, and the lowland, and the slopes, and all their kings. He left none remaining, but he utterly destroyed all that breathed, as Yahweh, the God of Israel, commanded.

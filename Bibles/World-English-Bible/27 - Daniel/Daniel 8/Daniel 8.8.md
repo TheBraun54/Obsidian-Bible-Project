@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the he-goat magnified himself exceedingly: and when he was strong, the great horn was broken; and instead of it there came up four notable [horns] toward the four winds of heaven.
+The male goat magnified himself exceedingly: and when he was strong, the great horn was broken; and instead of it there came up four notable [horns] toward the four winds of the sky.

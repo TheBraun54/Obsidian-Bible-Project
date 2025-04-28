@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if only thou diligently hearken unto the voice of Jehovah thy God, to observe to do all this commandment which I command thee this day.
+if only you diligently listen to the voice of Yahweh your God, to observe to do all this commandment which I command you this day.

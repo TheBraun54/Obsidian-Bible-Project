@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph's ten brethren went down to buy grain from Egypt.
+Joseph's ten brothers went down to buy grain from Egypt.

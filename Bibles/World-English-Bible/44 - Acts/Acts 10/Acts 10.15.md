@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a voice [came] unto him again the second time, What God hath cleansed, make not thou common.
+A voice came to him again the second time, "What God has cleansed, you must not call unclean."

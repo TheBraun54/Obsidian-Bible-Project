@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the multitude sought to touch him; for power came forth from him, and healed [them] all.
+All the multitude sought to touch him, for power came out from him and healed them all.

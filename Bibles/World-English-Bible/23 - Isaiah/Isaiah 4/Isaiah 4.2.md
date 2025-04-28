@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall the branch of Jehovah be beautiful and glorious, and the fruit of the land shall be excellent and comely for them that are escaped of Israel.
+In that day, Yahweh's branch will be beautiful and glorious, and the fruit of the land will be the beauty and glory of the survivors of Israel.

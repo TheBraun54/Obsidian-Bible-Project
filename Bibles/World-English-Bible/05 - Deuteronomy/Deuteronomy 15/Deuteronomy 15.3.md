@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of a foreigner thou mayest exact it: but whatsoever of thine is with thy brother thy hand shall release.
+Of a foreigner you may exact it: but whatever of your is with your brother your hand shall release.

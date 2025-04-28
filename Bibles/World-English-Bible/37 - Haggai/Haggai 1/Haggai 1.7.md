@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: Consider your ways.
+This is what Yahweh of Armies says: "Consider your ways.

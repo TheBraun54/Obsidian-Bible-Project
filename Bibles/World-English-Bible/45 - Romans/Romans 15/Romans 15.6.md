@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that with one accord ye may with one mouth glorify the God and Father of our Lord Jesus Christ.
+that with one accord you may with one mouth glorify the God and Father of our Lord Jesus Christ.

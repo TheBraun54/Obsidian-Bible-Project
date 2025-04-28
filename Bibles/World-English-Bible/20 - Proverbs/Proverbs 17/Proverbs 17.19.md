@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He loveth transgression that loveth strife: He that raiseth high his gate seeketh destruction.
+He who loves disobedience loves strife. One who builds a high gate seeks destruction.

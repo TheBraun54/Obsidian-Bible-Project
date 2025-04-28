@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that worketh deceit shall not dwell within my house: He that speaketh falsehood shall not be established before mine eyes.
+He who practices deceit won't dwell within my house. He who speaks falsehood won't be established before my eyes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: I am returned unto Zion, and will dwell in the midst of Jerusalem: and Jerusalem shall be called The city of truth; and the mountain of Jehovah of hosts, The holy mountain.
+Thus says Yahweh: "I have returned to Zion, and will dwell in the midst of Jerusalem. Jerusalem shall be called 'The City of Truth;' and the mountain of Yahweh of Armies, 'The Holy Mountain.'"

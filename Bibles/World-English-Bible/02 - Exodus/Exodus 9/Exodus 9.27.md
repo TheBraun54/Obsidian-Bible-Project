@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh sent, and called for Moses and Aaron, and said unto them, I have sinned this time: Jehovah is righteous, and I and my people are wicked.
+Pharaoh sent, and called for Moses and Aaron, and said to them, "I have sinned this time. Yahweh is righteous, and I and my people are wicked.

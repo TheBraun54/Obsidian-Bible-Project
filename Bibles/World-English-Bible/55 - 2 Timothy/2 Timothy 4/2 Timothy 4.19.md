@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Prisca and Aquila, and the house of Onesiphorus.
+Greet Prisca and Aquila, and the house of Onesiphorus.

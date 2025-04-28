@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the money was all spent in the land of Egypt, and in the land of Canaan, all the Egyptians came unto Joseph, and said, Give us bread: for why should we die in thy presence? for [our] money faileth.
+When the money was all spent in the land of Egypt, and in the land of Canaan, all the Egyptians came to Joseph, and said, "Give us bread, for why should we die in your presence? For our money fails."

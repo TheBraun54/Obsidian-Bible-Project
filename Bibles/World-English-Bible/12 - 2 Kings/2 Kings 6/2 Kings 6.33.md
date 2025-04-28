@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while he was yet talking with them, behold, the messenger came down unto him: and he said, Behold, this evil is of Jehovah; why should I wait for Jehovah any longer?
+While he was still talking with them, behold, the messenger came down to him. Then he said, "Behold, this evil is from Yahweh. Why should I wait for Yahweh any longer?"

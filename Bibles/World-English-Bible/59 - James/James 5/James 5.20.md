@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let him know, that he who converteth a sinner from the error of his way shall save a soul from death, and shall cover a multitude of sins.
+let him know that he who turns a sinner from the error of his way will save a soul from death, and will cover a multitude of sins.

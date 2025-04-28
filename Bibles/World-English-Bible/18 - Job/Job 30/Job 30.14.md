@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As through a wide breach they come: In the midst of the ruin they roll themselves [upon me] .
+As through a wide breach they come, in the midst of the ruin they roll themselves in.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou goest forth to battle against thine enemies, and Jehovah thy God delivereth them into thy hands, and thou carriest them away captive,
+When you go forth to battle against your enemies, and Yahweh your God delivers them into your hands, and you carry them away captive,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-behold, how they reward us, to come to cast us out of thy possession, which thou hast given us to inherit.
+behold, how they reward us, to come to cast us out of your possession, which you have given us to inherit.

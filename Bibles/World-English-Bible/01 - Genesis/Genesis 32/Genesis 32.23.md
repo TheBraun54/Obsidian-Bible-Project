@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took them, and sent them over the stream, and sent over that which he had.
+He took them, and sent them over the stream, and sent over that which he had.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I whet my glittering sword, And my hand take hold on judgment; I will render vengeance to mine adversaries, And will recompense them that hate me.
+if I whet my glittering sword, My hand take hold on judgment; I will render vengeance to my adversaries, and will recompense those who hate me.

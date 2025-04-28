@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit, if the land of your possession be unclean, then pass ye over unto the land of the possession of Jehovah, wherein Jehovah's tabernacle dwelleth, and take possession among us: but rebel not against Jehovah, nor rebel against us, in building you an altar besides the altar of Jehovah our God.
+However, if the land of your possession is unclean, then pass over to the land of the possession of Yahweh, in which Yahweh's tabernacle dwells, and take possession among us; but don't rebel against Yahweh, nor rebel against us, in building an altar other than the altar of Yahweh our God.

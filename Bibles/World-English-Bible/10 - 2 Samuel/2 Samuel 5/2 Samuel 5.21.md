@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they left their images there; and David and his men took them away.
+They left their images there; and David and his men took them away.

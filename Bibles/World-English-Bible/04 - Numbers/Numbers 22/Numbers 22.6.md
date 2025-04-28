@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come now therefore, I pray thee, curse me this people; for they are too mighty for me: peradventure I shall prevail, that we may smite them, and that I may drive them out of the land; for I know that he whom thou blessest is blessed, and he whom thou cursest is cursed.
+Please come now therefore curse me this people; for they are too mighty for me: perhaps I shall prevail, that we may strike them, and that I may drive them out of the land; for I know that he whom you bless is blessed, and he whom you curse is cursed."

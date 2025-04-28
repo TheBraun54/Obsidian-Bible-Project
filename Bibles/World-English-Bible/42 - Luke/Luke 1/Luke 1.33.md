@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall reign over the house of Jacob for ever; and of his kingdom there shall be no end.
+and he will reign over the house of Jacob forever. There will be no end to his Kingdom."

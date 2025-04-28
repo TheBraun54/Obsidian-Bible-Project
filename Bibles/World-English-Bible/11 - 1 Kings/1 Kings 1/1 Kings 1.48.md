@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also thus said the king, Blessed be Jehovah, the God of Israel, who hath given one to sit on my throne this day, mine eyes even seeing it.
+Also thus said the king, 'Blessed be Yahweh, the God of Israel, who has given one to sit on my throne this day, my eyes even seeing it.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon said, If he shall show himself a worthy man, there shall not a hair of him fall to the earth; but if wickedness be found in him, he shall die.
+Solomon said, "If he shows himself a worthy man, not a hair of him shall fall to the earth; but if wickedness be found in him, he shall die."

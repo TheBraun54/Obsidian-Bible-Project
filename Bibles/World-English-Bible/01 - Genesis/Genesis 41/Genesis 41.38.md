@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto his servants, Can we find such a one as this, a man in whom the spirit of God is?
+Pharaoh said to his servants, "Can we find such a one as this, a man in whom is the Spirit of God?"

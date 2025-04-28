@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My mouth shall tell of thy righteousness, [And] of thy salvation all the day; For I know not the numbers [thereof] .
+My mouth will tell about your righteousness, and of your salvation all day, though I don't know its full measure.

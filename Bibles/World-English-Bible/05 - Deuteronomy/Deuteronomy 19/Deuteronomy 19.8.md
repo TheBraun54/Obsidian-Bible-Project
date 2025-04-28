@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if Jehovah thy God enlarge thy border, as he hath sworn unto thy fathers, and give thee all the land which he promised to give unto thy fathers;
+If Yahweh your God enlarges your border, as he has sworn to your fathers, and gives you all the land which he promised to give to your fathers;

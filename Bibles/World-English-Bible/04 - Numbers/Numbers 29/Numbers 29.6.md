@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-besides the burnt-offering of the new moon, and the meal-offering thereof, and the continual burnt-offering and the meal-offering thereof, and their drink-offerings, according unto their ordinance, for a sweet savor, an offering made by fire unto Jehovah.
+besides the burnt offering of the new moon, and the meal offering of it, and the continual burnt offering and the meal offering of it, and their drink offerings, according to their ordinance, for a pleasant aroma, an offering made by fire to Yahweh.

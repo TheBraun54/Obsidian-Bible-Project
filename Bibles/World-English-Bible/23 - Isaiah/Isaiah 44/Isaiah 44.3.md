@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will pour water upon him that is thirsty, and streams upon the dry ground; I will pour my Spirit upon thy seed, and my blessing upon thine offspring:
+For I will pour water on him who is thirsty, and streams on the dry ground. I will pour my Spirit on your seed, and my blessing on your offspring:

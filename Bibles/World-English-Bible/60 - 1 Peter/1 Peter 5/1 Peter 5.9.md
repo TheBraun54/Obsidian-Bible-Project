@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom withstand stedfast in your faith, knowing that the same sufferings are accomplished in your brethren who are in the world.
+Withstand him steadfast in your faith, knowing that your brothers who are in the world are undergoing the same sufferings.

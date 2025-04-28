@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is thine: the heave-offering of their gift, even all the wave-offerings of the children of Israel; I have given them unto thee, and to thy sons and to thy daughters with thee, as a portion for ever; every one that is clean in thy house shall eat thereof.
+"This is yours, too: the wave offering of their gift, even all the wave offerings of the children of Israel. I have given them to you, and to your sons and to your daughters with you, as a portion forever. Everyone who is clean in your house shall eat of it.

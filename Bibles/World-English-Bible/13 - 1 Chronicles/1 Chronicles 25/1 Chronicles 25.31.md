@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the four and twentieth to Romamtiezer, his sons and his brethren, twelve.
+for the four and twentieth to Romamti-Ezer, his sons and his brothers, twelve.

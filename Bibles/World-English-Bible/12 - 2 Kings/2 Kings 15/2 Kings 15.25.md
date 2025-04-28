@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pekah the son of Remaliah, his captain, conspired against him, and smote him in Samaria, in the castle of the king's house, with Argob and Arieh; and with him were fifty men of the Gileadites: and he slew him, and reigned in his stead.
+Pekah the son of Remaliah, his captain, conspired against him, and struck him in Samaria, in the castle of the king's house, with Argob and Arieh; and with him were fifty men of the Gileadites: and he killed him, and reigned in his place.

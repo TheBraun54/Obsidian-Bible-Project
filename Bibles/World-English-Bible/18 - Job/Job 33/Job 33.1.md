@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit, Job, I pray thee, hear my speech, And hearken to all my words.
+"However, Job, please hear my speech, and listen to all my words.

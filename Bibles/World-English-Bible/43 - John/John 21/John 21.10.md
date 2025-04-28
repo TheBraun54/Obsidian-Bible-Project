@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto them, Bring of the fish which ye have now taken.
+Jesus said to them, "Bring some of the fish which you have just caught."

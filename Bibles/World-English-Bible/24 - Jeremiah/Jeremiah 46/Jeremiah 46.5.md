@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore have I seen it? they are dismayed and are turned backward; and their mighty ones are beaten down, and are fled apace, and look not back: terror is on every side, saith Jehovah.
+Why have I seen it? they are dismayed and are turned backward; and their mighty ones are beaten down, and have fled apace, and don't look back: terror is on every side, says Yahweh.

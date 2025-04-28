@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And will be to you a Father, And ye shall be to me sons and daughters, saith the Lord Almighty.
+I will be to you a Father. You will be to me sons and daughters,' says the Lord Almighty."

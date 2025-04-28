@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then sang Israel this song: Spring up, O well; sing ye unto it:
+Then sang Israel this song: "Spring up, well; sing to it:

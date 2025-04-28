@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dig thou through the wall in their sight, and carry out thereby.
+Dig through the wall in their sight, and carry your stuff out that way.

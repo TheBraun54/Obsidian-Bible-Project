@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God will not withdraw his anger; The helpers of Rahab do stoop under him.
+"God will not withdraw his anger. The helpers of Rahab stoop under him.

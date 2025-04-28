@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: If ye can break my covenant of the day, and my covenant of the night, so that there shall not be day and night in their season;
+Thus says Yahweh: If you can break my covenant of the day, and my covenant of the night, so that there shall not be day and night in their season;

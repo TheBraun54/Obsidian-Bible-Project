@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if God doth so clothe the grass of the field, which to-day is, and to-morrow is cast into the oven, [shall he] not much more [clothe] you, O ye of little faith?
+But if God so clothes the grass of the field, which today exists, and tomorrow is thrown into the oven, won't he much more clothe you, you of little faith?

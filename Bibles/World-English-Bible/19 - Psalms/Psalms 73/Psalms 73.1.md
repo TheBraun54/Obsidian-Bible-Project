@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of Asaph]. Surely God is good to Israel, [Even] to such as are pure in heart.
+Surely God is good to Israel, to those who are pure in heart.

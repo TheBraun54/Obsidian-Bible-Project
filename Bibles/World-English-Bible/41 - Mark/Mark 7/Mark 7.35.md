@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his ears were opened, and the bond of his tongue was loosed, and he spake plain.
+Immediately his ears were opened, and the impediment of his tongue was released, and he spoke clearly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not steal; neither shall ye deal falsely, nor lie one to another.
+"'You shall not steal. "'You shall not lie. "'You shall not deceive one another.

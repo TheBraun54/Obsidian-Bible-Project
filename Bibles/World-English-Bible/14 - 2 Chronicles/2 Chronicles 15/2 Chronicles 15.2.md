@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he went out to meet Asa, and said unto him, Hear ye me, Asa, and all Judah and Benjamin: Jehovah is with you, while ye are with him; and if ye seek him, he will be found of you; but if ye forsake him, he will forsake you.
+and he went out to meet Asa, and said to him, "Hear me, Asa, and all Judah and Benjamin! Yahweh is with you, while you are with him; and if you seek him, he will be found by you; but if you forsake him, he will forsake you.

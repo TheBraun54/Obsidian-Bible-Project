@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he forsook the counsel of the old men which they had given him, and took counsel with the young men that were grown up with him, that stood before him.
+But he forsook the counsel of the old men which they had given him, and took counsel with the young men who had grown up with him, who stood before him.

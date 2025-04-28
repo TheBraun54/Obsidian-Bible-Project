@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a dream when one awaketh, So, O Lord, when thou awakest, thou wilt despise their image.
+As a dream when one wakes up, so, Lord, when you awake, you will despise their fantasies.

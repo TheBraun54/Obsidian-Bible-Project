@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when we were all fallen to the earth, I heard a voice saying unto me in the Hebrew language, Saul, Saul, why persecutest thou me? it is hard for thee to kick against the goad.
+When we had all fallen to the earth, I heard a voice saying to me in the Hebrew language, 'Saul, Saul, why are you persecuting me? It is hard for you to kick against the goads.'

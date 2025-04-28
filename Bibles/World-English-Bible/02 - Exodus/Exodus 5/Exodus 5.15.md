@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the officers of the children of Israel came and cried unto Pharaoh, saying, Wherefore dealest thou thus with thy servants?
+Then the officers of the children of Israel came and cried to Pharaoh, saying, "Why do you deal this way with your servants?

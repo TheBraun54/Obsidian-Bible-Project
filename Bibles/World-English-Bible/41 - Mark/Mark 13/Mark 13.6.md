@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many shall come in my name, saying, I am [he] ; and shall lead many astray.
+For many will come in my name, saying, 'I am he!' and will lead many astray.

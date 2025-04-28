@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of the captivity, that were come out of exile, offered burnt-offerings unto the God of Israel, twelve bullocks for all Israel, ninety and six rams, seventy and seven lambs, twelve he-goats for a sin-offering: all this was a burnt-offering unto Jehovah.
+The children of the captivity, who had come out of exile, offered burnt offerings to the God of Israel, twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and twelve male goats for a sin offering: all this was a burnt offering to Yahweh.

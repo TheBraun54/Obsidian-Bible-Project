@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they were carried over unto Shechem, and laid in the tomb that Abraham bought for a price in silver of the sons of Hamor in Shechem.
+and they were brought back to Shechem, and laid in the tomb that Abraham bought for a price in silver from the children of Hamor of Shechem.

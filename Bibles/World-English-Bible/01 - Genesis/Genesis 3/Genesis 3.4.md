@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the serpent said unto the woman, Ye shall not surely die:
+The serpent said to the woman, "You won't surely die,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only unto the tribe of Levi he gave no inheritance; the offerings of Jehovah, the God of Israel, made by fire are his inheritance, as he spake unto him.
+Only he gave no inheritance to the tribe of Levi. The offerings of Yahweh, the God of Israel, made by fire are his inheritance, as he spoke to him.

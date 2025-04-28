@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Joseph spake unto Joshua, saying, Why hast thou given me but one lot and one part for an inheritance, seeing I am a great people, forasmuch as hitherto Jehovah hath blessed me?
+The children of Joseph spoke to Joshua, saying, "Why have you given me just one lot and one part for an inheritance, since I am a great people, because Yahweh has blessed me so far?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be the day wherein I was born: let not the day wherein my mother bare me be blessed.
+Cursed is the day in which I was born: don't let the day in which my mother bore me be blessed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no peace, saith Jehovah, to the wicked.
+"There is no peace," says Yahweh, "for the wicked."

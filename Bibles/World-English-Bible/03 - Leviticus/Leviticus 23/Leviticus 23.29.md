@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whatsoever soul it be that shall not be afflicted in that same day; he shall be cut off from his people.
+For whoever it is who shall not deny himself in that same day; shall be cut off from his people.

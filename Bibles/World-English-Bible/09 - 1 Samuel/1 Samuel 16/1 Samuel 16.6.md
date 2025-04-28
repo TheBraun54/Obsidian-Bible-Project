@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when they were come, that he looked on Eliab, and said, Surely Jehovah's anointed is before him.
+It happened, when they had come, that he looked at Eliab, and said, "Surely Yahweh's anointed is before him."

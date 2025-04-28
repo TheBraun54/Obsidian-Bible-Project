@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and sent messengers before his face: and they went, and entered into a village of the Samaritans, to make ready for him.
+and sent messengers before his face. They went, and entered into a village of the Samaritans, so as to prepare for him.

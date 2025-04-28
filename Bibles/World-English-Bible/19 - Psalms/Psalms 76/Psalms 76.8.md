@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst cause sentence to be heard from heaven; The earth feared, and was still,
+You pronounced judgment from heaven. The earth feared, and was silent,

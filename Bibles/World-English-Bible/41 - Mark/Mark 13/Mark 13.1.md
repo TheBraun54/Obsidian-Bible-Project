@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he went forth out of the temple, one of his disciples saith unto him, Teacher, behold, what manner of stones and what manner of buildings!
+As he went out of the temple, one of his disciples said to him, "Teacher, see what kind of stones and what kind of buildings!"

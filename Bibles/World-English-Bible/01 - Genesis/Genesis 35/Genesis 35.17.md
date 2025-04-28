@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when she was in hard labor, that the midwife said unto her, Fear not; for now thou shalt have another son.
+When she was in hard labor, the midwife said to her, "Don't be afraid, for now you will have another son."

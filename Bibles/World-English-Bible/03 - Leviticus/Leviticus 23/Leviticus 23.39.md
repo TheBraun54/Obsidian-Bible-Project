@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit on the fifteenth day of the seventh month, when ye have gathered in the fruits of the land, ye shall keep the feast of Jehovah seven days: on the first day shall be a solemn rest, and on the eighth day shall be a solemn rest.
+"'So on the fifteenth day of the seventh month, when you have gathered in the fruits of the land, you shall keep the feast of Yahweh seven days: on the first day shall be a solemn rest, and on the eighth day shall be a solemn rest.

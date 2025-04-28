@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In Gibeon Jehovah appeared to Solomon in a dream by night; and God said, Ask what I shall give thee.
+In Gibeon Yahweh appeared to Solomon in a dream by night; and God said, "Ask what I shall give you."

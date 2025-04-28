@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bath-sheba bowed, and did obeisance unto the king. And the king said, What wouldest thou?
+Bathsheba bowed, and did obeisance to the king. The king said, "What would you like?"

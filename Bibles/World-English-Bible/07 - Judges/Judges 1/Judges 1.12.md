@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Caleb said, He that smiteth Kiriath-sepher, and taketh it, to him will I give Achsah my daughter to wife.
+Caleb said, "He who strikes Kiriath Sepher, and takes it, to him will I give Achsah my daughter as wife."

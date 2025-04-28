@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he is not the God of the dead, but of the living: for all live unto him.
+Now he is not the God of the dead, but of the living, for all are alive to him."

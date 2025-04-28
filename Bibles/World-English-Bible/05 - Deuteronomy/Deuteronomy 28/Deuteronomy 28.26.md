@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy dead body shall be food unto all birds of the heavens, and unto the beasts of the earth; and there shall be none to frighten them away.
+Your dead body shall be food to all birds of the sky, and to the animals of the earth; and there shall be none to frighten them away.

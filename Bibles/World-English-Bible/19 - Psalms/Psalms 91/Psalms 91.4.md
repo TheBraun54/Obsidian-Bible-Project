@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will cover thee with his pinions, And under his wings shalt thou take refuge: His truth is a shield and a buckler.
+He will cover you with his feathers. Under his wings you will take refuge. His faithfulness is your shield and rampart.

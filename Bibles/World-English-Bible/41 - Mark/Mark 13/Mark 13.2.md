@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, Seest thou these great buildings? there shall not be left here one stone upon another, which shall not be thrown down.
+Jesus said to him, "Do you see these great buildings? There will not be left here one stone on another, which will not be thrown down."

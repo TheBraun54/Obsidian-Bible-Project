@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the day of Jehovah is near upon all the nations: as thou hast done, it shall be done unto thee; thy dealing shall return upon thine own head.
+For the day of Yahweh is near all the nations! As you have done, it will be done to you. Your deeds will return upon your own head.

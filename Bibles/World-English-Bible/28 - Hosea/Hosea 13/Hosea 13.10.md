@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where now is thy king, that he may save thee in all thy cities? and thy judges, of whom thou saidst, Give me a king and princes?
+Where is your king now, that he may save you in all your cities? And your judges, of whom you said, 'Give me a king and princes?'

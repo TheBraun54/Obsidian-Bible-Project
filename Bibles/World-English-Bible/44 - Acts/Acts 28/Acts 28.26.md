@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Go thou unto this people, and say, By hearing ye shall hear, and shall in no wise understand; And seeing ye shall see, and shall in no wise perceive:
+saying, 'Go to this people, and say, in hearing, you will hear, but will in no way understand. In seeing, you will see, but will in no way perceive.

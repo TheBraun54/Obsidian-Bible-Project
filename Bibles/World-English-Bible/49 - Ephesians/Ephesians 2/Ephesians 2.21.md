@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in whom each several building, fitly framed together, groweth into a holy temple in the Lord;
+in whom the whole building, fitted together, grows into a holy temple in the Lord;

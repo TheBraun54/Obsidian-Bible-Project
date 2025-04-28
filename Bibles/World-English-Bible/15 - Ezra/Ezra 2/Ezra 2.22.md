@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Netophah, fifty and six.
+The men of Netophah, fifty-six.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Ahithophel said unto Absalom, Let me now choose out twelve thousand men, and I will arise and pursue after David this night:
+Moreover Ahithophel said to Absalom, "Let me now choose twelve thousand men, and I will arise and pursue after David tonight.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jeremiah said unto king Zedekiah, Wherein have I sinned against thee, or against thy servants, or against this people, that ye have put me in prison?
+Moreover Jeremiah said to king Zedekiah, Wherein have I sinned against you, or against your servants, or against this people, that you have put me in prison?

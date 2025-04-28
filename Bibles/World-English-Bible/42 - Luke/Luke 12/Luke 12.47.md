@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that servant, who knew his lord's will, and made not ready, nor did according to his will, shall be beaten with many [stripes] ;
+That servant, who knew his lord's will, and didn't prepare, nor do what he wanted, will be beaten with many stripes,

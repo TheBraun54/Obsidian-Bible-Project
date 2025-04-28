@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Another angel came out from the temple which is in heaven, he also having a sharp sickle.
+Another angel came out from the temple which is in heaven. He also had a sharp sickle.

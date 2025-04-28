@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anointed priest that shall be in his stead from among his sons shall offer it: by a statute for ever it shall be wholly burnt unto Jehovah.
+The anointed priest that will be in his place from among his sons shall offer it. By a statute forever, it shall be wholly burnt to Yahweh.

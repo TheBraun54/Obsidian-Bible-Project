@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto him, Go, wash in the pool of Siloam (which is by interpretation, Sent). He went away therefore, and washed, and came seeing.
+and said to him, "Go, wash in the pool of Siloam" (which means "Sent"). So he went away, washed, and came back seeing.

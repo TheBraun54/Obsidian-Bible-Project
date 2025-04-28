@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the two companies of you, even all that go forth on the sabbath, shall keep the watch of the house of Jehovah about the king.
+The two companies of you, even all who go out on the Sabbath, shall keep the watch of the house of Yahweh around the king.

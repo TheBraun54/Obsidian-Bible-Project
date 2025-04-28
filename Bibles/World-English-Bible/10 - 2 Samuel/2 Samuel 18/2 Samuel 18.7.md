@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people of Israel were smitten there before the servants of David, and there was a great slaughter there that day of twenty thousand men.
+The people of Israel were struck there before the servants of David, and there was a great slaughter there that day of twenty thousand men.

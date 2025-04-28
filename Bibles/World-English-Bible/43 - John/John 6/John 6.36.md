@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I said unto you, that ye have seen me, and yet believe not.
+But I told you that you have seen me, and yet you don't believe.

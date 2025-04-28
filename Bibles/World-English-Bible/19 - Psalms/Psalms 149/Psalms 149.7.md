@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To execute vengeance upon the nations, And punishments upon the peoples;
+To execute vengeance on the nations, and punishments on the peoples;

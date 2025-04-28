@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word of Jehovah which came to Jeremiah the prophet concerning the nations.
+The word of Yahweh which came to Jeremiah the prophet concerning the nations.

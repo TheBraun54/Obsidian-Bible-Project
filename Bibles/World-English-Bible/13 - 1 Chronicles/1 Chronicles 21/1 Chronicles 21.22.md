@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David said to Ornan, Give me the place of this threshing-floor, that I may build thereon an altar unto Jehovah: for the full price shalt thou give it me, that the plague may be stayed from the people.
+Then David said to Ornan, "Give me the place of this threshing floor, that I may build thereon an altar to Yahweh. You shall sell it to me for the full price, that the plague may be stopped from afflicting the people."

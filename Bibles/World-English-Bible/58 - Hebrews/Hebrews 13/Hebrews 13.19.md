@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I exhort [you] the more exceedingly to do this, that I may be restored to you the sooner.
+I strongly urge you to do this, that I may be restored to you sooner.

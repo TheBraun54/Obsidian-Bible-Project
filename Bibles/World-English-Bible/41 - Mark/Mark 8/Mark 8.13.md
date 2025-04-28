@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he left them, and again entering into [the boat] departed to the other side.
+He left them, and again entering into the boat, departed to the other side.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto them, Fear not: for am I in the place of God?
+Joseph said to them, "Don't be afraid, for am I in the place of God?

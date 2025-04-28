@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we know that to them that love God all things work together for good, [even] to them that are called according to [his] purpose.
+We know that all things work together for good for those who love God, to those who are called according to his purpose.

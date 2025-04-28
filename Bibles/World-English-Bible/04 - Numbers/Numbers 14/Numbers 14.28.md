@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say unto them, As I live, saith Jehovah, surely as ye have spoken in mine ears, so will I do to you:
+Tell them, 'As I live, says Yahweh, surely as you have spoken in my ears, so will I do to you:

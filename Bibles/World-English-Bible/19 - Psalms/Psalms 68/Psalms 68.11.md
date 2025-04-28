@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord giveth the word: The women that publish the tidings are a great host.
+The Lord announced the word. The ones who proclaim it are a great company.

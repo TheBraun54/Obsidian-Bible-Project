@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These all with one accord continued stedfastly in prayer, with the women, and Mary the mother of Jesus, and with his brethren.
+All these with one accord continued steadfastly in prayer and supplication, along with the women, and Mary the mother of Jesus, and with his brothers.

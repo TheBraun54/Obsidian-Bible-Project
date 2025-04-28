@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-glory not over the branches: but if thou gloriest, it is not thou that bearest the root, but the root thee.
+don't boast over the branches. But if you boast, it is not you who support the root, but the root supports you.

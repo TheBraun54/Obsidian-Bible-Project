@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Bebai, six hundred twenty and eight.
+The children of Bebai, six hundred twenty-eight.

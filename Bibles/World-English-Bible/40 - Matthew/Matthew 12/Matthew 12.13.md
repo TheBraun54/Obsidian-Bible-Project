@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith he to the man, Stretch forth thy hand. And he stretched it forth; and it was restored whole, as the other.
+Then he told the man, "Stretch out your hand." He stretched it out; and it was restored whole, just like the other.

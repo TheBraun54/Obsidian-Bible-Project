@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Acquaint now thyself with him, and be at peace: Thereby good shall come unto thee.
+"Acquaint yourself with him, now, and be at peace. Thereby good shall come to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let no corrupt speech proceed out of your mouth, but such as is good for edifying as the need may be, that it may give grace to them that hear.
+Let no corrupt speech proceed out of your mouth, but such as is good for building up as the need may be, that it may give grace to those who hear.

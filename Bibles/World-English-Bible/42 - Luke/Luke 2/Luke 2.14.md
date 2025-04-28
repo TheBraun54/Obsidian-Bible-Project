@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Glory to God in the highest, And on earth peace among men in whom he is well pleased.
+"Glory to God in the highest, on earth peace, good will toward men."

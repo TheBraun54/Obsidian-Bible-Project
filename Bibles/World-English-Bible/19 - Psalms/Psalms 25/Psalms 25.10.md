@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the paths of Jehovah are lovingkindness and truth Unto such as keep his covenant and his testimonies.
+All the paths of Yahweh are loving kindness and truth to such as keep his covenant and his testimonies.

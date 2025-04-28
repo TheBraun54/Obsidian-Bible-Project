@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore take, I pray thee, thy weapons, thy quiver and thy bow, and go out to the field, and take me venison;
+Now therefore, please take your weapons, your quiver and your bow, and go out to the field, and take me venison.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan climbed up upon his hands and upon his feet, and his armorbearer after him: and they fell before Jonathan; and his armorbearer slew them after him.
+Jonathan climbed up on his hands and on his feet, and his armor bearer after him: and they fell before Jonathan; and his armor bearer killed them after him.

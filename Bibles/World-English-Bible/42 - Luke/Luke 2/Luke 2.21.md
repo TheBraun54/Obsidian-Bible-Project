@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when eight days were fulfilled for circumcising him, his name was called JESUS, which was so called by the angel before he was conceived in the womb.
+When eight days were fulfilled for the circumcision of the child, his name was called Jesus, which was given by the angel before he was conceived in the womb.

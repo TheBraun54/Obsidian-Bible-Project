@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The pastures are clothed with flocks; The valleys also are covered over with grain; They shout for joy, they also sing.
+The pastures are covered with flocks. The valleys also are clothed with grain. They shout for joy! They also sing. For the Chief Musician. A song. A Psalm.

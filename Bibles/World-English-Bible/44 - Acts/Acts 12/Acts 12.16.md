@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter continued knocking: and when they had opened, they saw him, and were amazed.
+But Peter continued knocking. When they had opened, they saw him, and were amazed.

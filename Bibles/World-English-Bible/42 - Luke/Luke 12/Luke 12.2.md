@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there is nothing covered up, that shall not be revealed; and hid, that shall not be known.
+But there is nothing covered up, that will not be revealed, nor hidden, that will not be known.

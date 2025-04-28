@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter took him, and began to rebuke him, saying, Be it far from thee, Lord: this shall never be unto thee.
+Peter took him aside, and began to rebuke him, saying, "Far be it from you, Lord! This will never be done to you."

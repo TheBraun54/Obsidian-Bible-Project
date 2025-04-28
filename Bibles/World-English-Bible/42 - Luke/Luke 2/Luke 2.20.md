@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the shepherds returned, glorifying and praising God for all the things that they had heard and seen, even as it was spoken unto them.
+The shepherds returned, glorifying and praising God for all the things that they had heard and seen, just as it was told them.

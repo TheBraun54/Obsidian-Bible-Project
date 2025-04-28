@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, in process of time, at the end of two years, that his bowels fell out by reason of his sickness, and he died of sore diseases. And his people made no burning for him, like the burning of his fathers.
+It happened, in process of time, at the end of two years, that his bowels fell out by reason of his sickness, and he died of severe diseases. His people made no burning for him, like the burning of his fathers.

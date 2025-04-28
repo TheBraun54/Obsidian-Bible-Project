@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, when thou prayest, enter into thine inner chamber, and having shut thy door, pray to thy Father who is in secret, and thy Father who seeth in secret shall recompense thee.
+But you, when you pray, enter into your inner room, and having shut your door, pray to your Father who is in secret, and your Father who sees in secret will reward you openly.

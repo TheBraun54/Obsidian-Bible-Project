@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they roasted the passover with fire according to the ordinance: and the holy offerings boiled they in pots, and in caldrons, and in pans, and carried them quickly to all the children of the people.
+They roasted the Passover with fire according to the ordinance: and the holy offerings boiled they in pots, and in caldrons, and in pans, and carried them quickly to all the children of the people.

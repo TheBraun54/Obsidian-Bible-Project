@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she had a sister called Mary, who also sat at the Lord's feet, and heard his word.
+She had a sister called Mary, who also sat at Jesus' feet, and heard his word.

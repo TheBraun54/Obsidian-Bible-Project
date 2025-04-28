@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ in] journeyings often, [in] perils of rivers, [in] perils of robbers, [in] perils from [my] countrymen, [in] perils from the Gentiles, [in] perils in the city, [in] perils in the wilderness, [in] perils in the sea, [in] perils among false brethren;
+I have been in travels often, perils of rivers, perils of robbers, perils from my countrymen, perils from the Gentiles, perils in the city, perils in the wilderness, perils in the sea, perils among false brothers;

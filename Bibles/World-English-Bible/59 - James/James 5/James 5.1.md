@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come now, ye rich, weep and howl for your miseries that are coming upon you.
+Come now, you rich, weep and howl for your miseries that are coming on you.

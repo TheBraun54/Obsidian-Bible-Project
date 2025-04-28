@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to him that buildeth a town with blood, and establisheth a city by iniquity!
+Woe to him who builds a town with blood, and establishes a city by iniquity!

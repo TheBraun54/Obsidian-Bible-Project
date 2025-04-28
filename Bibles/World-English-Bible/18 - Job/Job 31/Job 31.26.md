@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have beheld the sun when it shined, Or the moon walking in brightness,
+if I have seen the sun when it shined, or the moon moving in splendor,

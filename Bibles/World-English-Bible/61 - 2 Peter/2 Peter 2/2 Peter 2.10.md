@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but chiefly them that walk after the flesh in the lust of defilement, and despise dominion. Daring, self-willed, they tremble not to rail at dignities:
+but chiefly those who walk after the flesh in the lust of defilement, and despise authority. Daring, self-willed, they are not afraid to speak evil of dignitaries;

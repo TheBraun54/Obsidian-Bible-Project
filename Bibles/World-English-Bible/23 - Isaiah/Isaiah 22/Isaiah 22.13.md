@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and behold, joy and gladness, slaying oxen and killing sheep, eating flesh and drinking wine: let us eat and drink, for to-morrow we shall die.
+and behold, joy and gladness, killing cattle and killing sheep, eating flesh and drinking wine: "Let us eat and drink, for tomorrow we will die."

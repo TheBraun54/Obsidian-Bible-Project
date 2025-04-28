@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: The sword of the king of Babylon shall come upon thee.
+For thus says the Lord Yahweh: The sword of the king of Babylon shall come on you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the [son] of Melchi, the [son] of Addi, the [son] of Cosam, the [son] of Elmadam, the [son] of Er,
+the son of Melchi, the son of Addi, the son of Cosam, the son of Elmodam, the son of Er,

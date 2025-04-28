@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one that ruleth well his own house, having [his] children in subjection with all gravity;
+one who rules his own house well, having children in subjection with all reverence;

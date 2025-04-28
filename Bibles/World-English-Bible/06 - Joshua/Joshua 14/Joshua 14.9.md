@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses sware on that day, saying, Surely the land whereon thy foot hath trodden shall be an inheritance to thee and to thy children for ever, because thou hast wholly followed Jehovah my God.
+Moses swore on that day, saying, 'Surely the land where you walked shall be an inheritance to you and to your children forever, because you have wholly followed Yahweh my God.'

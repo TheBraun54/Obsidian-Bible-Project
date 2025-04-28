@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He brought him unto Jesus. Jesus looked upon him, and said, Thou art Simon the son of John: thou shalt be called Cephas (which is by interpretation, Peter).
+He brought him to Jesus. Jesus looked at him, and said, "You are Simon the son of Jonah. You shall be called Cephas" (which is by interpretation, Peter).

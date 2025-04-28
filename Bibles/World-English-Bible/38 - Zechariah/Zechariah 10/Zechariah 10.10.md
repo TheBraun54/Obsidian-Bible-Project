@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will bring them again also out of the land of Egypt, and gather them out of Assyria; and I will bring them into the land of Gilead and Lebanon; and [place] shall not be found for them.
+I will bring them again also out of the land of Egypt, and gather them out of Assyria; and I will bring them into the land of Gilead and Lebanon; and there won't be room enough for them.

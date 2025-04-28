@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In whose hand is the soul of every living thing, And the breath of all mankind?
+in whose hand is the life of every living thing, and the breath of all mankind?

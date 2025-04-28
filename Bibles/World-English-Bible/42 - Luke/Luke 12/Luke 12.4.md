@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto you my friends, Be not afraid of them that kill the body, and after that have no more that they can do.
+"I tell you, my friends, don't be afraid of those who kill the body, and after that have no more that they can do.

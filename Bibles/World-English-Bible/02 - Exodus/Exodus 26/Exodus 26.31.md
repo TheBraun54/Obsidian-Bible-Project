@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a veil of blue, and purple, and scarlet, and fine twined linen: with cherubim the work of the skilful workman shall it be made:
+"You shall make a veil of blue, and purple, and scarlet, and fine twined linen, with cherubim. The work of the skillful workman shall it be made.

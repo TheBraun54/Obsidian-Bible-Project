@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of a truth, Jehovah, the kings of Assyria have laid waste the nations and their lands,
+Truly, Yahweh, the kings of Assyria have laid waste the nations and their lands,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Simon's wife's mother lay sick of a fever; and straightway they tell him of her:
+Now Simon's wife's mother lay sick with a fever, and immediately they told him about her.

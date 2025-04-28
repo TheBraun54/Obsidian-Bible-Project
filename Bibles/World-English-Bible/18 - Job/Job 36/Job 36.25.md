@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All men have looked thereon; Man beholdeth it afar off.
+All men have looked thereon. Man sees it afar off.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith, Yea. And when he came into the house, Jesus spake first to him, saying, What thinkest thou, Simon? the kings of the earth, from whom do they receive toll or tribute? from their sons, or from strangers?
+He said, "Yes." When he came into the house, Jesus anticipated him, saying, "What do you think, Simon? From whom do the kings of the earth receive toll or tribute? From their children, or from strangers?"

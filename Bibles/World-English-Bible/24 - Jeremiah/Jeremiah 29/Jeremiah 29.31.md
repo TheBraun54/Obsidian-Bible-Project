@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Send to all them of the captivity, saying, Thus saith Jehovah concerning Shemaiah the Nehelamite: Because that Shemaiah hath prophesied unto you, and I sent him not, and he hath caused you to trust in a lie;
+Send to all them of the captivity, saying, Thus says Yahweh concerning Shemaiah the Nehelamite: Because Shemaiah has prophesied to you, and I didn't send him, and he has caused you to trust in a lie;

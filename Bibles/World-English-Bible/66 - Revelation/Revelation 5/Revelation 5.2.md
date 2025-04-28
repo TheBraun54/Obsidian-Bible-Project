@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw a strong angel proclaiming with a great voice, Who is worthy to open the book, and to loose the seals thereof?
+I saw a mighty angel proclaiming with a loud voice, "Who is worthy to open the book, and to break its seals?"

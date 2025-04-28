@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses commanded the children of Israel, saying, This is the land which ye shall inherit by lot, which Jehovah hath commanded to give unto the nine tribes, and to the half-tribe;
+Moses commanded the children of Israel, saying, "This is the land which you shall inherit by lot, which Yahweh has commanded to give to the nine tribes, and to the half-tribe;

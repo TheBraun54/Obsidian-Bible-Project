@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: At the end of forty years will I gather the Egyptians from the peoples whither they were scattered;
+For thus says the Lord Yahweh: "At the end of forty years will I gather the Egyptians from the peoples where they were scattered;

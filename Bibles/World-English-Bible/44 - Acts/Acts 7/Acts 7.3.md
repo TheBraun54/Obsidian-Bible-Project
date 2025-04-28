@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto him, Get thee out of thy land, and from thy kindred, and come into the land which I shall show thee.
+and said to him, 'Get out of your land, and from your relatives, and come into a land which I will show you.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Babylon made Succoth-benoth, and the men of Cuth made Nergal, and the men of Hamath made Ashima,
+The men of Babylon made Succoth Benoth, and the men of Cuth made Nergal, and the men of Hamath made Ashima,

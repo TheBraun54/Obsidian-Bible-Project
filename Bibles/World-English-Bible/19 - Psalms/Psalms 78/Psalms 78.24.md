@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he rained down manna upon them to eat, And gave them food from heaven.
+He rained down manna on them to eat, and gave them food from the sky.

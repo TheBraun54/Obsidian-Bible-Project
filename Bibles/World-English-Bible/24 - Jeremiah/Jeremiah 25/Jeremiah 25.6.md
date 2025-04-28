@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and go not after other gods to serve them, and to worship them, and provoke me not to anger with the work of your hands; and I will do you no hurt.
+and don't go after other gods to serve them or worship them, and don't provoke me to anger with the work of your hands; and I will do you no harm.

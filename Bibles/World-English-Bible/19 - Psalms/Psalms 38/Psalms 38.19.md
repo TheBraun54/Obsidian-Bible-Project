@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But mine enemies are lively, [and] are strong; And they that hate me wrongfully are multiplied.
+But my enemies are vigorous and many. Those who hate me without reason are numerous.

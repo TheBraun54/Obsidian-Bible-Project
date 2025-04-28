@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At eventide, behold, terror; [and] before the morning they are not. This is the portion of them that despoil us, and the lot of them that rob us.
+At evening, behold, terror! Before the morning, they are no more. This is the portion of those who plunder us, and the lot of those who rob us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore be wise, O ye kings: Be instructed, ye judges of the earth.
+Now therefore be wise, you kings. Be instructed, you judges of the earth.

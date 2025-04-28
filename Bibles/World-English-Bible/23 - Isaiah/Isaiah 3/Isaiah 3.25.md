@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy men shall fall by the sword, and thy mighty in the war.
+Your men shall fall by the sword, and your mighty in the war.

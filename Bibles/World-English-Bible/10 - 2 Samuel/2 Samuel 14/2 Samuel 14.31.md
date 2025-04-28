@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Joab arose, and came to Absalom unto his house, and said unto him, Wherefore have thy servants set my field on fire?
+Then Joab arose, and came to Absalom to his house, and said to him, "Why have your servants set my field on fire?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he taught in their synagogues, being glorified of all.
+He taught in their synagogues, being glorified by all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah went with Simeon his brother, and they smote the Canaanites that inhabited Zephath, and utterly destroyed it. And the name of the city was called Hormah.
+Judah went with Simeon his brother, and they struck the Canaanites who inhabited Zephath, and utterly destroyed it. The name of the city was called Hormah.

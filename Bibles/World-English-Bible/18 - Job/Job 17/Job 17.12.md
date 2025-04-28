@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They change the night into day: The light, [say they], is near unto the darkness.
+They change the night into day, saying 'The light is near' in the presence of darkness.

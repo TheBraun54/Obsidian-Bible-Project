@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wail, ye inhabitants of Maktesh; for all the people of Canaan are undone; all they that were laden with silver are cut off.
+Wail, you inhabitants of Maktesh, for all the people of Canaan are undone! All those who were loaded with silver are cut off.

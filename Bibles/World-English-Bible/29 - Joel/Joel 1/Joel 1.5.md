@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, ye drunkards, and weep; and wail, all ye drinkers of wine, because of the sweet wine; for it is cut off from your mouth.
+Wake up, you drunkards, and weep! Wail, all you drinkers of wine, because of the sweet wine; for it is cut off from your mouth.

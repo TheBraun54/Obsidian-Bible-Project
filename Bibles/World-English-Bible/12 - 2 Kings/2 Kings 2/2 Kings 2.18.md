@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came back to him, while he tarried at Jericho; and he said unto them, Did I not say unto you, Go not?
+They came back to him, while he stayed at Jericho; and he said to them, "Didn't I tell you, 'Don't go?'"

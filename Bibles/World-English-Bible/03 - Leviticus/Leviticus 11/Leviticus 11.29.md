@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are they which are unclean unto you among the creeping things that creep upon the earth: the weasel, and the mouse, and the great lizard after its kind,
+"'These are they which are unclean to you among the creeping things that creep on the earth: the weasel, the rat, any kind of great lizard,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall confess their iniquity, and the iniquity of their fathers, in their trespass which they trespassed against me, and also that, because they walked contrary unto me,
+"'If they confess their iniquity, and the iniquity of their fathers, in their trespass which they trespassed against me, and also that, because they walked contrary to me,

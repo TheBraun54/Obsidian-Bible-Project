@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he was rebuked for his own transgression: a dumb ass spake with man's voice and stayed the madness of the prophet.
+but he was rebuked for his own disobedience. A mute donkey spoke with a man's voice and stopped the madness of the prophet.

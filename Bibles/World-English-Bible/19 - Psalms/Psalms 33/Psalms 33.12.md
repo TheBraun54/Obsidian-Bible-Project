@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the nation whose God is Jehovah, The people whom he hath chosen for his own inheritance.
+Blessed is the nation whose God is Yahweh, the people whom he has chosen for his own inheritance.

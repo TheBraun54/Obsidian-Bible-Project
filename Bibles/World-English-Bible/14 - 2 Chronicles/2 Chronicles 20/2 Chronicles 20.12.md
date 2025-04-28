@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O our God, wilt thou not judge them? for we have no might against this great company that cometh against us; neither know we what to do: but our eyes are upon thee.
+Our God, will you not judge them? For we have no might against this great company that comes against us; neither know we what to do, but our eyes are on you."

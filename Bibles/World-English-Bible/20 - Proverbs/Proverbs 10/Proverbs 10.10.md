@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that winketh with the eye causeth sorrow; But a prating fool shall fall.
+One winking with the eye causes sorrow, but a chattering fool will fall.

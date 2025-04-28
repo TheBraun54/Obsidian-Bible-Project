@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan said, Far be it from thee; for if I should at all know that evil were determined by my father to come upon thee, then would not I tell it thee?
+Jonathan said, "Far be it from you; for if I should at all know that evil were determined by my father to come on you, then wouldn't I tell you that?"

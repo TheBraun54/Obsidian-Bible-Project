@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the seventh time, that he said, Behold, there ariseth a cloud out of the sea, as small as a man's hand. And he said, Go up, say unto Ahab, Make ready [thy chariot], and get thee down, that the rain stop thee not.
+It happened at the seventh time, that he said, "Behold, a small cloud, like a man's hand, is rising out of the sea." He said, "Go up, tell Ahab, 'Get ready and go down, so that the rain doesn't stop you.'"

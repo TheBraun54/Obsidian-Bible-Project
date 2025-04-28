@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the host of the tribe of the children of Gad was Eliasaph the son of Deuel.
+Eliasaph the son of Deuel was over the army of the tribe of the children of Gad.

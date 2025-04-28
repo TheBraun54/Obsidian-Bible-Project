@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they turned aside thither, and came to the house of the young man the Levite, even unto the house of Micah, and asked him of his welfare.
+They turned aside there, and came to the house of the young man the Levite, even to the house of Micah, and asked him of his welfare.

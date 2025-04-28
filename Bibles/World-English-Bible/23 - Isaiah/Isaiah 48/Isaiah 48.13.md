@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, my hand hath laid the foundation of the earth, and my right hand hath spread out the heavens: when I call unto them, they stand up together.
+Yes, my hand has laid the foundation of the earth, and my right hand has spread out the heavens: when I call to them, they stand up together.

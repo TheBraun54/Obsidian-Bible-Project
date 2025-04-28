@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will declare for ever, I will sing praises to the God of Jacob.
+But I will declare this forever: I will sing praises to the God of Jacob.

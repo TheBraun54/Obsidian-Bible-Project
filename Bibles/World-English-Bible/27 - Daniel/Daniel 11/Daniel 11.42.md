@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall stretch forth his hand also upon the countries; and the land of Egypt shall not escape.
+He shall stretch forth his hand also on the countries; and the land of Egypt shall not escape.

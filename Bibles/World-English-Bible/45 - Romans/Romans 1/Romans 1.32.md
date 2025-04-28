@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, knowing the ordinance of God, that they that practise such things are worthy of death, not only do the same, but also consent with them that practise them.
+who, knowing the ordinance of God, that those who practice such things are worthy of death, not only do the same, but also approve of those who practice them.

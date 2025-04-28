@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the wicked boasteth of his heart's desire, And the covetous renounceth, [yea], contemneth Jehovah.
+For the wicked boasts of his heart's cravings. He blesses the greedy, and condemns Yahweh.

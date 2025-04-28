@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-casting all your anxiety upon him, because he careth for you.
+casting all your worries on him, because he cares for you.

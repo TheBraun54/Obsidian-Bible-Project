@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that correcteth a scoffer getteth to himself reviling; And he that reproveth a wicked man [getteth] himself a blot.
+He who corrects a mocker invites insult. He who reproves a wicked man invites abuse.

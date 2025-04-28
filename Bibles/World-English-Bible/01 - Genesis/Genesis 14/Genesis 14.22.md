@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram said to the king of Sodom, I have lifted up my hand unto Jehovah, God Most High, possessor of heaven and earth,
+Abram said to the king of Sodom, "I have lifted up my hand to Yahweh, God Most High, possessor of heaven and earth,

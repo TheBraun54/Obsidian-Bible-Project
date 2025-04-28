@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst march though the land in indignation; Thou didst thresh the nations in anger.
+You marched through the land in wrath. You threshed the nations in anger.

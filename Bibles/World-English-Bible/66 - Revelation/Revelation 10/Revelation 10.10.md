@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I took the little book out of the angel's hand, and ate it up; and it was in my mouth sweet as honey: and when I had eaten it, my belly was made bitter.
+I took the little book out of the angel's hand, and ate it up. It was as sweet as honey in my mouth. When I had eaten it, my stomach was made bitter.

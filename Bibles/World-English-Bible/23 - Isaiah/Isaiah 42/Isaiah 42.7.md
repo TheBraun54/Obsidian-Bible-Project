@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to open the blind eyes, to bring out the prisoners from the dungeon, and them that sit in darkness out of the prison-house.
+to open the blind eyes, to bring the prisoners out of the dungeon, and those who sit in darkness out of the prison.

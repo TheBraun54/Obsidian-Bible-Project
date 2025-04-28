@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When a ruler sinneth, and doeth unwittingly any one of all the things which Jehovah his God hath commanded not to be done, and is guilty;
+"'When a ruler sins, and unwittingly does any one of all the things which Yahweh his God has commanded not to be done, and is guilty;

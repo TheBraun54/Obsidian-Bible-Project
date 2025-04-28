@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Let Abishag the Shunammite be given to Adonijah thy brother to wife.
+She said, "Let Abishag the Shunammite be given to Adonijah your brother as wife."

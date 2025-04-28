@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made his son to pass through the fire, and practised augury, and used enchantments, and dealt with them that had familiar spirits, and with wizards: he wrought much evil in the sight of Jehovah, to provoke him to anger.
+He made his son to pass through the fire, and practiced sorcery, and used enchantments, and dealt with those who had familiar spirits, and with wizards: he worked much evil in the sight of Yahweh, to provoke him to anger.

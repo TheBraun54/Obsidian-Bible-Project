@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After him repaired Binnui the son of Henadad another portion, from the house of Azariah unto the turning [of the wall], and unto the corner.
+After him repaired Binnui the son of Henadad another portion, from the house of Azariah to the turning [of the wall], and to the corner.

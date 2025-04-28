@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his armorbearer said unto him, Do all that is in thy heart: turn thee, behold, I am with thee according to thy heart.
+His armor bearer said to him, "Do all that is in your heart. Turn and, behold, I am with you according to your heart."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Jehovah brought upon them the captains of the host of the king of Assyria, who took Manasseh in chains, and bound him with fetters, and carried him to Babylon.
+Therefore Yahweh brought on them the captains of the army of the king of Assyria, who took Manasseh in chains, and bound him with fetters, and carried him to Babylon.

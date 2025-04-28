@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Zadok the priest, and Benaiah the son of Jehoiada, and Nathan the prophet, and Shimei, and Rei, and the mighty men that belonged to David, were not with Adonijah.
+But Zadok the priest, and Benaiah the son of Jehoiada, and Nathan the prophet, and Shimei, and Rei, and the mighty men who belonged to David, were not with Adonijah.

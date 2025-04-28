@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, Jehovah thy God hath set the land before thee: go up, take possession, as Jehovah, the God of thy fathers, hath spoken unto thee; fear not, neither be dismayed.
+Behold, Yahweh your God has set the land before you: go up, take possession, as Yahweh, the God of your fathers, has spoken to you; don't be afraid, neither be dismayed."

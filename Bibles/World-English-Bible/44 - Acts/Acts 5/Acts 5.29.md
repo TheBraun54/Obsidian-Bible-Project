@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter and the apostles answered and said, We must obey God rather than men.
+But Peter and the apostles answered, "We must obey God rather than men.

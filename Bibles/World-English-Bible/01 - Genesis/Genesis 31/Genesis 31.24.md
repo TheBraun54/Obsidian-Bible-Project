@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God came to Laban the Syrian in a dream of the night, and said unto him, Take heed to thyself that thou speak not to Jacob either good or bad.
+God came to Laban, the Syrian, in a dream of the night, and said to him, "Take heed to yourself that you don't speak to Jacob either good or bad."

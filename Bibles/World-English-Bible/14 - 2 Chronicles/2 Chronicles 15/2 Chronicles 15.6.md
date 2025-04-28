@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were broken in pieces, nation against nation, and city against city; for God did vex them with all adversity.
+They were broken in pieces, nation against nation, and city against city; for God troubled them with all adversity.

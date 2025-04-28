@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave them Kiriath-arba, [which Arba was] the father of Anak (the same is Hebron), in the hill-country of Judah, with the suburbs thereof round about it.
+They gave them Kiriath Arba, named after the father of Anak (the same is Hebron), in the hill country of Judah, with its suburbs around it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I was hungry, and ye gave me to eat; I was thirsty, and ye gave me drink; I was a stranger, and ye took me in;
+for I was hungry, and you gave me food to eat. I was thirsty, and you gave me drink. I was a stranger, and you took me in.

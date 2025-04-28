@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if he rise again, and walk abroad upon his staff, then shall he that smote him be quit: only he shall pay for the loss of his time, and shall cause him to be thoroughly healed.
+if he rises again and walks around with his staff, then he who struck him shall be cleared: only he shall pay for the loss of his time, and shall provide for his healing until he is thoroughly healed.

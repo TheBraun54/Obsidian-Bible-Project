@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they know not the thoughts of Jehovah, neither understand they his counsel; for he hath gathered them as the sheaves to the threshing-floor.
+But they don't know the thoughts of Yahweh, neither do they understand his counsel; for he has gathered them like the sheaves to the threshing floor.

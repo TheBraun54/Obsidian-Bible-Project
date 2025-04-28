@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that the Son of man is lord even of the sabbath.
+Therefore the Son of Man is lord even of the Sabbath."

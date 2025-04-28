@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-only, whereunto we have attained, by that same [rule] let us walk.
+Nevertheless, to the extent that we have already attained, let us walk by the same rule. Let us be of the same mind.

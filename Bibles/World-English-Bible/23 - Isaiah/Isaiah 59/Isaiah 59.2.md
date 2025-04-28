@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but your iniquities have separated between you and your God, and your sins have hid his face from you, so that he will not hear.
+but your iniquities have separated between you and your God, and your sins have hidden his face from you, so that he will not hear.

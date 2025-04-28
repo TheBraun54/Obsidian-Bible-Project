@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As a servant hired year by year shall he be with him: he shall not rule with rigor over him in thy sight.
+As a servant hired year by year shall he be with him: he shall not rule with harshness over him in your sight.

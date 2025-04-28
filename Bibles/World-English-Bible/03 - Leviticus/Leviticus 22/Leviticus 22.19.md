@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye may be accepted, [ye shall offer] a male without blemish, of the bullocks, of the sheep, or of the goats.
+that you may be accepted, you shall offer a male without blemish, of the bulls, of the sheep, or of the goats.

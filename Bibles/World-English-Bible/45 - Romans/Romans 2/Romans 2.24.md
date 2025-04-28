@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the name of God is blasphemed among the Gentiles because of you, even as it is written.
+For "the name of God is blasphemed among the Gentiles because of you," just as it is written.

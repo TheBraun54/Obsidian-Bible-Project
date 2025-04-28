@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye, O mountains of Israel, ye shall shoot forth your branches, and yield your fruit to my people Israel; for they are at hand to come.
+But you, mountains of Israel, you shall shoot forth your branches, and yield your fruit to my people Israel; for they are at hand to come.

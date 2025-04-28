@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they entered into a boat, and were going over the sea unto Capernaum. And it was now dark, and Jesus had not yet come to them.
+and they entered into the boat, and were going over the sea to Capernaum. It was now dark, and Jesus had not come to them.

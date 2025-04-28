@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the malefactors that were hanged railed on him, saying, Art not thou the Christ? save thyself and us.
+One of the criminals who was hanged insulted him, saying, "If you are the Christ, save yourself and us!"

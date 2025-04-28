@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in very deed, as Jehovah, the God of Israel, liveth, who hath withholden me from hurting thee, except thou hadst hasted and come to meet me, surely there had not been left unto Nabal by the morning light so much as one man-child.
+For indeed, as Yahweh, the God of Israel, lives, who has withheld me from hurting you, unless you had hurried and come to meet me, surely there wouldn't have been left to Nabal by the morning light so much as one who urinates on a wall."

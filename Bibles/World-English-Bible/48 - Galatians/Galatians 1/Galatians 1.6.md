@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I marvel that ye are so quickly removing from him that called you in the grace of Christ unto a different gospel;
+I marvel that you are so quickly deserting him who called you in the grace of Christ to a different "good news";

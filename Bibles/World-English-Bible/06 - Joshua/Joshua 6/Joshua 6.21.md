@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they utterly destroyed all that was in the city, both man and woman, both young and old, and ox, and sheep, and ass, with the edge of the sword.
+They utterly destroyed all that was in the city, both man and woman, both young and old, and ox, and sheep, and donkey, with the edge of the sword.

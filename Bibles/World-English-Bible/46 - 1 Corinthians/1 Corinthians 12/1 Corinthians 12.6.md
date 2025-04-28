@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there are diversities of workings, but the same God, who worketh all things in all.
+There are various kinds of workings, but the same God, who works all things in all.

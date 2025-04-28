@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Render to no man evil for evil. Take thought for things honorable in the sight of all men.
+Repay no one evil for evil. Respect what is honorable in the sight of all men.

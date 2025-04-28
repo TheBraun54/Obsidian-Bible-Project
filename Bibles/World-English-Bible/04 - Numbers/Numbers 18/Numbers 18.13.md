@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The first-ripe fruits of all that is in their land, which they bring unto Jehovah, shall be thine; every one that is clean in thy house shall eat thereof.
+The first-ripe fruits of all that is in their land, which they bring to Yahweh, shall be yours; everyone who is clean in your house shall eat of it.

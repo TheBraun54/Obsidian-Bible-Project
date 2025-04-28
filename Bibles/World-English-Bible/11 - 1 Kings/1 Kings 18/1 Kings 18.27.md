@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at noon, that Elijah mocked them, and said, Cry aloud; for he is a god: either he is musing, or he is gone aside, or he is on a journey, or peradventure he sleepeth and must be awaked.
+It happened at noon, that Elijah mocked them, and said, "Cry aloud; for he is a god. Either he is musing, or he has gone aside, or he is on a journey, or perhaps he sleeps and must be awakened."

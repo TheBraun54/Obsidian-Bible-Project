@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I was with you in weakness, and in fear, and in much trembling.
+I was with you in weakness, in fear, and in much trembling.

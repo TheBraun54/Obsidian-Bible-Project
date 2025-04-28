@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear us, my lord; thou art a prince of God among us: in the choice of our sepulchres bury thy dead; none of us shall withhold from thee his sepulchre, but that thou mayest bury thy dead.
+"Hear us, my lord. You are a prince of God among us. Bury your dead in the best of our tombs. None of us will withhold from you his tomb. Bury your dead."

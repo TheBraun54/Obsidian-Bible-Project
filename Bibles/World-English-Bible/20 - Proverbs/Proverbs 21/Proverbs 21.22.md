@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wise man scaleth the city of the mighty, And bringeth down the strength of the confidence thereof.
+A wise man scales the city of the mighty, and brings down the strength of its confidence.

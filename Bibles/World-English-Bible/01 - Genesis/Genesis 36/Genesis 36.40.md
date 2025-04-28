@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of the chiefs that came of Esau, according to their families, after their places, by their names: chief Timna, chief Alvah, chief Jetheth,
+These are the names of the chiefs who came from Esau, according to their families, after their places, and by their names: chief Timna, chief Alvah, chief Jetheth,

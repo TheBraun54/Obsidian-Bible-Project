@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hands of Zerubbabel have laid the foundation of this house; his hands shall also finish it; and thou shalt know that Jehovah of hosts hath sent me unto you.
+"The hands of Zerubbabel have laid the foundation of this house. His hands shall also finish it; and you will know that Yahweh of Armies has sent me to you.

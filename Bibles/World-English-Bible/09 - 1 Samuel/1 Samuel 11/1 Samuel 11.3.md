@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of Jabesh said unto him, Give us seven days' respite, that we may send messengers unto all the borders of Israel; and then, if there be none to save us, we will come out to thee.
+The elders of Jabesh said to him, "Give us seven day, that we may send messengers to all the borders of Israel; and then, if there is no one to save us, we will come out to you."

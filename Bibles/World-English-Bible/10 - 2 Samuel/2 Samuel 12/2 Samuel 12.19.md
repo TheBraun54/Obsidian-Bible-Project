@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when David saw that his servants were whispering together, David perceived that the child was dead; and David said unto his servants, Is the child dead? And they said, He is dead.
+But when David saw that his servants were whispering together, David perceived that the child was dead; and David said to his servants, "Is the child dead?" They said, "He is dead."

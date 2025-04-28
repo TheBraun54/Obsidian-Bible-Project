@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they that are minded to be rich fall into a temptation and a snare and many foolish and hurtful lusts, such as drown men in destruction and perdition.
+But those who are determined to be rich fall into a temptation and a snare and many foolish and harmful lusts, such as drown men in ruin and destruction.

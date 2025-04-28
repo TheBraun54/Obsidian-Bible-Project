@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-tribulation and anguish, upon every soul of man that worketh evil, of the Jew first, and also of the Greek;
+oppression and anguish, on every soul of man who works evil, to the Jew first, and also to the Greek.

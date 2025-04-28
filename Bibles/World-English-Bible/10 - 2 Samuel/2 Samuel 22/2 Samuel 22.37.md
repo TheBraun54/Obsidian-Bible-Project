@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast enlarged my steps under me; And my feet have not slipped.
+You have enlarged my steps under me. My feet have not slipped.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before him went the pestilence, And fiery bolts went forth at his feet.
+Plague went before him, and pestilence followed his feet.

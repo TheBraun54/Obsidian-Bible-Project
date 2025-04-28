@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He also made his children to pass through the fire in the valley of the son of Hinnom; and he practised augury, and used enchantments, and practised sorcery, and dealt with them that had familiar spirits, and with wizards: he wrought much evil in the sight of Jehovah, to provoke him to anger.
+He also made his children to pass through the fire in the valley of the son of Hinnom; and he practiced sorcery, and used enchantments, and practiced sorcery, and dealt with those who had familiar spirits, and with wizards: he worked much evil in the sight of Yahweh, to provoke him to anger.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel, Amend your ways and your doings, and I will cause you to dwell in this place.
+Thus says Yahweh of Armies, the God of Israel, Amend your ways and your doings, and I will cause you to dwell in this place.

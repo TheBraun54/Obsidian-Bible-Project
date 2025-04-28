@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast taken pledges of thy brother for nought, And stripped the naked of their clothing.
+For you have taken pledges from your brother for nothing, and stripped the naked of their clothing.

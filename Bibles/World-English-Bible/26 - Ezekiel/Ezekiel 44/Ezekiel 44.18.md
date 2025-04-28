@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall have linen tires upon their heads, and shall have linen breeches upon their loins; they shall not gird themselves with [anything that causeth] sweat.
+They shall have linen tires on their heads, and shall have linen breeches on their waists; they shall not clothe themselves with [anything that causes] sweat.

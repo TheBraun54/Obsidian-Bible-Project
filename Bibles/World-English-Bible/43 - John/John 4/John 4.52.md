@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he inquired of them the hour when he began to amend. They said therefore unto him, Yesterday at the seventh hour the fever left him.
+So he inquired of them the hour when he began to get better. They said therefore to him, "Yesterday at the seventh hour, the fever left him."

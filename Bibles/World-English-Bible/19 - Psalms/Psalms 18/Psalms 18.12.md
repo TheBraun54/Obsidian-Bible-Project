@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the brightness before him his thick clouds passed, Hailstones and coals of fire.
+At the brightness before him his thick clouds passed, hailstones and coals of fire.

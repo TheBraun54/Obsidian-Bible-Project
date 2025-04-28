@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The foolish woman is clamorous; [She is] simple, and knoweth nothing.
+The foolish woman is loud, Undisciplined, and knows nothing.

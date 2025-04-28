@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He said therefore, Unto what is the kingdom of God like? and whereunto shall I liken it?
+He said, "What is the Kingdom of God like? To what shall I compare it?

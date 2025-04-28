@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt drink water by measure, the sixth part of a hin: from time to time shalt thou drink.
+You shall drink water by measure, the sixth part of a hin: from time to time you shall drink.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cloud of Jehovah was over them by day, when they set forward from the camp.
+The cloud of Yahweh was over them by day, when they set forward from the camp.

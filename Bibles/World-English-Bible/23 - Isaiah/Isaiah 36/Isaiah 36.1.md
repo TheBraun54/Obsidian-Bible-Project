@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass in the fourteenth year of king Hezekiah, that Sennacherib king of Assyria came up against all the fortified cities of Judah, and took them.
+Now it happened in the fourteenth year of king Hezekiah, that Sennacherib king of Assyria attacked all of the fortified cities of Judah, and captured them.

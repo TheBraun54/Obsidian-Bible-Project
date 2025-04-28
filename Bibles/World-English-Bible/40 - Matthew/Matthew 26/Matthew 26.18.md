@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Go into the city to such a man, and say unto him, The Teacher saith, My time is at hand; I keep the passover at thy house with my disciples.
+He said, "Go into the city to a certain person, and tell him, 'The Teacher says, "My time is at hand. I will keep the Passover at your house with my disciples."'"

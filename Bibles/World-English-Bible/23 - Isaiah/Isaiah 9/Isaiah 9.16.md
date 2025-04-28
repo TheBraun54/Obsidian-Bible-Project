@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they that lead this people cause them to err; and they that are led of them are destroyed.
+For those who lead this people lead them astray; and those who are led by them are destroyed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In measure, when thou sendest them away, thou dost contend with them; he hath removed [them] with his rough blast in the day of the east wind.
+In measure, when you send them away, you contend with them. He has removed them with his rough blast in the day of the east wind.

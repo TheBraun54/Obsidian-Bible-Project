@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye may suck and be satisfied with the breasts of her consolations; that ye may milk out, and be delighted with the abundance of her glory.
+that you may nurse and be satisfied at the comforting breasts; that you may drink deeply, and be delighted with the abundance of her glory."

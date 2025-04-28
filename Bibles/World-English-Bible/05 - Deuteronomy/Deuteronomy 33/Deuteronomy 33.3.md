@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, he loveth the people; All his saints are in thy hand: And they sat down at thy feet; [Every one] shall receive of thy words.
+Yes, he loves the people. All his saints are in your hand. They sat down at your feet; [Everyone] shall receive of your words.

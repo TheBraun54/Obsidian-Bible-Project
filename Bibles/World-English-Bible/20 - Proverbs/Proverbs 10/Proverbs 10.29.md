@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of Jehovah is a stronghold to the upright; But it is a destruction to the workers of iniquity.
+The way of Yahweh is a stronghold to the upright, but it is a destruction to the workers of iniquity.

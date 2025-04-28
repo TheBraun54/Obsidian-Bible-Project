@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto which [promise] our twelve tribes, earnestly serving [God] night and day, hope to attain. And concerning this hope I am accused by the Jews, O king!
+which our twelve tribes, earnestly serving night and day, hope to attain. Concerning this hope I am accused by the Jews, King Agrippa!

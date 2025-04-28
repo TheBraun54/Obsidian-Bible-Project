@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rose up betimes in the morning, and sware one to another: and Isaac sent them away, and they departed from him in peace.
+They rose up some time in the morning, and swore one to another. Isaac sent them away, and they departed from him in peace.

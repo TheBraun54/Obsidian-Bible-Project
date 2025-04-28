@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In famine he will redeem thee from death; And in war from the power of the sword.
+In famine he will redeem you from death; in war, from the power of the sword.

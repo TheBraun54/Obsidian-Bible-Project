@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-conscience, I say, not thine own, but the other's; for why is my liberty judged by another conscience?
+Conscience, I say, not your own, but the other's conscience. For why is my liberty judged by another conscience?

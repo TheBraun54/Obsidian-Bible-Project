@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I applied my heart to know wisdom, and to know madness and folly: I perceived that this also was a striving after wind.
+I applied my heart to know wisdom, and to know madness and folly. I perceived that this also was a chasing after wind.

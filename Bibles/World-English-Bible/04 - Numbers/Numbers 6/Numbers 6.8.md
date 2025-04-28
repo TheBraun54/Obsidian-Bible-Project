@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the days of his separation he is holy unto Jehovah.
+All the days of his separation he is holy to Yahweh.

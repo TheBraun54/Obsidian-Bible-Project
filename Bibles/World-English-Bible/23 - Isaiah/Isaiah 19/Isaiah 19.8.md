@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fishers shall lament, and all they that cast angle into the Nile shall mourn, and they that spread nets upon the waters shall languish.
+The fishermen will lament, and all those who fish in the Nile will mourn, and those who spread nets on the waters will languish.

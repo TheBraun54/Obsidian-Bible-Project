@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he gave to the sea its bound, That the waters should not transgress his commandment, When he marked out the foundations of the earth;
+when he gave to the sea its boundary, that the waters should not violate his commandment, when he marked out the foundations of the earth;

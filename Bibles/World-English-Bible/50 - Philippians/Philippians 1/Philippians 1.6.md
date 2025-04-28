@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being confident of this very thing, that he who began a good work in you will perfect it until the day of Jesus Christ:
+being confident of this very thing, that he who began a good work in you will complete it until the day of Jesus Christ.

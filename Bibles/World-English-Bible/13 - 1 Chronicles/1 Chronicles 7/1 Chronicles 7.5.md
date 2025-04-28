@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their brethren among all the families of Issachar, mighty men of valor, reckoned in all by genealogy, were fourscore and seven thousand.
+Their brothers among all the families of Issachar, mighty men of valor, reckoned in all by genealogy, were eighty-seven thousand.

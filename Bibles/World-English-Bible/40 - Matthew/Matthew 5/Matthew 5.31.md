@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It was said also, Whosoever shall put away his wife, let him give her a writing of divorcement:
+"It was also said, 'Whoever shall put away his wife, let him give her a writing of divorce,'

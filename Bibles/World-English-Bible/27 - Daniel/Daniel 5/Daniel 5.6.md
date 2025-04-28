@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king's countenance was changed in him, and his thoughts troubled him; and the joints of his loins were loosed, and his knees smote one against another.
+Then the king's face was changed in him, and his thoughts troubled him; and the joints of his thighs were loosened, and his knees struck one against another.

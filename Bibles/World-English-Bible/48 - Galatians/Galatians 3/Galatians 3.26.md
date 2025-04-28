@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye are all sons of God, through faith, in Christ Jesus.
+For you are all children of God, through faith in Christ Jesus.

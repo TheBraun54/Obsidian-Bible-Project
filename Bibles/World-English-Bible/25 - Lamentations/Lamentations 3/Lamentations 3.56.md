@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou heardest my voice; hide not thine ear at my breathing, at my cry.
+You heard my voice; don't hide your ear at my breathing, at my cry.

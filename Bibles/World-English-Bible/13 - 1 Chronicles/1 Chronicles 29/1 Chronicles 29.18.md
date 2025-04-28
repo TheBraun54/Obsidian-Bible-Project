@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, the God of Abraham, of Isaac, and of Israel, our fathers, keep this for ever in the imagination of the thoughts of the heart of thy people, and prepare their heart unto thee;
+Yahweh, the God of Abraham, of Isaac, and of Israel, our fathers, keep this forever in the imagination of the thoughts of the heart of your people, and prepare their heart for you;

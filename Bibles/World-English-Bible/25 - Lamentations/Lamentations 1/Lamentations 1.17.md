@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zion spreadeth forth her hands; there is none to comfort her; Jehovah hath commanded concerning Jacob, that they that are round about him should be his adversaries: Jerusalem is among them as an unclean thing.
+Zion spreads forth her hands; there is none to comfort her; Yahweh has commanded concerning Jacob, that those who are around him should be his adversaries: Jerusalem is among them as an unclean thing.

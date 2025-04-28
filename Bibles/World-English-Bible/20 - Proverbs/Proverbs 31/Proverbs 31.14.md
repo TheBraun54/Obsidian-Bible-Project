@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She is like the merchant-ships; She bringeth her bread from afar.
+She is like the merchant ships. She brings her bread from afar.

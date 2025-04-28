@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear this, I pray you, ye heads of the house of Jacob, and rulers of the house of Israel, that abhor justice, and pervert all equity.
+Please listen to this, you heads of the house of Jacob, and rulers of the house of Israel, who abhor justice, and pervert all equity.

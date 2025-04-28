@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went on his way through cities and villages, teaching, and journeying on unto Jerusalem.
+He went on his way through cities and villages, teaching, and traveling on to Jerusalem.

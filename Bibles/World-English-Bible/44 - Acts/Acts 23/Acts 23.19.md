@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief captain took him by the hand, and going aside asked him privately, What is it that thou hast to tell me?
+The commanding officer took him by the hand, and going aside, asked him privately, "What is it that you have to tell me?"

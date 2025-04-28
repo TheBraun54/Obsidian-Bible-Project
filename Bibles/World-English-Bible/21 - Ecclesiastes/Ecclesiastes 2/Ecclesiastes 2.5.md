@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I made me gardens and parks, and I planted trees in them of all kinds of fruit;
+I made myself gardens and parks, and I planted trees in them of all kinds of fruit.

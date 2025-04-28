@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you, scribes and Pharisees, hypocrites! for ye cleanse the outside of the cup and of the platter, but within they are full from extortion and excess.
+"Woe to you, scribes and Pharisees, hypocrites! For you clean the outside of the cup and of the platter, but within they are full of extortion and unrighteousness.

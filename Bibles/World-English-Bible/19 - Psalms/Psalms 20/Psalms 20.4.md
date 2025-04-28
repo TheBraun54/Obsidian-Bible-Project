@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Grant thee thy heart's desire, And fulfil all thy counsel.
+May He grant you your heart's desire, and fulfill all your counsel.

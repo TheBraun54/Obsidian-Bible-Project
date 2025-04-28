@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also in the day of the first-fruits, when ye offer a new meal-offering unto Jehovah in your [feast of] weeks, ye shall have a holy convocation; ye shall do no servile work;
+"'Also in the day of the first fruits, when you offer a new meal offering to Yahweh in your [feast of] weeks, you shall have a holy convocation; you shall do no servile work;

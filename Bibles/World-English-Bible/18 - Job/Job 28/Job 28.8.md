@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proud beasts have not trodden it, Nor hath the fierce lion passed thereby.
+The proud animals have not trodden it, nor has the fierce lion passed by there.

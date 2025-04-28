@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ephraim is like a silly dove, without understanding: they call unto Egypt, they go to Assyria.
+"Ephraim is like an easily deceived dove, without understanding. They call to Egypt. They go to Assyria.

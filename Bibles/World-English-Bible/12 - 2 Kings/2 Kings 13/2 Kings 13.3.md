@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anger of Jehovah was kindled against Israel, and he delivered them into the hand of Hazael king of Syria, and into the hand of Benhadad the son of Hazael, continually.
+The anger of Yahweh was kindled against Israel, and he delivered them into the hand of Hazael king of Syria, and into the hand of Benhadad the son of Hazael, continually.

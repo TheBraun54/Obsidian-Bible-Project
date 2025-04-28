@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he measured the length of the building before the separate place which was at the back thereof, and the galleries thereof on the one side and on the other side, a hundred cubits; and the inner temple, and the porches of the court;
+He measured the length of the building before the separate place which was at its back, and its galleries on the one side and on the other side, one hundred cubits; and the inner temple, and the porches of the court;

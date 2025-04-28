@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God prepared a worm when the morning rose the next day, and it smote the gourd, that it withered.
+But God prepared a worm at dawn the next day, and it chewed on the vine, so that it withered.

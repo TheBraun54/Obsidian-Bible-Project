@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Assyria shall not save us; we will not ride upon horses; neither will we say any more to the work of our hands, [Ye are] our gods; for in thee the fatherless findeth mercy.
+Assyria can't save us. We won't ride on horses; neither will we say any more to the work of our hands, 'Our gods!' for in you the fatherless finds mercy."

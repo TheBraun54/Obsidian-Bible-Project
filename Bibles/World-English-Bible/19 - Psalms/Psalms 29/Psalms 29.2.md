@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ascribe unto Jehovah the glory due unto his name; Worship Jehovah in holy array.
+Ascribe to Yahweh the glory due to his name. Worship Yahweh in holy array.

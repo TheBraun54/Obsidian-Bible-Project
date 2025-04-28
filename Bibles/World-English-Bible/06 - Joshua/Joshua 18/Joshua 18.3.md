@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto the children of Israel, How long are ye slack to go in to possess the land, which Jehovah, the God of your fathers, hath given you?
+Joshua said to the children of Israel, "How long will you neglect to go in to possess the land, which Yahweh, the God of your fathers, has given you?

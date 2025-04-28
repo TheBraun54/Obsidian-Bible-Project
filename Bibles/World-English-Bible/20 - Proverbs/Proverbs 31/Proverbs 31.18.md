@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She perceiveth that her merchandise is profitable: Her lamp goeth not out by night.
+She perceives that her merchandise is profitable. Her lamp doesn't go out by night.

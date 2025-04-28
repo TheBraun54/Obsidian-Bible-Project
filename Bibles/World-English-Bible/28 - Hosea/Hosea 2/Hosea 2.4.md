@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, upon her children will I have no mercy; for they are children of whoredom;
+Indeed, on her children I will have no mercy; for they are children of unfaithfulness;

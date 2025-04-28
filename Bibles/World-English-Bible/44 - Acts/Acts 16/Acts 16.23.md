@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had laid many stripes upon them, they cast them into prison, charging the jailor to keep them safely:
+When they had laid many stripes on them, they threw them into prison, charging the jailer to keep them safely,

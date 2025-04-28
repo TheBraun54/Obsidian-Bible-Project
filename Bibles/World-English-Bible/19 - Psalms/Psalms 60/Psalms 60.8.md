@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moab is my washpot; Upon Edom will I cast my shoe: Philistia, shout thou because of me.
+Moab is my wash basin. I will throw my shoe on Edom. I shout in triumph over Philistia."

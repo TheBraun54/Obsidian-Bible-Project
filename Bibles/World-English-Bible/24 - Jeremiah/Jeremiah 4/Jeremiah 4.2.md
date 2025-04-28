@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt swear, As Jehovah liveth, in truth, in justice, and in righteousness; and the nations shall bless themselves in him, and in him shall they glory.
+and you shall swear, 'As Yahweh lives,' in truth, in justice, and in righteousness. The nations shall bless themselves in him, and in him shall they glory."

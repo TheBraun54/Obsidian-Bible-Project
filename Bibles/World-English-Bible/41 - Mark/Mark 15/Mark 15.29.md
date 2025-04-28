@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that passed by railed on him, wagging their heads, and saying, Ha! Thou that destroyest the temple, and buildest it in three days,
+Those who passed by blasphemed him, wagging their heads, and saying, "Ha! You who destroy the temple, and build it in three days,

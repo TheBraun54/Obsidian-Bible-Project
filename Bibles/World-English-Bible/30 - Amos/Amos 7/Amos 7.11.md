@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus Amos saith, Jeroboam shall die by the sword, and Israel shall surely be led away captive out of his land.
+For Amos says, 'Jeroboam will die by the sword, and Israel shall surely be led away captive out of his land.'"

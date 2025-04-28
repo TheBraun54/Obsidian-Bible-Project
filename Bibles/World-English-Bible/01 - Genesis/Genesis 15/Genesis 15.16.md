@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the fourth generation they shall come hither again: for the iniquity of the Amorite is not yet full.
+In the fourth generation they will come here again, for the iniquity of the Amorite is not yet full."

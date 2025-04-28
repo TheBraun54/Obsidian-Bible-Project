@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the most holy house he made two cherubim of image work; and they overlaid them with gold.
+In the most holy house he made two cherubim of image work; and they overlaid them with gold.

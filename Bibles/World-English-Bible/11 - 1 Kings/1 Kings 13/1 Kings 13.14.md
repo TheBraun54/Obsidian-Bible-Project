@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went after the man of God, and found him sitting under an oak; and he said unto him, Art thou the man of God that camest from Judah? And he said, I am.
+He went after the man of God, and found him sitting under an oak. He said to him, "Are you the man of God who came from Judah?" He said, "I am."

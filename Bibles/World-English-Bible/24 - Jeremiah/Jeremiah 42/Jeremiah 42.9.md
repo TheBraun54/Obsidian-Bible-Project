@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, Thus saith Jehovah, the God of Israel, unto whom ye sent me to present your supplication before him:
+and said to them, Thus says Yahweh, the God of Israel, to whom you sent me to present your supplication before him:

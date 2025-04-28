@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the things which proceed out of the mouth come forth out of the heart; and they defile the man.
+But the things which proceed out of the mouth come out of the heart, and they defile the man.

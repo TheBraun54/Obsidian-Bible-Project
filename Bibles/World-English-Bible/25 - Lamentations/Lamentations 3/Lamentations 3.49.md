@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eye poureth down, and ceaseth not, without any intermission,
+My eye pours down, and doesn't cease, without any intermission,

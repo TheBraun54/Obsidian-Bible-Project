@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all men shall fear; And they shall declare the work of God, And shall wisely consider of his doing.
+All mankind shall be afraid. They shall declare the work of God, and shall wisely ponder what he has done.

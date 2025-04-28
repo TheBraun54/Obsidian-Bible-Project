@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they that say such things make it manifest that they are seeking after a country of their own.
+For those who say such things make it clear that they are seeking a country of their own.

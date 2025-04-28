@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her husband arose, and went after her, to speak kindly unto her, to bring her again, having his servant with him, and a couple of asses: and she brought him into her father's house; and when the father of the damsel saw him, he rejoiced to meet him.
+Her husband arose, and went after her, to speak kindly to her, to bring her again, having his servant with him, and a couple of donkeys: and she brought him into her father's house; and when the father of the young lady saw him, he rejoiced to meet him.

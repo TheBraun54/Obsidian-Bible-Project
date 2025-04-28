@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Glorious art thou [and] excellent, From the mountains of prey.
+Glorious are you, and excellent, more than mountains of game.

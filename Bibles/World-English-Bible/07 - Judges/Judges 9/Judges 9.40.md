@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech chased him, and he fled before him, and there fell many wounded, even unto the entrance of the gate.
+Abimelech chased him, and he fled before him, and many fell wounded, even to the entrance of the gate.

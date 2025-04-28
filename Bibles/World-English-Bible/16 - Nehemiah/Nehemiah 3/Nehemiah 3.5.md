@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next unto them the Tekoites repaired; but their nobles put not their necks to the work of their lord.
+Next to them the Tekoites repaired; but their nobles didn't put their necks to the work of their lord.

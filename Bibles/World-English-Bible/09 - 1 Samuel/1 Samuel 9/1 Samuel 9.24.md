@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cook took up the thigh, and that which was upon it, and set it before Saul. And [Samuel] said, Behold, that which hath been reserved! set it before thee and eat; because unto the appointed time hath it been kept for thee, for I said, I have invited the people. So Saul did eat with Samuel that day.
+The cook took up the thigh, and that which was on it, and set it before Saul. Samuel said, "Behold, that which has been reserved! Set it before yourself and eat; because for the appointed time has it been kept for you, for I said, 'I have invited the people.'" So Saul ate with Samuel that day.

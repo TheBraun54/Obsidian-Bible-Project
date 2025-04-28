@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Joseph is a fruitful bough, A fruitful bough by a fountain; His branches run over the wall.
+"Joseph is a fruitful vine, a fruitful vine by a spring. His branches run over the wall.

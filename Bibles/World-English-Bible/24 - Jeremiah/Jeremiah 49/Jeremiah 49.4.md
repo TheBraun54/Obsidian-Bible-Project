@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore gloriest thou in the valleys, thy flowing valley, O backsliding daughter? that trusted in her treasures, [saying], Who shall come unto me?
+Why do you glory in the valleys, your flowing valley, backsliding daughter? who trusted in her treasures, [saying], Who shall come to me?

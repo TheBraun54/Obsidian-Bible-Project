@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Nahash the Ammonite came up, and encamped against Jabesh-gilead: and all the men of Jabesh said unto Nahash, Make a covenant with us, and we will serve thee.
+Then Nahash the Ammonite came up, and encamped against Jabesh Gilead: and all the men of Jabesh said to Nahash, "Make a covenant with us, and we will serve you."

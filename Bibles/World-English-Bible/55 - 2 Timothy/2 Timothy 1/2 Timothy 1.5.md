@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having been reminded of the unfeigned faith that is in thee; which dwelt first in thy grandmother Lois, and thy mother Eunice; and, I am persuaded, in thee also.
+having been reminded of the sincere faith that is in you; which lived first in your grandmother Lois, and your mother Eunice, and, I am persuaded, in you also.

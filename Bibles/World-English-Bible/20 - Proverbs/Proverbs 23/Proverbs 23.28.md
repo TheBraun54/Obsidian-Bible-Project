@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, she lieth in wait as a robber, And increaseth the treacherous among men.
+Yes, she lies in wait like a robber, and increases the unfaithful among men.

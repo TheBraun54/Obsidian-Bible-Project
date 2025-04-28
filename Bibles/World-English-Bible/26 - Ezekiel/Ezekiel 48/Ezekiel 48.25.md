@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Simeon, from the east side unto the west side, Issachar, one [portion] .
+By the border of Simeon, from the east side to the west side, Issachar, one [portion].

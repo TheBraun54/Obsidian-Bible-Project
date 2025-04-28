@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, if they will not believe even these two signs, neither hearken unto thy voice, that thou shalt take of the water of the river, and pour it upon the dry land: and the water which thou takest out of the river shall become blood upon the dry land.
+It will happen, if they will not believe even these two signs, neither listen to your voice, that you shall take of the water of the river, and pour it on the dry land. The water which you take out of the river will become blood on the dry land."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it came to pass even so unto him; for the people trod upon him in the gate, and he died.
+It happened like that to him; for the people trod on him in the gate, and he died.

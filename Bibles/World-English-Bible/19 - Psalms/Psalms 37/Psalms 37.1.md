@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. Fret not thyself because of evil-doers, Neither be thou envious against them that work unrighteousness.
+Don't fret because of evildoers, neither be envious against those who work unrighteousness.

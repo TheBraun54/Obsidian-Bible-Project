@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, ye deaf; and look, ye blind, that ye may see.
+"Hear, you deaf, and look, you blind, that you may see.

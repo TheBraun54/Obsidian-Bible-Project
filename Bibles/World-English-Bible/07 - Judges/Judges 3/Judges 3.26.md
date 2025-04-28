@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ehud escaped while they tarried, and passed beyond the quarries, and escaped unto Seirah.
+Ehud escaped while they waited, and passed beyond the quarries, and escaped to Seirah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he would have put him to death, he feared the multitude, because they counted him as a prophet.
+When he would have put him to death, he feared the multitude, because they counted him as a prophet.

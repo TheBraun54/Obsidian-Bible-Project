@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment; for whosoever doeth these things is an abomination unto Jehovah thy God.
+A woman shall not wear men's clothing, neither shall a man put on women's clothing; for whoever does these things is an abomination to Yahweh your God.

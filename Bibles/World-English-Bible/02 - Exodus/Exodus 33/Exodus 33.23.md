@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will take away my hand, and thou shalt see my back; but my face shall not be seen.
+then I will take away my hand, and you will see my back; but my face shall not be seen."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I do not the works of my Father, believe me not.
+If I don't do the works of my Father, don't believe me.

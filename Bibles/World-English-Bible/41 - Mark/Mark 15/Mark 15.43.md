@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-there came Joseph of Arimathaea, a councillor of honorable estate, who also himself was looking for the kingdom of God; and he boldly went in unto Pilate, and asked for the body of Jesus.
+Joseph of Arimathaea, a prominent council member who also himself was looking for the Kingdom of God, came. He boldly went in to Pilate, and asked for Jesus' body.

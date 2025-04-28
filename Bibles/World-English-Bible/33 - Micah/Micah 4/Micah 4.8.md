@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, O tower of the flock, the hill of the daughter of Zion, unto thee shall it come, yea, the former dominion shall come, the kingdom of the daughter of Jerusalem.
+You, tower of the flock, the hill of the daughter of Zion, to you it will come, yes, the former dominion will come, the kingdom of the daughter of Jerusalem.

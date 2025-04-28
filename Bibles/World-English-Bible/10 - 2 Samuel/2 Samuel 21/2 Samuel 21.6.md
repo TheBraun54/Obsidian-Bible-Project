@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-let seven men of his sons be delivered unto us, and we will hang them up unto Jehovah in Gibeah of Saul, the chosen of Jehovah. And the king said, I will give them.
+let seven men of his sons be delivered to us, and we will hang them up to Yahweh in Gibeah of Saul, the chosen of Yahweh." The king said, "I will give them."

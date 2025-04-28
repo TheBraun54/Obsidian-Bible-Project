@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lords of the Philistines passed on by hundreds, and by thousands; and David and his men passed on in the rearward with Achish.
+The lords of the Philistines passed on by hundreds, and by thousands; and David and his men passed on in the rear with Achish.

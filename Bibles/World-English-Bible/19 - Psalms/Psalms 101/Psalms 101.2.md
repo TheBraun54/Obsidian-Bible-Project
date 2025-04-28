@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will behave myself wisely in a perfect way: Oh when wilt thou come unto me? I will walk within my house with a perfect heart.
+I will be careful to live a blameless life. When will you come to me? I will walk within my house with a blameless heart.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God hath spoken in his holiness: I will exult; I will divide Shechem, and mete out the valley of Succoth.
+God has spoken from his sanctuary: "I will triumph. I will divide Shechem, and measure out the valley of Succoth.

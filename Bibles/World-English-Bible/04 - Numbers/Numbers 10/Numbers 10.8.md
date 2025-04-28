@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Aaron, the priests, shall blow the trumpets; and they shall be to you for a statute for ever throughout your generations.
+"The sons of Aaron, the priests, shall blow the trumpets. This shall be to you for a statute forever throughout your generations.

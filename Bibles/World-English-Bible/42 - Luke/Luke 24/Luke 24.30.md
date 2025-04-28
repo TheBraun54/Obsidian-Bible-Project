@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he had sat down with them to meat, he took the bread and blessed; and breaking [it] he gave to them.
+It happened, that when he had sat down at the table with them, he took the bread and gave thanks. Breaking it, he gave to them.

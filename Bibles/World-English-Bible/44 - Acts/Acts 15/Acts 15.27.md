@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have sent therefore Judas and Silas, who themselves also shall tell you the same things by word of mouth.
+We have sent therefore Judas and Silas, who themselves will also tell you the same things by word of mouth.

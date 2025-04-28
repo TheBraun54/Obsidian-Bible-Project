@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she came in straightway with haste unto the king, and asked, saying, I will that thou forthwith give me on a platter the head of John the Baptist.
+She came in immediately with haste to the king, and asked, "I want you to give me right now the head of John the Baptizer on a platter."

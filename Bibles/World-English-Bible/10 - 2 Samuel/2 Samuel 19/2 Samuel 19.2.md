@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the victory that day was turned into mourning unto all the people; for the people heard say that day, The king grieveth for his son.
+The victory that day was turned into mourning to all the people; for the people heard it said that day, "The king grieves for his son."

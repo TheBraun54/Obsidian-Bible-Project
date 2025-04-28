@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what saith the scripture? And Abraham believed God, and it was reckoned unto him for righteousness.
+For what does the Scripture say? "Abraham believed God, and it was accounted to him for righteousness."

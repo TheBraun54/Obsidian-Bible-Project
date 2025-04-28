@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God is my strong fortress; And he guideth the perfect in his way.
+God is my strong fortress. He makes my way perfect.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I regard iniquity in my heart, The Lord will not hear:
+If I cherished sin in my heart, the Lord wouldn't have listened.

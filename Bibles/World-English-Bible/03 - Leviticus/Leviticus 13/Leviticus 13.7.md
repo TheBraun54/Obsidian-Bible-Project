@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the scab spread abroad in the skin, after that he hath showed himself to the priest for his cleansing, he shall show himself to the priest again:
+But if the scab spreads on the skin, after he has shown himself to the priest for his cleansing, he shall show himself to the priest again.

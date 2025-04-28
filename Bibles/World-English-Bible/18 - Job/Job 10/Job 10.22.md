@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The land dark as midnight, [The land] of the shadow of death, without any order, And where the light is as midnight.
+the land dark as midnight, of the shadow of death, without any order, where the light is as midnight.'"

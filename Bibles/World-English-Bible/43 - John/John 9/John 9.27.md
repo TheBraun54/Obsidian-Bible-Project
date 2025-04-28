@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He answered them, I told you even now, and ye did not hear; wherefore would ye hear it again? would ye also become his disciples?
+He answered them, "I told you already, and you didn't listen. Why do you want to hear it again? You don't also want to become his disciples, do you?"

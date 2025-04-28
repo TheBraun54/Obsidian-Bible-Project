@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Follow after love; yet desire earnestly spiritual [gifts], but rather that ye may prophesy.
+Follow after love, and earnestly desire spiritual gifts, but especially that you may prophesy.

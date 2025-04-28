@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy brother be waxed poor with thee, and sell himself unto thee; thou shalt not make him to serve as a bond-servant.
+"'If your brother has grown poor among you, and sells himself to you; you shall not make him to serve as a slave.

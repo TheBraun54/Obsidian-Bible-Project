@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abel, he also brought of the firstlings of his flock and of the fat thereof. And Jehovah had respect unto Abel and to his offering:
+Abel also brought some of the firstborn of his flock and of its fat. Yahweh respected Abel and his offering,

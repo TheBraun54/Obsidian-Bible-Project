@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, Thou must also give into our hand sacrifices and burnt-offerings, that we may sacrifice unto Jehovah our God.
+Moses said, "You must also give into our hand sacrifices and burnt offerings, that we may sacrifice to Yahweh our God.

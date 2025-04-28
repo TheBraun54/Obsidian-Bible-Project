@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She hath done what she could; she hath anointed my body beforehand for the burying.
+She has done what she could. She has anointed my body beforehand for the burying.

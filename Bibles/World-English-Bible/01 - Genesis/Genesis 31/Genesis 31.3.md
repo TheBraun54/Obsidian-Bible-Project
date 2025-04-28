@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Jacob, Return unto the land of thy fathers, and to thy kindred; and I will be with thee.
+Yahweh said to Jacob, "Return to the land of your fathers, and to your relatives, and I will be with you."

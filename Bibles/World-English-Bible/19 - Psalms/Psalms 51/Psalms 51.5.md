@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I was brought forth in iniquity; And in sin did my mother conceive me.
+Behold, I was brought forth in iniquity. In sin my mother conceived me.

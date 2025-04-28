@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naomi had a kinsman of her husband's, a mighty man of wealth, of the family of Elimelech, and his name was Boaz.
+Naomi had a kinsman of her husband's, a mighty man of wealth, of the family of Elimelech, and his name was Boaz.

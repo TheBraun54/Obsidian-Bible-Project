@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who for my life laid down their own necks; unto whom not only I give thanks, but also all the churches of the Gentiles:
+who for my life, laid down their own necks; to whom not only I give thanks, but also all the assemblies of the Gentiles.

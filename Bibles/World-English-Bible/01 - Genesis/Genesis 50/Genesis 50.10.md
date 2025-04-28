@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to the threshing-floor of Atad, which is beyond the Jordan, and there they lamented with a very great and sore lamentation: and he made a mourning for his father seven days.
+They came to the threshing floor of Atad, which is beyond the Jordan, and there they lamented with a very great and severe lamentation. He mourned for his father seven days.

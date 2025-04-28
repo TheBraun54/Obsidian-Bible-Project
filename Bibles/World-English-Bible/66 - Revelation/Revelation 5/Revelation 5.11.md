@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw, and I heard a voice of many angels round about the throne and the living creatures and the elders; and the number of them was ten thousand times ten thousand, and thousands of thousands;
+I saw, and I heard something like a voice of many angels around the throne, the living creatures, and the elders; and the number of them was ten thousands of ten thousands, and thousands of thousands;

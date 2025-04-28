@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He leadeth priests away stripped, And overthroweth the mighty.
+He leads priests away stripped, and overthrows the mighty.

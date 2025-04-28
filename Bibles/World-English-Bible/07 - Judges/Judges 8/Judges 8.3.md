@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God hath delivered into your hand the princes of Midian, Oreb and Zeeb: and what was I able to do in comparison with you? Then their anger was abated toward him, when he had said that.
+God has delivered into your hand the princes of Midian, Oreb and Zeeb! What was I able to do in comparison with you?" Then their anger was abated toward him, when he had said that.

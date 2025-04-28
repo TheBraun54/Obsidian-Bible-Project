@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-longing to see thee, remembering thy tears, that I may be filled with joy;
+longing to see you, remembering your tears, that I may be filled with joy;

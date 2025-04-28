@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I will tell you what I will do to my vineyard: I will take away the hedge thereof, and it shall be eaten up; I will break down the wall thereof, and it shall be trodden down:
+Now I will tell you what I will do to my vineyard. I will take away its hedge, and it will be eaten up. I will break down its wall of it, and it will be trampled down.

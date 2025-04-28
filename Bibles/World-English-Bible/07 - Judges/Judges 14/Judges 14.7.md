@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went down, and talked with the woman, and she pleased Samson well.
+He went down, and talked with the woman, and she pleased Samson well.

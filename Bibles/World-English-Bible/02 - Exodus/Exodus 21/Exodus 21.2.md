@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou buy a Hebrew servant, six years he shall serve: and in the seventh he shall go out free for nothing.
+"If you buy a Hebrew servant, he shall serve six years and in the seventh he shall go out free without paying anything.

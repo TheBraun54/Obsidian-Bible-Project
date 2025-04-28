@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that found him gathering sticks brought him unto Moses and Aaron, and unto all the congregation.
+Those who found him gathering sticks brought him to Moses and Aaron, and to all the congregation.

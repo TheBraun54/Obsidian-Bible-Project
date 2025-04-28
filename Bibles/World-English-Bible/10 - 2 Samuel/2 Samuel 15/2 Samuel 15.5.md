@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, when any man came nigh to do him obeisance, he put forth his hand, and took hold of him, and kissed him.
+It was so, that when any man came near to do him obeisance, he put forth his hand, and took hold of him, and kissed him.

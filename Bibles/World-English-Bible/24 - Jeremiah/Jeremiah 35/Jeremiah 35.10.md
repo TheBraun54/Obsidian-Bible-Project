@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but we have dwelt in tents, and have obeyed, and done according to all that Jonadab our father commanded us.
+but we have lived in tents, and have obeyed, and done according to all that Jonadab our father commanded us.

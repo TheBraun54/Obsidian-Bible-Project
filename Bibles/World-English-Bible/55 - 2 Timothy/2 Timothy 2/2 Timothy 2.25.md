@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in meekness correcting them that oppose themselves; if peradventure God may give them repentance unto the knowledge of the truth,
+in gentleness correcting those who oppose him: perhaps God may give them repentance leading to a full knowledge of the truth,

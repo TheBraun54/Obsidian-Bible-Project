@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went out, and preached that [men] should repent.
+They went out and preached that people should repent.

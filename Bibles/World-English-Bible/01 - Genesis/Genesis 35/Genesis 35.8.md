@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Deborah Rebekah's nurse died, and she was buried below Beth-el under the oak: and the name of it was called Allon-bacuth.
+Deborah, Rebekah's nurse, died, and she was buried below Bethel under the oak; and its name was called Allon Bacuth.

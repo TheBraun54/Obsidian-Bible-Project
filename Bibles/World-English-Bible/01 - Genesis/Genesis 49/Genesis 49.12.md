@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His eyes shall be red with wine, And his teeth white with milk.
+His eyes will be red with wine, his teeth white with milk.

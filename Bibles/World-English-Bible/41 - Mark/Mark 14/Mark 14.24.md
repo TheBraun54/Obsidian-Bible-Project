@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, This is my blood of the covenant, which is poured out for many.
+He said to them, "This is my blood of the new covenant, which is poured out for many.

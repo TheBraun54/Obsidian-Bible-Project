@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast made of a city a heap, of a fortified city a ruin, a palace of strangers to be no city; it shall never be built.
+For you have made a city into a heap, a fortified city into a ruin, a palace of strangers to be no city. It will never be built.

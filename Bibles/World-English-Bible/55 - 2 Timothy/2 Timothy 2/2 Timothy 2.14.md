@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of these things put them in remembrance, charging [them] in the sight of the Lord, that they strive not about words, to no profit, to the subverting of them that hear.
+Remind them of these things, charging them in the sight of the Lord, that they don't argue about words, to no profit, to the subverting of those who hear.

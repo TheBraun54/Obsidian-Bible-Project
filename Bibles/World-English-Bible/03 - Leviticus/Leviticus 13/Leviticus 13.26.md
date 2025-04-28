@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the priest look on it, and, behold, there be no white hair in the bright spot, and it be no lower than the skin, but be dim; then the priest shall shut him up seven days:
+But if the priest examines it, and behold, there is no white hair in the bright spot, and it isn't lower than the skin, but is faded; then the priest shall isolate him seven days.

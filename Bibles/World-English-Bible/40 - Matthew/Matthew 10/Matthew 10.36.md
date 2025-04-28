@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a man's foes [shall be] they of his own household.
+A man's foes will be those of his own household.

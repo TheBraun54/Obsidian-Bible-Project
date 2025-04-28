@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the hour was come, he sat down, and the apostles with him.
+When the hour had come, he sat down with the twelve apostles.

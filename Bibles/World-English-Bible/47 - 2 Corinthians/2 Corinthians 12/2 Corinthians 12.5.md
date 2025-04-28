@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On behalf of such a one will I glory: but on mine own behalf I will not glory, save in [my] weaknesses.
+On behalf of such a one I will boast, but on my own behalf I will not boast, except in my weaknesses.

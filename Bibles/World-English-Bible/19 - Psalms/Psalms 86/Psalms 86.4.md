@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice the soul of thy servant; For unto thee, O Lord, do I lift up my soul.
+Bring joy to the soul of your servant, for to you, Lord, do I lift up my soul.

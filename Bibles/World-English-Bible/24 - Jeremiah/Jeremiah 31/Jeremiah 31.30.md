@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But every one shall die for his own iniquity: every man that eateth the sour grapes, his teeth shall be set on edge.
+But everyone shall die for his own iniquity: every man who eats the sour grapes, his teeth shall be set on edge.

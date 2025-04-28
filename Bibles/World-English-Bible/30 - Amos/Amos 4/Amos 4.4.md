@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come to Beth-el, and transgress; to Gilgal, [and] multiply transgression; and bring your sacrifices every morning, [and] your tithes every three days;
+"Go to Bethel, and sin; to Gilgal, and sin more. Bring your sacrifices every morning, your tithes every three days,

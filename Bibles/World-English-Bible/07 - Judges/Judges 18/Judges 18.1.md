@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days there was no king in Israel: and in those days the tribe of the Danites sought them an inheritance to dwell in; for unto that day [their] inheritance had not fallen unto them among the tribes of Israel.
+In those days there was no king in Israel: and in those days the tribe of the Danites sought them an inheritance to dwell in; for to that day [their] inheritance had not fallen to them among the tribes of Israel.

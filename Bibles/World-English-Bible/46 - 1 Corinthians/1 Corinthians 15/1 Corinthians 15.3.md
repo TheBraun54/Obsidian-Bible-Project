@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I delivered unto you first of all that which also I received: that Christ died for our sins according to the scriptures;
+For I delivered to you first of all that which I also received: that Christ died for our sins according to the Scriptures,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the names of them were Oholah the elder, and Oholibah her sister: and they became mine, and they bare sons and daughters. And as for their names, Samaria is Oholah, and Jerusalem Oholibah.
+The names of them were Oholah the elder, and Oholibah her sister: and they became mine, and they bore sons and daughters. As for their names, Samaria is Oholah, and Jerusalem Oholibah.

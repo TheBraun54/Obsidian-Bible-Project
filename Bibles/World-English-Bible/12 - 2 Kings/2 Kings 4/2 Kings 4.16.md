@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, At this season, when the time cometh round, thou shalt embrace a son. And she said, Nay, my lord, thou man of God, do not lie unto thy handmaid.
+He said, "At this season, when the time comes around, you will embrace a son." She said, "No, my lord, you man of God, do not lie to your handmaid."

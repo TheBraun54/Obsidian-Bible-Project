@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall command that they wash the thing wherein the plague is, and he shall shut it up seven days more:
+then the priest shall command that they wash the thing in which the plague is, and he shall isolate it seven more days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he sacrificeth unto his net, and burneth incense unto his drag; because by them his portion is fat, and his food plenteous.
+Therefore he sacrifices to his net, and burns incense to his dragnet, because by them his life is luxurious, and his food is good.

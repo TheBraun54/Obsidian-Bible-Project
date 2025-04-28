@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according to the gospel of the glory of the blessed God, which was committed to my trust.
+according to the Good News of the glory of the blessed God, which was committed to my trust.

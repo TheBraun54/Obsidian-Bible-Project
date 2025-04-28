@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith Jehovah of hosts, the God of Israel, Behold, I will feed them, even this people, with wormwood, and give them water of gall to drink.
+therefore thus says Yahweh of Armies, the God of Israel, Behold, I will feed them, even this people, with wormwood, and give them water of gall to drink.

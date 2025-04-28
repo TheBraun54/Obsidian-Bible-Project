@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now we that are strong ought to bear the infirmities of the weak, and not to please ourselves.
+Now we who are strong ought to bear the weaknesses of the weak, and not to please ourselves.

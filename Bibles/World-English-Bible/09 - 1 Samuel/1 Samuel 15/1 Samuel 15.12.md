@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel rose early to meet Saul in the morning; and it was told Samuel, saying, Saul came to Carmel, and, behold, he set him up a monument, and turned, and passed on, and went down to Gilgal.
+Samuel rose early to meet Saul in the morning; and it was told Samuel, saying, "Saul came to Carmel, and behold, he set up a monument for himself, and turned, and passed on, and went down to Gilgal."

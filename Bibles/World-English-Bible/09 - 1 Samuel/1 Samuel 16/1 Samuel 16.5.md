@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Peaceably; I am come to sacrifice unto Jehovah: sanctify yourselves, and come with me to the sacrifice. And he sanctified Jesse and his sons, and called them to the sacrifice.
+He said, "Peaceably; I have come to sacrifice to Yahweh. Sanctify yourselves, and come with me to the sacrifice." He sanctified Jesse and his sons, and called them to the sacrifice.

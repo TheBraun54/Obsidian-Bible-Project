@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their infants also shall be dashed in pieces before their eyes; their houses shall be rifled, and their wives ravished.
+Their infants also will be dashed in pieces before their eyes. Their houses will be ransacked, and their wives raped.

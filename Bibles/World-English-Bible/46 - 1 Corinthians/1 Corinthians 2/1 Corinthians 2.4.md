@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my speech and my preaching were not in persuasive words of wisdom, but in demonstration of the Spirit and of power:
+My speech and my preaching were not in persuasive words of human wisdom, but in demonstration of the Spirit and of power,

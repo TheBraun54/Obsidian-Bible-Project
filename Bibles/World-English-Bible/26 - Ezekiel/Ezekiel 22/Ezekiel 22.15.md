@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will scatter thee among the nations, and disperse thee through the countries; and I will consume thy filthiness out of thee.
+I will scatter you among the nations, and disperse you through the countries; and I will consume your filthiness out of you.

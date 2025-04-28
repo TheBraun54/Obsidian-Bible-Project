@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they returned, and prepared spices and ointments. And on the sabbath they rested according to the commandment.
+They returned, and prepared spices and ointments. On the Sabbath they rested according to the commandment.

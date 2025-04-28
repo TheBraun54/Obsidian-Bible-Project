@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tarshish was thy merchant by reason of the multitude of all kinds of riches; with silver, iron, tin, and lead, they traded for thy wares.
+Tarshish was your merchant by reason of the multitude of all kinds of riches; with silver, iron, tin, and lead, they traded for your wares.

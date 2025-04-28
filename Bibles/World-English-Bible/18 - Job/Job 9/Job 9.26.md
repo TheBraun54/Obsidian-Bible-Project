@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are passed away as the swift ships; As the eagle that swoopeth on the prey.
+They have passed away as the swift ships, as the eagle that swoops on the prey.

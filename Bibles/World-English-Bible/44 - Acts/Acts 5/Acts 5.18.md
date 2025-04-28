@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and laid hands on the apostles, and put them in public ward.
+and laid hands on the apostles, and put them in public custody.

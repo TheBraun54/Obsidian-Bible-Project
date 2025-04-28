@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And though thy beginning was small, Yet thy latter end would greatly increase.
+Though your beginning was small, yet your latter end would greatly increase.

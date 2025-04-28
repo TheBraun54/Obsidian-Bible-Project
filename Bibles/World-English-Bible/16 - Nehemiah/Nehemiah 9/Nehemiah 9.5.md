@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the Levites, Jeshua, and Kadmiel, Bani, Hashabneiah, Sherebiah, Hodiah, Shebaniah, [and] Pethahiah, said, Stand up and bless Jehovah your God from everlasting to everlasting; and blessed be thy glorious name, which is exalted above all blessing and praise.
+Then the Levites, Jeshua, and Kadmiel, Bani, Hashabneiah, Sherebiah, Hodiah, Shebaniah, [and] Pethahiah, said, "Stand up and bless Yahweh your God from everlasting to everlasting! Bessed be your glorious name, which is exalted above all blessing and praise!

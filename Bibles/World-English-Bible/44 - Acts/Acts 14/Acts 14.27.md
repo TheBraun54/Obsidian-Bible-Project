@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come, and had gathered the church together, they rehearsed all things that God had done with them, and that he had opened a door of faith unto the Gentiles.
+When they had arrived, and had gathered the assembly together, they reported all the things that God had done with them, and that he had opened a door of faith to the nations.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered him, and said, What wilt thou that I should do unto thee? And the blind man said unto him, Rabboni, that I may receive my sight.
+Jesus asked him, "What do you want me to do for you?" The blind man said to him, "Rabboni, that I may see again."

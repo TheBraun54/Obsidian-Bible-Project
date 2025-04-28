@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall be abundance of grain in the earth upon the top of the mountains; The fruit thereof shall shake like Lebanon: And they of the city shall flourish like grass of the earth.
+Abundance of grain shall be throughout the land. Its fruit sways like Lebanon. Let it flourish, thriving like the grass of the field.

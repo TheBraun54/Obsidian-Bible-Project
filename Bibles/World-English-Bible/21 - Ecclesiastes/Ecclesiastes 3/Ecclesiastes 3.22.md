@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I saw that there is nothing better, than that a man should rejoice in his works; for that is his portion: for who shall bring him [back] to see what shall be after him?
+Therefore I saw that there is nothing better, than that a man should rejoice in his works; for that is his portion: for who can bring him to see what will be after him?

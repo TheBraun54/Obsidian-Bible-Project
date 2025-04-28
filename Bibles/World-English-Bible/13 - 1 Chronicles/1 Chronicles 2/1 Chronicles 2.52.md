@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shobal the father of Kiriath-jearim had sons: Haroeh, half of the Menuhoth.
+Shobal the father of Kiriath Jearim had sons: Haroeh, half of the Menuhoth.

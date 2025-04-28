@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, Hast thou seen [this], O son of man? thou shalt again see yet greater abominations than these.
+Then he said to me, Have you seen [this], son of man? You shall again see yet greater abominations than these.

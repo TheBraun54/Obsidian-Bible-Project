@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having knowledge of me from the first, if they be willing to testify, that after the straitest sect of our religion I lived a Pharisee.
+having known me from the first, if they are willing to testify, that after the strictest sect of our religion I lived a Pharisee.

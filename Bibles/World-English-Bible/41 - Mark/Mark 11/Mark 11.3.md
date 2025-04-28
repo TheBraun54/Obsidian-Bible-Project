@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any one say unto you, Why do ye this? say ye, The Lord hath need of him; and straightway he will send him back hither.
+If anyone asks you, 'Why are you doing this?' say, 'The Lord needs him;' and immediately he will send him back here."

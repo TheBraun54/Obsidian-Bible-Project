@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the mitre upon his head; and upon the mitre, in front, did he set the golden plate, the holy crown; as Jehovah commanded Moses.
+He set the turban on his head; and on the turban, in front, he set the golden plate, the holy crown; as Yahweh commanded Moses.

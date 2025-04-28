@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A worthy woman is the crown of her husband; But she that maketh ashamed is as rottenness in his bones.
+A worthy woman is the crown of her husband, but a disgraceful wife is as rottenness in his bones.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I would not, brethren, have you ignorant of this mystery, lest ye be wise in your own conceits, that a hardening in part hath befallen Israel, until the fulness of the Gentiles be come in;
+For I don't desire you to be ignorant, brothers, of this mystery, so that you won't be wise in your own conceits, that a partial hardening has happened to Israel, until the fullness of the Gentiles has come in,

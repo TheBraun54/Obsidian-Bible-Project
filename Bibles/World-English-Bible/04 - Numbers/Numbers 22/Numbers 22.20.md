@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God came unto Balaam at night, and said unto him, If the men are come to call thee, rise up, go with them; but only the word which I speak unto thee, that shalt thou do.
+God came to Balaam at night, and said to him, "If the men have come to call you, rise up, go with them; but only the word which I speak to you, that you shall do."

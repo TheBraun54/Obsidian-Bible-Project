@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah is clean, enduring for ever: The ordinances of Jehovah are true, [and] righteous altogether.
+The fear of Yahweh is clean, enduring forever. Yahweh's ordinances are true, and righteous altogether.

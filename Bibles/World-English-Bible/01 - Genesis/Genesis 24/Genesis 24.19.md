@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she had done giving him drink, she said, I will draw for thy camels also, until they have done drinking.
+When she had done giving him drink, she said, "I will also draw for your camels, until they have done drinking."

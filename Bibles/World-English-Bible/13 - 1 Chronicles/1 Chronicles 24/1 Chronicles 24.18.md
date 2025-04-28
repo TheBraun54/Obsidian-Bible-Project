@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the three and twentieth to Delaiah, the four and twentieth to Maaziah.
+the twenty-third to Delaiah, the twenty-fourth to Maaziah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in all vineyards shall be wailing; for I will pass through the midst of thee, saith Jehovah.
+In all vineyards there will be wailing; for I will pass through the midst of you," says Yahweh.

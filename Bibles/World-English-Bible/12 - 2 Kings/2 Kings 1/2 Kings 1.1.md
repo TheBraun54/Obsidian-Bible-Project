@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moab rebelled against Israel after the death of Ahab.
+Moab rebelled against Israel after the death of Ahab.

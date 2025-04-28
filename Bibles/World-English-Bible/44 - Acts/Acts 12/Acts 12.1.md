@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now about that time Herod the king put forth his hands to afflict certain of the church.
+Now about that time, King Herod stretched out his hands to oppress some of the assembly.

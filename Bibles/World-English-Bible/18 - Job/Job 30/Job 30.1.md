@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now they that are younger than I have me in derision, Whose fathers I disdained to set with the dogs of my flock.
+"But now those who are younger than I have me in derision, whose fathers I would have disdained to put with my sheep dogs.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a stranger shall sojourn among you, and will keep the passover unto Jehovah; according to the statute of the passover, and according to the ordinance thereof, so shall he do: ye shall have one statute, both for the sojourner, and for him that is born in the land.
+"'If a foreigner lives among you, and desires to keep the Passover to Yahweh; according to the statute of the Passover, and according to its ordinance, so shall he do. You shall have one statute, both for the foreigner, and for him who is born in the land.'"

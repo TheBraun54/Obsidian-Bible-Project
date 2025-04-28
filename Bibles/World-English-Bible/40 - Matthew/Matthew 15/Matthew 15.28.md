@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jesus answered and said unto her, O woman, great is thy faith: be it done unto thee even as thou wilt. And her daughter was healed from that hour.
+Then Jesus answered her, "Woman, great is your faith! Be it done to you even as you desire." And her daughter was healed from that hour.

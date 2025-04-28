@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If the foot shall say, Because I am not the hand, I am not of the body; it is not therefore not of the body.
+If the foot would say, "Because I'm not the hand, I'm not part of the body," it is not therefore not part of the body.

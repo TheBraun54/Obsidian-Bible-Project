@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the evening oblation I arose up from my humiliation, even with my garment and my robe rent; and I fell upon my knees, and spread out my hands unto Jehovah my God;
+At the evening offering I arose up from my humiliation, even with my garment and my robe torn; and I fell on my knees, and spread out my hands to Yahweh my God;

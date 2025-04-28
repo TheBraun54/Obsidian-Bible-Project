@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, my people, enter thou into thy chambers, and shut thy doors about thee: hide thyself for a little moment, until the indignation be overpast.
+Come, my people, enter into your rooms, and shut your doors behind you. Hide yourself for a little moment, until the indignation is past.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the ark of the covenant of the Lord of all the earth passeth over before you into the Jordan.
+Behold, the ark of the covenant of the Lord of all the earth passes over before you into the Jordan.

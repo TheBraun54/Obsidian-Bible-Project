@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron spake unto Moses, Behold, this day have they offered their sin-offering and their burnt-offering before Jehovah; and there have befallen me such things as these: and if I had eaten the sin-offering to-day, would it have been well-pleasing in the sight of Jehovah?
+Aaron spoke to Moses, "Behold, this day they have offered their sin offering and their burnt offering before Yahweh; and such things as these have happened to me: and if I had eaten the sin offering today, would it have been pleasing in the sight of Yahweh?"

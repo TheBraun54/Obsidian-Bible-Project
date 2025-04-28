@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the sign or the wonder come to pass, whereof he spake unto thee, saying, Let us go after other gods, which thou hast not known, and let us serve them;
+and the sign or the wonder come to pass, of which he spoke to you, saying, "Let us go after other gods" (which you have not known) "and let us serve them;"

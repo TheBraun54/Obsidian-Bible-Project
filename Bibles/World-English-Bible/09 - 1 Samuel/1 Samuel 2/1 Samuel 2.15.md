@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, before they burnt the fat, the priest's servant came, and said to the man that sacrificed, Give flesh to roast for the priest; for he will not have boiled flesh of thee, but raw.
+Yes, before they burnt the fat, the priest's servant came, and said to the man who sacrificed, "Give meat to roast for the priest; for he will not accept boiled meat from you, but raw."

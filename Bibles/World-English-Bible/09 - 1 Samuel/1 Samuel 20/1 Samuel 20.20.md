@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will shoot three arrows on the side thereof, as though I shot at a mark.
+I will shoot three arrows on its side, as though I shot at a mark.

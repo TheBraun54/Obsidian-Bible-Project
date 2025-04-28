@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is the law then against the promises of God? God forbid: for if there had been a law given which could make alive, verily righteousness would have been of the law.
+Is the law then against the promises of God? Certainly not! For if there had been a law given which could make alive, most certainly righteousness would have been of the law.

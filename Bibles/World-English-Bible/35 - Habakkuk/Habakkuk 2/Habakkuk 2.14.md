@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the earth shall be filled with the knowledge of the glory of Jehovah, as the waters cover the sea.
+For the earth will be filled with the knowledge of the glory of Yahweh, as the waters cover the sea.

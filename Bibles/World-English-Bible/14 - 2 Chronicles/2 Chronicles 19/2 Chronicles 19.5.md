@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set judges in the land throughout all the fortified cities of Judah, city by city,
+He set judges in the land throughout all the fortified cities of Judah, city by city,

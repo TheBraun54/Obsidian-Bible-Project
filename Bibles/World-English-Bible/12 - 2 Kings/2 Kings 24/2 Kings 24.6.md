@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehoiakim slept with his fathers; and Jehoiachin his son reigned in his stead.
+So Jehoiakim slept with his fathers; and Jehoiachin his son reigned in his place.

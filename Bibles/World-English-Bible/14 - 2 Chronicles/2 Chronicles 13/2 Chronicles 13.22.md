@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest of the acts of Abijah, and his ways, and his sayings, are written in the commentary of the prophet Iddo.
+The rest of the acts of Abijah, and his ways, and his sayings, are written in the commentary of the prophet Iddo.

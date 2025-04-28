@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil in the sight of Jehovah, as did Manasseh his father; and Amon sacrificed unto all the graven images which Manasseh his father had made, and served them.
+He did that which was evil in the sight of Yahweh, as did Manasseh his father; and Amon sacrificed to all the engraved images which Manasseh his father had made, and served them.

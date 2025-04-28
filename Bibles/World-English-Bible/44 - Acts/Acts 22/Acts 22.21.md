@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Depart: for I will send thee forth far hence unto the Gentiles.
+"He said to me, 'Depart, for I will send you out far from here to the Gentiles.'"

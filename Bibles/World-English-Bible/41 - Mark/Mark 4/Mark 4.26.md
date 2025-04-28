@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, So is the kingdom of God, as if a man should cast seed upon the earth;
+He said, "The Kingdom of God is as if a man should cast seed on the earth,

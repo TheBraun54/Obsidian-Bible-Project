@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Thomas, one of the twelve, called Didymus, was not with them when Jesus came.
+But Thomas, one of the twelve, called Didymus, wasn't with them when Jesus came.

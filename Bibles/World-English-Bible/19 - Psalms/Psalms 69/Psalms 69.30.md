@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will praise the name of God with a song, And will magnify him with thanksgiving.
+I will praise the name of God with a song, and will magnify him with thanksgiving.

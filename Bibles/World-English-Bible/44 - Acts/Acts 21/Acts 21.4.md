@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And having found the disciples, we tarried there seven days: and these said to Paul through the Spirit, that he should not set foot in Jerusalem.
+Having found disciples, we stayed there seven days. These said to Paul through the Spirit, that he should not go up to Jerusalem.

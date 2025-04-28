@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song; a Psalm of the sons of Korah]. Great is Jehovah, and greatly to be praised, In the city of our God, in his holy mountain.
+Great is Yahweh, and greatly to be praised, in the city of our God, in his holy mountain.

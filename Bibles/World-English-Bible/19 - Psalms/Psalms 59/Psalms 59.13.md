@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Consume them in wrath, consume them, so that they shall be no more: And let them know that God ruleth in Jacob, Unto the ends of the earth. {{Selah
+Consume them in wrath. Consume them, and they will be no more. Let them know that God rules in Jacob, to the ends of the earth. Selah.

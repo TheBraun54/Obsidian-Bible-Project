@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will say to my soul, Soul, thou hast much goods laid up for many years; take thine ease, eat, drink, be merry.
+I will tell my soul, "Soul, you have many goods laid up for many years. Take your ease, eat, drink, be merry."'

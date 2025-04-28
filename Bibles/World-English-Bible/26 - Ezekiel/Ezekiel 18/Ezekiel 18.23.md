@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have I any pleasure in the death of the wicked? saith the Lord Jehovah; and not rather that he should return from his way, and live?
+Have I any pleasure in the death of the wicked? says the Lord Yahweh; and not rather that he should return from his way, and live?

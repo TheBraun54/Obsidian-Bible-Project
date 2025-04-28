@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the king's servants that ministered unto him, Let there be fair young virgins sought for the king:
+Then the king's servants who served him said, "Let beautiful young virgins be sought for the king.

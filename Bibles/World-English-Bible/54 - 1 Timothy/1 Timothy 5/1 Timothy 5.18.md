@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the scripture saith, Thou shalt not muzzle the ox when he treadeth out the corn. And, The laborer is worthy of his hire.
+For the Scripture says, "You shall not muzzle the ox when it treads out the grain." And, "The laborer is worthy of his wages."

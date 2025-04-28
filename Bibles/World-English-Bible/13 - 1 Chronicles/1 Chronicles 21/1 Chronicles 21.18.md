@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the angel of Jehovah commanded Gad to say to David, that David should go up, and rear an altar unto Jehovah in the threshing-floor of Ornan the Jebusite.
+Then the angel of Yahweh commanded Gad to tell David that David should go up, and raise an altar to Yahweh in the threshing floor of Ornan the Jebusite.

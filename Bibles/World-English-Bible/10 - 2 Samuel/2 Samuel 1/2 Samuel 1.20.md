@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell it not in Gath, Publish it not in the streets of Ashkelon; Lest the daughters of the Philistines rejoice, Lest the daughters of the uncircumcised triumph.
+Don't tell it in Gath. Don't publish it in the streets of Ashkelon, lest the daughters of the Philistines rejoice, lest the daughters of the uncircumcised triumph.

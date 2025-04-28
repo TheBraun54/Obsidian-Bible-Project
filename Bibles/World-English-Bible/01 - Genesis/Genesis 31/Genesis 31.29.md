@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is in the power of my hand to do you hurt: but the God of your father spake unto me yesternight, saying, Take heed to thyself that thou speak not to Jacob either good or bad.
+It is in the power of my hand to hurt you, but the God of your father spoke to me last night, saying, 'Take heed to yourself that you don't speak to Jacob either good or bad.'

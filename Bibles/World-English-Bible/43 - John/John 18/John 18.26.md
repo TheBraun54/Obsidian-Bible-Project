@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One of the servants of the high priest, being a kinsman of him whose ear Peter cut off, saith, Did not I see thee in the garden with him?
+One of the servants of the high priest, being a relative of him whose ear Peter had cut off, said, "Didn't I see you in the garden with him?"

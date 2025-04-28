@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If David then calleth him Lord, how is he his son?
+"If then David calls him Lord, how is he his son?"

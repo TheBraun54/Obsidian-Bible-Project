@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give diligence to come before winter. Eubulus saluteth thee, and Pudens, and Linus, and Claudia, and all the brethren.
+Be diligent to come before winter. Eubulus salutes you, as do Pudens, Linus, Claudia, and all the brothers.

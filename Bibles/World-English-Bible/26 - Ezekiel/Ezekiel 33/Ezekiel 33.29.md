@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall they know that I am Jehovah, when I have made the land a desolation and an astonishment, because of all their abominations which they have committed.
+Then shall they know that I am Yahweh, when I have made the land a desolation and an astonishment, because of all their abominations which they have committed.

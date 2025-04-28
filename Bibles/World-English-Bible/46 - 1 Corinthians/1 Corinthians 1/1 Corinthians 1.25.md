@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because the foolishness of God is wiser than men; and the weakness of God is stronger than men.
+Because the foolishness of God is wiser than men, and the weakness of God is stronger than men.

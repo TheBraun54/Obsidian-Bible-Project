@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah: David shall never want a man to sit upon the throne of the house of Israel;
+For thus says Yahweh: David shall never want a man to sit on the throne of the house of Israel;

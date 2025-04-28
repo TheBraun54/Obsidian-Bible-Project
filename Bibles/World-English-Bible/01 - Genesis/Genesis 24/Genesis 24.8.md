@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the woman be not willing to follow thee, then thou shalt be clear from this my oath; only thou shalt not bring my son thither again.
+If the woman isn't willing to follow you, then you shall be clear from this my oath. Only you shall not bring my son there again."

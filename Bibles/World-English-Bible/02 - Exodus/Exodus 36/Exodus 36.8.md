@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the wise-hearted men among them that wrought the work made the tabernacle with ten curtains; of fine twined linen, and blue, and purple, and scarlet, with cherubim, the work of the skilful workman, [Bezalel] made them.
+All the wise-hearted men among those who did the work made the tabernacle with ten curtains; of fine twined linen, blue, purple, and scarlet, with cherubim, the work of the skillful workman, they made them.

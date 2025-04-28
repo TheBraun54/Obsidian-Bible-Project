@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, awake, put on strength, O arm of Jehovah; awake, as in the days of old, the generations of ancient times. Is it not thou that didst cut Rahab in pieces, that didst pierce the monster?
+Awake, awake, put on strength, arm of Yahweh; awake, as in the days of old, the generations of ancient times. Isn't it you who cut Rahab in pieces, who pierced the monster?

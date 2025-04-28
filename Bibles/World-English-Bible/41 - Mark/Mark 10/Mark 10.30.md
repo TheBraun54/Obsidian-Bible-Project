@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he shall receive a hundredfold now in this time, houses, and brethren, and sisters, and mothers, and children, and lands, with persecutions; and in the world to come eternal life.
+but he will receive one hundred times more now in this time, houses, brothers, sisters, mothers, children, and land, with persecutions; and in the age to come eternal life.

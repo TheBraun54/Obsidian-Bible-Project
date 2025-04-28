@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that tarry long at the wine; They that go to seek out mixed wine.
+Those who stay long at the wine; those who go to seek out mixed wine.

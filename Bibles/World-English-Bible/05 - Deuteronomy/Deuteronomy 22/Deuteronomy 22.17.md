@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and, lo, he hath laid shameful things [to her charge], saying, I found not in thy daughter the tokens of virginity; and yet these are the tokens of my daughter's virginity. And they shall spread the garment before the elders of the city.
+and behold, he has accused her of shameful things, saying, 'I didn't find in your daughter the tokens of virginity;' and yet these are the tokens of my daughter's virginity." They shall spread the cloth before the elders of the city.

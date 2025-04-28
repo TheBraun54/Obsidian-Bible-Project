@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let me not be put to shame, O Jehovah; For I have called upon thee: Let the wicked be put to shame, let them be silent in Sheol.
+Let me not be disappointed, Yahweh, for I have called on you. Let the wicked be disappointed. Let them be silent in Sheol.

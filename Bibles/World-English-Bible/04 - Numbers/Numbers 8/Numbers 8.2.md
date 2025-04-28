@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Aaron, and say unto him, When thou lightest the lamps, the seven lamps shall give light in front of the candlestick.
+"Speak to Aaron, and tell him, 'When you light the lamps, the seven lamps shall give light in front of the lampstand.'"

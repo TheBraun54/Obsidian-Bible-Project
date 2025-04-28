@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass that, when the gates of Jerusalem began to be dark before the sabbath, I commanded that the doors should be shut, and commanded that they should not be opened till after the sabbath: and some of my servants set I over the gates, that there should no burden be brought in on the sabbath day.
+It came to pass that, when the gates of Jerusalem began to be dark before the Sabbath, I commanded that the doors should be shut, and commanded that they should not be opened until after the Sabbath. I set some of my servants over the gates, that no burden should be brought in on the Sabbath day.

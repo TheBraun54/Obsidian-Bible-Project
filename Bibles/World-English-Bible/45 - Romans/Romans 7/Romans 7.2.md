@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the woman that hath a husband is bound by law to the husband while he liveth; but if the husband die, she is discharged from the law of the husband.
+For the woman that has a husband is bound by law to the husband while he lives, but if the husband dies, she is discharged from the law of the husband.

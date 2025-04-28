@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Aaron, Take thy censer, and put fire therein from off the altar, and lay incense thereon, and carry it quickly unto the congregation, and make atonement for them: for there is wrath gone out from Jehovah; the plague is begun.
+Moses said to Aaron, "Take your censer, and put fire from off the altar in it, and lay incense on it, and carry it quickly to the congregation, and make atonement for them; for wrath has gone out from Yahweh! The plague has begun."

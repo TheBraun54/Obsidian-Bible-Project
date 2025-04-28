@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For mine own sake, for mine own sake, will I do it; for how should [my name] be profaned? and my glory will I not give to another.
+For my own sake, for my own sake, will I do it; for how should [my name] be profaned? and my glory I will not give to another.

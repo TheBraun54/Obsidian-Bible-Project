@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They did not destroy the peoples, As Jehovah commanded them,
+They didn't destroy the peoples, as Yahweh commanded them,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither present your members unto sin [as] instruments of unrighteousness; but present yourselves unto God, as alive from the dead, and your members [as] instruments of righteousness unto God.
+Neither present your members to sin as instruments of unrighteousness, but present yourselves to God, as alive from the dead, and your members as instruments of righteousness to God.

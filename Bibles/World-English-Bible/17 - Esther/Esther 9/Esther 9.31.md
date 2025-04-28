@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to confirm these days of Purim in their appointed times, according as Mordecai the Jew and Esther the queen had enjoined them, and as they had ordained for themselves and for their seed, in the matter of the fastings and their cry.
+to confirm these days of Purim in their appointed times, as Mordecai the Jew and Esther the queen had decreed, and as they had imposed upon themselves and their descendants, in the matter of the fastings and their cry.

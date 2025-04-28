@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have mercy upon me, O Jehovah, for I am in distress: Mine eye wasteth away with grief, [yea], my soul and my body.
+Have mercy on me, Yahweh, for I am in distress. My eye, my soul, and my body waste away with grief.

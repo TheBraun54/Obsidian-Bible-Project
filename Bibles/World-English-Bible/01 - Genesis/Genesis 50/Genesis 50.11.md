@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the inhabitants of the land, the Canaanites, saw the mourning in the floor of Atad, they said, This is a grievous mourning to the Egyptians: wherefore the name of it was called Abel-mizraim, which is beyond the Jordan.
+When the inhabitants of the land, the Canaanites, saw the mourning in the floor of Atad, they said, "This is a grievous mourning by the Egyptians." Therefore, its name was called Abel Mizraim, which is beyond the Jordan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in these days, that he went out into the mountain to pray; and he continued all night in prayer to God.
+It happened in these days, that he went out to the mountain to pray, and he continued all night in prayer to God.

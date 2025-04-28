@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall bring all your brethren out of all the nations for an oblation unto Jehovah, upon horses, and in chariots, and in litters, and upon mules, and upon dromedaries, to my holy mountain Jerusalem, saith Jehovah, as the children of Israel bring their oblation in a clean vessel into the house of Jehovah.
+They shall bring all your brothers out of all the nations for an offering to Yahweh, on horses, and in chariots, and in litters, and on mules, and on dromedaries, to my holy mountain Jerusalem, says Yahweh, as the children of Israel bring their offering in a clean vessel into the house of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he also that had received the one talent came and said, Lord, I knew thee that thou art a hard man, reaping where thou didst not sow, and gathering where thou didst not scatter;
+"He also who had received the one talent came and said, 'Lord, I knew you that you are a hard man, reaping where you did not sow, and gathering where you did not scatter.

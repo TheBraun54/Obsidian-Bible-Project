@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Hezekiah the king arose early, and gathered the princes of the city, and went up to the house of Jehovah.
+Then Hezekiah the king arose early, and gathered the princes of the city, and went up to the house of Yahweh.

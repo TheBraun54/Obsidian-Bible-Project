@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long will ye judge unjustly, And respect the persons of the wicked? {{Selah
+"How long will you judge unjustly, and show partiality to the wicked?" Selah.

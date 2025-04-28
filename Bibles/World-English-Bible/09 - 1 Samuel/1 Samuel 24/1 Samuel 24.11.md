@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover, my father, see, yea, see the skirt of thy robe in my hand; for in that I cut off the skirt of thy robe, and killed thee not, know thou and see that there is neither evil nor transgression in my hand, and I have not sinned against thee, though thou huntest after my life to take it.
+Moreover, my father, behold, yes, see the skirt of your robe in my hand; for in that I cut off the skirt of your robe, and didn't kill you, know and see that there is neither evil nor disobedience in my hand, and I have not sinned against you, though you hunt for my life to take it.

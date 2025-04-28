@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, the Cushite came; and the Cushite said, Tidings for my lord the king; for Jehovah hath avenged thee this day of all them that rose up against thee.
+Behold, the Cushite came. The Cushite said, "News for my lord the king; for Yahweh has avenged you this day of all those who rose up against you."

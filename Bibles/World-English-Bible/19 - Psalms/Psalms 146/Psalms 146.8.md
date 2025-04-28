@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah openeth [the eyes of] the blind; Jehovah raiseth up them that are bowed down; Jehovah loveth the righteous;
+Yahweh opens the eyes of the blind. Yahweh raises up those who are bowed down. Yahweh loves the righteous.

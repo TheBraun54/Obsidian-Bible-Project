@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even that it would please God to crush me; That he would let loose his hand, and cut me off!
+even that it would please God to crush me; that he would let loose his hand, and cut me off!

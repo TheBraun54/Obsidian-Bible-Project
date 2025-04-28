@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for them that are left of you, I will send a faintness into their heart in the lands of their enemies: and the sound of a driven leaf shall chase them; and they shall flee, as one fleeth from the sword; and they shall fall when none pursueth.
+"'As for those of you who are left, I will send a faintness into their hearts in the lands of their enemies: and the sound of a driven leaf will put them to flight; and they shall flee, as one flees from the sword; and they will fall when no one pursues.

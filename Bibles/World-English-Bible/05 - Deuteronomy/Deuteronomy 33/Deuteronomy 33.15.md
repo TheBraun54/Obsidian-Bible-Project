@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the chief things of the ancient mountains, And for the precious things of the everlasting hills,
+for the chief things of the ancient mountains, for the precious things of the everlasting hills,

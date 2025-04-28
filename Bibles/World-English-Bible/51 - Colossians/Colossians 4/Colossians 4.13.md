@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I bear him witness, that he hath much labor for you, and for them in Laodicea, and for them in Hierapolis.
+For I testify about him, that he has great zeal for you, and for those in Laodicea, and for those in Hierapolis.

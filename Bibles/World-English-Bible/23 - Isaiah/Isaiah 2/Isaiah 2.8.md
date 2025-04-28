@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their land also is full of idols; they worship the work of their own hands, that which their own fingers have made.
+Their land also is full of idols. They worship the work of their own hands, that which their own fingers have made.

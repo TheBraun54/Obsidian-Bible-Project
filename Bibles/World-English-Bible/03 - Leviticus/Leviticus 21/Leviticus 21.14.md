@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A widow, or one divorced, or a profane woman, a harlot, these shall he not take: but a virgin of his own people shall he take to wife.
+A widow, or one divorced, or a woman who has been defiled, or a prostitute, these he shall not marry: but a virgin of his own people shall he take as a wife.

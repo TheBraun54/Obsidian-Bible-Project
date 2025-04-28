@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not many days after, the younger son gathered all together and took his journey into a far country; and there he wasted his substance with riotous living.
+Not many days after, the younger son gathered all of this together and traveled into a far country. There he wasted his property with riotous living.

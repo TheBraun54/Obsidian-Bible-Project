@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in these days there came down prophets from Jerusalem unto Antioch.
+Now in these days, prophets came down from Jerusalem to Antioch.

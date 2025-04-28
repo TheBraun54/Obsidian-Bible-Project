@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the prophets of Jerusalem also I have seen a horrible thing: they commit adultery, and walk in lies; and they strengthen the hands of evil-doers, so that none doth return from his wickedness: they are all of them become unto me as Sodom, and the inhabitants thereof as Gomorrah.
+In the prophets of Jerusalem also I have seen a horrible thing: they commit adultery, and walk in lies; and they strengthen the hands of evildoers, so that none does return from his wickedness: they are all of them become to me as Sodom, and its inhabitants as Gomorrah.

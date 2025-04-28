@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The living, the living, he shall praise thee, as I do this day: The father to the children shall make known thy truth.
+The living, the living, he shall praise you, as I do this day. The father shall make known your truth to the children.

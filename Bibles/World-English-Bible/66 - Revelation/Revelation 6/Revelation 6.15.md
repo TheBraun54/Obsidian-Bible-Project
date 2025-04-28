@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the kings of the earth, and the princes, and the chief captains, and the rich, and the strong, and every bondman and freeman, hid themselves in the caves and in the rocks of the mountains; [
+The kings of the earth, the princes, the commanding officers, the rich, the strong, and every slave and free person, hid themselves in the caves and in the rocks of the mountains.

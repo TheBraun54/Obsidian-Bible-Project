@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore their days did he consume in vanity, And their years in terror.
+Therefore he consumed their days in vanity, and their years in terror.

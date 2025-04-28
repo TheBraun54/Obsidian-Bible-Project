@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Another parable set he before them, saying, The kingdom of heaven is like unto a grain of mustard seed, which a man took, and sowed in his field:
+He set another parable before them, saying, "The Kingdom of Heaven is like a grain of mustard seed, which a man took, and sowed in his field;

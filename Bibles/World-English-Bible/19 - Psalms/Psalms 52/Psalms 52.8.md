@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, I am like a green olive-tree in the house of God: I trust in the lovingkindness of God for ever and ever.
+But as for me, I am like a green olive tree in God's house. I trust in God's loving kindness forever and ever.

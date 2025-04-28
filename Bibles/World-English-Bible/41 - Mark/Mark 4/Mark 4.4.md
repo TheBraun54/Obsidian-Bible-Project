@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it came to pass, as he sowed, some [seed] fell by the way side, and the birds came and devoured it.
+and it happened, as he sowed, some seed fell by the road, and the birds came and devoured it.

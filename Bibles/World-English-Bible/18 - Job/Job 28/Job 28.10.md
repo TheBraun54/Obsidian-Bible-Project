@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He cutteth out channels among the rocks; And his eye seeth every precious thing.
+He cuts out channels among the rocks. His eye sees every precious thing.

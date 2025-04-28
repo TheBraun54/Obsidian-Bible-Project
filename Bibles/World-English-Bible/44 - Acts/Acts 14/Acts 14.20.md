@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as the disciples stood round about him, he rose up, and entered into the city: and on the morrow he went forth with Barnabas to Derbe.
+But as the disciples stood around him, he rose up, and entered into the city. On the next day he went out with Barnabas to Derbe.

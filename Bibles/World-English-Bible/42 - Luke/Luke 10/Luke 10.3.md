@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go your ways; behold, I send you forth as lambs in the midst of wolves.
+Go your ways. Behold, I send you out as lambs among wolves.

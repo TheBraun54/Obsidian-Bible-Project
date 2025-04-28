@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-envyings, drunkenness, revellings, and such like; of which I forewarn you, even as I did forewarn you, that they who practise such things shall not inherit the kingdom of God.
+envyings, murders, drunkenness, orgies, and things like these; of which I forewarn you, even as I also forewarned you, that those who practice such things will not inherit the Kingdom of God.

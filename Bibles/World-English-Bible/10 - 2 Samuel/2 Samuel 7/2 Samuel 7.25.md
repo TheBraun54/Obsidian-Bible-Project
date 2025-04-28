@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O Jehovah God, the word that thou hast spoken concerning thy servant, and concerning his house, confirm thou it for ever, and do as thou hast spoken.
+Now, Yahweh God, the word that you have spoken concerning your servant, and concerning his house, confirm it forever, and do as you have spoken.

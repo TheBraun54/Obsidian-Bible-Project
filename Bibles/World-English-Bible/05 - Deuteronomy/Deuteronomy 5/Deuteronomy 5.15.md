@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt remember that thou wast a servant in the land of Egypt, and Jehovah thy God brought thee out thence by a mighty hand and by an outstretched arm: therefore Jehovah thy God commanded thee to keep the sabbath day.
+You shall remember that you were a servant in the land of Egypt, and Yahweh your God brought you out of there by a mighty hand and by an outstretched arm: therefore Yahweh your God commanded you to keep the Sabbath day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They also that dwell in the uttermost parts are afraid at thy tokens: Thou makest the outgoings of the morning and evening to rejoice.
+They also who dwell in faraway places are afraid at your wonders. You call the morning's dawn and the evening with songs of joy.

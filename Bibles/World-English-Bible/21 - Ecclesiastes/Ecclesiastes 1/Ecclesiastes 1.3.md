@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What profit hath man of all his labor wherein he laboreth under the sun?
+What does man gain from all his labor in which he labors under the sun?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his servants conspired against him, and put him to death in his own house.
+His servants conspired against him, and put him to death in his own house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall put you out of the synagogues: yea, the hour cometh, that whosoever killeth you shall think that he offereth service unto God.
+They will put you out of the synagogues. Yes, the time comes that whoever kills you will think that he offers service to God.

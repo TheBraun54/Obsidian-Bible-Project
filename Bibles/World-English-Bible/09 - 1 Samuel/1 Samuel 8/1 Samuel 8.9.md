@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore hearken unto their voice: howbeit thou shalt protest solemnly unto them, and shalt show them the manner of the king that shall reign over them.
+Now therefore listen to their voice: however you shall protest solemnly to them, and shall show them the way of the king who shall reign over them."

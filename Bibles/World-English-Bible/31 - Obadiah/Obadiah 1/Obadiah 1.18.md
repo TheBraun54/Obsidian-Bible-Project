@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the house of Jacob shall be a fire, and the house of Joseph a flame, and the house of Esau for stubble, and they shall burn among them, and devour them; and there shall not be any remaining to the house of Esau; for Jehovah hath spoken it.
+The house of Jacob will be a fire, the house of Joseph a flame, and the house of Esau for stubble. They will burn among them, and devour them. There will not be any remaining to the house of Esau." Indeed, Yahweh has spoken.

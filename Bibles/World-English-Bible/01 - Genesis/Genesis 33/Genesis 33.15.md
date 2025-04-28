@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esau said, Let me now leave with thee some of the folk that are with me. And he said, What needeth it? let me find favor in the sight of my lord.
+Esau said, "Let me now leave with you some of the folk who are with me." He said, "Why? Let me find favor in the sight of my lord."

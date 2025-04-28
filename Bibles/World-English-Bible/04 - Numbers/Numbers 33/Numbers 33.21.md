@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Libnah, and encamped in Rissah.
+They traveled from Libnah, and encamped in Rissah.

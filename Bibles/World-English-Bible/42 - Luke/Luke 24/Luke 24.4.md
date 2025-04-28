@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while they were perplexed thereabout, behold, two men stood by them in dazzling apparel:
+It happened, while they were greatly perplexed about this, behold, two men stood by them in dazzling clothing.

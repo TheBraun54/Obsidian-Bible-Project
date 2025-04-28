@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that blesseth his friend with a loud voice, rising early in the morning, It shall be counted a curse to him.
+He who blesses his neighbor with a loud voice early in the morning, it will be taken as a curse by him.

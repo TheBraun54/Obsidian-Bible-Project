@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the sons of Bilhah, Rachel's handmaid: Dan and Naphtali;
+The sons of Bilhah (Rachel's handmaid): Dan and Naphtali.

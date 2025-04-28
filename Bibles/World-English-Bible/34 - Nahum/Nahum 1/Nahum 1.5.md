@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mountains quake at him, and the hills melt; and the earth is upheaved at his presence, yea, the world, and all that dwell therein.
+The mountains quake before him, and the hills melt away. The earth trembles at his presence, yes, the world, and all who dwell in it.

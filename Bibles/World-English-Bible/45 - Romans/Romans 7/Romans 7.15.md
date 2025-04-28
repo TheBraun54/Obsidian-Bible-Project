@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For that which I do I know not: for not what I would, that do I practise; but what I hate, that I do.
+For I don't know what I am doing. For I don't practice what I desire to do; but what I hate, that I do.

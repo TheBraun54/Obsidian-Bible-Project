@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that overcometh shall thus be arrayed in white garments; and I will in no wise blot his name out of the book of life, and I will confess his name before my Father, and before his angels.
+He who overcomes will be arrayed in white garments, and I will in no way blot his name out of the book of life, and I will confess his name before my Father, and before his angels.

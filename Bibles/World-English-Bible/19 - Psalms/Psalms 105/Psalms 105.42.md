@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he remembered his holy word, [And] Abraham his servant.
+For he remembered his holy word, and Abraham, his servant.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any one sin, and do any of the things which Jehovah hath commanded not to be done; though he knew it not, yet is he guilty, and shall bear his iniquity.
+"If anyone sins, and does any of the things which Yahweh has commanded not to be done; though he didn't know it, yet he is guilty, and shall bear his iniquity.

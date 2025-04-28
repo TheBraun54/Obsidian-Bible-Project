@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who bare witness to thy love before the church: whom thou wilt do well to set forward on their journey worthily of God:
+They have testified about your love before the assembly. You will do well to send them forward on their journey in a way worthy of God,

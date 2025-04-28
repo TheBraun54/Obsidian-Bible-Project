@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That I may make the voice of thanksgiving to be heard, And tell of all thy wondrous works.
+that I may make the voice of thanksgiving to be heard, and tell of all your wondrous works.

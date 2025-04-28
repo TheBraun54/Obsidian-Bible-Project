@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had eaten enough, they lightened the ship, throwing out the wheat into the sea.
+When they had eaten enough, they lightened the ship, throwing out the wheat into the sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That is the thing which I spake unto Pharaoh: what God is about to do he hath showed unto Pharaoh.
+That is the thing which I spoke to Pharaoh. What God is about to do he has shown to Pharaoh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, I will raise up against you a nation, O house of Israel, saith Jehovah, the God of hosts; and they shall afflict you from the entrance of Hamath unto the brook of the Arabah.
+For, behold, I will raise up against you a nation, house of Israel," says Yahweh, the God of Armies; "and they will afflict you from the entrance of Hamath to the brook of the Arabah."

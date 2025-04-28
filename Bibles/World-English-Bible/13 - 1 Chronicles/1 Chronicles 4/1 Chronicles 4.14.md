@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Meonothai begat Ophrah: and Seraiah begat Joab the father of Ge-harashim; for they were craftsmen.
+Meonothai became the father of Ophrah: and Seraiah became the father of Joab the father of Ge Harashim; for they were craftsmen.

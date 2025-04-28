@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and an ox and a ram for peace-offerings, to sacrifice before Jehovah; and a meal-offering mingled with oil: for to-day Jehovah appeareth unto you.
+and a bull and a ram for peace offerings, to sacrifice before Yahweh; and a meal offering mixed with oil: for today Yahweh appears to you.'"

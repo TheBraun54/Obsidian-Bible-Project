@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and gavest them this land, which thou didst swear to their fathers to give them, a land flowing with milk and honey;
+and gave them this land, which you swore to their fathers to give them, a land flowing with milk and honey;

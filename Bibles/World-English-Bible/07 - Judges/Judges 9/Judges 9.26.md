@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gaal the son of Ebed came with his brethren, and went over to Shechem; and the men of Shechem put their trust in him.
+Gaal the son of Ebed came with his brothers, and went over to Shechem; and the men of Shechem put their trust in him.

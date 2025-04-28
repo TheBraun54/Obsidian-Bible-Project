@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Shemaiah: Othni, and Rephael, and Obed, Elzabad, whose brethren were valiant men, Elihu, and Semachiah.
+The sons of Shemaiah: Othni, and Rephael, and Obed, Elzabad, whose brothers were valiant men, Elihu, and Semachiah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nakedness of thy father's wife shalt thou not uncover: it is thy father's nakedness.
+"'You shall not uncover the nakedness of your father's wife: it is your father's nakedness.

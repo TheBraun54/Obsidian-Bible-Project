@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I also will answer my part, I also will show mine opinion.
+I also will answer my part, and I also will show my opinion.

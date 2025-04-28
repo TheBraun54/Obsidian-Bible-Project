@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This shall be the punishment of Egypt, and the punishment of all the nations that go not up to keep the feast of tabernacles.
+This will be the punishment of Egypt, and the punishment of all the nations that don't go up to keep the feast of tents.

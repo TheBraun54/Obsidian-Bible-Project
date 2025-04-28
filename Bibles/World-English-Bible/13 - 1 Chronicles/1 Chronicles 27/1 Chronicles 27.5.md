@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The third captain of the host for the third month was Benaiah, the son of Jehoiada the priest, chief: and in his course were twenty and four thousand.
+The third captain of the army for the third month was Benaiah, the son of Jehoiada the priest, chief: and in his division were twenty-four thousand.

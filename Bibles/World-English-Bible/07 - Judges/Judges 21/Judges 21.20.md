@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they commanded the children of Benjamin, saying, Go and lie in wait in the vineyards,
+They commanded the children of Benjamin, saying, "Go and lie in wait in the vineyards,

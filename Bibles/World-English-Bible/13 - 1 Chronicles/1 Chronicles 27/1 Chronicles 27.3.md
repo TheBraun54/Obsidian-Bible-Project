@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ He was] of the children of Perez, the chief of all the captains of the host for the first month.
+[He was] of the children of Perez, the chief of all the captains of the army for the first month.

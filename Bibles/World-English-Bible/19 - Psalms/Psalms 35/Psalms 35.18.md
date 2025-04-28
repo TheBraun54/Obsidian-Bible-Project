@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thee thanks in the great assembly: I will praise thee among much people.
+I will give you thanks in the great assembly. I will praise you among many people.

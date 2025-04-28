@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But having the same spirit of faith, according to that which is written, I believed, and therefore did I speak; we also believe, and therefore also we speak;
+But having the same spirit of faith, according to that which is written, "I believed, and therefore I spoke." We also believe, and therefore also we speak;

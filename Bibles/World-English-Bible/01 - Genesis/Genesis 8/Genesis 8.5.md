@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the waters decreased continually until the tenth month: in the tenth month, on the first day of the month, were the tops of the mountains seen.
+The waters receded continually until the tenth month. In the tenth month, on the first day of the month, the tops of the mountains were seen.

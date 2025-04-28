@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know therefore, that Jehovah thy God giveth thee not this good land to possess it for thy righteousness; for thou art a stiffnecked people.
+Know therefore, that Yahweh your God doesn't give you this good land to possess it for your righteousness; for you are a stiff-necked people.

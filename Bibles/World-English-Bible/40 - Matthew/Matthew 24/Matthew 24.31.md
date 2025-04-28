@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall send forth his angels with a great sound of a trumpet, and they shall gather together his elect from the four winds, from one end of heaven to the other. [
+He will send out his angels with a great sound of a trumpet, and they will gather together his chosen ones from the four winds, from one end of the sky to the other.

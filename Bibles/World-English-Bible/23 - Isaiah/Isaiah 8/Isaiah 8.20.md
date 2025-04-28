@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the law and to the testimony! if they speak not according to this word, surely there is no morning for them.
+Turn to the law and to the testimony! If they don't speak according to this word, surely there is no morning for them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto him, If I will that he tarry till I come, what [is that] to thee? Follow thou me.
+Jesus said to him, "If I desire that he stay until I come, what is that to you? You follow me."

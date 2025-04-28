@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that sitteth on the throne said, Behold, I make all things new. And he saith, Write: for these words are faithful and true.
+He who sits on the throne said, "Behold, I am making all things new." He said, "Write, for these words of God are faithful and true."

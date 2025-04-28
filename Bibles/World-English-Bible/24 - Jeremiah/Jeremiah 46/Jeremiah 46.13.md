@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that Jehovah spake to Jeremiah the prophet, how that Nebuchadrezzar king of Babylon should come and smite the land of Egypt.
+The word that Yahweh spoke to Jeremiah the prophet, how that Nebuchadnezzar king of Babylon should come and strike the land of Egypt.

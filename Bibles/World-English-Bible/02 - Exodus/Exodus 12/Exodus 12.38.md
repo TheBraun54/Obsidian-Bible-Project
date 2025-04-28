@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a mixed multitude went up also with them; and flocks, and herds, even very much cattle.
+A mixed multitude went up also with them, with flocks, herds, and even very much livestock.

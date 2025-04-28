@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heavens shall reveal his iniquity, And the earth shall rise up against him.
+The heavens shall reveal his iniquity. The earth shall rise up against him.

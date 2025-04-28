@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and from thence to Philippi, which is a city of Macedonia, the first of the district, a [Roman] colony: and we were in this city tarrying certain days.
+and from there to Philippi, which is a city of Macedonia, the foremost of the district, a Roman colony. We were staying some days in this city.

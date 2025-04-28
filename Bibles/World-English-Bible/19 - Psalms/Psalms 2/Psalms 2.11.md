@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Serve Jehovah with fear, And rejoice with trembling.
+Serve Yahweh with fear, and rejoice with trembling.

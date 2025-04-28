@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this house, which is so high, every one that passeth by it shall be astonished, and shall say, Why hath Jehovah done thus unto this land, and to this house?
+This house, which is so high, everyone who passes by it shall be astonished, and shall say, 'Why has Yahweh done thus to this land, and to this house?'

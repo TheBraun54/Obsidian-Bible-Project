@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the Amorites would dwell in mount Heres, in Aijalon, and in Shaalbim: yet the hand of the house of Joseph prevailed, so that they became subject to taskwork.
+but the Amorites would dwell in Mount Heres, in Aijalon, and in Shaalbim: yet the hand of the house of Joseph prevailed, so that they became subject to forced labor.

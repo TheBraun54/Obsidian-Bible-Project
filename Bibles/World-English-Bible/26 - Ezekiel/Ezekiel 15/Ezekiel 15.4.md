@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, it is cast into the fire for fuel; the fire hath devoured both the ends of it, and the midst of it is burned: is it profitable for any work?
+Behold, it is cast into the fire for fuel; the fire has devoured both its ends, and its midst is burned: is it profitable for any work?

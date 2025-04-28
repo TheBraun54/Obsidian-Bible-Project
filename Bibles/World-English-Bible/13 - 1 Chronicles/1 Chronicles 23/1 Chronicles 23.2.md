@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gathered together all the princes of Israel, with the priests and the Levites.
+He gathered together all the princes of Israel, with the priests and the Levites.

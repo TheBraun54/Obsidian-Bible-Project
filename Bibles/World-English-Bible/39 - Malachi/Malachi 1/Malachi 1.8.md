@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye offer the blind for sacrifice, it is no evil! and when ye offer the lame and sick, it is no evil! Present it now unto thy governor; will he be pleased with thee? or will he accept thy person? saith Jehovah of hosts.
+When you offer the blind for sacrifice, isn't that evil? And when you offer the lame and sick, isn't that evil? Present it now to your governor! Will he be pleased with you? Or will he accept your person?" says Yahweh of Armies.

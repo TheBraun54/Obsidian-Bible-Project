@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came, both men and women, as many as were willing-hearted, [and] brought brooches, and ear-rings, and signet-rings, and armlets, all jewels of gold; even every man that offered an offering of gold unto Jehovah.
+They came, both men and women, as many as were willing-hearted, and brought brooches, earrings, signet rings, and armlets, all jewels of gold; even every man who offered an offering of gold to Yahweh.

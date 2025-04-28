@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the day of my trouble I will call upon thee; For thou wilt answer me.
+In the day of my trouble I will call on you, for you will answer me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath slandered thy servant unto my lord the king; but my lord the king is as an angel of God: do therefore what is good in thine eyes.
+He has slandered your servant to my lord the king; but my lord the king is as an angel of God. Do therefore what is good in your eyes.

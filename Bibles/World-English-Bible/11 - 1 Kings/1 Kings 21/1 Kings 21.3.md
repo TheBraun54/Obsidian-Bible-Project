@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naboth said to Ahab, Jehovah forbid it me, that I should give the inheritance of my fathers unto thee.
+Naboth said to Ahab, "May Yahweh forbid me, that I should give the inheritance of my fathers to you!"

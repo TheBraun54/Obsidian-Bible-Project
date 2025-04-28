@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Kadesh, and encamped in mount Hor, in the edge of the land of Edom.
+They traveled from Kadesh, and encamped in Mount Hor, in the edge of the land of Edom.

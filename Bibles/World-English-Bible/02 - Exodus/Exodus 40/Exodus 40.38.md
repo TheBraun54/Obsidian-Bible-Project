@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the cloud of Jehovah was upon the tabernacle by day, and there was fire therein by night, in the sight of all the house of Israel, throughout all their journeys.
+For the cloud of Yahweh was on the tabernacle by day, and there was fire in the cloud by night, in the sight of all the house of Israel, throughout all their journeys.

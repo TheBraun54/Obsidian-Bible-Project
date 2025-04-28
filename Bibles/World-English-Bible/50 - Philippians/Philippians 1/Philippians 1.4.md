@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-always in every supplication of mine on behalf of you all making my supplication with joy,
+always in every request of mine on behalf of you all making my requests with joy,

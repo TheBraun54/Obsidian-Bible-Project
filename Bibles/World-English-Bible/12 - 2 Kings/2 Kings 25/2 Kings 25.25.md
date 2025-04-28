@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But it came to pass in the seventh month, that Ishmael the son of Nethaniah, the son of Elishama, of the seed royal, came, and ten men with him, and smote Gedaliah, so that he died, and the Jews and the Chaldeans that were with him at Mizpah.
+But it happened in the seventh month, that Ishmael the son of Nethaniah, the son of Elishama, of the royal seed came, and ten men with him, and struck Gedaliah, so that he died, and the Jews and the Chaldeans that were with him at Mizpah.

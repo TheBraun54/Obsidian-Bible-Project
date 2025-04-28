@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the work of a man will he render unto him, And cause every man to find according to his ways.
+For the work of a man he will render to him, and cause every man to find according to his ways.

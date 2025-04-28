@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon numbered all the sojourners that were in the land of Israel, after the numbering wherewith David his father had numbered them; and they were found a hundred and fifty thousand and three thousand and six hundred.
+Solomon numbered all the foreigners who were in the land of Israel, after the numbering with which David his father had numbered them; and they were found one hundred fifty-three thousand six hundred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto them, If ye will do this thing, if ye will arm yourselves to go before Jehovah to the war,
+Moses said to them, "If you will do this thing, if you will arm yourselves to go before Yahweh to the war,

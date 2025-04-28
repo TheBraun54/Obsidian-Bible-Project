@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the children of Benjamin, the brethren of Saul, three thousand: for hitherto the greatest part of them had kept their allegiance to the house of Saul.
+Of the children of Benjamin, the brothers of Saul, three thousand: for hitherto the greatest part of them had kept their allegiance to the house of Saul.

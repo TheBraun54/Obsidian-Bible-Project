@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the husband render unto the wife her due: and likewise also the wife unto the husband.
+Let the husband render to his wife the affection owed her, and likewise also the wife to her husband.

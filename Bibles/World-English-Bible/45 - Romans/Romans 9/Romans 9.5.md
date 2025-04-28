@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose are the fathers, and of whom is Christ as concerning the flesh, who is over all, God blessed for ever. Amen.
+of whom are the fathers, and from whom is Christ as concerning the flesh, who is over all, God, blessed forever. Amen.

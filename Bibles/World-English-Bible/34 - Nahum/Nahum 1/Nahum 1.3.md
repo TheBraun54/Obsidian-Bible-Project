@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is slow to anger, and great in power, and will by no means clear [the guilty] : Jehovah hath his way in the whirlwind and in the storm, and the clouds are the dust of his feet.
+Yahweh is slow to anger, and great in power, and will by no means leave the guilty unpunished. Yahweh has his way in the whirlwind and in the storm, and the clouds are the dust of his feet.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now a certain man was sick, Lazarus of Bethany, of the village of Mary and her sister Martha.
+Now a certain man was sick, Lazarus from Bethany, of the village of Mary and her sister, Martha.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who maketh thee to differ? and what hast thou that thou didst not receive? but if thou didst receive it, why dost thou glory as if thou hadst not received it?
+For who makes you different? And what do you have that you didn't receive? But if you did receive it, why do you boast as if you had not received it?

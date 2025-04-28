@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah thundered from heaven, And the Most High uttered his voice.
+Yahweh thundered from heaven. The Most High uttered his voice.

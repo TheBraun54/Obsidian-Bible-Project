@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul followeth hard after thee: Thy right hand upholdeth me.
+My soul stays close to you. Your right hand holds me up.

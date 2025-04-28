@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-every beast, every creeping thing, and every bird, whatsoever moveth upon the earth, after their families, went forth out of the ark.
+Every animal, every creeping thing, and every bird, whatever moves on the earth, after their families, went out of the ship.

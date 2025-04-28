@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know Ephraim, and Israel is not hid from me; for now, O Ephraim, thou hast played the harlot, Israel is defiled.
+I know Ephraim, and Israel is not hidden from me; for now, Ephraim, you have played the prostitute. Israel is defiled.

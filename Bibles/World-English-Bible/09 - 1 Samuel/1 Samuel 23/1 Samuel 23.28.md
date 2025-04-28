@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Saul returned from pursuing after David, and went against the Philistines: therefore they called that place Sela-hammahlekoth.
+So Saul returned from pursuing after David, and went against the Philistines: therefore they called that place Sela Hammahlekoth.

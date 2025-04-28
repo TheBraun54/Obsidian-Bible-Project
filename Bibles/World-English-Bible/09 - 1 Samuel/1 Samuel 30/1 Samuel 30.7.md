@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Abiathar the priest, the son of Ahimelech, I pray thee, bring me hither the ephod. And Abiathar brought thither the ephod to David.
+David said to Abiathar the priest, the son of Ahimelech, "Please bring me here the ephod." Abiathar brought the ephod to David.

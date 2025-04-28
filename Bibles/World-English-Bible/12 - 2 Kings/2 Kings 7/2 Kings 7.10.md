@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they came and called unto the porter of the city; and they told them, saying, We came to the camp of the Syrians, and, behold, there was no man there, neither voice of man, but the horses tied, and the asses tied, and the tents as they were.
+So they came and called to the porter of the city; and they told them, saying, "We came to the camp of the Syrians, and, behold, there was no man there, neither voice of man, but the horses tied, and the donkeys tied, and the tents as they were."

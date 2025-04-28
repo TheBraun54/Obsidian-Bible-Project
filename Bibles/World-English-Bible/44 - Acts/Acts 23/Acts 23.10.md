@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when there arose a great dissension, the chief captain, fearing lest Paul should be torn in pieces by them, commanded the soldiers to go down and take him by force from among them, and bring him into the castle.
+When a great argument arose, the commanding officer, fearing that Paul would be torn in pieces by them, commanded the soldiers to go down and take him by force from among them, and bring him into the barracks.

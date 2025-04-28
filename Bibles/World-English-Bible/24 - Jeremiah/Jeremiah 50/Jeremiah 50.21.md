@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go up against the land of Merathaim, even against it, and against the inhabitants of Pekod: slay and utterly destroy after them, saith Jehovah, and do according to all that I have commanded thee.
+Go up against the land of Merathaim, even against it, and against the inhabitants of Pekod: kill and utterly destroy after them, says Yahweh, and do according to all that I have commanded you.

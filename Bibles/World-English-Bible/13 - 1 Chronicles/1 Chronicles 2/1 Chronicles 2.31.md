@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Appaim: Ishi. And the sons of Ishi: Sheshan. And the sons of Sheshan: Ahlai.
+The sons of Appaim: Ishi. The sons of Ishi: Sheshan. The sons of Sheshan: Ahlai.

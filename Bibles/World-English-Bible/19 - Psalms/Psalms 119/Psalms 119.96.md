@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have seen an end of all perfection; [But] thy commandment is exceeding broad.
+I have seen a limit to all perfection, but your commands are boundless. MEM

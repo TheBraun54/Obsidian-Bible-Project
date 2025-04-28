@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ it is] he that buildeth his chambers in the heavens, and hath founded his vault upon the earth; he that calleth for the waters of the sea, and poureth them out upon the face of the earth; Jehovah is his name.
+It is he who builds his rooms in the heavens, and has founded his vault on the earth; he who calls for the waters of the sea, and pours them out on the surface of the earth; Yahweh is his name.

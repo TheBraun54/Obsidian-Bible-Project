@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Tou king of Hamath heard that David had smitten all the host of Hadarezer king of Zobah,
+When Tou king of Hamath heard that David had struck all the army of Hadadezer king of Zobah,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel answered and said unto me, These are the four winds of heaven, which go forth from standing before the Lord of all the earth.
+The angel answered me, "These are the four winds of the sky, which go forth from standing before the Lord of all the earth.

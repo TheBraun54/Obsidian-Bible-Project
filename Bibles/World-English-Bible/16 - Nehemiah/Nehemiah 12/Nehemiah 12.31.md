@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I brought up the princes of Judah upon the wall, and appointed two great companies that gave thanks and went in procession; [whereof one went] on the right hand upon the wall toward the dung gate:
+Then I brought up the princes of Judah on the wall, and appointed two great companies who gave thanks and went in procession. [One went] on the right hand on the wall toward the dung gate;

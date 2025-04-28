@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Baasha slept with his fathers, and was buried in Tirzah; and Elah his son reigned in his stead.
+Baasha slept with his fathers, and was buried in Tirzah; and Elah his son reigned in his place.

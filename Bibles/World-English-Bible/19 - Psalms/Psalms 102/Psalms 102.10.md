@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of thine indignation and thy wrath: For thou hast taken me up, and cast me away.
+Because of your indignation and your wrath, for you have taken me up, and thrown me away.

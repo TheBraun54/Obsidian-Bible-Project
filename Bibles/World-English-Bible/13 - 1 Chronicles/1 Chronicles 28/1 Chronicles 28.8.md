@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, in the sight of all Israel, the assembly of Jehovah, and in the audience of our God, observe and seek out all the commandments of Jehovah your God; that ye may possess this good land, and leave it for an inheritance to your children after you for ever.
+Now therefore, in the sight of all Israel, the assembly of Yahweh, and in the audience of our God, observe and seek out all the commandments of Yahweh your God; that you may possess this good land, and leave it for an inheritance to your children after you forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy tacklings are loosed; they could not strengthen the foot of their mast, they could not spread the sail: then was the prey of a great spoil divided; the lame took the prey.
+Your rigging is untied. They couldn't strengthen the foot of their mast. They couldn't spread the sail. Then the prey of a great spoil was divided. The lame took the prey.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them therefore give us two bullocks; and let them choose one bullock for themselves, and cut it in pieces, and lay it on the wood, and put no fire under; and I will dress the other bullock, and lay it on the wood, and put no fire under.
+Let them therefore give us two bulls; and let them choose one bull for themselves, and cut it in pieces, and lay it on the wood, and put no fire under; and I will dress the other bull, and lay it on the wood, and put no fire under it.

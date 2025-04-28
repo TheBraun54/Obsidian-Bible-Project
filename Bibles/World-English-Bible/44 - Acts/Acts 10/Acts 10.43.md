@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him bear all the prophets witness, that through his name every one that believeth on him shall receive remission of sins.
+All the prophets testify about him, that through his name everyone who believes in him will receive remission of sins."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zabad his son, and Shuthelah his son, and Ezer, and Elead, whom the men of Gath that were born in the land slew, because they came down to take away their cattle.
+and Zabad his son, and Shuthelah his son, and Ezer, and Elead, whom the men of Gath who were born in the land killed, because they came down to take away their livestock.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware of the scribes, who desire to walk in long robes, and love salutations in the marketplaces, and chief seats in the synagogues, and chief places at feasts;
+"Beware of the scribes, who like to walk in long robes, and love greetings in the marketplaces, the best seats in the synagogues, and the best places at feasts;

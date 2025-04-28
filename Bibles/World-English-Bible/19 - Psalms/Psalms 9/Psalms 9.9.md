@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah also will be a high tower for the oppressed, A high tower in times of trouble;
+Yahweh will also be a high tower for the oppressed; a high tower in times of trouble.

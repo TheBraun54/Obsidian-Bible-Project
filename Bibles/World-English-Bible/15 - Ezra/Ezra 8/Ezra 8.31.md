@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then we departed from the river Ahava on the twelfth [day] of the first month, to go unto Jerusalem: and the hand of our God was upon us, and he delivered us from the hand of the enemy and the lier-in-wait by the way.
+Then we departed from the river Ahava on the twelfth [day] of the first month, to go to Jerusalem: and the hand of our God was on us, and he delivered us from the hand of the enemy and the bandit by the way.

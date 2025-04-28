@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not a few of them that practised magical arts brought their books together and burned them in the sight of all; and they counted the price of them, and found it fifty thousand pieces of silver.
+Many of those who practiced magical arts brought their books together and burned them in the sight of all. They counted the price of them, and found it to be fifty thousand pieces of silver.

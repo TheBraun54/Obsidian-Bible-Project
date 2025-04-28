@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jesus had spoken of his death: but they thought that he spake of taking rest in sleep.
+Now Jesus had spoken of his death, but they thought that he spoke of taking rest in sleep.

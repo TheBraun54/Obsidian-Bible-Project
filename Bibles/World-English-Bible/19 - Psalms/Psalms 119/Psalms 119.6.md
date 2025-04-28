@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall I not be put to shame, When I have respect unto all thy commandments.
+Then I wouldn't be disappointed, when I consider all of your commandments.

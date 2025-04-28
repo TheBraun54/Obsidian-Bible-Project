@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said unto Jehovah, Thou art my God: Give ear unto the voice of my supplications, O Jehovah.
+I said to Yahweh, "You are my God." Listen to the cry of my petitions, Yahweh.

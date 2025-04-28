@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a clean person shall take hyssop, and dip it in the water, and sprinkle it upon the tent, and upon all the vessels, and upon the persons that were there, and upon him that touched the bone, or the slain, or the dead, or the grave:
+and a clean person shall take hyssop, and dip it in the water, and sprinkle it on the tent, and on all the vessels, and on the persons who were there, and on him who touched the bone, or the slain, or the dead, or the grave:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst tread the sea with thy horses, The heap of mighty waters.
+You trampled the sea with your horses, churning mighty waters.

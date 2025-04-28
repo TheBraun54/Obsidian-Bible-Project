@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they dwelt therein, and have built thee a sanctuary therein for thy name, saying,
+They lived in it, and have built you a sanctuary in it for your name, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon was king over all Israel.
+King Solomon was king over all Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they say to the mountains and to the rocks, Fall on us, and hide us from the face of him that sitteth on the throne, and from the wrath of the Lamb:
+They told the mountains and the rocks, "Fall on us, and hide us from the face of him who sits on the throne, and from the wrath of the Lamb,

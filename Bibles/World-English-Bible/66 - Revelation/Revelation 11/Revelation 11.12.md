@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they heard a great voice from heaven saying unto them, Come up hither. And they went up into heaven in the cloud; and their enemies beheld them.
+I heard a loud voice from heaven saying to them, "Come up here!" They went up into heaven in the cloud, and their enemies saw them.

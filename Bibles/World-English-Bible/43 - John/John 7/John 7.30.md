@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They sought therefore to take him: and no man laid his hand on him, because his hour was not yet come.
+They sought therefore to take him; but no one laid a hand on him, because his hour had not yet come.

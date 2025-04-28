@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one he-goat for a sin-offering; besides the sin-offering of atonement, and the continual burnt-offering, and the meal-offering thereof, and their drink-offerings.
+one male goat for a sin offering; besides the sin offering of atonement, and the continual burnt offering, and the meal offering of it, and their drink offerings.

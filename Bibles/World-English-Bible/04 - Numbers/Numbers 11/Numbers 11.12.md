@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have I conceived all this people? have I brought them forth, that thou shouldest say unto me, Carry them in thy bosom, as a nursing-father carrieth the sucking child, unto the land which thou swarest unto their fathers?
+Have I conceived all this people? Have I brought them forth, that you should tell me, 'Carry them in your bosom, as a nurse carries a nursing infant, to the land which you swore to their fathers?'

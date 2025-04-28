@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David's anger was greatly kindled against the man; and he said to Nathan, As Jehovah liveth, the man that hath done this is worthy to die:
+David's anger was greatly kindled against the man, and he said to Nathan, "As Yahweh lives, the man who has done this is worthy to die!

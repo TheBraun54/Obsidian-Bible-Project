@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahijah laid hold of the new garment that was on him, and rent it in twelve pieces.
+Ahijah laid hold of the new garment that was on him, and tore it in twelve pieces.

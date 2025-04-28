@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To shine upon them that sit in darkness and the shadow of death; To guide our feet into the way of peace.
+to shine on those who sit in darkness and the shadow of death; to guide our feet into the way of peace."

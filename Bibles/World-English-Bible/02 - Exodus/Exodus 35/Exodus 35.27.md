@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rulers brought the onyx stones, and the stones to be set, for the ephod, and for the breastplate;
+The rulers brought the onyx stones, and the stones to be set, for the ephod and for the breastplate;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but there went up a mist from the earth, and watered the whole face of the ground.
+but a mist went up from the earth, and watered the whole surface of the ground.

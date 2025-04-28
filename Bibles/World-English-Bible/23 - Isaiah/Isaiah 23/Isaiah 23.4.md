@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou ashamed, O Sidon; for the sea hath spoken, the stronghold of the sea, saying, I have not travailed, nor brought forth, neither have I nourished young men, nor brought up virgins.
+Be ashamed, Sidon; for the sea has spoken, the stronghold of the sea, saying, "I have not travailed, nor brought forth, neither have I nourished young men, nor brought up virgins."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and make straight paths for your feet, that that which is lame be not turned out of the way, but rather be healed.
+and make straight paths for your feet, so that which is lame may not be dislocated, but rather be healed.

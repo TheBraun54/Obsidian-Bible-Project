@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the Lord will not rejoice over their young men, neither will he have compassion on their fatherless and widows; for every one is profane and an evil-doer, and every mouth speaketh folly. For all this his anger is not turned away, but his hand is stretched out still.
+Therefore the Lord will not rejoice over their young men, neither will he have compassion on their fatherless and widows; for everyone is profane and an evildoer, and every mouth speaks folly. For all this his anger is not turned away, but his hand is stretched out still.

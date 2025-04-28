@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he entered again into Capernaum after some days, it was noised that he was in the house.
+When he entered again into Capernaum after some days, it was heard that he was in the house.

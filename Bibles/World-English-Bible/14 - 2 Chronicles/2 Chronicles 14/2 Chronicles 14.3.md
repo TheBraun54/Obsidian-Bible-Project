@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he took away the foreign altars, and the high places, and brake down the pillars, and hewed down the Asherim,
+for he took away the foreign altars, and the high places, and broke down the pillars, and cut down the Asherim,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they asked him, saying, Teacher, we know that thou sayest and teachest rightly, and acceptest not the person [of any], but of a truth teachest the way of God:
+They asked him, "Teacher, we know that you say and teach what is right, and aren't partial to anyone, but truly teach the way of God.

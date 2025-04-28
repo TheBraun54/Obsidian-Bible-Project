@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That respecteth not the persons of princes, Nor regardeth the rich more than the poor; For they all are the work of his hands.
+Who doesn't respect the persons of princes, nor respects the rich more than the poor; for they all are the work of his hands.

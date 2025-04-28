@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will ye speak unrighteously for God, And talk deceitfully for him?
+Will you speak unrighteously for God, and talk deceitfully for him?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they covet fields, and seize them; and houses, and take them away: and they oppress a man and his house, even a man and his heritage.
+They covet fields, and seize them; and houses, and take them away: and they oppress a man and his house, even a man and his heritage.

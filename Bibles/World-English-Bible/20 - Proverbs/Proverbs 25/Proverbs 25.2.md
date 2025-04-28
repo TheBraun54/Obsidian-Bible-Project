@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is the glory of God to conceal a thing; But the glory of kings is to search out a matter.
+It is the glory of God to conceal a thing, but the glory of kings is to search out a matter.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that after three days he called together those that were the chief of the Jews: and when they were come together, he said unto them, I, brethren, though I had done nothing against the people, or the customs of our fathers, yet was delivered prisoner from Jerusalem into the hands of the Romans:
+It happened that after three days Paul called together those who were the leaders of the Jews. When they had come together, he said to them, "I, brothers, though I had done nothing against the people, or the customs of our fathers, still was delivered prisoner from Jerusalem into the hands of the Romans,

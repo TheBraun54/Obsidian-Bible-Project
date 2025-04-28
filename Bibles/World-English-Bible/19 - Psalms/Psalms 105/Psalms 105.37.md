@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought them forth with silver and gold; And there was not one feeble person among his tribes.
+He brought them forth with silver and gold. There was not one feeble person among his tribes.

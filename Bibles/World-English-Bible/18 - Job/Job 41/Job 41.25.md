@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he raiseth himself up, the mighty are afraid: By reason of consternation they are beside themselves.
+When he raises himself up, the mighty are afraid. They retreat before his thrashing.

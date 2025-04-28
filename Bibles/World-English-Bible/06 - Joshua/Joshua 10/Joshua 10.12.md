@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake Joshua to Jehovah in the day when Jehovah delivered up the Amorites before the children of Israel; and he said in the sight of Israel, Sun, stand thou still upon Gibeon; And thou, Moon, in the valley of Aijalon.
+Then Joshua spoke to Yahweh in the day when Yahweh delivered up the Amorites before the children of Israel; and he said in the sight of Israel, "Sun, stand still on Gibeon! You, moon, stop in the valley of Aijalon!"

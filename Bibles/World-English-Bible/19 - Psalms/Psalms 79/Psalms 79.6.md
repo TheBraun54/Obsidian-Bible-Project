@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pour out thy wrath upon the nations that know thee not, And upon the kingdoms that call not upon thy name.
+Pour out your wrath on the nations that don't know you; on the kingdoms that don't call on your name;

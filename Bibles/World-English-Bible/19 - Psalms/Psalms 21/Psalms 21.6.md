@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou makest him most blessed for ever: Thou makest him glad with joy in thy presence.
+For you make him most blessed forever. You make him glad with joy in your presence.

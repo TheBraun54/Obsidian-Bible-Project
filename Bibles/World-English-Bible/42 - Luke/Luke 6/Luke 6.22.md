@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are ye, when men shall hate you, and when they shall separate you [from their company], and reproach you, and cast out your name as evil, for the Son of man's sake.
+Blessed are you when men shall hate you, and when they shall exclude and mock you, and throw out your name as evil, for the Son of Man's sake.

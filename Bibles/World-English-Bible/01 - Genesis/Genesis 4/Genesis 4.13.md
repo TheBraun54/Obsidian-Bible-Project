@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Cain said unto Jehovah, My punishment is greater than I can bear.
+Cain said to Yahweh, "My punishment is greater than I can bear.

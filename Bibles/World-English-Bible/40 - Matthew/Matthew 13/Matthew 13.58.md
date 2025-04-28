@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did not many mighty works there because of their unbelief.
+He didn't do many mighty works there because of their unbelief.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom I answered, that it is not the custom of the Romans to give up any man, before that the accused have the accusers face to face, and have had opportunity to make his defense concerning the matter laid against him.
+To whom I answered that it is not the custom of the Romans to give up any man to destruction, before the accused has met the accusers face to face, and has had opportunity to make his defense concerning the matter laid against him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She is more precious than rubies: And none of the things thou canst desire are to be compared unto her.
+She is more precious than rubies. None of the things you can desire are to be compared to her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remove not the ancient landmark; And enter not into the fields of the fatherless:
+Don't move the ancient boundary stone. Don't encroach on the fields of the fatherless:

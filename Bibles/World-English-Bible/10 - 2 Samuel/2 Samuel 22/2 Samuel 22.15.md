@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent out arrows, and scattered them; Lightning, and discomfited them.
+He sent out arrows, and scattered them; lightning, and confused them.

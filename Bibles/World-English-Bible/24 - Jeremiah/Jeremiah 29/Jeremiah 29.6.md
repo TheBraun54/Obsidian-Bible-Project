@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye wives, and beget sons and daughters; and take wives for your sons, and give your daughters to husbands, that they may bear sons and daughters; and multiply ye there, and be not diminished.
+Take wives, and father sons and daughters; and take wives for your sons, and give your daughters to husbands, that they may bear sons and daughters; and multiply there, and don't be diminished.

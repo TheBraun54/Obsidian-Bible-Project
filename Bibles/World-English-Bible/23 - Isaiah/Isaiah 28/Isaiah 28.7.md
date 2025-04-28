@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And even these reel with wine, and stagger with strong drink; the priest and the prophet reel with strong drink, they are swallowed up of wine, they stagger with strong drink; they err in vision, they stumble in judgment.
+They also reel with wine, and stagger with strong drink. The priest and the prophet reel with strong drink. They are swallowed up by wine. They stagger with strong drink. They err in vision. They stumble in judgment.

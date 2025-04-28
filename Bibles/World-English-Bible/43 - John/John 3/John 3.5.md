@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, Verily, verily, I say unto thee, Except one be born of water and the Spirit, he cannot enter into the kingdom of God!
+Jesus answered, "Most certainly I tell you, unless one is born of water and spirit, he can't enter into the Kingdom of God!

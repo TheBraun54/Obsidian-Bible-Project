@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the table, all the vessels thereof, and the showbread;
+the table, all its vessels, the show bread,

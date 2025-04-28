@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses indeed was faithful in all his house as a servant, for a testimony of those things which were afterward to be spoken;
+Moses indeed was faithful in all his house as a servant, for a testimony of those things which were afterward to be spoken,

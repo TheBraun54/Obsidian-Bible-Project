@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O house of Israel, cannot I do with you as this potter? saith Jehovah. Behold, as the clay in the potter's hand, so are ye in my hand, O house of Israel.
+House of Israel, can't I do with you as this potter? says Yahweh. Behold, as the clay in the potter's hand, so are you in my hand, house of Israel.

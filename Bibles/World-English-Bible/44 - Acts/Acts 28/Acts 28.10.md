@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who also honored us with many honors; and when we sailed, they put on board such things as we needed.
+They also honored us with many honors, and when we sailed, they put on board the things that we needed.

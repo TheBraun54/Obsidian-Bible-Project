@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus, not heeding the word spoken, saith unto the ruler of the synagogue, Fear not, only believe.
+But Jesus, when he heard the message spoken, immediately said to the ruler of the synagogue, "Don't be afraid, only believe."

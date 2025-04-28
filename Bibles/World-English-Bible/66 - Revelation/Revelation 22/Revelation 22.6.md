@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, These words are faithful and true: and the Lord, the God of the spirits of the prophets, sent his angels to show unto his servants the things which must shortly come to pass.
+He said to me, "These words are faithful and true. The Lord God of the spirits of the prophets sent his angel to show to his bondservants the things which must happen soon."

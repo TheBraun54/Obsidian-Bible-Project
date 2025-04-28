@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Noah began to be a husbandman, and planted a vineyard:
+Noah began to be a farmer, and planted a vineyard.

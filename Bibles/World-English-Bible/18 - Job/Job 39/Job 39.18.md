@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What time she lifteth up herself on high, She scorneth the horse and his rider.
+When she lifts up herself on high, she scorns the horse and his rider.

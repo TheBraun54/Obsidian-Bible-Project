@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have now compassed us in our steps; They set their eyes to cast [us] down to the earth.
+They have now surrounded us in our steps. They set their eyes to cast us down to the earth.

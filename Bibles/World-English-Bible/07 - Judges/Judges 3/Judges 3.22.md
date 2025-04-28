@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the haft also went in after the blade; and the fat closed upon the blade, for he drew not the sword out of his body; and it came out behind.
+and the handle also went in after the blade; and the fat closed on the blade, for he didn't draw the sword out of his body; and it came out behind.

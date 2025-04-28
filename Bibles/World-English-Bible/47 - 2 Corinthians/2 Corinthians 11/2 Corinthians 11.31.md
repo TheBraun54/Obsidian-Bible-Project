@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God and Father of the Lord Jesus, he who is blessed for evermore knoweth that I lie not.
+The God and Father of the Lord Jesus Christ, he who is blessed forevermore, knows that I don't lie.

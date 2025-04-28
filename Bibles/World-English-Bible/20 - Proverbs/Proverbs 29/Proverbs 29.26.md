@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many seek the ruler's favor; But a man's judgment [cometh] from Jehovah.
+Many seek the ruler's favor, but a man's justice comes from Yahweh.

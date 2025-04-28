@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he taught them as [one] having authority, and not as their scribes.
+for he taught them with authority, and not like the scribes.

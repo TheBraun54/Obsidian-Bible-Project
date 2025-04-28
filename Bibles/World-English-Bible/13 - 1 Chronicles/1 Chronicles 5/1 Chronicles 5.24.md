@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these were the heads of their fathers' houses: even Epher, and Ishi, and Eliel, and Azriel, and Jeremiah, and Hodaviah, and Jahdiel, mighty men of valor, famous men, heads of their fathers' houses.
+These were the heads of their fathers' houses: even Epher, and Ishi, and Eliel, and Azriel, and Jeremiah, and Hodaviah, and Jahdiel, mighty men of valor, famous men, heads of their fathers' houses.

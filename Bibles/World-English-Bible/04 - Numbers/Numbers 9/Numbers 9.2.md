@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover let the children of Israel keep the passover in its appointed season.
+"Moreover let the children of Israel keep the Passover in its appointed season.

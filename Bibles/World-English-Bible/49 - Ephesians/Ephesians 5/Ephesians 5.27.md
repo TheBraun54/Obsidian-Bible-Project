@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that he might present the church to himself a glorious [church], not having spot or wrinkle or any such thing; but that it should be holy and without blemish.
+that he might present the assembly to himself gloriously, not having spot or wrinkle or any such thing; but that it should be holy and without blemish.

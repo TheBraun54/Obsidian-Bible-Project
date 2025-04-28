@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If therefore they shall say unto you, Behold, he is in the wilderness; go not forth: Behold, he is in the inner chambers; believe [it] not.
+If therefore they tell you, 'Behold, he is in the wilderness,' don't go out; 'Behold, he is in the inner rooms,' don't believe it.

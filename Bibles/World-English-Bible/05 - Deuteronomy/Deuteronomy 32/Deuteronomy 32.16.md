@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They moved him to jealousy with strange [gods] ; With abominations provoked they him to anger.
+They moved him to jealousy with strange [gods]. They provoked him to anger with abominations.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall speak of the glory of thy kingdom, And talk of thy power;
+They will speak of the glory of your kingdom, and talk about your power;

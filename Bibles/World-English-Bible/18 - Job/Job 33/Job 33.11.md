@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He putteth my feet in the stocks, He marketh all my paths.
+He puts my feet in the stocks. He marks all my paths.'

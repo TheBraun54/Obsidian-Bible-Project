@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah spake comfortably unto all the Levites that had good understanding [in the service] of Jehovah. So they did eat throughout the feast for the seven days, offering sacrifices of peace-offerings, and [ making confession to Jehovah, the God of their fathers.
+Hezekiah spoke comfortably to all the Levites who had good understanding [in the service] of Yahweh. So they ate throughout the feast for the seven days, offering sacrifices of peace offerings, and making confession to Yahweh, the God of their fathers.

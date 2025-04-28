@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they began to accuse him, saying, We found this man perverting our nation, and forbidding to give tribute to Caesar, and saying that he himself is Christ a king.
+They began to accuse him, saying, "We found this man perverting the nation, forbidding paying taxes to Caesar, and saying that he himself is Christ, a king."

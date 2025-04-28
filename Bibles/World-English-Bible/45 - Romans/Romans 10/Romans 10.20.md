@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaiah is very bold, and saith, I was found of them that sought me not; I became manifest unto them that asked not of me.
+Isaiah is very bold, and says, "I was found by those who didn't seek me. I was revealed to those who didn't ask for me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the words of my mouth and the meditation of my heart Be acceptable in thy sight, O Jehovah, my rock, and my redeemer.
+Let the words of my mouth and the meditation of my heart be acceptable in your sight, Yahweh, my rock, and my redeemer. For the Chief Musician. A Psalm by David.

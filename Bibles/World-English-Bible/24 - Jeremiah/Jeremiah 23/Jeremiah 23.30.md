@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, I am against the prophets, saith Jehovah, that steal my words every one from his neighbor.
+Therefore, behold, I am against the prophets, says Yahweh, who steal my words everyone from his neighbor.

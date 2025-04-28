@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the cities of the Levites in the midst of the possession of the children of Israel were forty and eight cities with their suburbs.
+All the cities of the Levites in the midst of the possession of the children of Israel were forty-eight cities with their suburbs.

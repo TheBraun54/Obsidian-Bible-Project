@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, Among them that are born of women there hath not arisen a greater than John the Baptist: yet he that is but little in the kingdom of heaven is greater than he.
+Most certainly I tell you, among those who are born of women there has not arisen anyone greater than John the Baptizer; yet he who is least in the Kingdom of Heaven is greater than he.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever man there be of the children of Israel, or of the strangers that sojourn among them, who taketh in hunting any beast or bird that may be eaten; he shall pour out the blood thereof, and cover it with dust.
+"'Whatever man there is of the children of Israel, or of the strangers who live as foreigners among them, who takes in hunting any animal or bird that may be eaten; he shall pour out its blood, and cover it with dust.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, When any man hath an issue out of his flesh, because of his issue he is unclean.
+"Speak to the children of Israel, and tell them, 'When any man has a discharge from his body, because of his discharge he is unclean.

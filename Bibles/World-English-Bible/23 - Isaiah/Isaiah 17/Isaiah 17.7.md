@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall men look unto their Maker, and their eyes shall have respect to the Holy One of Israel.
+In that day, people will look to their Maker, and their eyes will have respect for the Holy One of Israel.

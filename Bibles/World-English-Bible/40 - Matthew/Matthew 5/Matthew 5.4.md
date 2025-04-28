@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are they that mourn: for they shall be comforted.
+Blessed are those who mourn, for they shall be comforted.

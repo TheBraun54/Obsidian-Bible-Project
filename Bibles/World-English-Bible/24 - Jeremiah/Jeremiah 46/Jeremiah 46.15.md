@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why are thy strong ones swept away? they stood not, because Jehovah did drive them.
+Why are your strong ones swept away? they didn't stand, because Yahweh did drive them.

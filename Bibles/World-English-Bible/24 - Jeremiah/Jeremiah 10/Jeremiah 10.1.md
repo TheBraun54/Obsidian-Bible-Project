@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye the word which Jehovah speaketh unto you, O house of Israel:
+Hear the word which Yahweh speaks to you, house of Israel!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the men of his city shall stone him to death with stones: so shalt thou put away the evil from the midst of thee; and all Israel shall hear, and fear.
+All the men of his city shall stone him to death with stones: so you shall put away the evil from the midst of you; and all Israel shall hear, and fear.

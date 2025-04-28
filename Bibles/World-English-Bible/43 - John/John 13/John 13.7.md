@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered and said unto him, What I do thou knowest not now; but thou shalt understand hereafter.
+Jesus answered him, "You don't know what I am doing now, but you will understand later."

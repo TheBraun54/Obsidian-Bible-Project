@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jesus had spoken these words, he went forth with his disciples over the brook Kidron, where was a garden, into which he entered, himself and his disciples.
+When Jesus had spoken these words, he went out with his disciples over the brook Kidron, where there was a garden, into which he and his disciples entered.

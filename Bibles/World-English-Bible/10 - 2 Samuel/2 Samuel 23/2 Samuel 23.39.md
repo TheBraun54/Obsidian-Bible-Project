@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Uriah the Hittite: thirty and seven in all.
+Uriah the Hittite: thirty-seven in all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that encamp next unto him shall be the tribe of Simeon: and the prince of the children of Simeon shall be Shelumiel the son of Zurishaddai.
+"Those who encamp next to him shall be the tribe of Simeon. The prince of the children of Simeon shall be Shelumiel the son of Zurishaddai.

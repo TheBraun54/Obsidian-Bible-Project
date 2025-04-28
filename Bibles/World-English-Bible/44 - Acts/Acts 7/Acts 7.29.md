@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses fled at this saying, and became a sojourner in the land of Midian, where he begat two sons.
+Moses fled at this saying, and became a stranger in the land of Midian, where he became the father of two sons.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ever learning, and never able to come to the knowledge of the truth.
+always learning, and never able to come to the knowledge of the truth.

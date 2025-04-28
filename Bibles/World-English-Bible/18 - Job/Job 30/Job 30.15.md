@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Terrors are turned upon me; They chase mine honor as the wind; And my welfare is passed away as a cloud.
+Terrors have turned on me. They chase my honor as the wind. My welfare has passed away as a cloud.

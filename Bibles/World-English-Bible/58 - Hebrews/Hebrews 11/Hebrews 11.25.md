@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-choosing rather to share ill treatment with the people of God, than to enjoy the pleasures of sin for a season;
+choosing rather to share ill treatment with God's people, than to enjoy the pleasures of sin for a time;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the fig-tree said unto them, Should I leave my sweetness, and my good fruit, and go to wave to and fro over the trees?
+"But the fig tree said to them, 'Should I leave my sweetness, and my good fruit, and go to wave back and forth over the trees?'

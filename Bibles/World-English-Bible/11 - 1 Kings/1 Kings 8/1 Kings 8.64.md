@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The same day did the king hallow the middle of the court that was before the house of Jehovah; for there he offered the burnt-offering, and the meal-offering, and the fat of the peace-offerings, because the brazen altar that was before Jehovah was too little to receive the burnt-offering, and the meal-offering, and the fat of the peace-offerings.
+The same day did the king make the middle of the court holy that was before the house of Yahweh; for there he offered the burnt offering, and the meal offering, and the fat of the peace offerings, because the bronze altar that was before Yahweh was too little to receive the burnt offering, and the meal offering, and the fat of the peace offerings.

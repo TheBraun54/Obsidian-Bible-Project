@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Esther had not made known her people nor her kindred; for Mordecai had charged her that she should not make it known.
+Esther had not made known her people nor her relatives, because Mordecai had instructed her that she should not make it known.

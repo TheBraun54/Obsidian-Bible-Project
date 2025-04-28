@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul sought to smite David even to the wall with the spear; but he slipped away out of Saul's presence, and he smote the spear into the wall: and David fled, and escaped that night.
+Saul sought to pin David even to the wall with the spear; but he slipped away out of Saul's presence, and he stuck the spear into the wall. David fled, and escaped that night.

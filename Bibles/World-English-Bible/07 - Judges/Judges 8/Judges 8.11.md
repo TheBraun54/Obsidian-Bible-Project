@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon went up by the way of them that dwelt in tents on the east of Nobah and Jogbehah, and smote the host; for the host was secure.
+Gideon went up by the way of those who lived in tents on the east of Nobah and Jogbehah, and struck the army; for the army was secure.

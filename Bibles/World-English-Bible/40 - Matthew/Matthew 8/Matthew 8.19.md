@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came a scribe, and said unto him, Teacher, I will follow thee whithersoever thou goest.
+A scribe came, and said to him, "Teacher, I will follow you wherever you go."

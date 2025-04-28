@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I was gone up into the mount to receive the tables of stone, even the tables of the covenant which Jehovah made with you, then I abode in the mount forty days and forty nights; I did neither eat bread nor drink water.
+When I was gone up onto the mountain to receive the tables of stone, even the tables of the covenant which Yahweh made with you, then I stayed on the mountain forty days and forty nights; I did neither eat bread nor drink water.

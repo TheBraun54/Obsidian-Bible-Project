@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, I beseech you as sojourners and pilgrims, to abstain from fleshly lusts, which war against the soul;
+Beloved, I beg you as foreigners and pilgrims, to abstain from fleshly lusts, which war against the soul;

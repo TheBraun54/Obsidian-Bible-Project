@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also their gods, with their molten images, [and] with their goodly vessels of silver and of gold, shall he carry captive into Egypt; and he shall refrain some years from the king of the north.
+Also their gods, with their molten images, [and] with their goodly vessels of silver and of gold, shall he carry captive into Egypt; and he shall refrain some years from the king of the north.

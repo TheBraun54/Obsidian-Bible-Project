@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall look on him; and, behold, if the scall be spread in the skin, the priest shall not seek for the yellow hair; he is unclean.
+then the priest shall examine him; and behold, if the itch has spread in the skin, the priest shall not look for the yellow hair; he is unclean.

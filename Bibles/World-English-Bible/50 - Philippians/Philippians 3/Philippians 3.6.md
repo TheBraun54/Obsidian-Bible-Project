@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as touching zeal, persecuting the church; as touching the righteousness which is in the law, found blameless.
+concerning zeal, persecuting the assembly; concerning the righteousness which is in the law, found blameless.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For John came neither eating nor drinking, and they say, He hath a demon.
+For John came neither eating nor drinking, and they say, 'He has a demon.'

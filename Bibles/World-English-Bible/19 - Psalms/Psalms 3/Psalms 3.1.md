@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David, when he fled from Absalom his son]. Jehovah, how are mine adversaries increased! Many are they that rise up against me.
+Yahweh, how my adversaries have increased! Many are those who rise up against me.

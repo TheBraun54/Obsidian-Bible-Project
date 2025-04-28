@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the wicked are increased, transgression increaseth; But the righteous shall look upon their fall.
+When the wicked increase, sin increases; but the righteous will see their downfall.

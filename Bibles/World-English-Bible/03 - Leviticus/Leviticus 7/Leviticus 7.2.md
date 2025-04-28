@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the place where they kill the burnt-offering shall they kill the trespass-offering; and the blood thereof shall he sprinkle upon the altar round about.
+In the place where they kill the burnt offering, he shall kill the trespass offering; and its blood he shall sprinkle around on the altar.

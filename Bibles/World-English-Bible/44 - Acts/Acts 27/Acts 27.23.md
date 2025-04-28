@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there stood by me this night an angel of the God whose I am, whom also I serve,
+For there stood by me this night an angel, belonging to the God whose I am and whom I serve,

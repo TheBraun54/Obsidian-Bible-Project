@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if I ask [you], ye will not answer.
+and if I ask, you will in no way answer me or let me go.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, and Haran, and Rezeph, and the children of Eden that were in Telassar?
+Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, Haran, Rezeph, and the children of Eden who were in Telassar?

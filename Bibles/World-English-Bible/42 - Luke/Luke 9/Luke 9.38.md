@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a man from the multitude cried, saying, Teacher, I beseech thee to look upon my son; for he is mine only child:
+Behold, a man from the crowd called out, saying, "Teacher, I beg you to look at my son, for he is my only child.

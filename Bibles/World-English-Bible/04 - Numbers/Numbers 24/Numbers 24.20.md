@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked on Amalek, and took up his parable, and said, Amalek was the first of the nations; But his latter end shall come to destruction.
+He looked at Amalek, and took up his parable, and said, "Amalek was the first of the nations, But his latter end shall come to destruction."

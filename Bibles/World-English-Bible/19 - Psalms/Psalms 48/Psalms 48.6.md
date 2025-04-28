@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trembling took hold of them there, Pain, as of a woman in travail.
+Trembling took hold of them there, pain, as of a woman in travail.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have seen the wicked in great power, And spreading himself like a green tree in its native soil.
+I have seen the wicked in great power, spreading himself like a green tree in its native soil.

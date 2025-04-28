@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are all apostles? are all prophets? are all teachers? are all [workers of] miracles?
+Are all apostles? Are all prophets? Are all teachers? Are all miracle workers?

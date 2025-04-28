@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of man bringeth a snare; But whoso putteth his trust in Jehovah shall be safe.
+The fear of man proves to be a snare, but whoever puts his trust in Yahweh is kept safe.

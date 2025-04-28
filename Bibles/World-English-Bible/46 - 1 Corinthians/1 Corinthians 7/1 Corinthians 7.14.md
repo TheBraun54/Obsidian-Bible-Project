@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the unbelieving husband is sanctified in the wife, and the unbelieving wife is sanctified in the brother: else were your children unclean; but now are they holy.
+For the unbelieving husband is sanctified in the wife, and the unbelieving wife is sanctified in the husband. Otherwise your children would be unclean, but now they are holy.

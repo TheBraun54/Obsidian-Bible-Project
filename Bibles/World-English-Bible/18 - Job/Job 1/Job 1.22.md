@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In all this Job sinned not, nor charged God foolishly.
+In all this, Job did not sin, nor charge God with wrongdoing.

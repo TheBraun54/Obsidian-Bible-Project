@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast planted them, yea, they have taken root; they grow, yea, they bring forth fruit: thou art near in their mouth, and far from their heart.
+You have planted them, yes, they have taken root; they grow, yes, they bring forth fruit: you are near in their mouth, and far from their heart.

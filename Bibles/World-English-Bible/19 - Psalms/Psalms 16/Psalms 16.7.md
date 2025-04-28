@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will bless Jehovah, who hath given me counsel; Yea, my heart instructeth me in the night seasons.
+I will bless Yahweh, who has given me counsel. Yes, my heart instructs me in the night seasons.

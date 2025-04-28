@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all the people saw it, they fell on their faces: and they said, Jehovah, he is God; Jehovah, he is God.
+When all the people saw it, they fell on their faces. They said, "Yahweh, he is God! Yahweh, he is God!"

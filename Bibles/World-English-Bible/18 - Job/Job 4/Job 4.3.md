@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou hast instructed many, And thou hast strengthened the weak hands.
+Behold, you have instructed many, you have strengthened the weak hands.

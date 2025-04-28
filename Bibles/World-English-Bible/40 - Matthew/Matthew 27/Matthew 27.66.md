@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they went, and made the sepulchre sure, sealing the stone, the guard being with them.
+So they went with the guard and made the tomb secure, sealing the stone.

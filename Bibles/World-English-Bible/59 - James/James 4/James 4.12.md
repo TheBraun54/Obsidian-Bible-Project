@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One [only] is the lawgiver and judge, [even] he who is able to save and to destroy: but who art thou that judgest thy neighbor?
+Only one is the lawgiver, who is able to save and to destroy. But who are you to judge another?

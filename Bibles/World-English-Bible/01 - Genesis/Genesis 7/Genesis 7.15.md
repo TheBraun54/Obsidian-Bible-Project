@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went in unto Noah into the ark, two and two of all flesh wherein is the breath of life.
+They went to Noah into the ship, by pairs of all flesh with the breath of life in them.

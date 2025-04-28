@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The thoughts of the diligent [tend] only to plenteousness; But every one that is hasty [hasteth] only to want.
+The plans of the diligent surely lead to profit; and everyone who is hasty surely rushes to poverty.

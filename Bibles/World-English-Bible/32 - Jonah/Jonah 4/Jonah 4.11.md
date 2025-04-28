@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and should not I have regard for Nineveh, that great city, wherein are more than sixscore thousand persons that cannot discern between their right hand and their left hand; and also much cattle?
+Shouldn't I be concerned for Nineveh, that great city, in which are more than one hundred twenty thousand persons who can't discern between their right hand and their left hand; and also much livestock?"

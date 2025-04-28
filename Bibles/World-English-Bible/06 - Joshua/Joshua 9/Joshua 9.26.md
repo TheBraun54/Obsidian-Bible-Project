@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And so did he unto them, and delivered them out of the hand of the children of Israel, that they slew them not.
+He did so to them, and delivered them out of the hand of the children of Israel, so that they didn't kill them.

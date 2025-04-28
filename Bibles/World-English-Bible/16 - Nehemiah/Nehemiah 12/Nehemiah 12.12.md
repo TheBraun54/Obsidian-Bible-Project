@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the days of Joiakim were priests, heads of fathers' [houses] : of Seraiah, Meraiah; of Jeremiah, Hananiah;
+In the days of Joiakim were priests, heads of fathers' [houses]: of Seraiah, Meraiah; of Jeremiah, Hananiah;

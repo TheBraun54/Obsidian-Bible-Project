@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us rejoice and be exceeding glad, and let us give the glory unto him: for the marriage of the Lamb is come, and his wife hath made herself ready.
+Let us rejoice and be exceedingly glad, and let us give the glory to him. For the marriage of the Lamb has come, and his wife has made herself ready."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or else, while the other is yet a great way off, he sendeth an ambassage, and asketh conditions of peace.
+Or else, while the other is yet a great way off, he sends an envoy, and asks for conditions of peace.

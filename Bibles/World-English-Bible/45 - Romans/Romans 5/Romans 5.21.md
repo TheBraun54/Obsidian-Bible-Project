@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that, as sin reigned in death, even so might grace reign through righteousness unto eternal life through Jesus Christ our Lord.
+that as sin reigned in death, even so grace might reign through righteousness to eternal life through Jesus Christ our Lord.

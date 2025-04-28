@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and also the Levites shall no more have need to carry the tabernacle and all the vessels of it for the service thereof.
+Also the Levites will no longer need to carry the tabernacle and all its vessels for its service."

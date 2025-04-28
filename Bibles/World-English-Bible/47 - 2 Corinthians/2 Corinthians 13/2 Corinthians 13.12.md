@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute one another with a holy kiss.
+Greet one another with a holy kiss.

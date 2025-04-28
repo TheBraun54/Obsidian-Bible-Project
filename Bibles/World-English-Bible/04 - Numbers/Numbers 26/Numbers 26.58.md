@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of Levi: the family of the Libnites, the family of the Hebronites, the family of the Mahlites, the family of the Mushites, the family of the Korahites. And Kohath begat Amram.
+These are the families of Levi: the family of the Libnites, the family of the Hebronites, the family of the Mahlites, the family of the Mushites, the family of the Korahites. Kohath became the father of Amram.

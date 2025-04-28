@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She seeketh wool and flax, And worketh willingly with her hands.
+She seeks wool and flax, and works eagerly with her hands.

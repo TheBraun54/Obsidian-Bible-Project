@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy way, O God, is in the sanctuary: Who is a great god like unto God?
+Your way, God, is in the sanctuary. What god is great like God?

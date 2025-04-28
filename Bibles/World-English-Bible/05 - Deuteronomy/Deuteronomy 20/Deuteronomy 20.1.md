@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou goest forth to battle against thine enemies, and seest horses, and chariots, [and] a people more than thou, thou shalt not be afraid of them; for Jehovah thy God is with thee, who brought thee up out of the land of Egypt.
+When you go forth to battle against your enemies, and see horses, and chariots, [and] a people more than you, you shall not be afraid of them; for Yahweh your God is with you, who brought you up out of the land of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To which end we also pray always for you, that our God may count you worthy of your calling, and fulfil every desire of goodness and [every] work of faith, with power;
+To this end we also pray always for you, that our God may count you worthy of your calling, and fulfill every desire of goodness and work of faith, with power;

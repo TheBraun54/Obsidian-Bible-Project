@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-insomuch that they even carried out the sick into the streets, and laid them on beds and couches, that, as Peter came by, at the least his shadow might overshadow some one of them.
+They even carried out the sick into the streets, and laid them on cots and mattresses, so that as Peter came by, at the least his shadow might overshadow some of them.

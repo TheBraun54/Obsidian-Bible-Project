@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that she called unto the men of her house, and spake unto them, saying, See, he hath brought in a Hebrew unto us to mock us: he came in unto me to lie with me, and I cried with a loud voice:
+she called to the men of her house, and spoke to them, saying, "Behold, he has brought in a Hebrew to us to mock us. He came in to me to lie with me, and I cried with a loud voice.

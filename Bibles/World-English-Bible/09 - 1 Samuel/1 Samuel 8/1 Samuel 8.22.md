@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said to Samuel, Hearken unto their voice, and make them a king. And Samuel said unto the men of Israel, Go ye every man unto his city.
+Yahweh said to Samuel, "Listen to their voice, and make them a king." Samuel said to the men of Israel, "Every man go to his city."

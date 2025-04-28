@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, if there remain ten men in one house, that they shall die.
+It will happen, if there remain ten men in one house, that they shall die.

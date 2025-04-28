@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The same was well reported of by the brethren that were at Lystra and Iconium.
+The brothers who were at Lystra and Iconium gave a good testimony about him.

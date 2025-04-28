@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent messengers unto Balaam the son of Beor, to Pethor, which is by the River, to the land of the children of his people, to call him, saying, Behold, there is a people come out from Egypt: behold, they cover the [ face of the earth, and they abide over against me.
+He sent messengers to Balaam the son of Beor, to Pethor, which is by the River, to the land of the children of his people, to call him, saying, "Behold, there is a people who came out from Egypt. Behold, they cover the surface of the earth, and they are staying opposite me.

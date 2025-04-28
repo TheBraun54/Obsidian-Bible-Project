@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall I then take my bread, and my water, and my flesh that I have killed for my shearers, and give it unto men of whom I know not whence they are?
+Shall I then take my bread, and my water, and my meat that I have killed for my shearers, and give it to men who I don't know where they come from?"

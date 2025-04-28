@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou hast run with the footmen, and they have wearied thee, then how canst thou contend with horses? and though in a land of peace thou art secure, yet how wilt thou do in the pride of the Jordan?
+If you have run with the footmen, and they have wearied you, then how can you contend with horses? and though in a land of peace you are secure, yet how will you do in the pride of the Jordan?

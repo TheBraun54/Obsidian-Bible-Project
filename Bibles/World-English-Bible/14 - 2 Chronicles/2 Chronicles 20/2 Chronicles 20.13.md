@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Judah stood before Jehovah, with their little ones, their wives, and their children.
+All Judah stood before Yahweh, with their little ones, their wives, and their children.

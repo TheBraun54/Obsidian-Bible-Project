@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate saith unto him, What is truth? And when he had said this, he went out again unto the Jews, and saith unto them, I find no crime in him.
+Pilate said to him, "What is truth?" When he had said this, he went out again to the Jews, and said to them, "I find no basis for a charge against him.

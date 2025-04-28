@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Save me from the lion's mouth; Yea, from the horns of the wild-oxen thou hast answered me.
+Save me from the lion's mouth! Yes, from the horns of the wild oxen, you have answered me.

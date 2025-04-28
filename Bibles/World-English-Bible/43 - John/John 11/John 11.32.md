@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mary therefore, when she came where Jesus was, and saw him, fell down at his feet, saying unto him, Lord, if thou hadst been here, my brother had not died.
+Therefore when Mary came to where Jesus was, and saw him, she fell down at his feet, saying to him, "Lord, if you would have been here, my brother wouldn't have died."

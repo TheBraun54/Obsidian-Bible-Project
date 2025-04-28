@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jared lived a hundred sixty and two years, and begat Enoch:
+Jared lived one hundred sixty-two years, and became the father of Enoch.

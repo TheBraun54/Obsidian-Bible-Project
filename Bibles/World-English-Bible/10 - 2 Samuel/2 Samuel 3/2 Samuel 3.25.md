@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou knowest Abner the son of Ner, that he came to deceive thee, and to know thy going out and thy coming in, and to know all that thou doest.
+You know Abner the son of Ner, that he came to deceive you, and to know your going out and your coming in, and to know all that you do."

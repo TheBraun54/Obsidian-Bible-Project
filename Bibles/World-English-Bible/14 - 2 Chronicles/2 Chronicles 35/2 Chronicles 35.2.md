@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the priests in their offices, and encouraged them to the service of the house of Jehovah.
+He set the priests in their offices, and encouraged them to the service of the house of Yahweh.

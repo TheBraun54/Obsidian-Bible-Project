@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For on account of a harlot [a man is brought] to a piece of bread; And the adulteress hunteth for the precious life.
+For a prostitute reduces you to a piece of bread. The adulteress hunts for your precious life.

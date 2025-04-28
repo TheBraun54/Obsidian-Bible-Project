@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Solomon thy son, he shall build my house and my courts; for I have chosen him to be my son, and I will be his father.
+He said to me, 'Solomon, your son, shall build my house and my courts; for I have chosen him to be my son, and I will be his father.

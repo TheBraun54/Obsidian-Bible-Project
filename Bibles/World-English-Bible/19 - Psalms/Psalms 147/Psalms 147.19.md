@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He showeth his word unto Jacob, His statutes and his ordinances unto Israel.
+He shows his word to Jacob; his statutes and his ordinances to Israel.

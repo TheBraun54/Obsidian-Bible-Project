@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(For the Pharisees, and all the Jews, except they wash their hands diligently, eat not, holding the tradition of the elders;
+(For the Pharisees, and all the Jews, don't eat unless they wash their hands and forearms, holding to the tradition of the elders.

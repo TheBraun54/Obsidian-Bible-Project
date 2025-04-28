@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:
+Then the King will tell those on his right hand, 'Come, blessed of my Father, inherit the Kingdom prepared for you from the foundation of the world;

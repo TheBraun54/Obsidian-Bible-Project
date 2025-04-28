@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No man hath beheld God at any time: if we love one another, God abideth in us, and his love is perfected in us:
+No one has seen God at any time. If we love one another, God remains in us, and his love has been perfected in us.

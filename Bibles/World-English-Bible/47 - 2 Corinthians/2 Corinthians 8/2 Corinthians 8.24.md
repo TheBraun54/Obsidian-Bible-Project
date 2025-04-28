@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Show ye therefore unto them in the face of the churches the proof of your love, and of our glorying on your behalf.
+Therefore show the proof of your love to them in front of the assemblies, and of our boasting on your behalf.

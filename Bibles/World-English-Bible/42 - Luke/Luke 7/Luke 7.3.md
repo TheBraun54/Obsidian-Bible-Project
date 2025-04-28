@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he heard concerning Jesus, he sent unto him elders of the Jews, asking him that he would come and save his servant.
+When he heard about Jesus, he sent to him elders of the Jews, asking him to come and save his servant.

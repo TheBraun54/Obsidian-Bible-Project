@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-nor filthiness, nor foolish talking, or jesting, which are not befitting: but rather giving of thanks.
+nor filthiness, nor foolish talking, nor jesting, which are not appropriate; but rather giving of thanks.

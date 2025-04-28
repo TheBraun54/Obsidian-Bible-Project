@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the eighth day he shall take to him two turtle-doves, or two young pigeons, and come before Jehovah unto the door of the tent of meeting, and give them unto the priest:
+"'On the eighth day he shall take two turtledoves, or two young pigeons, and come before Yahweh to the door of the Tent of Meeting, and give them to the priest:

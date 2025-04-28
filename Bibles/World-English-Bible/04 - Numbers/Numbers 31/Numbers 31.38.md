@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the oxen were thirty and six thousand; of which Jehovah's tribute was threescore and twelve.
+The cattle were thirty-six thousand; of which Yahweh's tribute was seventy-two.

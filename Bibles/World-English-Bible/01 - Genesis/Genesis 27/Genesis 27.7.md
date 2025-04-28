@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bring me venison, and make me savory food, that I may eat, and bless thee before Jehovah before my death.
+'Bring me venison, and make me savory food, that I may eat, and bless you before Yahweh before my death.'

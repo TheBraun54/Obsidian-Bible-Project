@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou in thy lovingkindness hast led the people that thou hast redeemed: Thou hast guided them in thy strength to thy holy habitation.
+"You, in your loving kindness, have led the people that you have redeemed. You have guided them in your strength to your holy habitation.

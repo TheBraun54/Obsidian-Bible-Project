@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest they tear my soul like a lion, Rending it in pieces, while there is none to deliver.
+lest they tear apart my soul like a lion, ripping it in pieces, while there is none to deliver.

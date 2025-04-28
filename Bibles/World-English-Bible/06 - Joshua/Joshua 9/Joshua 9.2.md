@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they gathered themselves together, to fight with Joshua and with Israel, with one accord.
+that they gathered themselves together to fight with Joshua and with Israel, with one accord.

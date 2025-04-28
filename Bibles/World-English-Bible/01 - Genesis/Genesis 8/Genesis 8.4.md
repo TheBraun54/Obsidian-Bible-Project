@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ark rested in the seventh month, on the seventeenth day of the month, upon the mountains of Ararat.
+The ship rested in the seventh month, on the seventeenth day of the month, on Ararat's mountains.

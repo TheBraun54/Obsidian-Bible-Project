@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall have neither son nor son's son among his people, Nor any remaining where he sojourned.
+He shall have neither son nor grandson among his people, nor any remaining where he lived.

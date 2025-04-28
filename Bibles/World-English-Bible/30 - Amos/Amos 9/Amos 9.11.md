@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day will I raise up the tabernacle of David that is fallen, and close up the breaches thereof; and I will raise up its ruins, and I will build it as in the days of old;
+In that day I will raise up the tent of David who is fallen, and close up its breaches, and I will raise up its ruins, and I will build it as in the days of old;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man borrow aught of his neighbor, and it be hurt, or die, the owner thereof not being with it, he shall surely make restitution.
+"If a man borrows anything of his neighbor's, and it is injured, or dies, its owner not being with it, he shall surely make restitution.

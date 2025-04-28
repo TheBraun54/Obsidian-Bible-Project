@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-now therefore, behold, the Lord bringeth up upon them the waters of the River, strong and many, [even] the king of Assyria and all his glory: and it shall come up over all its channels, and go over all its banks;
+now therefore, behold, the Lord brings upon them the mighty flood waters of the River: the king of Assyria and all his glory. It will come up over all its channels, and go over all its banks.

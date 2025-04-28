@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While the king sat at his table, My spikenard sent forth its fragrance.
+While the king sat at his table, my perfume spread its fragrance.

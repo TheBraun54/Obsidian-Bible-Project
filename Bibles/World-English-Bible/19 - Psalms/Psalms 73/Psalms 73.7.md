@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their eyes stand out with fatness: They have more than heart could wish.
+Their eyes bulge with fat. Their minds pass the limits of conceit.

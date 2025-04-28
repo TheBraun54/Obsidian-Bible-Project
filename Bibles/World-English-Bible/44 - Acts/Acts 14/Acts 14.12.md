@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they called Barnabas, Jupiter; and Paul, Mercury, because he was the chief speaker.
+They called Barnabas "Jupiter," and Paul "Mercury," because he was the chief speaker.

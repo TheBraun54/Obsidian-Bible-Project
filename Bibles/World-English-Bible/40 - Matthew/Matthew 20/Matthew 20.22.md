@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus answered and said, Ye know not what ye ask. Are ye able to drink the cup that I am about to drink? They say unto him, We are able.
+But Jesus answered, "You don't know what you are asking. Are you able to drink the cup that I am about to drink, and be baptized with the baptism that I am baptized with?" They said to him, "We are able."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked, and, behold, there was at his head a cake baken on the coals, and a cruse of water. And he did eat and drink, and laid him down again.
+He looked, and behold, there was at his head a cake baked on the coals, and a jar of water. He ate and drank, and laid down again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Kadesh: and the children of Israel, even the whole congregation, came unto mount Hor.
+They traveled from Kadesh: and the children of Israel, even the whole congregation, came to Mount Hor.

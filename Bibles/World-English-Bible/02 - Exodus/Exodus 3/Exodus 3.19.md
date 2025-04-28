@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I know that the king of Egypt will not give you leave to go, no, not by a mighty hand.
+I know that the king of Egypt won't give you permission to go, no, not by a mighty hand.

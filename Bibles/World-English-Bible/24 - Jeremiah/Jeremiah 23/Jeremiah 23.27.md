@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that think to cause my people to forget my name by their dreams which they tell every man to his neighbor, as their fathers forgat my name for Baal.
+who think to cause my people to forget my name by their dreams which they tell every man to his neighbor, as their fathers forgot my name for Baal.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am the door; by me if any man enter in, he shall be saved, and shall go in and go out, and shall find pasture.
+I am the door. If anyone enters in by me, he will be saved, and will go in and go out, and will find pasture.

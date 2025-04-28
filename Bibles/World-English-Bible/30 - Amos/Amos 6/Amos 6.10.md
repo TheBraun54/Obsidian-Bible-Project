@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when a man's uncle shall take him up, even he that burneth him, to bring out the bones out of the house, and shall say unto him that is in the innermost parts of the house, Is there yet any with thee? and he shall say, No; then shall he say, Hold thy peace; for we may not make mention of the name of Jehovah.
+"When a man's relative carries him, even he who burns him, to bring bodies out of the house, and asks him who is in the innermost parts of the house, 'Is there yet any with you?' And he says, 'No;' then he will say, 'Hush! Indeed we must not mention the name of Yahweh.'

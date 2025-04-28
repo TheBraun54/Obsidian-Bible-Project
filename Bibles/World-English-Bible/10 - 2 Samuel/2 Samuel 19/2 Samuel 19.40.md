@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the king went over to Gilgal, and Chimham went over with him: and all the people of Judah brought the king over, and also half the people of Israel.
+So the king went over to Gilgal, and Chimham went over with him. All the people of Judah brought the king over, and also half the people of Israel.

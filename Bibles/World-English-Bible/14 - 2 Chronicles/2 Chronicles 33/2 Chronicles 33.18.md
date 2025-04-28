@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the rest of the acts of Manasseh, and his prayer unto his God, and the words of the seers that spake to him in the name of Jehovah, the God of Israel, behold, they are written among the acts of the kings of Israel.
+Now the rest of the acts of Manasseh, and his prayer to his God, and the words of the seers who spoke to him in the name of Yahweh, the God of Israel, behold, they are written among the acts of the kings of Israel.

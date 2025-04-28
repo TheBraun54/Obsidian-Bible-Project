@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is weak, and I am not weak? who is caused to stumble, and I burn not?
+Who is weak, and I am not weak? Who is caused to stumble, and I don't burn with indignation?

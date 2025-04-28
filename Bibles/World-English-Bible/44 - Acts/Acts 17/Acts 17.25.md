@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither is he served by men's hands, as though he needed anything, seeing he himself giveth to all life, and breath, and all things;
+neither is he served by men's hands, as though he needed anything, seeing he himself gives to all life and breath, and all things.

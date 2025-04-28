@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that hour he cured many of diseases and plagues and evil spirits; and on many that were blind he bestowed sight.
+In that hour he cured many of diseases and plagues and evil spirits; and to many who were blind he gave sight.

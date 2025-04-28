@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-send them away, that they may go into the country and villages round about, and buy themselves somewhat to eat.
+Send them away, that they may go into the surrounding country and villages, and buy themselves bread, for they have nothing to eat."

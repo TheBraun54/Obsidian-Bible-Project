@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the sabbath was come, he began to teach in the synagogue: and many hearing him were astonished, saying, Whence hath this man these things? and, What is the wisdom that is given unto this man, and [what mean] such mighty works wrought by his hands?
+When the Sabbath had come, he began to teach in the synagogue, and many hearing him were astonished, saying, "Where did this man get these things?" and, "What is the wisdom that is given to this man, that such mighty works come about by his hands?

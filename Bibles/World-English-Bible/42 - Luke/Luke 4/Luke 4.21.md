@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he began to say unto them, To-day hath this scripture been fulfilled in your ears.
+He began to tell them, "Today, this Scripture has been fulfilled in your hearing."

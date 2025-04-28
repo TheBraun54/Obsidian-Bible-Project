@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king went forth, and all the people after him; and they tarried in Beth-merhak.
+The king went forth, and all the people after him; and they stayed in Beth Merhak.

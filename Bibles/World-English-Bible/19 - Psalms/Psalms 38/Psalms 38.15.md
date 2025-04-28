@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in thee, O Jehovah, do I hope: Thou wilt answer, O Lord my God.
+For in you, Yahweh, do I hope. You will answer, Lord my God.

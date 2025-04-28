@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set a watch, O Jehovah, before my mouth; Keep the door of my lips.
+Set a watch, Yahweh, before my mouth. Keep the door of my lips.

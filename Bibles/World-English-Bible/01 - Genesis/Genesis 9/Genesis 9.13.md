@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I do set my bow in the cloud, and it shall be for a token of a covenant between me and the earth.
+I set my rainbow in the cloud, and it will be for a sign of a covenant between me and the earth.

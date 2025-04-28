@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Thou shalt not pass through. And Edom came out against him with much people, and with a strong hand.
+He said, "You shall not pass through." Edom came out against him with many people, and with a strong hand.

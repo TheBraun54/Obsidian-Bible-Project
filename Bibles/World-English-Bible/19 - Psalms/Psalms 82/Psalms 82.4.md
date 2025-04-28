@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rescue the poor and needy: Deliver them out of the hand of the wicked.
+Rescue the weak and needy. Deliver them out of the hand of the wicked."

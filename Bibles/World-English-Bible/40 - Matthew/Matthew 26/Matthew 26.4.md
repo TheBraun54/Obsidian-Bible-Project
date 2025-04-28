@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they took counsel together that they might take Jesus by subtlety, and kill him.
+They took counsel together that they might take Jesus by deceit, and kill him.

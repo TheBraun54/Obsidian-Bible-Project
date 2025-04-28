@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For [there shall be] the seed of peace; the vine shall give its fruit, and the ground shall give its increase, and the heavens shall give their dew; and I will cause the remnant of this people to inherit all these things.
+"For the seed of peace and the vine will yield its fruit, and the ground will give its increase, and the heavens will give their dew; and I will cause the remnant of this people to inherit all these things.

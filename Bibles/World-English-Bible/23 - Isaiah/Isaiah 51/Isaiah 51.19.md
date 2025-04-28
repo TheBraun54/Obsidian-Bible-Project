@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These two things are befallen thee, who shall bemoan thee? desolation and destruction, and the famine and the sword; how shall I comfort thee?
+These two things have happened to you. Who will bemoan you? Desolation and destruction, and the famine and the sword; how shall I comfort you?

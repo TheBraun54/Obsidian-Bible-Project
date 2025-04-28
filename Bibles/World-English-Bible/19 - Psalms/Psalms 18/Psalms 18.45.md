@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The foreigners shall fade away, And shall come trembling out of their close places.
+The foreigners shall fade away, and shall come trembling out of their close places.

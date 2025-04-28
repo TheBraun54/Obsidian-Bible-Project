@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come now, ye that say, To-day or to-morrow we will go into this city, and spend a year there, and trade, and get gain:
+Come now, you who say, "Today or tomorrow let's go into this city, and spend a year there, trade, and make a profit."

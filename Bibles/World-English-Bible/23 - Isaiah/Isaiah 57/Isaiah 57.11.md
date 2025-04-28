@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of whom hast thou been afraid and in fear, that thou liest, and hast not remembered me, nor laid it to thy heart? have not I held my peace even of long time, and thou fearest me not?
+"Of whom have you been afraid and in fear, that you lie, and have not remembered me, nor laid it to your heart? Haven't I held my peace even of long time, and you don't fear me?

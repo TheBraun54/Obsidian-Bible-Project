@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not uncover the nakedness of thy mother's sister: for she is thy mother's near kinswoman.
+"'You shall not uncover the nakedness of your mother's sister: for she is your mother's near kinswoman.

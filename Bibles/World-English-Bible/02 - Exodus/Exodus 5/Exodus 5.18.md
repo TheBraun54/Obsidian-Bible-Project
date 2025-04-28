@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go therefore now, and work; for there shall no straw be given you, yet shall ye deliver the number of bricks.
+Go therefore now, and work, for no straw shall be given to you, yet you shall deliver the same number of bricks!"

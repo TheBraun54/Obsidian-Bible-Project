@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Bene-jaakan, and encamped in Hor-haggidgad.
+They traveled from Bene Jaakan, and encamped in Hor Haggidgad.

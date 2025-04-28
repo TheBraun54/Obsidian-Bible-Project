@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the high and lofty One that inhabiteth eternity, whose name is Holy: I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite.
+For thus says the high and lofty One who inhabits eternity, whose name is Holy: "I dwell in the high and holy place, with him also who is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king answered and said, Give her the living child, and in no wise slay it: she is the mother thereof.
+Then the king answered, "Give her the living child, and in no way kill it. She is its mother."

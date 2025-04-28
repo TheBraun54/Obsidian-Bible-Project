@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah received the letter from the hand of the messengers, and read it; and Hezekiah went up unto the house of Jehovah, and spread it before Jehovah.
+Hezekiah received the letter from the hand of the messengers, and read it. Then Hezekiah went up to the house of Yahweh, and spread it before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He chose David also his servant, And took him from the sheepfolds:
+He also chose David his servant, and took him from the sheepfolds;

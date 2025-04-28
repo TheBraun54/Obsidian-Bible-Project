@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Abiathar the priest said the king, Get thee to Anathoth, unto thine own fields; for thou art worthy of death: but I will not at this time put thee to death, because thou barest the ark of the Lord Jehovah before David my father, and because thou wast afflicted in all wherein my father was afflicted.
+To Abiathar the priest the king said, "Go to Anathoth, to your own fields; for you are worthy of death. But I will not at this time put you to death, because you bore the ark of the Lord Yahweh before David my father, and because you were afflicted in all in which my father was afflicted."

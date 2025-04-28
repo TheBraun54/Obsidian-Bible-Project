@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had made an end, they brought the rest of the money before the king and Jehoiada, whereof were made vessels for the house of Jehovah, even vessels wherewith to minister and to offer, and spoons, and vessels of gold and silver. And they offered burnt-offerings in the house of Jehovah continually all the days of Jehoiada.
+When they had made an end, they brought the rest of the money before the king and Jehoiada, of which were made vessels for the house of Yahweh, even vessels with which to minister and to offer, and spoons, and vessels of gold and silver. They offered burnt offerings in the house of Yahweh continually all the days of Jehoiada.

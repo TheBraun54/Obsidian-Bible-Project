@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even the prophet Jeremiah said, Amen: Jehovah do so; Jehovah perform thy words which thou hast prophesied, to bring again the vessels of Jehovah's house, and all them of the captivity, from Babylon unto this place.
+even the prophet Jeremiah said, Amen: Yahweh do so; Yahweh perform your words which you have prophesied, to bring again the vessels of Yahweh's house, and all them of the captivity, from Babylon to this place.

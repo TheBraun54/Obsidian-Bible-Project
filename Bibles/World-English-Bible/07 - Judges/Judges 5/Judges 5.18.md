@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zebulun was a people that jeoparded their lives unto the death, And Naphtali, upon the high places of the field.
+Zebulun was a people that jeopardized their lives to the deaths; Naphtali also, on the high places of the field.

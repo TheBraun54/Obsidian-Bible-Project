@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said to her father, Let not my lord be angry that I cannot rise up before thee; for the manner of women is upon me. And he searched, but found not the teraphim.
+She said to her father, "Don't let my lord be angry that I can't rise up before you; for I'm having my period." He searched, but didn't find the teraphim.

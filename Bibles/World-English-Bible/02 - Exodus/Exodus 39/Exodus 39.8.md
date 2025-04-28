@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the breastplate, the work of the skilful workman, like the work of the ephod; of gold, of blue, and purple, and scarlet, and fine twined linen.
+He made the breastplate, the work of a skillful workman, like the work of the ephod; of gold, of blue, purple, scarlet, and fine twined linen.

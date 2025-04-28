@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh me to lie down in green pastures; He leadeth me beside still waters.
+He makes me lie down in green pastures. He leads me beside still waters.

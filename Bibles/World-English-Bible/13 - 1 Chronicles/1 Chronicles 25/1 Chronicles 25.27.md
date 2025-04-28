@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the twentieth to Eliathah, his sons and his brethren, twelve:
+for the twentieth to Eliathah, his sons and his brothers, twelve:

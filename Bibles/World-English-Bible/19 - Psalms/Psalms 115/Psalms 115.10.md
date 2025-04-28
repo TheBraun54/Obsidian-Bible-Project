@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O house of Aaron, trust ye in Jehovah: He is their help and their shield.
+House of Aaron, trust in Yahweh! He is their help and their shield.

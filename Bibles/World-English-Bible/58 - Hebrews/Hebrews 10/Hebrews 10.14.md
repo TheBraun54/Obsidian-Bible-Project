@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by one offering he hath perfected for ever them that are sanctified.
+For by one offering he has perfected forever those who are being sanctified.

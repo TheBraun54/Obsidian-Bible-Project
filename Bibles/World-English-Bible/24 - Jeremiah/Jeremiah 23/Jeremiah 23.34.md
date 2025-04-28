@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for the prophet, and the priest, and the people, that shall say, The burden of Jehovah, I will even punish that man and his house.
+As for the prophet, and the priest, and the people, who shall say, The burden of Yahweh, I will even punish that man and his house.

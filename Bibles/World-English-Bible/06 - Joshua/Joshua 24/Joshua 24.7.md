@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they cried out unto Jehovah, he put darkness between you and the Egyptians, and brought the sea upon them, and covered them; and your eyes saw what I did in Egypt: and ye dwelt in the wilderness many days.
+When they cried out to Yahweh, he put darkness between you and the Egyptians, and brought the sea on them, and covered them; and your eyes saw what I did in Egypt: and you lived in the wilderness many days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If therefore thou art offering thy gift at the altar, and there rememberest that thy brother hath aught against thee,
+"If therefore you are offering your gift at the altar, and there remember that your brother has anything against you,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall have an inheritance: I am their inheritance; and ye shall give them no possession in Israel; I am their possession.
+They shall have an inheritance: I am their inheritance; and you shall give them no possession in Israel; I am their possession.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah knoweth the way of the righteous; But the way of the wicked shall perish.
+For Yahweh knows the way of the righteous, but the way of the wicked shall perish.

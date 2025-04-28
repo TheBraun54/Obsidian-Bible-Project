@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now he spake of Judas [the son] of Simon Iscariot, for he it was that should betray him, [being] one of the twelve.
+Now he spoke of Judas, the son of Simon Iscariot, for it was he who would betray him, being one of the twelve.

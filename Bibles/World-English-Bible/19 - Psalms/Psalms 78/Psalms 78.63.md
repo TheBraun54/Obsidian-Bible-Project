@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fire devoured their young men; And their virgins had no marriage-song.
+Fire devoured their young men. Their virgins had no wedding song.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took up Asahel, and buried him in the sepulchre of his father, which was in Beth-lehem. And Joab and his men went all night, and the day brake upon them at Hebron.
+They took up Asahel, and buried him in the tomb of his father, which was in Bethlehem. Joab and his men went all night, and the day broke on them at Hebron.

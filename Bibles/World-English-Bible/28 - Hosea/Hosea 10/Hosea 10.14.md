@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall a tumult arise among thy people, and all thy fortresses shall be destroyed, as Shalman destroyed Beth-arbel in the day of battle: the mother was dashed in pieces with her children.
+Therefore a battle roar will arise among your people, and all your fortresses will be destroyed, as Shalman destroyed Beth Arbel in the day of battle. The mother was dashed in pieces with her children.

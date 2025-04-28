@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it not thou that driedst up the sea, the waters of the great deep; that madest the depths of the sea a way for the redeemed to pass over?
+Isn't it you who dried up the sea, the waters of the great deep; who made the depths of the sea a way for the redeemed to pass over?

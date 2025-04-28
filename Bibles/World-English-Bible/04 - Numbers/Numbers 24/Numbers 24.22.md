@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless Kain shall be wasted, Until Asshur shall carry thee away captive.
+Nevertheless Kain shall be wasted, until Asshur carries you away captive."

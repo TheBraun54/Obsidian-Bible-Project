@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O inhabitant of Aroer, stand by the way, and watch: ask him that fleeth, and her that escapeth; say, What hath been done?
+Inhabitant of Aroer, stand by the way, and watch: ask him who flees, and her who escapes; say, What has been done?

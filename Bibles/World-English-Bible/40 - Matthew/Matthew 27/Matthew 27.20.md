@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the chief priests and the elders persuaded the multitudes that they should ask for Barabbas, and destroy Jesus.
+Now the chief priests and the elders persuaded the multitudes to ask for Barabbas, and destroy Jesus.

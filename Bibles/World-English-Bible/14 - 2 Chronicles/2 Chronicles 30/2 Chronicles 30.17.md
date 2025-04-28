@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there were many in the assembly that had not sanctified themselves: therefore the Levites had the charge of killing the passovers for every one that was not clean, to sanctify them unto Jehovah.
+For there were many in the assembly who had not sanctified themselves: therefore the Levites were in charge of killing the Passovers for everyone who was not clean, to sanctify them to Yahweh.

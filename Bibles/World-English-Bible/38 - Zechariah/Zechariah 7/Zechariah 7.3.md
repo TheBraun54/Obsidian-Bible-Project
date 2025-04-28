@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ and] to speak unto the priests of the house of Jehovah of hosts, and to the prophets, saying, Should I weep in the fifth month, separating myself, as I have done these so many years?
+and to speak to the priests of the house of Yahweh of Armies, and to the prophets, saying, "Should I weep in the fifth month, separating myself, as I have done these so many years?"

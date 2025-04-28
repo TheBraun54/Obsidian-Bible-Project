@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She dealeth hardly with her young ones, as if they were not hers: Though her labor be in vain, [she is] without fear;
+She deals harshly with her young ones, as if they were not hers. Though her labor is in vain, she is without fear,

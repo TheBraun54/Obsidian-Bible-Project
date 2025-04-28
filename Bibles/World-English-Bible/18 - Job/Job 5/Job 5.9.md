@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who doeth great things and unsearchable, Marvellous things without number:
+who does great things that can't be fathomed, marvelous things without number;

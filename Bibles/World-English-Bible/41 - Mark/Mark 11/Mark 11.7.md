@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they bring the colt unto Jesus, and cast on him their garments; and he sat upon him.
+They brought the young donkey to Jesus, and threw their garments on it, and Jesus sat on it.

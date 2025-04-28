@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But she that giveth herself to pleasure is dead while she liveth.
+But she who gives herself to pleasure is dead while she lives.

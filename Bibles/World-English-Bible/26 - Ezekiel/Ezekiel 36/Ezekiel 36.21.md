@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I had regard for my holy name, which the house of Israel had profaned among the nations, whither they went.
+But I had respect for my holy name, which the house of Israel had profaned among the nations, where they went.

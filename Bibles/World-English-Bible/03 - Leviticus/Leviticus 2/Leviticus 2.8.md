@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bring the meal-offering that is made of these things unto Jehovah: and it shall be presented unto the priest, and he shall bring it unto the altar.
+You shall bring the meal offering that is made of these things to Yahweh: and it shall be presented to the priest, and he shall bring it to the altar.

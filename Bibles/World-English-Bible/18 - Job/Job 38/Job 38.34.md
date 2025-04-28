@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou lift up thy voice to the clouds, That abundance of waters may cover thee?
+"Can you lift up your voice to the clouds, That abundance of waters may cover you?

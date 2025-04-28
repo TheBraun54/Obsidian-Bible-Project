@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us therefore go forth unto him without the camp, bearing his reproach.
+Let us therefore go out to him outside of the camp, bearing his reproach.

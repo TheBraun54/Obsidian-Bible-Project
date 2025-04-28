@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will drink of the brook in the way: Therefore will he lift up the head.
+He will drink of the brook in the way; therefore he will lift up his head.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man said unto Eli, I am he that came out of the army, and I fled to-day out of the army. And he said, How went the matter, my son?
+The man said to Eli, "I am he who came out of the army, and I fled today out of the army." He said, "How did the matter go, my son?"

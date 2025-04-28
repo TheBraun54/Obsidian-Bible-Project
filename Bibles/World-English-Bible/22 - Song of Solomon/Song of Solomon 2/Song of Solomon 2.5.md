@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stay ye me with raisins, refresh me with apples; For I am sick from love.
+Strengthen me with raisins, refresh me with apples; For I am faint with love.

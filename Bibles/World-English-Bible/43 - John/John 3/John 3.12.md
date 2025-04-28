@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I told you earthly things and ye believe not, how shall ye believe if I tell you heavenly things?
+If I told you earthly things and you don't believe, how will you believe if I tell you heavenly things?

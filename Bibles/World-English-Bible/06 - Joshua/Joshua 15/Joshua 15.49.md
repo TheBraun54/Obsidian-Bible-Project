@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Dannah, and Kiriath-sannah (the same is Debir),
+Dannah, Kiriath Sannah (which is Debir),

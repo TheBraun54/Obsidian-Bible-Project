@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the morning, that David wrote a letter to Joab, and sent it by the hand of Uriah.
+It happened in the morning, that David wrote a letter to Joab, and sent it by the hand of Uriah.

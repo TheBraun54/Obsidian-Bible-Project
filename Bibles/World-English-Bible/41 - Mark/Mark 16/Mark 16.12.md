@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after these things he was manifested in another form unto two of them, as they walked, on their way into the country.
+After these things he was revealed in another form to two of them, as they walked, on their way into the country.

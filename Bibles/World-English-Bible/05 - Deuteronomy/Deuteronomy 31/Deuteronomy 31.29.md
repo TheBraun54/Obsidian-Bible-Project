@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I know that after my death ye will utterly corrupt yourselves, and turn aside from the way which I have commanded you; and evil will befall you in the latter days; because ye will do that which is evil in the sight of Jehovah, to provoke him to anger through the work of your hands.
+For I know that after my death you will utterly corrupt yourselves, and turn aside from the way which I have commanded you; and evil will happen to you in the latter days; because you will do that which is evil in the sight of Yahweh, to provoke him to anger through the work of your hands."

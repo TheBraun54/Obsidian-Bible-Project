@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A king that sitteth on the throne of judgment Scattereth away all evil with his eyes.
+A king who sits on the throne of judgment scatters away all evil with his eyes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are ye when [men] shall reproach you, and persecute you, and say all manner of evil against you falsely, for my sake.
+"Blessed are you when people reproach you, persecute you, and say all kinds of evil against you falsely, for my sake.

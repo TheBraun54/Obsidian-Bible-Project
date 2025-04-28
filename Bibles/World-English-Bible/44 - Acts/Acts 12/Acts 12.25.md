@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Barnabas and Saul returned from Jerusalem, when they had fulfilled their ministration, taking with them John whose surname was Mark.
+Barnabas and Saul returned to Jerusalem, when they had fulfilled their service, also taking with them John whose surname was Mark.

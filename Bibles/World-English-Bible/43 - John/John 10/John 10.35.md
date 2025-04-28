@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he called them gods, unto whom the word of God came (and the scripture cannot be broken),
+If he called them gods, to whom the word of God came (and the Scripture can't be broken),

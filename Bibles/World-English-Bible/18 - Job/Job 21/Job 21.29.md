@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have ye not asked wayfaring men? And do ye not know their evidences,
+Haven't you asked wayfaring men? Don't you know their evidences,

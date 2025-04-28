@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That the residue of men may seek after the Lord, And all the Gentiles, upon whom my name is called,
+That the rest of men may seek after the Lord; All the Gentiles who are called by my name, Says the Lord, who does all these things.

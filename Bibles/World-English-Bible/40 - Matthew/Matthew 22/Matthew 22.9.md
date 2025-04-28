@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye therefore unto the partings of the highways, and as many as ye shall find, bid to the marriage feast.
+Go therefore to the intersections of the highways, and as many as you may find, invite to the marriage feast.'

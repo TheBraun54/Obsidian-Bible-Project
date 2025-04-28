@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall never be inhabited, neither shall it be dwelt in from generation to generation: neither shall the Arabian pitch tent there; neither shall shepherds make their flocks to lie down there.
+It will never be inhabited, neither will it be lived in from generation to generation. The Arabian will not pitch a tent there, neither will shepherds make their flocks lie down there.

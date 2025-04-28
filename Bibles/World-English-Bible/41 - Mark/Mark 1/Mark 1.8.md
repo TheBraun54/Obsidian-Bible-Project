@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I baptized you in water; But he shall baptize you in the Holy Spirit.
+I baptized you in water, but he will baptize you in the Holy Spirit."

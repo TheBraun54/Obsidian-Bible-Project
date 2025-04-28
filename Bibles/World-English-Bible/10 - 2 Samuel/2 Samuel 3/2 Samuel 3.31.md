@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Joab, and to all the people that were with him, Rend your clothes, and gird you with sackcloth, and mourn before Abner. And king David followed the bier.
+David said to Joab, and to all the people who were with him, Tear your clothes, and clothe yourselves with sackcloth, and mourn before Abner. King David followed the bier.

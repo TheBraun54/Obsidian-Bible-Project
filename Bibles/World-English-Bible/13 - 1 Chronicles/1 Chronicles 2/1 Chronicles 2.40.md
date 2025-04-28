@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Eleasah begat Sismai, and Sismai begat Shallum,
+and Eleasah became the father of Sismai, and Sismai became the father of Shallum,

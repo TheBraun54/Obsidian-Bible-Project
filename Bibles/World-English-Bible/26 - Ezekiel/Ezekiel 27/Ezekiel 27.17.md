@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judah, and the land of Israel, they were thy traffickers: they traded for thy merchandise wheat of Minnith, and pannag, and honey, and oil, and balm.
+Judah, and the land of Israel, they were your traffickers: they traded for your merchandise wheat of Minnith, and confections, and honey, and oil, and balm.

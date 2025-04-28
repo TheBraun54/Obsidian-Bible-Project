@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rebekah had a brother, and his name was Laban: and Laban ran out unto the man, unto the fountain.
+Rebekah had a brother, and his name was Laban. Laban ran out to the man, to the spring.

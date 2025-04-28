@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Rehoboam was come to Jerusalem, he assembled all the house of Judah, and the tribe of Benjamin, a hundred and fourscore thousand chosen men, that were warriors, to fight against the house of Israel, to bring the kingdom again to Rehoboam the son of Solomon.
+When Rehoboam was come to Jerusalem, he assembled all the house of Judah, and the tribe of Benjamin, a hundred and eighty thousand chosen men, who were warriors, to fight against the house of Israel, to bring the kingdom again to Rehoboam the son of Solomon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king arose in the night, and said unto his servants, I will now show you what the Syrians have done to us. They know that we are hungry; therefore are they gone out of the camp to hide themselves in the field, saying, When they come out of the city, we shall take them alive, and get into the city.
+The king arose in the night, and said to his servants, "I will now show you what the Syrians have done to us. They know that we are hungry. Therefore are they gone out of the camp to hide themselves in the field, saying, 'When they come out of the city, we shall take them alive, and get into the city.'"

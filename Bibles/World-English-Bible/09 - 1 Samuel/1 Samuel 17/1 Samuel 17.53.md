@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel returned from chasing after the Philistines, and they plundered their camp.
+The children of Israel returned from chasing after the Philistines, and they plundered their camp.

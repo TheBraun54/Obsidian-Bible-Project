@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Simon Peter answered him, Lord, to whom shall we go? thou hast the words of eternal life.
+Simon Peter answered him, "Lord, to whom would we go? You have the words of eternal life.

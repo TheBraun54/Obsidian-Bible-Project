@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are they that wash their robes, that they may have the right [to come] to the tree of life, and may enter in by the gates into the city.
+Blessed are those who do his commandments, that they may have the right to the tree of life, and may enter in by the gates into the city.

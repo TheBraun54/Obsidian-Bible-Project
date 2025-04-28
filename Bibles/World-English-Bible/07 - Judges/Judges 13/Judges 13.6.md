@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the woman came and told her husband, saying, A man of God came unto me, and his countenance was like the countenance of the angel of God, very terrible; and I asked him not whence he was, neither told he me his name:
+Then the woman came and told her husband, saying, "A man of God came to me, and his face was like the face of the angel of God, very awesome; and I didn't ask him where he was from, neither did he tell me his name:

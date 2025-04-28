@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, when they came into the midst of the city, that Ishmael the son of Nethaniah slew them, [and cast them] into the midst of the pit, he, and the men that were with him.
+It was so, when they came into the midst of the city, that Ishmael the son of Nethaniah killed them, [and cast them] into the midst of the pit, he, and the men who were with him.

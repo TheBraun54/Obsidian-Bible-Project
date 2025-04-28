@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he prepared an oracle in the midst of the house within, to set there the ark of the covenant of Jehovah.
+He prepared an oracle in the midst of the house within, to set there the ark of the covenant of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Mizpeh, and Chephirah, and Mozah,
+Mizpeh, Chephirah, Mozah,

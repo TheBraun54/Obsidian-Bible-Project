@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore it shall come to pass, that, when the Lord hath performed his whole work upon mount Zion and on Jerusalem, I will punish the fruit of the stout heart of the king of Assyria, and the glory of his high looks.
+Therefore it will happen that, when the Lord has performed his whole work on Mount Zion and on Jerusalem, I will punish the fruit of the willful proud heart of the king of Assyria, and the insolence of his haughty looks.

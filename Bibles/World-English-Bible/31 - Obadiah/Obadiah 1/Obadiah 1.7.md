@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the men of thy confederacy have brought thee on thy way, even to the border: the men that were at peace with thee have deceived thee, and prevailed against thee; [they that eat] thy bread lay a snare under thee: there is no understanding in him.
+All the men of your alliance have brought you on your way, even to the border. The men who were at peace with you have deceived you, and prevailed against you. Friends who eat your bread lay a snare under you. There is no understanding in him."

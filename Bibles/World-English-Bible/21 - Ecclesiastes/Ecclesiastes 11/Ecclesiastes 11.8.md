@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, if a man live many years, let him rejoice in them all; but let him remember the days of darkness, for they shall be many. All that cometh is vanity.
+Yes, if a man lives many years, let him rejoice in them all; but let him remember the days of darkness, for they shall be many. All that comes is vanity.

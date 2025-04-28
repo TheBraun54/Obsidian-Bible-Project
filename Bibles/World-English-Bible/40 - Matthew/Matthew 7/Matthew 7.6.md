@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give not that which is holy unto the dogs, neither cast your pearls before the swine, lest haply they trample them under their feet, and turn and rend you.
+"Don't give that which is holy to the dogs, neither throw your pearls before the pigs, lest perhaps they trample them under their feet, and turn and tear you to pieces.

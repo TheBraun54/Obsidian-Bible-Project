@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt surely tithe all the increase of thy seed, that which cometh forth from the field year by year.
+You shall surely tithe all the increase of your seed, that which comes forth from the field year by year.

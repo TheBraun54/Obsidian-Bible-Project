@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We are ambassadors therefore on behalf of Christ, as though God were entreating by us: we beseech [you] on behalf of Christ, be ye reconciled to God.
+We are therefore ambassadors on behalf of Christ, as though God were entreating by us: we beg you on behalf of Christ, be reconciled to God.

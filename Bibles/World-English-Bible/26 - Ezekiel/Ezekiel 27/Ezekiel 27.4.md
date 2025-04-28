@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy borders are in the heart of the seas; thy builders have perfected thy beauty.
+Your borders are in the heart of the seas; your builders have perfected your beauty.

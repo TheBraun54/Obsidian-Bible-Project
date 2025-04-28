@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he changeth the times and the seasons; he removeth kings, and setteth up kings; he giveth wisdom unto the wise, and knowledge to them that have understanding;
+He changes the times and the seasons; he removes kings, and sets up kings; he gives wisdom to the wise, and knowledge to those who have understanding;

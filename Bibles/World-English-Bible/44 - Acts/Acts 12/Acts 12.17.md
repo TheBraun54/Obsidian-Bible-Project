@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he, beckoning unto them with the hand to hold their peace, declared unto them how the Lord had brought him forth out of the prison. And he said, Tell these things unto James, and to the brethren. And he departed, and went to another place.
+But he, beckoning to them with his hand to be silent, declared to them how the Lord had brought him out of the prison. He said, "Tell these things to James, and to the brothers." Then he departed, and went to another place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and God shall glorify him in himself, and straightway shall he glorify him.
+If God has been glorified in him, God will also glorify him in himself, and he will glorify him immediately.

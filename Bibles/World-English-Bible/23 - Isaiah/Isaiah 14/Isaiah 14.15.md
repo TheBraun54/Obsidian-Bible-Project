@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet thou shalt be brought down to Sheol, to the uttermost parts of the pit.
+Yet you shall be brought down to Sheol, to the depths of the pit.

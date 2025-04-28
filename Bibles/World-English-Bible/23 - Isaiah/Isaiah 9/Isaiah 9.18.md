@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For wickedness burneth as the fire; it devoureth the briers and thorns; yea, it kindleth in the thickets of the forest, and they roll upward in a column of smoke.
+For wickedness burns like a fire. It devours the briers and thorns; yes, it kindles in the thickets of the forest, and they roll upward in a column of smoke.

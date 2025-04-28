@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elon the Zebulunite died, and was buried in Aijalon in the land of Zebulun.
+Elon the Zebulunite died, and was buried in Aijalon in the land of Zebulun.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hate the evil, and love the good, and establish justice in the gate: it may be that Jehovah, the God of hosts, will be gracious unto the remnant of Joseph.
+Hate evil, love good, and establish justice in the courts. It may be that Yahweh, the God of Armies, will be gracious to the remnant of Joseph."

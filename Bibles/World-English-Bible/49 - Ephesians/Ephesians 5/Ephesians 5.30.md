@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because we are members of his body.
+because we are members of his body, of his flesh and bones.

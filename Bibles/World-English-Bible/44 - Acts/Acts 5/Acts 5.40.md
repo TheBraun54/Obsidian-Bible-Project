@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to him they agreed: and when they had called the apostles unto them, they beat them and charged them not to speak in the name of Jesus, and let them go.
+They agreed with him. Summoning the apostles, they beat them and commanded them not to speak in the name of Jesus, and let them go.

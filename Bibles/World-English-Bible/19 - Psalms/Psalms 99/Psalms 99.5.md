@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Exalt ye Jehovah our God, And worship at his footstool: Holy is he.
+Exalt Yahweh our God. Worship at his footstool. He is Holy!

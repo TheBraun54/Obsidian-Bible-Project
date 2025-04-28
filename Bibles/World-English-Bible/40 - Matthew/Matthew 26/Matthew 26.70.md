@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he denied before them all, saying, I know not what thou sayest.
+But he denied it before them all, saying, "I don't know what you are talking about."

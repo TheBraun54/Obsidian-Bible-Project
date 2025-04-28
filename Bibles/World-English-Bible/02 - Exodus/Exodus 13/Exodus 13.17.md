@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Pharaoh had let the people go, that God led them not by the way of the land of the Philistines, although that was near; for God said, Lest peradventure the people repent when they see war, and they return to Egypt:
+It happened, when Pharaoh had let the people go, that God didn't lead them by the way of the land of the Philistines, although that was near; for God said, "Lest perhaps the people change their minds when they see war, and they return to Egypt;"

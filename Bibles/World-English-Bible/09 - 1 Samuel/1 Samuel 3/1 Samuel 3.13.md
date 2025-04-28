@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have told him that I will judge his house for ever, for the iniquity which he knew, because his sons did bring a curse upon themselves, and he restrained them not.
+For I have told him that I will judge his house forever, for the iniquity which he knew, because his sons brought a curse on themselves, and he didn't restrain them.

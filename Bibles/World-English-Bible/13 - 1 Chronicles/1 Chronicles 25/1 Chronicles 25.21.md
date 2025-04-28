@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the fourteenth, Mattithiah, his sons and his brethren, twelve:
+for the fourteenth, Mattithiah, his sons and his brothers, twelve:

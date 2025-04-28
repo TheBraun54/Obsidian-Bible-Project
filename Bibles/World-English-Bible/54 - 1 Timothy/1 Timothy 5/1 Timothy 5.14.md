@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I desire therefore that the younger [widows] marry, bear children, rule the household, give no occasion to the adversary for reviling:
+I desire therefore that the younger widows marry, bear children, rule the household, and give no occasion to the adversary for insulting.

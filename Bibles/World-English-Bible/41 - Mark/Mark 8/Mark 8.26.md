@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent him away to his home, saying, Do not even enter into the village.
+He sent him away to his house, saying, "Don't enter into the village, nor tell anyone in the village."

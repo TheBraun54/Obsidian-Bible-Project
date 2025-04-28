@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he entered into the temple, and began to cast out them that sold,
+He entered into the temple, and began to drive out those who bought and sold in it,

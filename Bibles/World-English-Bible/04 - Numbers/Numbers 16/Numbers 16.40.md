@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to be a memorial unto the children of Israel, to the end that no stranger, that is not of the seed of Aaron, come near to burn incense before Jehovah; that he be not as Korah, and as his company: as Jehovah spake unto him by Moses.
+to be a memorial to the children of Israel, to the end that no stranger, who isn't of the seed of Aaron, comes near to burn incense before Yahweh; that he not be as Korah, and as his company: as Yahweh spoke to him by Moses.

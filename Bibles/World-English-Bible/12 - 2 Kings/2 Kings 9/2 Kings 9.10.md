@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the dogs shall eat Jezebel in the portion of Jezreel, and there shall be none to bury her. And he opened the door, and fled.
+The dogs will eat Jezebel on the plot of ground of Jezreel, and there shall be none to bury her.'" He opened the door, and fled.

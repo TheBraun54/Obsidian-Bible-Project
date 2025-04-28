@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Thus saith Jehovah, Because thou hast let go out of thy hand the man whom I had devoted to destruction, therefore thy life shall go for his life, and thy people for his people.
+He said to him, "Thus says Yahweh, 'Because you have let go out of your hand the man whom I had devoted to destruction, therefore your life shall go for his life, and your people for his people.'"

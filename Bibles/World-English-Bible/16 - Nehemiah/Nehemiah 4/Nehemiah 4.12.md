@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass that, when the Jews that dwelt by them came, they said unto us ten times from all places, Ye must return unto us.
+It happened that when the Jews who lived by them came, they said to us ten times from all places, "Wherever you turn, they will attack us."

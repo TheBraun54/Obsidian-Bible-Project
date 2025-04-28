@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for me, I said in my haste, I am cut off from before thine eyes: Nevertheless thou heardest the voice of my supplications When I cried unto thee.
+As for me, I said in my haste, "I am cut off from before your eyes." Nevertheless you heard the voice of my petitions when I cried to you.

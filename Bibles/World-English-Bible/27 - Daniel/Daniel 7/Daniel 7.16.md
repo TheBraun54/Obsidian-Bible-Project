@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I came near unto one of them that stood by, and asked him the truth concerning all this. So he told me, and made me know the interpretation of the things.
+I came near to one of those who stood by, and asked him the truth concerning all this. So he told me, and made me know the interpretation of the things.

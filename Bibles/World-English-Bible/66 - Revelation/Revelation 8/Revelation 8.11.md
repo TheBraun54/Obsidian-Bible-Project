@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the name of the star is called Wormwood: and the third part of the waters became wormwood; and many men died of the waters, because they were made bitter.
+The name of the star is called "Wormwood." One third of the waters became wormwood. Many people died from the waters, because they were made bitter.

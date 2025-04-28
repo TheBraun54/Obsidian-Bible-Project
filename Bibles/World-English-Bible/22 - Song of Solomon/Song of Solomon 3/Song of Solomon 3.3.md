@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The watchmen that go about the city found me; [To whom I said], Saw ye him whom my soul loveth?
+The watchmen who go about the city found me; "Have you seen him whom my soul loves?"

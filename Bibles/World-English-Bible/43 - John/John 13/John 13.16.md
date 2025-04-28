@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily, verily, I say unto you, A servant is not greater than his lord; neither one that is sent greater than he that sent him.
+Most certainly I tell you, a servant is not greater than his lord, neither one who is sent greater than he who sent him.

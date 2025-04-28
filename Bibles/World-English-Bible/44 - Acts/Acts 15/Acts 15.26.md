@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-men that have hazarded their lives for the name of our Lord Jesus Christ.
+men who have risked their lives for the name of our Lord Jesus Christ.

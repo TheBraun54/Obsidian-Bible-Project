@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Artaxerxes, king of kings, unto Ezra the priest, the scribe of the law of the God of heaven, perfect and so forth.
+Artaxerxes, king of kings, to Ezra the priest, the scribe of the law of the God of heaven, perfect and so forth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt remember that thou wast a bondman in Egypt: and thou shalt observe and do these statutes.
+You shall remember that you were a bondservant in Egypt: and you shall observe and do these statutes.

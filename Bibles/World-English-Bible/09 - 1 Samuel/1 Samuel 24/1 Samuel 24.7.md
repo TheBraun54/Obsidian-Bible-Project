@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David checked his men with these words, and suffered them not to rise against Saul. And Saul rose up out of the cave, and went on his way.
+So David checked his men with these words, and didn't allow them to rise against Saul. Saul rose up out of the cave, and went on his way.

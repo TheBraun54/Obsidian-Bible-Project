@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will take the cup of salvation, And call upon the name of Jehovah.
+I will take the cup of salvation, and call on the name of Yahweh.

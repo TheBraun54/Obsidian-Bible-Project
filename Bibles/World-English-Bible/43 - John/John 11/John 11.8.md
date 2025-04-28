@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The disciples say unto him, Rabbi, the Jews were but now seeking to stone thee; and goest thou thither again?
+The disciples told him, "Rabbi, the Jews were just trying to stone you, and are you going there again?"

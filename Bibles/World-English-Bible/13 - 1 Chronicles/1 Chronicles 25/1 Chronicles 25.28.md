@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the one and twentieth to Hothir, his sons and his brethren, twelve:
+for the one and twentieth to Hothir, his sons and his brothers, twelve:

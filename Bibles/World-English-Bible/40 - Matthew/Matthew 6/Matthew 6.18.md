@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou be not seen of men to fast, but of thy Father who is in secret: and thy Father, who seeth in secret, shall recompense thee.
+so that you are not seen by men to be fasting, but by your Father who is in secret, and your Father, who sees in secret, will reward you.

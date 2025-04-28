@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the peaceable folds are brought to silence because of the fierce anger of Jehovah.
+The peaceable folds are brought to silence because of the fierce anger of Yahweh.

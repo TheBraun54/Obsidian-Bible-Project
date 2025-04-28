@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will bring them, and they shall dwell in the midst of Jerusalem; and they shall be my people, and I will be their God, in truth and in righteousness.
+and I will bring them, and they will dwell in the midst of Jerusalem; and they will be my people, and I will be their God, in truth and in righteousness."

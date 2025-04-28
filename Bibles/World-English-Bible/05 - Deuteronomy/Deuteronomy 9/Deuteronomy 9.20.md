@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah was very angry with Aaron to destroy him: and I prayed for Aaron also at the same time.
+Yahweh was very angry with Aaron to destroy him: and I prayed for Aaron also at the same time.

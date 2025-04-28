@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear ye the word of Jehovah, O house of Jacob, and all the families of the house of Israel:
+Hear the word of Yahweh, O house of Jacob, and all the families of the house of Israel!

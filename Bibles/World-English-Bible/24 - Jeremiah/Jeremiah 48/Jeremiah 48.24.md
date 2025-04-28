@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and upon Kerioth, and upon Bozrah, and upon all the cities of the land of Moab, far or near.
+and on Kerioth, and on Bozrah, and on all the cities of the land of Moab, far or near.

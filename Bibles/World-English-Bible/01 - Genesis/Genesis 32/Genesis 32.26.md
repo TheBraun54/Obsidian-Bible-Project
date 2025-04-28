@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Let me go, for the day breaketh. And he said, I will not let thee go, except thou bless me.
+The man said, "Let me go, for the day breaks." Jacob said, "I won't let you go, unless you bless me."

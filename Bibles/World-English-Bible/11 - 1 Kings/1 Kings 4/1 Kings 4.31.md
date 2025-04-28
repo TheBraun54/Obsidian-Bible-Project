@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he was wiser than all men; than Ethan the Ezrahite, and Heman, and Calcol, and Darda, the sons of Mahol: and his fame was in all the nations round about.
+For he was wiser than all men; than Ethan the Ezrahite, and Heman, and Calcol, and Darda, the sons of Mahol: and his fame was in all the nations all around.

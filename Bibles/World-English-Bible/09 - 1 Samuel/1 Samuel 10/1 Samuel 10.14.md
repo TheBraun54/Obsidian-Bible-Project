@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul's uncle said unto him and to his servant, Whither went ye? And he said, To seek the asses; and when we saw that they were not found, we came to Samuel.
+Saul's uncle said to him and to his servant, "Where did you go?" He said, "To seek the donkeys. When we saw that they were not found, we came to Samuel."

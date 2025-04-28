@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whether it be for correction, or for his land, Or for lovingkindness, that he cause it to come.
+Whether it is for correction, or for his land, or for loving kindness, that he causes it to come.

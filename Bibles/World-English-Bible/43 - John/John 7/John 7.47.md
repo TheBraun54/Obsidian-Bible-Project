@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Pharisees therefore answered them, Are ye also led astray?
+The Pharisees therefore answered them, "You aren't also led astray, are you?

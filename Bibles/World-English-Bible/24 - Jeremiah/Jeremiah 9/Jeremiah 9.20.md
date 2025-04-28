@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet hear the word of Jehovah, O ye women, and let your ear receive the word of his mouth; and teach your daughters wailing, and every one her neighbor lamentation.
+Yet hear the word of Yahweh, you women, and let your ear receive the word of his mouth; and teach your daughters wailing, and everyone her neighbor lamentation.

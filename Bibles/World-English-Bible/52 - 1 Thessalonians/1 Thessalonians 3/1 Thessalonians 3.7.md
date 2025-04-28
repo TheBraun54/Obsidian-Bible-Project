@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for this cause, brethren, we were comforted over you in all our distress and affliction through your faith:
+for this cause, brothers, we were comforted over you in all our distress and affliction through your faith.

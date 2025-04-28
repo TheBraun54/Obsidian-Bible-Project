@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His breath kindleth coals, And a flame goeth forth from his mouth.
+His breath kindles coals. A flame goes forth from his mouth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as I began to speak, the Holy Spirit fell on them, even as on us at the beginning.
+As I began to speak, the Holy Spirit fell on them, even as on us at the beginning.

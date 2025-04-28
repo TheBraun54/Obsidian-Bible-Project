@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not the whole land before thee? separate thyself, I pray thee, from me: if [thou wilt take] the left hand, then I will go to the right; or if [thou take] the right hand, then I will go to the left.
+Isn't the whole land before you? Please separate yourself from me. If you go to the left hand, then I will go to the right. Or if you go to the right hand, then I will go to the left."

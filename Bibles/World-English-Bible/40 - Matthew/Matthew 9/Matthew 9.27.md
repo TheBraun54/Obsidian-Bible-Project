@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Jesus passed by from thence, two blind men followed him, crying out, and saying, Have mercy on us, thou son of David.
+As Jesus passed by from there, two blind men followed him, calling out and saying, "Have mercy on us, son of David!"

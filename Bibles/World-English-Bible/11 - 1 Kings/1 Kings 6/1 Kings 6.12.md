@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Concerning this house which thou art building, if thou wilt walk in my statutes, and execute mine ordinances, and keep all my commandments to walk in them; then will I establish my word with thee, which I spake unto David thy father.
+"Concerning this house which you are building, if you will walk in my statutes, and execute my ordinances, and keep all my commandments to walk in them; then will I establish my word with you, which I spoke to David your father.

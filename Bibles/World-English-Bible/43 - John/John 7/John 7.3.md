@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His brethren therefore said unto him, Depart hence, and go into Judaea, that thy disciples also may behold thy works which thou doest.
+His brothers therefore said to him, "Depart from here, and go into Judea, that your disciples also may see your works which you do.

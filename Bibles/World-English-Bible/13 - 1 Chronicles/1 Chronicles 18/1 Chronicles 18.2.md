@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he smote Moab; and the Moabites became servants to David, and brought tribute.
+He struck Moab; and the Moabites became servants to David, and brought tribute.

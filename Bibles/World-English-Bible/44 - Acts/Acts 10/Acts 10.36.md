@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word which he sent unto the children of Israel, preaching good tidings of peace by Jesus Christ (He is Lord of all.)--
+The word which he sent to the children of Israel, preaching good news of peace by Jesus Christ--he is Lord of all--

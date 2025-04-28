@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Until I went into the sanctuary of God, And considered their latter end.
+Until I entered God's sanctuary, and considered their latter end.

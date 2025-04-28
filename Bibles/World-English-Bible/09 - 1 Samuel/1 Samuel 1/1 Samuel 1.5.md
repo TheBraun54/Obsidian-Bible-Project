@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but unto Hannah he gave a double portion; for he loved Hannah, but Jehovah had shut up her womb.
+but to Hannah he gave a double portion; for he loved Hannah, but Yahweh had shut up her womb.

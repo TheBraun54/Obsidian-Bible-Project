@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if the raw flesh turn again, and be changed unto white, then he shall come unto the priest;
+Or if the raw flesh turns again, and is changed to white, then he shall come to the priest;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua arose, and all the people of war, to go up to Ai: and Joshua chose out thirty thousand men, the mighty men of valor, and sent them forth by night.
+So Joshua arose, and all the people of war, to go up to Ai. Joshua chose thirty thousand men, the mighty men of valor, and sent them out by night.

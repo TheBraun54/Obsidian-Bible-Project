@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But food will not commend us to God: neither, if we eat not, are we the worse; nor, if we eat, are we the better.
+But food will not commend us to God. For neither, if we don't eat, are we the worse; nor, if we eat, are we the better.

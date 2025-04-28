@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and twenty bowls of gold, of a thousand darics; and two vessels of fine bright brass, precious as gold.
+and twenty bowls of gold, of one thousand darics; and two vessels of fine bright brass, precious as gold.

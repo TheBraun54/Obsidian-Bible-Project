@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bath-sheba said, Well; I will speak for thee unto the king.
+Bathsheba said, "Alright. I will speak for you to the king."

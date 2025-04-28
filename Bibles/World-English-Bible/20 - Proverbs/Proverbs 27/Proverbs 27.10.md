@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine own friend, and thy father's friend, forsake not; And go not to thy brother's house in the day of thy calamity: Better is a neighbor that is near than a brother far off.
+Don't forsake your friend and your father's friend. Don't go to your brother's house in the day of your disaster: better is a neighbor who is near than a distant brother.

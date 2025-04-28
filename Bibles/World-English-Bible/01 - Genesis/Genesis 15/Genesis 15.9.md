@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Take me a heifer three years old, and a she-goat three years old, and a ram three years old, and a turtle-dove, and a young pigeon.
+He said to him, "Bring me a heifer three years old, a female goat three years old, a ram three years old, a turtledove, and a young pigeon."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The integrity of the upright shall guide them; But the perverseness of the treacherous shall destroy them.
+The integrity of the upright shall guide them, but the perverseness of the treacherous shall destroy them.

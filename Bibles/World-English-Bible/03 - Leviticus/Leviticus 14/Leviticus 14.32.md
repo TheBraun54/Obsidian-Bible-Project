@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of him in whom is the plague of leprosy, who is not able to get [that which pertaineth] to his cleansing.
+This is the law for him in whom is the plague of leprosy, who is not able to afford the sacrifice for his cleansing.

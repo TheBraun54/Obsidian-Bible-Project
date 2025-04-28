@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every bed whereon she lieth all the days of her issue shall be unto her as the bed of her impurity: and everything whereon she sitteth shall be unclean, as the uncleanness of her impurity.
+Every bed whereon she lies all the days of her discharge shall be to her as the bed of her period: and everything whereon she sits shall be unclean, as the uncleanness of her period.

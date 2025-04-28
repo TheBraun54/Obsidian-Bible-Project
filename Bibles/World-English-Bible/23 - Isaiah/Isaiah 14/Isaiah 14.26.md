@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the purpose that is purposed upon the whole earth; and this is the hand that is stretched out upon all the nations.
+This is the plan that is determined for the whole earth. This is the hand that is stretched out over all the nations.

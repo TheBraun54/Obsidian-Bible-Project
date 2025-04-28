@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And what I say unto you I say unto all, Watch.
+What I tell you, I tell all: Watch."

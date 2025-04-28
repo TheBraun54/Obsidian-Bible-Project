@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Adoni-bezek fled; and they pursued after him, and caught him, and cut off his thumbs and his great toes.
+But Adoni-Bezek fled; and they pursued after him, and caught him, and cut off his thumbs and his great toes.

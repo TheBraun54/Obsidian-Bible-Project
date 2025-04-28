@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Parmashta, and Arisai, and Aridai, and Vaizatha,
+Parmashta, Arisai, Aridai, and Vaizatha,

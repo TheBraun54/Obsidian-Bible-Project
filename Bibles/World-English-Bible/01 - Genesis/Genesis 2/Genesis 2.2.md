@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the seventh day God finished his work which he had made; and he rested on the seventh day from all his work which he had made.
+On the seventh day God finished his work which he had made; and he rested on the seventh day from all his work which he had made.

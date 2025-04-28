@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through all that time, when one came to a heap of twenty [measures], there were but ten; when one came to the winevat to draw out fifty [vessels], there were but twenty.
+Through all that time, when one came to a heap of twenty measures, there were only ten. When one came to the wine vat to draw out fifty, there were only twenty.

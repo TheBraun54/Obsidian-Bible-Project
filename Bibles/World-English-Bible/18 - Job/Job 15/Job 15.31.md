@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let him not trust in vanity, deceiving himself; For vanity shall be his recompense.
+Let him not trust in emptiness, deceiving himself; for emptiness shall be his reward.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward, when David heard it, he said, I and my kingdom are guiltless before Jehovah for ever of the blood of Abner the son of Ner:
+Afterward, when David heard it, he said, "I and my kingdom are guiltless before Yahweh forever of the blood of Abner the son of Ner.

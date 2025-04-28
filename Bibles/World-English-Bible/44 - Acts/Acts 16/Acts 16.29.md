@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called for lights and sprang in, and, trembling for fear, fell down before Paul and Silas,
+He called for lights and sprang in, and, fell down trembling before Paul and Silas,

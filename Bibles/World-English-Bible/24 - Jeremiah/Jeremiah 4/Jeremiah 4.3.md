@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah to the men of Judah and to Jerusalem, Break up your fallow ground, and sow not among thorns.
+For thus says Yahweh to the men of Judah and to Jerusalem, "Break up your fallow ground, and don't sow among thorns.

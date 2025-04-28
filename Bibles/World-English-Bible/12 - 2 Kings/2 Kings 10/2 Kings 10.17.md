@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came to Samaria, he smote all that remained unto Ahab in Samaria, till he had destroyed him, according to the word of Jehovah, which he spake to Elijah.
+When he came to Samaria, he struck all who remained to Ahab in Samaria, until he had destroyed him, according to the word of Yahweh, which he spoke to Elijah.

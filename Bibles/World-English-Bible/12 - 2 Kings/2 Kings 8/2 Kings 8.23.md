@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest of the acts of Joram, and all that he did, are they not written in the book of the chronicles of the kings of Judah?
+The rest of the acts of Joram, and all that he did, aren't they written in the book of the chronicles of the kings of Judah?

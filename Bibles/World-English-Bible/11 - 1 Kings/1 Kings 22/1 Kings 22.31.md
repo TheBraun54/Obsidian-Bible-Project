@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the king of Syria had commanded the thirty and two captains of his chariots, saying, Fight neither with small nor great, save only with the king of Israel.
+Now the king of Syria had commanded the thirty-two captains of his chariots, saying, Fight neither with small nor great, except only with the king of Israel.

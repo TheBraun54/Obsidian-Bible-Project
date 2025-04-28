@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will bring it health and cure, and I will cure them; and I will reveal unto them abundance of peace and truth.
+Behold, I will bring it health and cure, and I will cure them; and I will reveal to them abundance of peace and truth.

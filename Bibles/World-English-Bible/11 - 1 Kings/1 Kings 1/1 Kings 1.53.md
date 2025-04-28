@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So king Solomon sent, and they brought him down from the altar. And he came and did obeisance to king Solomon; and Solomon said unto him, Go to thy house.
+So king Solomon sent, and they brought him down from the altar. He came and did obeisance to king Solomon; and Solomon said to him, "Go to your house."

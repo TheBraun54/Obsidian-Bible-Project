@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they asked him, saying, Teacher, when therefore shall these things be? and what [shall be] the sign when these things are about to come to pass?
+They asked him, "Teacher, so when will these things be? What is the sign that these things are about to happen?"

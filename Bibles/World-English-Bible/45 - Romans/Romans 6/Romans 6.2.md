@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God forbid. We who died to sin, how shall we any longer live therein?
+May it never be! We who died to sin, how could we live in it any longer?

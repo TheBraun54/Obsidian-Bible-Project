@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whence is this to me, that the mother of my Lord should come unto me?
+Why am I so favored, that the mother of my Lord should come to me?

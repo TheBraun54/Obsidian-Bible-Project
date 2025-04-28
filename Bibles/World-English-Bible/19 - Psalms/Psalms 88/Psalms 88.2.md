@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my prayer enter into thy presence; Incline thine ear unto my cry.
+Let my prayer enter into your presence. Turn your ear to my cry.

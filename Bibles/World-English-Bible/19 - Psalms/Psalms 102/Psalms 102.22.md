@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the peoples are gathered together, And the kingdoms, to serve Jehovah.
+when the peoples are gathered together, the kingdoms, to serve Yahweh.

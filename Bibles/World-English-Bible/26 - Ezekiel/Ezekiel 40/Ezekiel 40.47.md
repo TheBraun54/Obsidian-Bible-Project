@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he measured the court, a hundred cubits long, and a hundred cubits broad, foursquare; and the altar was before the house.
+He measured the court, one hundred cubits long, and a hundred cubits broad, foursquare; and the altar was before the house.

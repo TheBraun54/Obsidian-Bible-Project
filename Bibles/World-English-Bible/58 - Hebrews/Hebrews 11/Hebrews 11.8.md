@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Abraham, when he was called, obeyed to go out unto a place which he was to receive for an inheritance; and he went out, not knowing whither he went.
+By faith, Abraham, when he was called, obeyed to go out to the place which he was to receive for an inheritance. He went out, not knowing where he went.

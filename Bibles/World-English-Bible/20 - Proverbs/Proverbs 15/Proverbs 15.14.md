@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heart of him that hath understanding seeketh knowledge; But the mouth of fools feedeth on folly.
+The heart of one who has understanding seeks knowledge, but the mouths of fools feed on folly.

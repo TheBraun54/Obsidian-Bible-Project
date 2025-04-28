@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, brother, let me have joy of thee in the Lord: refresh my heart in Christ.
+Yes, brother, let me have joy from you in the Lord. Refresh my heart in the Lord.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the four hundred pomegranates for the two networks; two rows of pomegranates for each network, to cover the two bowls of the capitals that were upon the pillars.
+and the four hundred pomegranates for the two networks; two rows of pomegranates for each network, to cover the two bowls of the capitals that were on the pillars.

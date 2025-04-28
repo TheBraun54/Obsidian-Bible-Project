@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shall he do with the bullock; as he did with the bullock of the sin-offering, so shall he do with this; and the priest shall make atonement for them, and they shall be forgiven.
+Thus shall he do with the bull; as he did with the bull of the sin offering, so shall he do with this; and the priest shall make atonement for them, and they shall be forgiven.

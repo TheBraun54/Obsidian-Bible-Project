@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to make a distinction between the unclean and the clean, and between the living thing that may be eaten and the living thing that may not be eaten.
+to make a distinction between the unclean and the clean, and between the living thing that may be eaten and the living thing that may not be eaten.'"

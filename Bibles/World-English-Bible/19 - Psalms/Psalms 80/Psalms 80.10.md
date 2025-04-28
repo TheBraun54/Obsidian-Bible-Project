@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mountains were covered with the shadow of it, And the boughs thereof were [like] cedars of God.
+The mountains were covered with its shadow. Its boughs were like God's cedars.

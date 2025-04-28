@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Saul saw David go forth against the Philistine, he said unto Abner, the captain of the host, Abner, whose son is this youth? And Abner said, As thy soul liveth, O king, I cannot tell.
+When Saul saw David go forth against the Philistine, he said to Abner, the captain of the army, "Abner, whose son is this youth?" Abner said, "As your soul lives, O king, I can't tell."

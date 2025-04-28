@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he sat on the mount of Olives, the disciples came unto him privately, saying, Tell us, when shall these things be? and what [shall be] the sign of thy coming, and of the end of the world?
+As he sat on the Mount of Olives, the disciples came to him privately, saying, "Tell us, when will these things be? What is the sign of your coming, and of the end of the age?"

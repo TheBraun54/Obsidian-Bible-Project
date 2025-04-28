@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any of you lacketh wisdom, let him ask of God, who giveth to all liberally and upbraideth not; and it shall be given him.
+But if any of you lacks wisdom, let him ask of God, who gives to all liberally and without reproach; and it will be given to him.

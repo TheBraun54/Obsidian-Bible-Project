@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said to Jonah, Doest thou well to be angry for the gourd? And he said, I do well to be angry, even unto death.
+God said to Jonah, "Is it right for you to be angry about the vine?" He said, "I am right to be angry, even to death."

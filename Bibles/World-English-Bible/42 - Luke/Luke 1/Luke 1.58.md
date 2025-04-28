@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her neighbors and her kinsfolk heard that the Lord had magnified his mercy towards her; and they rejoiced with her.
+Her neighbors and her relatives heard that the Lord had magnified his mercy towards her, and they rejoiced with her.

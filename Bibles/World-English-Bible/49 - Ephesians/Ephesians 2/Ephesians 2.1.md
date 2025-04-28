@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And you [did he make alive], when ye were dead through your trespasses and sins,
+You were made alive when you were dead in transgressions and sins,

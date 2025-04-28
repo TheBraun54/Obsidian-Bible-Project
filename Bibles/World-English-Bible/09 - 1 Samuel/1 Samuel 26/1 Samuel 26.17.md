@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul knew David's voice, and said, Is this thy voice, my son David? And David said, It is my voice, my lord, O king.
+Saul knew David's voice, and said, "Is this your voice, my son David?" David said, "It is my voice, my lord, O king."

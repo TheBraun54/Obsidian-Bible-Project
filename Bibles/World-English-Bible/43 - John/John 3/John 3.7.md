@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Marvel not that I said unto thee, Ye must be born anew.
+Don't marvel that I said to you, 'You must be born anew.'

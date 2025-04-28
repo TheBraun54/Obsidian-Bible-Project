@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore doth a living man complain, a man for the punishment of his sins?
+Why does a living man complain, a man for the punishment of his sins?

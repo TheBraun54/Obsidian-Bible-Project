@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither will I hide my face any more from them; for I have poured out my Spirit upon the house of Israel, saith the Lord Jehovah.
+neither will I hide my face any more from them; for I have poured out my Spirit on the house of Israel, says the Lord Yahweh.

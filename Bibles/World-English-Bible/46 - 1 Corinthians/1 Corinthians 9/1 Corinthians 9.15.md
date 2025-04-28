@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have used none of these things: and I write not these things that it may be so done in my case; for [it were] good for me rather to die, than that any man should make my glorifying void.
+But I have used none of these things, and I don't write these things that it may be done so in my case; for I would rather die, than that anyone should make my boasting void.

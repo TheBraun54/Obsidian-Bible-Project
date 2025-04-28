@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents; of David]. Behold, how good and how pleasant it is For brethren to dwell together in unity!
+See how good and how pleasant it is for brothers to live together in unity!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely he scoffeth at the scoffers; But he giveth grace unto the lowly.
+Surely he mocks the mockers, but he gives grace to the humble.

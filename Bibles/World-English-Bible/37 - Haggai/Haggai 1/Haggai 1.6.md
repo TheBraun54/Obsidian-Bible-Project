@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have sown much, and bring in little; ye eat, but ye have not enough; ye drink, but ye are not filled with drink; ye clothe you, but there is none warm; and he that earneth wages earneth wages [to put it] into a bag with holes.
+You have sown much, and bring in little. You eat, but you don't have enough. You drink, but you aren't filled with drink. You clothe yourselves, but no one is warm, and he who earns wages earns wages to put them into a bag with holes in it."

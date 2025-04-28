@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And next to him repaired Ezer the son of Jeshua, the ruler of Mizpah, another portion, over against the ascent to the armory at the turning [of the wall] .
+Next to him repaired Ezer the son of Jeshua, the ruler of Mizpah, another portion, over against the ascent to the armory at the turning [of the wall].

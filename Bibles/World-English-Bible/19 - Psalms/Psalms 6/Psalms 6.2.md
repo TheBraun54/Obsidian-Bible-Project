@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have mercy upon me, O Jehovah; for I am withered away: O Jehovah, heal me; for my bones are troubled.
+Have mercy on me, Yahweh, for I am faint. Yahweh, heal me, for my bones are troubled.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehoshaphat said, Is there not here a prophet of Jehovah besides, that we may inquire of him?
+But Jehoshaphat said, "Isn't there here a prophet of Yahweh, that we may inquire of him?"

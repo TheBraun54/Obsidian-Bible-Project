@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It may be they will present their supplication before Jehovah, and will return every one from his evil way; for great is the anger and the wrath that Jehovah hath pronounced against this people. [
+It may be they will present their supplication before Yahweh, and will return everyone from his evil way; for great is the anger and the wrath that Yahweh has pronounced against this people.

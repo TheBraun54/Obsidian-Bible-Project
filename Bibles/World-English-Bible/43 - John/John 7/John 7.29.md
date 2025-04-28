@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know him; because I am from him, and he sent me.
+I know him, because I am from him, and he sent me."

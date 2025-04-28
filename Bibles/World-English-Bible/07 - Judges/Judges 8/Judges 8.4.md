@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon came to the Jordan, [and] passed over, he, and the three hundred men that were with him, faint, yet pursuing.
+Gideon came to the Jordan, [and] passed over, he, and the three hundred men who were with him, faint, yet pursuing.

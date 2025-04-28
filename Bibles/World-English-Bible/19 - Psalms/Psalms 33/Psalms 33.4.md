@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the word of Jehovah is right; And all his work is [done] in faithfulness.
+For the word of Yahweh is right. All his work is done in faithfulness.

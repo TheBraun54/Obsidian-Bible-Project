@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Zipporah took a flint, and cut off the foreskin of her son, and cast it at his feet; and she said, Surely a bridegroom of blood art thou to me.
+Then Zipporah took a flint, and cut off the foreskin of her son, and cast it at his feet; and she said, "Surely you are a bridegroom of blood to me."

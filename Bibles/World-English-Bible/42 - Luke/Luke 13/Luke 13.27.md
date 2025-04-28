@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall say, I tell you, I know not whence ye are; depart from me, all ye workers of iniquity.
+He will say, 'I tell you, I don't know where you come from. Depart from me, all you workers of iniquity.'

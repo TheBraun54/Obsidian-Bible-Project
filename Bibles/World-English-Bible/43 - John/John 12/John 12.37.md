@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But though he had done so many signs before them, yet they believed not on him:
+But though he had done so many signs before them, yet they didn't believe in him,

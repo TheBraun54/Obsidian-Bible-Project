@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered, I have not troubled Israel; but thou, and thy father's house, in that ye have forsaken the commandments of Jehovah, and thou hast followed the Baalim.
+He answered, "I have not troubled Israel; but you, and your father's house, in that you have forsaken the commandments of Yahweh, and you have followed the Baals.

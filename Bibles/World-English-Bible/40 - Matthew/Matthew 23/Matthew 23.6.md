@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and love the chief place at feasts, and the chief seats in the synagogues,
+and love the place of honor at feasts, the best seats in the synagogues,

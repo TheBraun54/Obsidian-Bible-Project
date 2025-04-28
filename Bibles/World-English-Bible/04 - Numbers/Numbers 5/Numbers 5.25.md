@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take the meal-offering of jealousy out of the woman's hand, and shall wave the meal-offering before Jehovah, and bring it unto the altar:
+The priest shall take the meal offering of jealousy out of the woman's hand, and shall wave the meal offering before Yahweh, and bring it to the altar.

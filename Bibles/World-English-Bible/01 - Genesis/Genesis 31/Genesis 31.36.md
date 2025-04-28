@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob was wroth, and chode with Laban: and Jacob answered and said to Laban, What is my trespass? what is my sin, that thou hast hotly pursued after me?
+Jacob was angry, and argued with Laban. Jacob answered Laban, "What is my trespass? What is my sin, that you have hotly pursued after me?

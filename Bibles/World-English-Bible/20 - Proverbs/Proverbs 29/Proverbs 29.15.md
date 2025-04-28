@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rod and reproof give wisdom; But a child left to himself causeth shame to his mother.
+The rod of correction gives wisdom, but a child left to himself causes shame to his mother.

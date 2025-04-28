@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through thee will we push down our adversaries: Through thy name will we tread them under that rise up against us.
+Through you, will we push down our adversaries. Through your name, will we tread them under who rise up against us.

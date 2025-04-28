@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and neither in the temple did they find me disputing with any man or stirring up a crowd, nor in the synagogues, nor in the city.
+In the temple they didn't find me disputing with anyone or stirring up a crowd, either in the synagogues, or in the city.

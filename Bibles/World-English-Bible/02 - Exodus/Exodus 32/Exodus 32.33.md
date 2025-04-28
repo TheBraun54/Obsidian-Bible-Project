@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Whosoever hath sinned against me, him will I blot out of my book.
+Yahweh said to Moses, "Whoever has sinned against me, him will I blot out of my book.

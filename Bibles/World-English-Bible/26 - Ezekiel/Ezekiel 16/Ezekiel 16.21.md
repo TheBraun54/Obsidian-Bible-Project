@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou hast slain my children, and delivered them up, in causing them to pass through [the fire] unto them?
+that you have slain my children, and delivered them up, in causing them to pass through [the fire] to them?

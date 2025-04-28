@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man is hungry, let him eat at home; that your coming together be not unto judgment. And the rest will I set in order whensoever I come.
+But if anyone is hungry, let him eat at home, lest your coming together be for judgment. The rest I will set in order whenever I come.

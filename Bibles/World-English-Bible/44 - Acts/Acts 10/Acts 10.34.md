@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter opened his mouth and said, Of a truth I perceive that God is no respecter of persons:
+Peter opened his mouth and said, "Truly I perceive that God doesn't show favoritism;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of Judah according to those that were numbered of them, threescore and sixteen thousand and five hundred.
+These are the families of Judah according to those who were numbered of them, seventy-six thousand five hundred.

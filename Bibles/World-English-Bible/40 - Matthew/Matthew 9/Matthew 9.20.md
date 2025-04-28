@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a woman, who had an issue of blood twelve years, came behind him, and touched the border of his garment:
+Behold, a woman who had an issue of blood for twelve years came behind him, and touched the fringe of his garment;

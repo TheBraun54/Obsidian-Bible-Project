@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Ammon came out, and put the battle in array at the entrance of the gate: and the Syrians of Zobah and of Rehob, and the men of Tob and Maacah, were by themselves in the field.
+The children of Ammon came out, and put the battle in array at the entrance of the gate: and the Syrians of Zobah and of Rehob, and the men of Tob and Maacah, were by themselves in the field.

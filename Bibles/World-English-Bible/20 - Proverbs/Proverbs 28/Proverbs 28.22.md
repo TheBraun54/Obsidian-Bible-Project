@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he that hath an evil eye hasteth after riches, And knoweth not that want shall come upon him.
+A stingy man hurries after riches, and doesn't know that poverty waits for him.

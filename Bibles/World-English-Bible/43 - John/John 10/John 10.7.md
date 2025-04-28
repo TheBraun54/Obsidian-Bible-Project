@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said unto them again, Verily, verily, I say unto you, I am the door of the sheep.
+Jesus therefore said to them again, "Most certainly, I tell you, I am the sheep's door.

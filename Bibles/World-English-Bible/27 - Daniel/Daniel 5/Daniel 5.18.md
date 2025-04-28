@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou king, the Most High God gave Nebuchadnezzar thy father the kingdom, and greatness, and glory, and majesty:
+You, king, the Most High God gave Nebuchadnezzar your father the kingdom, and greatness, and glory, and majesty:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the mountains are round about Jerusalem, So Jehovah is round about his people From this time forth and for evermore.
+As the mountains surround Jerusalem, so Yahweh surrounds his people from this time forth and forevermore.

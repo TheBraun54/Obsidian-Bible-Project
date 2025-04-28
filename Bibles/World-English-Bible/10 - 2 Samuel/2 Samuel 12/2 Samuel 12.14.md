@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit, because by this deed thou hast given great occasion to the enemies of Jehovah to blaspheme, the child also that is born unto thee shall surely die.
+However, because by this deed you have given great occasion to Yahweh's enemies to blaspheme, the child also who is born to you shall surely die."

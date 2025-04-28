@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And why beholdest thou the mote that is in thy brother's eye, but considerest not the beam that is in thine own eye?
+Why do you see the speck that is in your brother's eye, but don't consider the beam that is in your own eye?

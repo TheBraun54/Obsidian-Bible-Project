@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much soever she glorified herself, and waxed wanton, so much give her of torment and mourning: for she saith in her heart, I sit a queen, and am no widow, and shall in no wise see mourning. [
+However much she glorified herself, and grew wanton, so much give her of torment and mourning. For she says in her heart, 'I sit a queen, and am no widow, and will in no way see mourning.'

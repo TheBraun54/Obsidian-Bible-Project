@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shalt thou inquire, and make search, and ask diligently; and, behold, if it be truth, and the thing certain, that such abomination is wrought in the midst of thee,
+then you shall inquire, and make search, and ask diligently; and, behold, if it be truth, and the thing certain, that such abomination is done in the midst of you,

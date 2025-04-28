@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This also cometh forth from Jehovah of hosts, who is wonderful in counsel, and excellent in wisdom.
+This also comes forth from Yahweh of Armies, who is wonderful in counsel, and excellent in wisdom.

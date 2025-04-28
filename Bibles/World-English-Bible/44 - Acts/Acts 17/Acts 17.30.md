@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The times of ignorance therefore God overlooked; but now he commandeth men that they should all everywhere repent:
+The times of ignorance therefore God overlooked. But now he commands that all people everywhere should repent,

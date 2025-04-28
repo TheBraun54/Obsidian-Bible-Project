@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A cubit shall be the length thereof, and a cubit the breadth thereof; foursquare shall it be; and two cubits shall be the height thereof: the horns thereof shall be of one piece with it.
+Its length shall be a cubit, and its breadth a cubit. It shall be square, and its height shall be two cubits. Its horns shall be of one piece with it.

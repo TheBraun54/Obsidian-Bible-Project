@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Cush: Seba, and Havilah, and Sabta, and Raama, and Sabteca. And the sons of Raamah: Sheba, and Dedan.
+The sons of Cush: Seba, and Havilah, and Sabta, and Raama, and Sabteca. The sons of Raamah: Sheba, and Dedan.

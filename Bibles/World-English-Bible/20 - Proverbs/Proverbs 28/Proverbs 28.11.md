@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rich man is wise in his own conceit; But the poor that hath understanding searcheth him out.
+The rich man is wise in his own eyes; but the poor who has understanding sees through him.

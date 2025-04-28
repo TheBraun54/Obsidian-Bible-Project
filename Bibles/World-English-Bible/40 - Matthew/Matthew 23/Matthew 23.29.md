@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto you, scribes and Pharisees, hypocrites! for ye build the sepulchres of the prophets, and garnish the tombs of the righteous,
+"Woe to you, scribes and Pharisees, hypocrites! For you build the tombs of the prophets, and decorate the tombs of the righteous,

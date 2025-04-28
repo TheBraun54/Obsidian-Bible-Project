@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt say, I will go up to the land of unwalled villages; I will go to them that are at rest, that dwell securely, all of them dwelling without walls, and having neither bars nor gates;
+and you shall say, I will go up to the land of unwalled villages; I will go to those who are at rest, who dwell securely, all of them dwelling without walls, and having neither bars nor gates;

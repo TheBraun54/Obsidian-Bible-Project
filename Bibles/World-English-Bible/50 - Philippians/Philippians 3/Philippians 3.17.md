@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, be ye imitators together of me, and mark them that so walk even as ye have us for an ensample.
+Brothers, be imitators together of me, and note those who walk this way, even as you have us for an example.

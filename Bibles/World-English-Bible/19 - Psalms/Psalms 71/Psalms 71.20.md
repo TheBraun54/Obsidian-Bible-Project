@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, who hast showed us many and sore troubles, Wilt quicken us again, And wilt bring us up again from the depths of the earth.
+You, who have shown us many and bitter troubles, you will let me live. You will bring us up again from the depths of the earth.

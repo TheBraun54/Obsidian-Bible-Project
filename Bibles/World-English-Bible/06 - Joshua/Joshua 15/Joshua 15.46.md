@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from Ekron even unto the sea, all that were by the side of Ashdod, with their villages.
+from Ekron even to the sea, all that were by the side of Ashdod, with their villages.

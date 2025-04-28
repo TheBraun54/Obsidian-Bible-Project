@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he took him, and brought him to the chief captain, and saith, Paul the prisoner called me unto him, and asked me to bring this young man unto thee, who hath something to say to thee.
+So he took him, and brought him to the commanding officer, and said, "Paul, the prisoner, summoned me and asked me to bring this young man to you, who has something to tell you."

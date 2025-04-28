@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet God is my King of old, Working salvation in the midst of the earth.
+Yet God is my King of old, working salvation in the midst of the earth.

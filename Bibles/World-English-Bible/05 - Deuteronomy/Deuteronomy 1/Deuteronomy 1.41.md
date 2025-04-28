@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then ye answered and said unto me, We have sinned against Jehovah, we will go up and fight, according to all that Jehovah our God commanded us. And ye girded on every man his weapons of war, and were forward to go up into the hill-country.
+Then you answered and said to me, "We have sinned against Yahweh, we will go up and fight, according to all that Yahweh our God commanded us." Every man of you put on his weapons of war, and presumed to go up into the hill country.

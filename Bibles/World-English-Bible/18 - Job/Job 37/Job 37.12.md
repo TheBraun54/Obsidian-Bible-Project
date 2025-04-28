@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it is turned round about by his guidance, That they may do whatsoever he commandeth them Upon the face of the habitable world,
+It is turned around by his guidance, that they may do whatever he commands them on the surface of the habitable world,

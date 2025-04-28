@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they had not [wherewith] to pay, he forgave them both. Which of them therefore will love him most?
+When they couldn't pay, he forgave them both. Which of them therefore will love him most?"

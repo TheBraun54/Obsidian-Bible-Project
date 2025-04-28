@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went up out of Egypt, and came into the land of Canaan unto Jacob their father.
+They went up out of Egypt, and came into the land of Canaan, to Jacob their father.

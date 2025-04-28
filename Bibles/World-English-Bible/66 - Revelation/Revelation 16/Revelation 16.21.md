@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And great hail, [every stone] about the weight of a talent, cometh down out of heaven upon men: and men blasphemed God because of the plague of the hail; for the plague thereof is exceeding great.
+Great hailstones, about the weight of a talent, came down out of the sky on people. People blasphemed God because of the plague of the hail, for this plague is exceedingly severe.

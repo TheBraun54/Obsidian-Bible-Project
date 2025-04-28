@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Render unto her even as she rendered, and double [unto her] the double according to her works: in the cup which she mingled, mingle unto her double.
+Return to her just as she returned, and repay her double as she did, and according to her works. In the cup which she mixed, mix to her double.

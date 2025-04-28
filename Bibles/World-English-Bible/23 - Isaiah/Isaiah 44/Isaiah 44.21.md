@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember these things, O Jacob, and Israel; for thou art my servant: I have formed thee; thou art my servant: O Israel, thou shalt not be forgotten of me.
+Remember these things, Jacob and Israel; for you are my servant. I have formed you. You are my servant. Israel, you will not be forgotten by me.

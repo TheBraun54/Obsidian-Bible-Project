@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehoiada waxed old and was full of days, and he died; a hundred and thirty years old was he when he died.
+But Jehoiada grew old and was full of days, and he died; one hundred thirty years old was he when he died.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass on one of those days, that he entered into a boat, himself and his disciples; and he said unto them, Let us go over unto the other side of the lake: and they launched forth.
+Now it happened on one of those days, that he entered into a boat, himself and his disciples, and he said to them, "Let's go over to the other side of the lake." So they launched out.

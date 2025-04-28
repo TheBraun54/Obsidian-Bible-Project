@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon said unto them, I would make a request of you, that ye would give me every man the ear-rings of his spoil. (For they had golden ear-rings, because they were Ishmaelites.)
+Gideon said to them, "I would make a request of you, that you would give me every man the earrings of his spoil." (For they had golden earrings, because they were Ishmaelites.)

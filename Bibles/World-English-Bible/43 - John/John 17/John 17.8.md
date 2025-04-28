@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the words which thou gavest me I have given unto them; and they received [them], and knew of a truth that I came forth from thee, and they believed that thou didst send me.
+for the words which you have given me I have given to them, and they received them, and knew for sure that I came forth from you, and they have believed that you sent me.

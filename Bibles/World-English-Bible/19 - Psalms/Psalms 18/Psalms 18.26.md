@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With the pure thou wilt show thyself pure; And with the perverse thou wilt show thyself froward.
+With the pure, you will show yourself pure. With the crooked you will show yourself shrewd.

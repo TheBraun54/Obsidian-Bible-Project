@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there ran a man of Benjamin out of the army, and came to Shiloh the same day, with his clothes rent, and with earth upon his head.
+There ran a man of Benjamin out of the army, and came to Shiloh the same day, with his clothes torn, and with earth on his head.

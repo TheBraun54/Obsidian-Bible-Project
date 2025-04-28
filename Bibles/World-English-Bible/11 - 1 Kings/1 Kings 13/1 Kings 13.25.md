@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, men passed by, and saw the body cast in the way, and the lion standing by the body; and they came and told it in the city where the old prophet dwelt.
+Behold, men passed by, and saw the body cast in the way, and the lion standing by the body; and they came and told it in the city where the old prophet lived.

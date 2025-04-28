@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I was a child, I spake as a child, I felt as a child, I thought as a child: now that I am become a man, I have put away childish things.
+When I was a child, I spoke as a child, I felt as a child, I thought as a child. Now that I have become a man, I have put away childish things.

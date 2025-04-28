@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy righteousness is like the mountains of God; Thy judgments are a great deep: O Jehovah, thou preservest man and beast.
+Your righteousness is like the mountains of God. Your judgments are like a great deep. Yahweh, you preserve man and animal.

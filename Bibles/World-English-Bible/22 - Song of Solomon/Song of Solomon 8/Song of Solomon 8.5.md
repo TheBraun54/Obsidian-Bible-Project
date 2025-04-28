@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is this that cometh up from the wilderness, Leaning upon her beloved? Under the apple-tree I awakened thee: There thy mother was in travail with thee, There was she in travail that brought thee forth.
+Who is this who comes up from the wilderness, leaning on her beloved? Under the apple tree I aroused you. There your mother conceived you. There she was in labor and bore you.

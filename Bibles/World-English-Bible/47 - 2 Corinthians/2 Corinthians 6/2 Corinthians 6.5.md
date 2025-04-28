@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in stripes, in imprisonments, in tumults, in labors, in watchings, in fastings;
+in beatings, in imprisonments, in riots, in labors, in watchings, in fastings;

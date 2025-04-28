@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. Behold, bless ye Jehovah, all ye servants of Jehovah, That by night stand in the house of Jehovah.
+Look! Praise Yahweh, all you servants of Yahweh, who stand by night in Yahweh's house!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And even he that is valiant, whose heart is as the heart of a lion, will utterly melt; for all Israel knoweth that thy father is a mighty man, and they that are with him are valiant men.
+Even he who is valiant, whose heart is as the heart of a lion, will utterly melt; for all Israel knows that your father is a mighty man, and those who are with him are valiant men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah, he it is that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed.
+Yahweh, he it is who does go before you; he will be with you, he will not fail you, neither forsake you: don't be afraid, neither be dismayed."

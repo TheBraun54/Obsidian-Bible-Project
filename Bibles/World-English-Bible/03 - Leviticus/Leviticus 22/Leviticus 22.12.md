@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a priest's daughter be married unto a stranger, she shall not eat of the heave-offering of the holy things.
+If a priest's daughter is married to an outsider, she shall not eat of the heave offering of the holy things.

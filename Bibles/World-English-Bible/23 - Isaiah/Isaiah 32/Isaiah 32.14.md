@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the palace shall be forsaken; the populous city shall be deserted; the hill and the watch-tower shall be for dens for ever, a joy of wild asses, a pasture of flocks;
+For the palace will be forsaken. The populous city will be deserted. The hill and the watchtower will be for dens forever, a delight for wild donkeys, a pasture of flocks;

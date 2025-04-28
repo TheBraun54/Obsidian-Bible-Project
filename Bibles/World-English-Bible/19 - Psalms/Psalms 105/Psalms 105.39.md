@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He spread a cloud for a covering, And fire to give light in the night.
+He spread a cloud for a covering, fire to give light in the night.

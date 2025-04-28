@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and returned from the tomb, and told all these things to the eleven, and to all the rest.
+returned from the tomb, and told all these things to the eleven, and to all the rest.

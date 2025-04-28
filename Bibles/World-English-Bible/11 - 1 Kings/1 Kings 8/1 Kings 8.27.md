@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But will God in very deed dwell on the earth? behold, heaven and the heaven of heavens cannot contain thee; how much less this house that I have builded!
+But will God in very deed dwell on the earth? Behold, heaven and the heaven of heavens can't contain you; how much less this house that I have built!

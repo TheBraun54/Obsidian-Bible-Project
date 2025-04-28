@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this is a people robbed and plundered; they are all of them snared in holes, and they are hid in prison-houses: they are for a prey, and none delivereth; for a spoil, and none saith, Restore.
+But this is a robbed and plundered people. All of them are snared in holes, and they are hidden in prisons. They have become a prey, and no one delivers; and a spoil, and no one says, 'Restore them!'

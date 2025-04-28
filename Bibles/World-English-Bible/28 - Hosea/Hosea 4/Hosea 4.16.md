@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Israel hath behaved himself stubbornly, like a stubborn heifer: now will Jehovah feed them as a lamb in a large place.
+For Israel has behaved extremely stubbornly, like a stubborn heifer. Then how will Yahweh feed them like a lamb in a meadow.

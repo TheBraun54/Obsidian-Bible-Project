@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that would restrain her restraineth the wind; And his right hand encountereth oil.
+restraining her is like restraining the wind, or like grasping oil in his right hand.

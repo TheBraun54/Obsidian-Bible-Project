@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear my words, ye wise men; And give ear unto me, ye that have knowledge.
+"Hear my words, you wise men. Give ear to me, you who have knowledge.

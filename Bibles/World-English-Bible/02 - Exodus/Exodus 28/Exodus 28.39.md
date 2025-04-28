@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt weave the coat in checker work of fine linen, and thou shalt make a mitre of fine linen, and thou shalt make a girdle, the work of the embroiderer.
+You shall weave the coat in checker work of fine linen, and you shall make a turban of fine linen, and you shall make a sash, the work of the embroiderer.

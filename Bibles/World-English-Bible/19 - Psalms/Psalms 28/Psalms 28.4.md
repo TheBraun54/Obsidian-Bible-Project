@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give them according to their work, and according to the wickedness of their doings: Give them after the operation of their hands; Render to them their desert.
+Give them according to their work, and according to the wickedness of their doings. Give them according to the operation of their hands. Bring back on them what they deserve.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From thence they journeyed unto Gudgodah; and from Gudgodah to Jotbathah, a land of brooks of water.
+From there they traveled to Gudgodah; and from Gudgodah to Jotbathah, a land of brooks of water.

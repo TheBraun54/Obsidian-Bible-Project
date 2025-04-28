@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then again I lifted up mine eyes, and saw, and, behold, a flying roll.
+Then again I lifted up my eyes, and saw, and behold, a flying scroll.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stirred up the people, and the elders, and the scribes, and came upon him, and seized him, and brought him into the council,
+They stirred up the people, the elders, and the scribes, and came against him and seized him, and brought him in to the council,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(of whom the world was not worthy), wandering in deserts and mountains and caves, and the holes of the earth.
+(of whom the world was not worthy), wandering in deserts, mountains, caves, and the holes of the earth.

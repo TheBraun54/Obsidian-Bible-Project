@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall present them before Jehovah, and shall offer his sin-offering, and his burnt-offering:
+The priest shall present them before Yahweh, and shall offer his sin offering, and his burnt offering.

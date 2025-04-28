@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will not regard any ransom; Neither will he rest content, though thou givest many gifts.
+He won't regard any ransom, neither will he rest content, though you give many gifts.

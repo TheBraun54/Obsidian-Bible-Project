@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Jehovah will cut off from Israel head and tail, palm-branch and rush, in one day.
+Therefore Yahweh will cut off from Israel head and tail, palm branch and reed, in one day.

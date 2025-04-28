@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Sheol cannot praise thee, death cannot celebrate thee: They that go down into the pit cannot hope for thy truth.
+For Sheol can't praise you. Death can't celebrate you. Those who go down into the pit can't hope for your truth.

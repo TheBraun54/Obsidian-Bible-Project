@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Paul had appealed to be kept for the decision of the emperor, I commanded him to be kept till I should send him to Caesar.
+But when Paul had appealed to be kept for the decision of the emperor, I commanded him to be kept until I could send him to Caesar."

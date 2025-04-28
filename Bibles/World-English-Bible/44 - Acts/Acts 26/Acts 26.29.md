@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul [said], I would to God, that whether with little or with much, not thou only, but also all that hear me this day, might become such as I am, except these bonds.
+Paul said, "I pray to God, that whether with little or with much, not only you, but also all that hear me this day, might become such as I am, except for these bonds."

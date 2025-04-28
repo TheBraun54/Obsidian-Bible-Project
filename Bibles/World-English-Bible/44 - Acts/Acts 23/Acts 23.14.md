@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to the chief priests and the elders, and said, We have bound ourselves under a great curse, to taste nothing until we have killed Paul.
+They came to the chief priests and the elders, and said, "We have bound ourselves under a great curse, to taste nothing until we have killed Paul.

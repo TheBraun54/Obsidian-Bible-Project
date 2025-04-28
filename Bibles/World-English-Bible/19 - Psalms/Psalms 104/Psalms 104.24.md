@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, how manifold are thy works! In wisdom hast thou made them all: The earth is full of thy riches.
+Yahweh, how many are your works! In wisdom have you made them all. The earth is full of your riches.

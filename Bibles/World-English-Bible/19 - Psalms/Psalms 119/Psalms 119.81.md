@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-KAPH. My soul fainteth for thy salvation; [But] I hope in thy word.
+My soul faints for your salvation. I hope in your word.

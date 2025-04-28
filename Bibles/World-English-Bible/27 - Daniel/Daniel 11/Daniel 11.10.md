@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his sons shall war, and shall assemble a multitude of great forces, which shall come on, and overflow, and pass through; and they shall return and war, even to his fortress.
+His sons shall war, and shall assemble a multitude of great forces, which shall come on, and overflow, and pass through; and they shall return and war, even to his fortress.

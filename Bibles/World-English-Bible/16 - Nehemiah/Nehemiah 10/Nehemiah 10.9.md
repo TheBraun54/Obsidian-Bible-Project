@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levites: namely, Jeshua the son of Azaniah, Binnui of the sons of Henadad, Kadmiel;
+The Levites: namely, Jeshua the son of Azaniah, Binnui of the sons of Henadad, Kadmiel;

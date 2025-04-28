@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naarah bare him Ahuzzam, and Hepher, and Temeni, and Haahashtari. These were the sons of Naarah.
+Naarah bore him Ahuzzam, and Hepher, and Temeni, and Haahashtari. These were the sons of Naarah.

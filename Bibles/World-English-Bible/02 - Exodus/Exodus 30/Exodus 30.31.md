@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt speak unto the children of Israel, saying, This shall be a holy anointing oil unto me throughout your generations.
+You shall speak to the children of Israel, saying, 'This shall be a holy anointing oil to me throughout your generations.

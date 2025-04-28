@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall we say then? Is the law sin? God forbid. Howbeit, I had not known sin, except through the law: for I had not known coveting, except the law had said, Thou shalt not covet:
+What shall we say then? Is the law sin? May it never be! However, I wouldn't have known sin, except through the law. For I wouldn't have known coveting, unless the law had said, "You shall not covet."

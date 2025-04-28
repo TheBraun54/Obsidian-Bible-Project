@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Samuel said unto Saul, Stay, and I will tell thee what Jehovah hath said to me this night. And he said unto him, Say on.
+Then Samuel said to Saul, "Stay, and I will tell you what Yahweh has said to me last night." He said to him, "Say on."

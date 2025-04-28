@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(but if a man knoweth not how to rule his own house, how shall he take care of the church of God?)
+(but if a man doesn't know how to rule his own house, how will he take care of the assembly of God?)

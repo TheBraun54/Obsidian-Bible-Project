@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, a new commandment write I unto you, which thing is true in him and in you; because the darkness is passing away, and the true light already shineth.
+Again, I write a new commandment to you, which is true in him and in you; because the darkness is passing away, and the true light already shines.

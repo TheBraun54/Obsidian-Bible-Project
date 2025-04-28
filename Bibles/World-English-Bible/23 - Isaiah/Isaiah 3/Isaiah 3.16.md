@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jehovah said, Because the daughters of Zion are haughty, and walk with outstretched necks and wanton eyes, walking and mincing as they go, and making a tinkling with their feet;
+Moreover Yahweh said, "Because the daughters of Zion are haughty, and walk with outstretched necks and flirting eyes, walking to trip as they go, jingling ornaments on their feet;

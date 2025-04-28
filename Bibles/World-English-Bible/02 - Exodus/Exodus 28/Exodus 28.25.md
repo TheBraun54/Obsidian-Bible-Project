@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the [other] two ends of the two wreathen chains thou shalt put on the two settings, and put them on the shoulder-pieces of the ephod in the forepart thereof.
+The other two ends of the two braided chains you shall put on the two settings, and put them on the shoulder straps of the ephod in its forepart.

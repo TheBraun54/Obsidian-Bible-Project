@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are they that keep his testimonies, That seek him with the whole heart.
+Blessed are those who keep his statutes, who seek him with their whole heart.

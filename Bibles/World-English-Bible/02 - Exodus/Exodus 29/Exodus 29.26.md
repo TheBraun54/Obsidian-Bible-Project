@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take the breast of Aaron's ram of consecration, and wave it for a wave-offering before Jehovah: and it shall be thy portion.
+"You shall take the breast of Aaron's ram of consecration, and wave it for a wave offering before Yahweh: and it shall be your portion.

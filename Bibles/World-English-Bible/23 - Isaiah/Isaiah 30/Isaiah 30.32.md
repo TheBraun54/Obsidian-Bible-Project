@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every stroke of the appointed staff, which Jehovah shall lay upon him, shall be with [the sound of] tabrets and harps; and in battles with the brandishing [of his arm] will he fight with them.
+Every stroke of the rod of punishment, which Yahweh will lay on him, will be with the sound of tambourines and harps. He will fight with them in battles, brandishing weapons.

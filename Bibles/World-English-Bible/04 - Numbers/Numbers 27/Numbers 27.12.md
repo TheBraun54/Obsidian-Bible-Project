@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Get thee up into this mountain of Abarim, and behold the land which I have given unto the children of Israel.
+Yahweh said to Moses, "Go up into this mountain of Abarim, and see the land which I have given to the children of Israel.

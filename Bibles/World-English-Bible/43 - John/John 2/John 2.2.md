@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jesus also was bidden, and his disciples, to the marriage.
+Jesus also was invited, with his disciples, to the marriage.

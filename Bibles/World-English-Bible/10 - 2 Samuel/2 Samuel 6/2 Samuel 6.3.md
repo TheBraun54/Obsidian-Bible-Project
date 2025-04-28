@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they set the ark of God upon a new cart, and brought it out of the house of Abinadab that was in the hill: and Uzzah and Ahio, the sons of Abinadab, drove the new cart.
+They set the ark of God on a new cart, and brought it out of the house of Abinadab that was in the hill: and Uzzah and Ahio, the sons of Abinadab, drove the new cart.

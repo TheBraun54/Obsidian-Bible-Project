@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they were loosing the colt, the owners thereof said unto them, Why loose ye the colt?
+As they were untying the colt, its owners said to them, "Why are you untying the colt?"

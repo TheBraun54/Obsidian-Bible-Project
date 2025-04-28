@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if a revelation be made to another sitting by, let the first keep silence.
+But if a revelation is made to another sitting by, let the first keep silent.

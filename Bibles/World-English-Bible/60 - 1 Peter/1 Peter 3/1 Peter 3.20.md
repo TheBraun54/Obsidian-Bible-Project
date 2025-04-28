@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that aforetime were disobedient, when the longsuffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls, were saved through water:
+who before were disobedient, when God waited patiently in the days of Noah, while the ship was being built. In it, few, that is, eight souls, were saved through water.

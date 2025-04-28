@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah said, Fortunate! and she called his name Gad.
+Leah said, "How fortunate!" She named him Gad.

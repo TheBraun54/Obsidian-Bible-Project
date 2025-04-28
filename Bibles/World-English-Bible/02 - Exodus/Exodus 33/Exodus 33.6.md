@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel stripped themselves of their ornaments from mount Horeb onward.
+The children of Israel stripped themselves of their jewelry from Mount Horeb onward.

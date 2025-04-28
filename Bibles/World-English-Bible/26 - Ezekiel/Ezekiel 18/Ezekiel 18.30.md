@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I will judge you, O house of Israel, every one according to his ways, saith the Lord Jehovah. Return ye, and turn yourselves from all your transgressions; so iniquity shall not be your ruin.
+Therefore I will judge you, house of Israel, everyone according to his ways, says the Lord Yahweh. Return, and turn yourselves from all your transgressions; so iniquity shall not be your ruin.

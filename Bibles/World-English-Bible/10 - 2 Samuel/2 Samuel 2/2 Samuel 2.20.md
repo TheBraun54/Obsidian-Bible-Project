@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Abner looked behind him, and said, Is it thou, Asahel? And he answered, It is I.
+Then Abner looked behind him, and said, "Is it you, Asahel?" He answered, "It is I."

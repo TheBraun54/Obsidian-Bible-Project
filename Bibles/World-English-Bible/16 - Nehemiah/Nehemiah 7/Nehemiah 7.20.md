@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Adin, six hundred fifty and five.
+The children of Adin, six hundred fifty-five.

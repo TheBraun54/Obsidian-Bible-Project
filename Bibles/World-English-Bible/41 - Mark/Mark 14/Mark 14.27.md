@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus saith unto them, All ye shall be offended: for it is written, I will smite the shepherd, and the sheep shall be scattered abroad.
+Jesus said to them, "All of you will be made to stumble because of me tonight, for it is written, 'I will strike the shepherd, and the sheep will be scattered.'

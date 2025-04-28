@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I say unto you, resist not him that is evil: but whosoever smiteth thee on thy right cheek, turn to him the other also.
+But I tell you, don't resist him who is evil; but whoever strikes you on your right cheek, turn to him the other also.

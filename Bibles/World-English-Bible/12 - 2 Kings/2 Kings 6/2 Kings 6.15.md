@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the servant of the man of God was risen early, and gone forth, behold, a host with horses and chariots was round about the city. And his servant said unto him, Alas, my master! how shall we do?
+When the servant of the man of God had risen early, and gone out, behold, an army with horses and chariots was around the city. His servant said to him, "Alas, my master! What shall we do?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and kept the feast of unleavened bread seven days with joy: for Jehovah had made them joyful, and had turned the heart of the king of Assyria unto them, to strengthen their hands in the work of the house of God, the God of Israel.
+and kept the feast of unleavened bread seven days with joy: for Yahweh had made them joyful, and had turned the heart of the king of Assyria to them, to strengthen their hands in the work of the house of God, the God of Israel.

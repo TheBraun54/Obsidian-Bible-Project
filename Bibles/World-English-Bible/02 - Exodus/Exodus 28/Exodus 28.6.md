@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall make the ephod of gold, of blue, and purple, scarlet, and fine twined linen, the work of the skilful workman.
+"They shall make the ephod of gold, of blue, and purple, scarlet, and fine twined linen, the work of the skillful workman.

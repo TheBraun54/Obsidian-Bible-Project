@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And always, night and day, in the tombs and in the mountains, he was crying out, and cutting himself with stones.
+Always, night and day, in the tombs and in the mountains, he was crying out, and cutting himself with stones.

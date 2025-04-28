@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and also that nation, whom they shall serve, will I judge: and afterward shall they come out with great substance.
+I will also judge that nation, whom they will serve. Afterward they will come out with great wealth,

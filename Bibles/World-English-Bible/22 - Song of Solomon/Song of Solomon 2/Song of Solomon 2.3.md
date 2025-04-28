@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the apple-tree among the trees of the wood, So is my beloved among the sons. I sat down under his shadow with great delight, And his fruit was sweet to my taste.
+As the apple tree among the trees of the wood, so is my beloved among the sons. I sat down under his shadow with great delight, his fruit was sweet to my taste.

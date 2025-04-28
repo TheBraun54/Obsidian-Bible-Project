@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king said unto me, For what dost thou make request? So I prayed to the God of heaven.
+Then the king said to me, "For what do you make request?" So I prayed to the God of heaven.

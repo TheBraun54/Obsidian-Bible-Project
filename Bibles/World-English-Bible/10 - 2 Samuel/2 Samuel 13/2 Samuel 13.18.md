@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she had a garment of divers colors upon her; for with such robes were the king's daughters that were virgins apparelled. Then his servant brought her out, and bolted the door after her.
+She had a garment of various colors on her; for with such robes were the king's daughters who were virgins dressed. Then his servant brought her out, and bolted the door after her.

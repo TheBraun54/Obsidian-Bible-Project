@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews had light and gladness, and joy and honor.
+The Jews had light, gladness, joy, and honor.

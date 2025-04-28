@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt have great sickness by disease of thy bowels, until thy bowels fall out by reason of the sickness, day by day.
+and you shall have great sickness by disease of your bowels, until your bowels fall out by reason of the sickness, day by day.'"

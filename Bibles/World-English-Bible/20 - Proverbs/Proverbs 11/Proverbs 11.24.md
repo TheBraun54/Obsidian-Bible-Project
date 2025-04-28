@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is that scattereth, and increaseth yet more; And there is that withholdeth more than is meet, but [it tendeth] only to want.
+There is one who scatters, and increases yet more. There is one who withholds more than is appropriate, but gains poverty.

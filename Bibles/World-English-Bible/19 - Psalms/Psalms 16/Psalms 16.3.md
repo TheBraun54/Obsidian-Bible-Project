@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the saints that are in the earth, They are the excellent in whom is all my delight.
+As for the saints who are in the earth, they are the excellent ones in whom is all my delight.

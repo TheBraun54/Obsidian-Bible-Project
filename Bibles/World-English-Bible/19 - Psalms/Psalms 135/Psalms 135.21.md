@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah out of Zion, Who dwelleth at Jerusalem. Praise ye Jehovah.
+Blessed be Yahweh from Zion, Who dwells at Jerusalem. Praise Yah!

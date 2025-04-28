@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sat down, and called the twelve; and he saith unto them, If any man would be first, he shall be last of all, and servant of all.
+He sat down, and called the twelve; and he said to them, "If any man wants to be first, he shall be last of all, and servant of all."

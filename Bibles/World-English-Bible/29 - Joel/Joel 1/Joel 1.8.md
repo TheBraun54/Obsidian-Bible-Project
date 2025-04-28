@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lament like a virgin girded with sackcloth for the husband of her youth.
+Mourn like a virgin dressed in sackcloth for the husband of her youth!

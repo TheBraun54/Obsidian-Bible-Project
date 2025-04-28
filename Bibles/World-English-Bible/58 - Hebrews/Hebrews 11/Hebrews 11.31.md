@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Rahab the harlot perished not with them that were disobedient, having received the spies with peace.
+By faith, Rahab the prostitute, didn't perish with those who were disobedient, having received the spies in peace.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he that regarded not the word of Jehovah left his servants and his cattle in the field.
+Whoever didn't respect the word of Yahweh left his servants and his livestock in the field.

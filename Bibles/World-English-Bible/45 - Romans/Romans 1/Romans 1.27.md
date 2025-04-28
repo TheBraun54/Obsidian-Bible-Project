@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and likewise also the men, leaving the natural use of the woman, burned in their lust one toward another, men with men working unseemliness, and receiving in themselves that recompense of their error which was due.
+Likewise also the men, leaving the natural function of the woman, burned in their lust toward one another, men doing what is inappropriate with men, and receiving in themselves the due penalty of their error.

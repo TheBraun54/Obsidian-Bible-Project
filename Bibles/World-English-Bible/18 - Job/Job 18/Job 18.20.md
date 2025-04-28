@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that come after shall be astonished at his day, As they that went before were affrighted.
+Those who come after shall be astonished at his day, as those who went before were frightened.

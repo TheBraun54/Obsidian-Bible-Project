@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after thee shall arise another kingdom inferior to thee; and another third kingdom of brass, which shall bear rule over all the earth.
+After you shall arise another kingdom inferior to you; and another third kingdom of brass, which shall bear rule over all the earth.

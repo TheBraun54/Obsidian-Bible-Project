@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the fourteenth day of this month, at even, ye shall keep it in its appointed season: according to all the statutes of it, and according to all the ordinances thereof, shall ye keep it.
+On the fourteenth day of this month, at evening, you shall keep it in its appointed season--according to all its statutes, and according to all its ordinances, you shall keep it."

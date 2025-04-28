@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake unto the people, saying, Arm ye men from among you for the war, that they may go against Midian, to execute Jehovah's vengeance on Midian.
+Moses spoke to the people, saying, "Arm men from among you for the war, that they may go against Midian, to execute Yahweh's vengeance on Midian.

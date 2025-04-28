@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph went up to bury his father; and with him went up all the servants of Pharaoh, the elders of his house, and all the elders of the land of Egypt,
+Joseph went up to bury his father; and with him went up all the servants of Pharaoh, the elders of his house, all the elders of the land of Egypt,

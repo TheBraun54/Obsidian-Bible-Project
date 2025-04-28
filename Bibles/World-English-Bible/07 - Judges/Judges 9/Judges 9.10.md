@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the trees said to the fig-tree, Come thou, and reign over us.
+"The trees said to the fig tree, 'Come and reign over us.'

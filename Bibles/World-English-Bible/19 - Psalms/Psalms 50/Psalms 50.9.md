@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will take no bullock out of thy house, Nor he-goats out of thy folds.
+I have no need for a bull from your stall, nor male goats from your pens.

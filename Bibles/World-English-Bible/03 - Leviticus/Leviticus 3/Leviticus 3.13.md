@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall lay his hand upon the head of it, and kill it before the tent of meeting; and the sons of Aaron shall sprinkle the blood thereof upon the altar round about.
+and he shall lay his hand on its head, and kill it before the Tent of Meeting; and the sons of Aaron shall sprinkle its blood around on the altar.

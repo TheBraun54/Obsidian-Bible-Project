@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely the righteous shall give thanks unto thy name: The upright shall dwell in thy presence.
+Surely the righteous will give thanks to your name. The upright will dwell in your presence. A Psalm by David.

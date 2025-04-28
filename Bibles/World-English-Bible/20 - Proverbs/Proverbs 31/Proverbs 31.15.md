@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She riseth also while it is yet night, And giveth food to her household, And their task to her maidens.
+She rises also while it is yet night, gives food to her household, and portions for her servant girls.

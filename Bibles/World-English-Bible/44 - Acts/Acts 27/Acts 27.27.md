@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the fourteenth night was come, as we were driven to and fro in the [sea of] Adria, about midnight the sailors surmised that they were drawing near to some country:
+But when the fourteenth night had come, as we were driven back and forth in the Adriatic Sea, about midnight the sailors surmised that they were drawing near to some land.

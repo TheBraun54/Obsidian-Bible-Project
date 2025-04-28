@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And turning to the disciples, he said privately, Blessed [are] the eyes which see the things that ye see:
+Turning to the disciples, he said privately, "Blessed are the eyes which see the things that you see,

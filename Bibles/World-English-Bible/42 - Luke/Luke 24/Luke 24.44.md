@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, These are my words which I spake unto you, while I was yet with you, that all things must needs be fulfilled, which are written in the law of Moses, and the prophets, and the psalms, concerning me.
+He said to them, "This is what I told you, while I was still with you, that all things which are written in the law of Moses, the prophets, and the psalms, concerning me must be fulfilled."

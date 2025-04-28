@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-More to be desired are they than gold, yea, than much fine gold; Sweeter also than honey and the droppings of the honeycomb.
+More to be desired are they than gold, yes, than much fine gold; sweeter also than honey and the extract of the honeycomb.

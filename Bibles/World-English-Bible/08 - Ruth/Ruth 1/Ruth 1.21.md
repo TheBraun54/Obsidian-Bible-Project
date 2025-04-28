@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I went out full, and Jehovah hath brought me home again empty; why call ye me Naomi, seeing Jehovah hath testified against me, and the Almighty hath afflicted me?
+I went out full, and Yahweh has brought me home again empty; why do you call me Naomi, since Yahweh has testified against me, and the Almighty has afflicted me?"

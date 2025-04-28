@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah drove out from before us all the peoples, even the Amorites that dwelt in the land: therefore we also will serve Jehovah; for he is our God.
+Yahweh drove out from before us all the peoples, even the Amorites who lived in the land. Therefore we also will serve Yahweh; for he is our God."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A light for revelation to the Gentiles, And the glory of thy people Israel.
+a light for revelation to the nations, and the glory of your people Israel."

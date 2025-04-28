@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Solomon, and all the assembly with him, went to the high place that was at Gibeon; for there was the tent of meeting of God, which Moses the servant of Jehovah had made in the wilderness.
+So Solomon, and all the assembly with him, went to the high place that was at Gibeon; for there was the Tent of Meeting of God, which Moses the servant of Yahweh had made in the wilderness.

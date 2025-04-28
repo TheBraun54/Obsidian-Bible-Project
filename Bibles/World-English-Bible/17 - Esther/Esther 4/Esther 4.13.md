@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Mordecai bade them return answer unto Esther, Think not with thyself that thou shalt escape in the king's house, more than all the Jews.
+Then Mordecai asked them return answer to Esther, "Don't think to yourself that you will escape in the king's house any more than all the Jews.

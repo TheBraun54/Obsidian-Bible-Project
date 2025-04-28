@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-King Agrippa, believest thou the prophets? I know that thou believest.
+King Agrippa, do you believe the prophets? I know that you believe."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man speaketh in a tongue, [let it be] by two, or at the most three, and [that] in turn; and let one interpret:
+If any man speaks in another language, let it be two, or at the most three, and in turn; and let one interpret.

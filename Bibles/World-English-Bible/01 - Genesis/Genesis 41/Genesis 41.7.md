@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the thin ears swallowed up the seven rank and full ears. And Pharaoh awoke, and, behold, it was a dream.
+The thin heads of grain swallowed up the seven healthy and full ears. Pharaoh awoke, and behold, it was a dream.

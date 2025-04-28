@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, For this cause shall a man leave his father and mother, and shall cleave to his wife; and the two shall become one flesh?
+and said, 'For this cause a man shall leave his father and mother, and shall join to his wife; and the two shall become one flesh?'

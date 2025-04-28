@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the half, which was the portion of them that went out to war, was in number three hundred thousand and thirty thousand and seven thousand and five hundred sheep:
+The half, which was the portion of those who went out to war, was in number three hundred thirty-seven thousand five hundred sheep:

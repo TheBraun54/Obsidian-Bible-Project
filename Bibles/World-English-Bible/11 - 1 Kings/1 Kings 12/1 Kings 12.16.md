@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when all Israel saw that the king hearkened not unto them, the people answered the king, saying, What portion have we in David? neither have we inheritance in the son of Jesse: to your tents, O Israel: now see to thine own house, David. So Israel departed unto their tents.
+When all Israel saw that the king didn't listen to them, the people answered the king, saying, "What portion have we in David? Neither do we have an inheritance in the son of Jesse. To your tents, Israel! Now see to your own house, David." So Israel departed to their tents.

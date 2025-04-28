@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath not directed his words against me; Neither will I answer him with your speeches.
+for he has not directed his words against me; neither will I answer him with your speeches.

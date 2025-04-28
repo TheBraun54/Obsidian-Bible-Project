@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon told her all her questions; and there was not anything hid from Solomon which he told her not.
+Solomon told her all her questions; and there was not anything hidden from Solomon which he didn't tell her.

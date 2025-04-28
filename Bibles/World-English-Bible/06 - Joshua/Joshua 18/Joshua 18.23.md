@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Avvim, and Parah, and Ophrah,
+Avvim, Parah, Ophrah,

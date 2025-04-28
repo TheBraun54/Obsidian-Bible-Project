@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not defile himself, [being] a chief man among his people, to profane himself.
+He shall not defile himself, being a chief man among his people, to profane himself.

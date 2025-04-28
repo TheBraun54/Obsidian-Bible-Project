@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that the land vomit not you out also, when ye defile it, as it vomited out the nation that was before you.
+that the land not vomit you out also, when you defile it, as it vomited out the nation that was before you.

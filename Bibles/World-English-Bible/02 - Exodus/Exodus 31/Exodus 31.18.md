@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave unto Moses, when he had made an end of communing with him upon mount Sinai, the two tables of the testimony, tables of stone, written with the finger of God.
+He gave to Moses, when he finished speaking with him on Mount Sinai, the two tablets of the testimony, stone tablets, written with God's finger.

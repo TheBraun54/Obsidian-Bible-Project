@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall make a spoil of thy riches, and make a prey of thy merchandise; and they shall break down thy walls, and destroy thy pleasant houses; and they shall lay thy stones and thy timber and thy dust in the midst of the waters.
+They shall make a spoil of your riches, and make a prey of your merchandise; and they shall break down your walls, and destroy your pleasant houses; and they shall lay your stones and your timber and your dust in the midst of the waters.

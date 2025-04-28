@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took half of the blood, and put it in basins; and half of the blood he sprinkled on the altar.
+Moses took half of the blood and put it in basins, and half of the blood he sprinkled on the altar.

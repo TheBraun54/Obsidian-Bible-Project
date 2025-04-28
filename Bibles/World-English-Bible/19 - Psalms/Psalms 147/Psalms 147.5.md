@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Great is our Lord, and mighty in power; His understanding is infinite.
+Great is our Lord, and mighty in power. His understanding is infinite.

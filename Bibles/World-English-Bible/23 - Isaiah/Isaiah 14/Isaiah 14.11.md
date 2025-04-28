@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy pomp is brought down to Sheol, [and] the noise of thy viols: the worm is spread under thee, and worms cover thee.
+Your pomp is brought down to Sheol, with the sound of your stringed instruments. Maggots are spread out under you, and worms cover you.

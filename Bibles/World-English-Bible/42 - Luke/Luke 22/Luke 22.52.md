@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto the chief priests, and captains of the temple, and elders, that were come against him, Are ye come out, as against a robber, with swords and staves?
+Jesus said to the chief priests, captains of the temple, and elders, who had come against him, "Have you come out as against a robber, with swords and clubs?

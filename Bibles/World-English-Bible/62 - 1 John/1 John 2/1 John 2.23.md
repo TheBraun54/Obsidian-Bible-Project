@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever denieth the Son, the same hath not the Father: he that confesseth the Son hath the Father also.
+Whoever denies the Son, the same doesn't have the Father. He who confesses the Son has the Father also.

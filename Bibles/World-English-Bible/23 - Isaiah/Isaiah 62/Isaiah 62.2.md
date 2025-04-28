@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the nations shall see thy righteousness, and all kings thy glory, and thou shalt be called by a new name, which the mouth of Jehovah shall name.
+The nations shall see your righteousness, and all kings your glory, and you shall be called by a new name, which the mouth of Yahweh shall name.

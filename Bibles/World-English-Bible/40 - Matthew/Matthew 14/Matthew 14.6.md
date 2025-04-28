@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Herod's birthday came, the daughter of Herodias danced in the midst, and pleased Herod.
+But when Herod's birthday came, the daughter of Herodias danced among them and pleased Herod.

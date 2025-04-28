@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that caused his glorious arm to go at the right hand of Moses? that divided the waters before them, to make himself an everlasting name?
+who caused his glorious arm to go at the right hand of Moses? who divided the waters before them, to make himself an everlasting name?

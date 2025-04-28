@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, already it is altogether a defect in you, that ye have lawsuits one with another. Why not rather take wrong? why not rather be defrauded?
+Therefore it is already altogether a defect in you, that you have lawsuits one with another. Why not rather be wronged? Why not rather be defrauded?

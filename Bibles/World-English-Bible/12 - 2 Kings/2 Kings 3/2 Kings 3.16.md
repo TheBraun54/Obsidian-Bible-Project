@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Thus saith Jehovah, Make this valley full of trenches.
+He said, "Thus says Yahweh, 'Make this valley full of trenches.'

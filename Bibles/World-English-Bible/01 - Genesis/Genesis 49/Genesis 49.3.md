@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Reuben, thou art my first-born, my might, and the beginning of my strength; The pre-eminence of dignity, and the pre-eminence of power.
+"Reuben, you are my firstborn, my might, and the beginning of my strength; excelling in dignity, and excelling in power.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are they ministers of Christ? (I speak as one beside himself) I more; in labors more abundantly, in prisons more abundantly, in stripes above measure, in deaths oft.
+Are they servants of Christ? (I speak as one beside himself) I am more so; in labors more abundantly, in prisons more abundantly, in stripes above measure, in deaths often.

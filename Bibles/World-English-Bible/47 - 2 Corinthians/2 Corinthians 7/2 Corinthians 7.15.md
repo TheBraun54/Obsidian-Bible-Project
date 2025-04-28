@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his affection is more abundantly toward you, while he remembereth the obedience of you all, how with fear and trembling ye received him.
+His affection is more abundantly toward you, while he remembers all of your obedience, how with fear and trembling you received him.

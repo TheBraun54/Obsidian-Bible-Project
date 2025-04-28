@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A copy of the writing, that the decree should be given out in every province, was published unto all the peoples, and that the Jews should be ready against that day to avenge themselves on their enemies.
+A copy of the letter, that the decree should be given out in every province, was published to all the peoples, that the Jews should be ready for that day to avenge themselves on their enemies.

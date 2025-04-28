@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless, if thou warn the wicked of his way to turn from it, and he turn not from his way; he shall die in his iniquity, but thou hast delivered thy soul.
+Nevertheless, if you warn the wicked of his way to turn from it, and he doesn't turn from his way; he shall die in his iniquity, but you have delivered your soul.

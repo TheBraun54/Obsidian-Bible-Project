@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless I withdrew my hand, and wrought for my name's sake, that it should not be profaned in the sight of the nations, in whose sight I brought them forth.
+Nevertheless I withdrew my hand, and worked for my name's sake, that it should not be profaned in the sight of the nations, in whose sight I brought them forth.

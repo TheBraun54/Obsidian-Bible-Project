@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Aaron, Say unto all the congregation of the children of Israel, Come near before Jehovah; for he hath heard your murmurings.
+Moses said to Aaron, "Tell all the congregation of the children of Israel, 'Come near before Yahweh, for he has heard your murmurings.'"

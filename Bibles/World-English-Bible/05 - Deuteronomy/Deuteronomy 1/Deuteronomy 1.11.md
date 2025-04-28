@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, the God of your fathers, make you a thousand times as many as ye are, and bless you, as he hath promised you!
+Yahweh, the God of your fathers, make you a thousand times as many as you are, and bless you, as he has promised you!

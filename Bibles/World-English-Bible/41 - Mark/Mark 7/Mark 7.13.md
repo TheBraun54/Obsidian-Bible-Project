@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-making void the word of God by your tradition, which ye have delivered: and many such like things ye do.
+making void the word of God by your tradition, which you have handed down. You do many things like this."

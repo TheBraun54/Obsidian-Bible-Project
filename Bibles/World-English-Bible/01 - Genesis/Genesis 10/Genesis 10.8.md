@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Cush begat Nimrod: he began to be a mighty one in the earth.
+Cush became the father of Nimrod. He began to be a mighty one in the earth.

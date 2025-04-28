@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Seth lived a hundred and five years, and begat Enosh:
+Seth lived one hundred five years, and became the father of Enosh.

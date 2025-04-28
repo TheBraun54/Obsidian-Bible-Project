@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six days shall work be done; but on the seventh day there shall be to you a holy day, a sabbath of solemn rest to Jehovah: whosoever doeth any work therein shall be put to death.
+'Six days shall work be done, but on the seventh day there shall be a holy day for you, a Sabbath of solemn rest to Yahweh: whoever does any work in it shall be put to death.

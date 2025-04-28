@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened.
+For everyone who asks receives. He who seeks finds. To him who knocks it will be opened.

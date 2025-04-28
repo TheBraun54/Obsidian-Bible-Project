@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, O harlot, hear the word of Jehovah:
+Therefore, prostitute, hear the word of Yahweh:

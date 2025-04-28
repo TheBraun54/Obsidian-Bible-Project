@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have set my face upon this city for evil, and not for good, saith Jehovah: it shall be given into the hand of the king of Babylon, and he shall burn it with fire.
+For I have set my face on this city for evil, and not for good, says Yahweh: it shall be given into the hand of the king of Babylon, and he shall burn it with fire.

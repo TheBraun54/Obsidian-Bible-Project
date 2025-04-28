@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from the time that the continual [burnt-offering] shall be taken away, and the abomination that maketh desolate set up, there shall be a thousand and two hundred and ninety days.
+From the time that the continual [burnt offering] shall be taken away, and the abomination that makes desolate set up, there shall be one thousand two hundred ninety days.

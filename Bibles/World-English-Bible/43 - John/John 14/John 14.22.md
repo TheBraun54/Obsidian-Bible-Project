@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Judas (not Iscariot) saith unto him, Lord, what is come to pass that thou wilt manifest thyself unto us, and not unto the world?
+Judas (not Iscariot) said to him, "Lord, what has happened that you are about to reveal yourself to us, and not to the world?"

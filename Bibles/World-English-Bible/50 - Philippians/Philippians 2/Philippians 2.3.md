@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ doing] nothing through faction or through vainglory, but in lowliness of mind each counting other better than himself;
+doing nothing through rivalry or through conceit, but in humility, each counting others better than himself;

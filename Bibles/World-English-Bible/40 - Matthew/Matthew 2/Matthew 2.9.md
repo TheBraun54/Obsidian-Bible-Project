@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, having heard the king, went their way; and lo, the star, which they saw in the east, went before them, till it came and stood over where the young child was.
+They, having heard the king, went their way; and behold, the star, which they saw in the east, went before them, until it came and stood over where the young child was.

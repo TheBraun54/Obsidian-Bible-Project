@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit thou art just in all that is come upon us; for thou hast dealt truly, but we have done wickedly;
+However you are just in all that is come on us; for you have dealt truly, but we have done wickedly;

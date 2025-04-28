@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They came round about me like water all the day long; They compassed me about together.
+They came around me like water all day long. They completely engulfed me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou understand righteousness and justice, And equity, [yea], every good path.
+Then you will understand righteousness and justice, equity and every good path.

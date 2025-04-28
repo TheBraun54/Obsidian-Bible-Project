@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the second row, an emerald, a sapphire, and a diamond;
+and the second row, a turquoise, a sapphire, and an emerald;

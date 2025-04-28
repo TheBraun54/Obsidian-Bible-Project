@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom I have sent you for this very purpose, that ye may know our state, and that he may comfort your hearts;
+I am sending him to you for this very purpose, that he may know your circumstances and comfort your hearts,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when the captain of the temple and the chief priests heard these words, they were much perplexed concerning them whereunto this would grow.
+Now when the high priest, the captain of the temple, and the chief priests heard these words, they were very perplexed about them and what might become of this.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, If any one shall sin unwittingly, in any of the things which Jehovah hath commanded not to be done, and shall do any one of them:
+"Speak to the children of Israel, saying, 'If anyone sins unintentionally, in any of the things which Yahweh has commanded not to be done, and does any one of them:

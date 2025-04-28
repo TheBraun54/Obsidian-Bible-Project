@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord said, If ye had faith as a grain of mustard seed, ye would say unto this sycamine tree, Be thou rooted up, and be thou planted in the sea; and it would obey you.
+The Lord said, "If you had faith like a grain of mustard seed, you would tell this sycamore tree, 'Be uprooted, and be planted in the sea,' and it would obey you.

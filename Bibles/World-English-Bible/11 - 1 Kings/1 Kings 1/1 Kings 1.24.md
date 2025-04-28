@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nathan said, My lord, O king, hast thou said, Adonijah shall reign after me, and he shall sit upon my throne?
+Nathan said, "My lord, king, have you said, 'Adonijah shall reign after me, and he shall sit on my throne?'

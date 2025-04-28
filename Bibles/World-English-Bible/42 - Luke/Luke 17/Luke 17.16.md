@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he fell upon his face at his feet, giving him thanks: and he was a Samaritan.
+He fell on his face at Jesus' feet, giving him thanks; and he was a Samaritan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So man lieth down and riseth not: Till the heavens be no more, they shall not awake, Nor be roused out of their sleep.
+so man lies down and doesn't rise. Until the heavens are no more, they shall not awake, nor be roused out of their sleep.

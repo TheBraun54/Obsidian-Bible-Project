@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Another parable spake he unto them; The kingdom of heaven is like unto leaven, which a woman took, and hid in three measures of meal, till it was all leavened.
+He spoke another parable to them. "The Kingdom of Heaven is like yeast, which a woman took, and hid in three measures of meal, until it was all leavened."

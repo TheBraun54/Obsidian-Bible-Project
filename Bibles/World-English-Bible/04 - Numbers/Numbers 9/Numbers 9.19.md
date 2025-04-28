@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the cloud tarried upon the tabernacle many days, then the children of Israel kept the charge of Jehovah, and journeyed not.
+When the cloud stayed on the tabernacle many days, then the children of Israel kept Yahweh's command, and didn't travel.

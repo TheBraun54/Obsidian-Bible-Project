@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall take up a lamentation over thee, and say to thee, How art thou destroyed, that wast inhabited by seafaring men, the renowned city, that was strong in the sea, she and her inhabitants, that caused their terror to be on all that dwelt there!
+They shall take up a lamentation over you, and tell you, How you are destroyed, who were inhabited by seafaring men, the renowned city, who was strong in the sea, she and her inhabitants, who caused their terror to be on all who lived there!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now my days are swifter than a post: They flee away, they see no good,
+"Now my days are swifter than a runner. They flee away, they see no good,

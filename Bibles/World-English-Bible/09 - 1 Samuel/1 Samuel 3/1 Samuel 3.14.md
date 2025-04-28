@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And therefore I have sworn unto the house of Eli, that the iniquity of Eli's house shall not be expiated with sacrifice nor offering for ever.
+Therefore I have sworn to the house of Eli, that the iniquity of Eli's house shall not be removed with sacrifice nor offering forever."

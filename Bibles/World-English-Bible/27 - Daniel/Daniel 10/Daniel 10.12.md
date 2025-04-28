@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, Fear not, Daniel; for from the first day that thou didst set thy heart to understand, and to humble thyself before thy God, thy words were heard: and I am come for thy words' sake.
+Then he said to me, Don't be afraid, Daniel; for from the first day that you set your heart to understand, and to humble yourself before your God, your words were heard: and I have come for your words' sake.

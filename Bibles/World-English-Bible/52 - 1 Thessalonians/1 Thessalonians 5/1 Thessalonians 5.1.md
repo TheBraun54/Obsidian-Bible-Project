@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But concerning the times and the seasons, brethren, ye have no need that aught be written unto you.
+But concerning the times and the seasons, brothers, you have no need that anything be written to you.

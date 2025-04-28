@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is thy lot, the portion measured unto thee from me, saith Jehovah; because thou hast forgotten me, and trusted in falsehood.
+This is your lot, the portion measured to you from me, says Yahweh; because you have forgotten me, and trusted in falsehood.

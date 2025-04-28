@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Amnon said unto Tamar, Bring the food into the chamber, that I may eat from thy hand. And Tamar took the cakes which she had made, and brought them into the chamber to Amnon her brother.
+Amnon said to Tamar, "Bring the food into the room, that I may eat from your hand." Tamar took the cakes which she had made, and brought them into the room to Amnon her brother.

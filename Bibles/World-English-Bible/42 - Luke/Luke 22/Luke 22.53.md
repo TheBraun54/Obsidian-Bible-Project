@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I was daily with you in the temple, ye stretched not forth your hands against me: but this is your hour, and the power of darkness.
+When I was with you in the temple daily, you didn't stretch out your hands against me. But this is your hour, and the power of darkness."

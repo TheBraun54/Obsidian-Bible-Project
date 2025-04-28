@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Some men's sins are evident, going before unto judgment; and some men also they follow after.
+Some men's sins are evident, preceding them to judgment, and some also follow later.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the damsel ran, and told her mother's house according to these words.
+The young lady ran, and told her mother's house about these words.

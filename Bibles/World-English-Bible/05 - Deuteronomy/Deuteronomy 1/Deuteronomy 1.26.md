@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet ye would not go up, but rebelled against the commandment of Jehovah your God:
+Yet you wouldn't go up, but rebelled against the commandment of Yahweh your God:

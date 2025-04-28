@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is joy to the righteous to do justice; But it is a destruction to the workers of iniquity.
+It is joy to the righteous to do justice; but it is a destruction to the workers of iniquity.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Apelles the approved in Christ. Salute them that are of the [household] of Aristobulus.
+Greet Apelles, the approved in Christ. Greet those who are of the household of Aristobulus.

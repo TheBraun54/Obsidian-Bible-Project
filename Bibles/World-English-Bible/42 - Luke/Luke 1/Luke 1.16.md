@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many of the children of Israel shall be turn unto the Lord their God.
+He will turn many of the children of Israel to the Lord, their God.

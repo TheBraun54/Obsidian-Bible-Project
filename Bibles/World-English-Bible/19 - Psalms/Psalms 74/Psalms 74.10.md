@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long, O God, shall the adversary reproach? Shall the enemy blaspheme thy name for ever?
+How long, God, shall the adversary reproach? Shall the enemy blaspheme your name forever?

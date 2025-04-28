@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these lay wait for their own blood; They lurk privily for their own lives.
+but these lay wait for their own blood. They lurk secretly for their own lives.

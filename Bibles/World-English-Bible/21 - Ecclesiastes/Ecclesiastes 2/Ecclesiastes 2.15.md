@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I in my heart, As it happeneth to the fool, so will it happen even to me; and why was I then more wise? Then said I in my heart, that this also is vanity.
+Then I said in my heart, "As it happens to the fool, so will it happen even to me; and why was I then more wise?" Then I said in my heart that this also is vanity.

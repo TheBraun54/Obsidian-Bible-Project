@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day will I make a covenant for them with the beasts of the field, and with the birds of the heavens, and with the creeping things of the ground: and I will break the bow and the sword and the battle out of the land, and will make them to lie down safely.
+In that day I will make a covenant for them with the animals of the field, and with the birds of the sky, and with the creeping things of the ground. I will break the bow, the sword, and the battle out of the land, and will make them lie down safely.

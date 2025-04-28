@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah: Behold, they to whom it pertained not to drink of the cup shall assuredly drink; and art thou he that shall altogether go unpunished? thou shalt not go unpunished, but thou shalt surely drink.
+For thus says Yahweh: Behold, they to whom it didn't pertain to drink of the cup shall certainly drink; and are you he who shall altogether go unpunished? You shall not go unpunished, but you shall surely drink.

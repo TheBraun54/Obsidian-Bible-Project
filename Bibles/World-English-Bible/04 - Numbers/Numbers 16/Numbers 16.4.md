@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Moses heard it, he fell upon his face:
+When Moses heard it, he fell on his face:

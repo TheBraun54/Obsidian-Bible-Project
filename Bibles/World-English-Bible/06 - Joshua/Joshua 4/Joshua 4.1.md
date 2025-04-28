@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when all the nation were clean passed over the Jordan, that Jehovah spake unto Joshua, saying,
+It happened, when all the nation had completely passed over the Jordan, that Yahweh spoke to Joshua, saying,

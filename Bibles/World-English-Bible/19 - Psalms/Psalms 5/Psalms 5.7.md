@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for me, in the abundance of thy lovingkindness will I come into thy house: In thy fear will I worship toward thy holy temple.
+But as for me, in the abundance of your loving kindness I will come into your house. I will bow toward your holy temple in reverence of you.

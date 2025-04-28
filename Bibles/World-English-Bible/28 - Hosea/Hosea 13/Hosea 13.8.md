@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will meet them as a bear that is bereaved of her whelps, and will rend the caul of their heart; and there will I devour them like a lioness; the wild beast shall tear them.
+I will meet them like a bear that is bereaved of her cubs, and will tear the covering of their heart. There I will devour them like a lioness. The wild animal will tear them.

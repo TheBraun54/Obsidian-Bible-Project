@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if thy hand cause thee to stumble, cut it off: it is good for thee to enter into life maimed, rather than having thy two hands to go into hell, into the unquenchable fire.
+If your hand causes you to stumble, cut it off. It is better for you to enter into life maimed, rather than having your two hands to go into Gehenna, into the unquenchable fire,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Finally, my brethren, rejoice in the Lord. To write the same things to you, to me indeed is not irksome, but for you it is safe.
+Finally, my brothers, rejoice in the Lord. To write the same things to you, to me indeed is not tiresome, but for you it is safe.

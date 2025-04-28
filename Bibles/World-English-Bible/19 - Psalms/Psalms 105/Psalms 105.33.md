@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He smote their vines also and their fig-trees, And brake the trees of their borders.
+He struck their vines and also their fig trees, and shattered the trees of their country.

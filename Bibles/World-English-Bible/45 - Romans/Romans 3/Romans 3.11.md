@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is none that understandeth, There is none that seeketh after God;
+There is no one who understands. There is no one who seeks after God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto the people, It is Jehovah that appointed Moses and Aaron, and that brought your fathers up out of the land of Egypt.
+Samuel said to the people, "It is Yahweh who appointed Moses and Aaron, and that brought your fathers up out of the land of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Herod privily called the Wise-men, and learned of them exactly what time the star appeared.
+Then Herod secretly called the wise men, and learned from them exactly what time the star appeared.

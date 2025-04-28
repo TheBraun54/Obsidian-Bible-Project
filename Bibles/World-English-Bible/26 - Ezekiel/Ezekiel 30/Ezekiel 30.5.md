@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ethiopia, and Put, and Lud, and all the mingled people, and Cub, and the children of the land that is in league, shall fall with them by the sword.
+Ethiopia, and Put, and Lud, and all the mixed people, and Cub, and the children of the land that is allied with them, shall fall with them by the sword.

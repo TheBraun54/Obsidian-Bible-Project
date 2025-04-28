@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon whatsoever any of them, when they are dead, doth fall, it shall be unclean; whether it be any vessel of wood, or raiment, or skin, or sack, whatsoever vessel it be, wherewith any work is done, it must be put into water, and it shall be unclean until the even; then shall it be clean.
+On whatever any of them falls when they are dead, it shall be unclean; whether it is any vessel of wood, or clothing, or skin, or sack, whatever vessel it is, with which any work is done, it must be put into water, and it shall be unclean until the evening; then it will be clean.

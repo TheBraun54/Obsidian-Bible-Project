@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Samuel, How long wilt thou mourn for Saul, seeing I have rejected him from being king over Israel? fill thy horn with oil, and go: I will send thee to Jesse the Beth-lehemite; for I have provided me a king among his sons.
+Yahweh said to Samuel, "How long will you mourn for Saul, since I have rejected him from being king over Israel? Fill your horn with oil, and go. I will send you to Jesse the Bethlehemite; for I have provided a king for myself among his sons."

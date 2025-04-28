@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Get thee unto Pharaoh in the morning; lo, he goeth out unto the water; and thou shalt stand by the river's brink to meet him; and the rod which was turned to a serpent shalt thou take in thy hand.
+Go to Pharaoh in the morning. Behold, he goes out to the water; and you shall stand by the river's bank to meet him; and the rod which was turned to a serpent you shall take in your hand.

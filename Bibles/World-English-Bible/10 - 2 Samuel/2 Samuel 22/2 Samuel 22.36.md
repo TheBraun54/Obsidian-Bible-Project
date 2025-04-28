@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast also given me the shield of thy salvation; And thy gentleness hath made me great.
+You have also given me the shield of your salvation. Your gentleness has made me great.

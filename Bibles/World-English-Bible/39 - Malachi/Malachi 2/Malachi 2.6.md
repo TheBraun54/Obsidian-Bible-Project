@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The law of truth was in his mouth, and unrighteousness was not found in his lips: he walked with me in peace and uprightness, and turned many away from iniquity.
+The law of truth was in his mouth, and unrighteousness was not found in his lips. He walked with me in peace and uprightness, and turned many away from iniquity.

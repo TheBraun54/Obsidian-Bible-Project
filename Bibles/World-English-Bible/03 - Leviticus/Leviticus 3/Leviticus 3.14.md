@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall offer thereof his oblation, [even] an offering made by fire unto Jehovah; the fat that covereth the inwards, and all the fat that is upon the inwards,
+He shall offer from it as his offering, an offering made by fire to Yahweh; the fat that covers the innards, and all the fat that is on the innards,

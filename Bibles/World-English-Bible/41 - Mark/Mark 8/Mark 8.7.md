@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had a few small fishes: and having blessed them, he commanded to set these also before them.
+They had a few small fish. Having blessed them, he said to serve these also.

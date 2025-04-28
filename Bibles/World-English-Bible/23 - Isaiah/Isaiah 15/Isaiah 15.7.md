@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the abundance they have gotten, and that which they have laid up, shall they carry away over the brook of the willows.
+Therefore they will carry away the abundance they have gotten, and that which they have stored up, over the brook of the willows.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but refuse profane and old wives' fables. And exercise thyself unto godliness:
+But refuse profane and old wives' fables. Exercise yourself toward godliness.

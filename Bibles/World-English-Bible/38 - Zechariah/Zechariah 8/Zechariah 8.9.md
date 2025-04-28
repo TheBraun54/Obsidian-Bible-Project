@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: Let your hands be strong, ye that hear in these days these words from the mouth of the prophets that were in the day that the foundation of the house of Jehovah of hosts was laid, even the temple, that it might be built.
+Thus says Yahweh of Armies: "Let your hands be strong, you who hear in these days these words from the mouth of the prophets who were in the day that the foundation of the house of Yahweh of Armies was laid, even the temple, that it might be built.

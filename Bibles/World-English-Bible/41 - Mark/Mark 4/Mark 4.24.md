@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Take heed what ye hear: with what measure ye mete it shall be measured unto you; and more shall be given unto you.
+He said to them, "Take heed what you hear. With whatever measure you measure, it will be measured to you, and more will be given to you who hear.

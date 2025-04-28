@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went up from the plains of Moab unto mount Nebo, to the top of Pisgah, that is over against Jericho. And Jehovah showed him all the land of Gilead, unto Dan,
+Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, that is over against Jericho. Yahweh showed him all the land of Gilead, to Dan,

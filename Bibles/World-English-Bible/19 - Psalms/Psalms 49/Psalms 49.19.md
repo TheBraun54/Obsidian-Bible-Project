@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall go to the generation of his fathers; They shall never see the light.
+he shall go to the generation of his fathers. They shall never see the light.

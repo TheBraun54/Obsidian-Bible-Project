@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now before this, Eliashib the priest, who was appointed over the chambers of the house of our God, being allied unto Tobiah,
+Now before this, Eliashib the priest, who was appointed over the rooms of the house of our God, being allied to Tobiah,

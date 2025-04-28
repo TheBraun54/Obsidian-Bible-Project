@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore we henceforth know no man after the flesh: even though we have known Christ after the flesh, yet now we know [him so] no more.
+Therefore we know no one after the flesh from now on. Even though we have known Christ after the flesh, yet now we know him so no more.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her brother and her mother said, Let the damsel abide with us [a few] days, at the least ten; after that she shall go.
+Her brother and her mother said, "Let the young lady stay with us a few days, at least ten. After that she will go."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trust in Jehovah with all thy heart, And lean not upon thine own understanding:
+Trust in Yahweh with all your heart, and don't lean on your own understanding.

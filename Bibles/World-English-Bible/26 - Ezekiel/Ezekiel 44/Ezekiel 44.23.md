@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall teach my people the difference between the holy and the common, and cause them to discern between the unclean and the clean.
+They shall teach my people the difference between the holy and the common, and cause them to discern between the unclean and the clean.

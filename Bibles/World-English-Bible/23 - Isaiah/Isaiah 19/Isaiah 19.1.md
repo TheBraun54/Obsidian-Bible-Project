@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The burden of Egypt. Behold, Jehovah rideth upon a swift cloud, and cometh unto Egypt: and the idols of Egypt shall tremble at his presence; and the heart of Egypt shall melt in the midst of it.
+The burden of Egypt: "Behold, Yahweh rides on a swift cloud, and comes to Egypt. The idols of Egypt will tremble at his presence; and the heart of Egypt will melt in its midst.

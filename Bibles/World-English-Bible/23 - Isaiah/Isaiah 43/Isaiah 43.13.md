@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, since the day was I am he; and there is none that can deliver out of my hand: I will work, and who can hinder it?
+Yes, since the day was I am he; and there is no one who can deliver out of my hand. I will work, and who can hinder it?"

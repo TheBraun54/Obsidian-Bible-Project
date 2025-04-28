@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For verily I say unto you, that many prophets and righteous men desired to see the things which ye see, and saw them not; and to hear the things which ye hear, and heard them not.
+For most certainly I tell you that many prophets and righteous men desired to see the things which you see, and didn't see them; and to hear the things which you hear, and didn't hear them.

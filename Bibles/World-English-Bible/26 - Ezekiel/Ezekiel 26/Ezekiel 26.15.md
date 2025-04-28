@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah to Tyre: shall not the isles shake at the sound of thy fall, when the wounded groan, when the slaughter is made in the midst of thee?
+Thus says the Lord Yahweh to Tyre: shall not the islands shake at the sound of your fall, when the wounded groan, when the slaughter is made in the midst of you?

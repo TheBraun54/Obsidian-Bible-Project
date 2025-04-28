@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know thy works, that thou art neither cold nor hot: I would thou wert cold or hot.
+"I know your works, that you are neither cold nor hot. I wish you were cold or hot.

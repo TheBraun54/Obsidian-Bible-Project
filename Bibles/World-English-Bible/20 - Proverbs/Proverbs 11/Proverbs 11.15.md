@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is surety for a stranger shall smart for it; But he that hateth suretyship is secure.
+He who is collateral for a stranger will suffer for it, but he who refuses pledges of collateral is secure.

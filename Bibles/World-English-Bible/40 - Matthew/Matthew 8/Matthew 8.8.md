@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the centurion answered and said, Lord, I am not worthy that thou shouldest come under my roof; but only say the word, and my servant shall be healed.
+The centurion answered, "Lord, I'm not worthy for you to come under my roof. Just say the word, and my servant will be healed.

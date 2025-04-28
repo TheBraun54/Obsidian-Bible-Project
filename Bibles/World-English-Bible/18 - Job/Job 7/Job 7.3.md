@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So am I made to possess months of misery, And wearisome nights are appointed to me.
+so am I made to possess months of misery, wearisome nights are appointed to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Gibeah rose against me, and beset the house round about me by night; me they thought to have slain, and my concubine they forced, and she is dead.
+The men of Gibeah rose against me, and surrounded the house by night. They thought to have slain me, and they forced my concubine, and she is dead.

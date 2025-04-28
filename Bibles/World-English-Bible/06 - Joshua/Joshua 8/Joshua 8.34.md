@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward he read all the words of the law, the blessing and the curse, according to all that is written in the book of the law.
+Afterward he read all the words of the law, the blessing and the curse, according to all that is written in the book of the law.

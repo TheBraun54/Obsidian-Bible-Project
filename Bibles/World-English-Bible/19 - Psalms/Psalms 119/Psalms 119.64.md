@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth, O Jehovah, is full of thy lovingkindness: Teach me thy statutes.
+The earth is full of your loving kindness, Yahweh. Teach me your statutes. TET

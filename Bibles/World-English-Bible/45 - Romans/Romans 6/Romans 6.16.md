@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know ye not, that to whom ye present yourselves [as] servants unto obedience, his servants ye are whom ye obey; whether of sin unto death, or of obedience unto righteousness?
+Don't you know that to whom you present yourselves as servants to obedience, his servants you are whom you obey; whether of sin to death, or of obedience to righteousness?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When your fear cometh as a storm, And your calamity cometh on as a whirlwind; When distress and anguish come upon you.
+when calamity overtakes you like a storm, when your disaster comes on like a whirlwind; when distress and anguish come on you.

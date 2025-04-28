@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, as the eyes of servants [look] unto the hand of their master, As the eyes of a maid unto the hand of her mistress; So our eyes [look] unto Jehovah our God, Until he have mercy upon us.
+Behold, as the eyes of servants look to the hand of their master, as the eyes of a maid to the hand of her mistress; so our eyes look to Yahweh, our God, until he has mercy on us.

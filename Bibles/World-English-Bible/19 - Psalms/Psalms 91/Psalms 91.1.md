@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that dwelleth in the secret place of the Most High Shall abide under the shadow of the Almighty.
+He who dwells in the secret place of the Most High will rest in the shadow of the Almighty.

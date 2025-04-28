@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shalt thou send abroad the loud trumpet on the tenth day of the seventh month; in the day of atonement shall ye send abroad the trumpet throughout all your land.
+Then you shall sound the loud trumpet on the tenth day of the seventh month. On the Day of Atonement you shall sound the trumpet throughout all your land.

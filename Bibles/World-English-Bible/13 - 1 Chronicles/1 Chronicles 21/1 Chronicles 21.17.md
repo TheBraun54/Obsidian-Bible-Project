@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto God, Is it not I that commanded the people to be numbered? even I it is that have sinned and done very wickedly; but these sheep, what have they done? let thy hand, I pray thee, O Jehovah my God, be against me, and against my father's house; but not against thy people, that they should be plagued.
+David said to God, "Isn't it I who commanded the people to be numbered? It is even I who have sinned and done very wickedly; but these sheep, what have they done? Please let your hand, O Yahweh my God, be against me, and against my father's house; but not against your people, that they should be plagued."

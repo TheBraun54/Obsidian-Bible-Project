@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou rulest the pride of the sea: When the waves thereof arise, thou stillest them.
+You rule the pride of the sea. When its waves rise up, you calm them.

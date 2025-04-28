@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Son of man, stand upon thy feet, and I will speak with thee.
+He said to me, Son of man, stand on your feet, and I will speak with you.

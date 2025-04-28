@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now unto him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us,
+Now to him who is able to do exceedingly abundantly above all that we ask or think, according to the power that works in us,

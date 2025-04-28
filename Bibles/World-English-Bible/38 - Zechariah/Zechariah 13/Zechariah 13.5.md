@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he shall say, I am no prophet, I am a tiller of the ground; for I have been made a bondman from my youth.
+but he will say, 'I am no prophet, I am a tiller of the ground; for I have been made a bondservant from my youth.'

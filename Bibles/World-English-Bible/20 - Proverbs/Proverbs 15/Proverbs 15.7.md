@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lips of the wise disperse knowledge; But the heart of the foolish [doeth] not so.
+The lips of the wise spread knowledge; not so with the heart of fools.

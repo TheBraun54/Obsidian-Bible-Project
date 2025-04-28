@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they overcame him because of the blood of the Lamb, and because of the word of their testimony; and they loved not their life even unto death.
+They overcame him because of the Lamb's blood, and because of the word of their testimony. They didn't love their life, even to death.

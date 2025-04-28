@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the men of might, even seven thousand, and the craftsmen and the smiths a thousand, all of them strong and apt for war, even them the king of Babylon brought captive to Babylon.
+All the men of might, even seven thousand, and the craftsmen and the smiths one thousand, all of them strong and apt for war, even them the king of Babylon brought captive to Babylon.

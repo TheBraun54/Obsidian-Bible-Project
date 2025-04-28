@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elkanah went to Ramah to his house. And the child did minister unto Jehovah before Eli the priest.
+Elkanah went to Ramah to his house. The child did minister to Yahweh before Eli the priest.

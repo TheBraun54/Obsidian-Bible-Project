@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made a calf in those days, and brought a sacrifice unto the idol, and rejoiced in the works of their hands.
+They made a calf in those days, and brought a sacrifice to the idol, and rejoiced in the works of their hands.

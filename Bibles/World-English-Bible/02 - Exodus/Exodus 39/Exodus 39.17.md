@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put the two wreathen chains of gold in the two rings at the ends of the breastplate.
+They put the two braided chains of gold in the two rings at the ends of the breastplate.

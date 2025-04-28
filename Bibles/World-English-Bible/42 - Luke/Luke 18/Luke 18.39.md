@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that went before rebuked him, that he should hold his peace: but he cried out the more a great deal, Thou son of David, have mercy on me.
+Those who led the way rebuked him, that he should be quiet; but he cried out all the more, "You son of David, have mercy on me!"

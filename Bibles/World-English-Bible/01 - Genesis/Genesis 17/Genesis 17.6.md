@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make thee exceeding fruitful, and I will make nations of thee, and kings shall come out of thee.
+I will make you exceedingly fruitful, and I will make nations of you. Kings will come out of you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous is delivered out of trouble, And the wicked cometh in his stead.
+A righteous person is delivered out of trouble, and the wicked takes his place.

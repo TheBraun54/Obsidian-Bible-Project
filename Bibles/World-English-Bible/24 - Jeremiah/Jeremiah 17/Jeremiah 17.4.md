@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, even of thyself, shalt discontinue from thy heritage that I gave thee; and I will cause thee to serve thine enemies in the land which thou knowest not: for ye have kindled a fire in mine anger which shall burn for ever.
+You, even of yourself, shall discontinue from your heritage that I gave you; and I will cause you to serve your enemies in the land which you don't know: for you have kindled a fire in my anger which shall burn forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thirty and two thousand persons in all, of the women that had not known man by lying with him.
+and thirty-two thousand persons in all, of the women who had not known man by lying with him.

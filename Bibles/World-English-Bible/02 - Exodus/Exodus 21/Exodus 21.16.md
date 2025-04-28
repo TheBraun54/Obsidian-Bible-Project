@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that stealeth a man, and selleth him, or if he be found in his hand, he shall surely be put to death.
+"Anyone who kidnaps someone and sells him, or if he is found in his hand, he shall surely be put to death.

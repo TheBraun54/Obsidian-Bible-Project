@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even so ye also, when ye see these things coming to pass, know ye that he is nigh, [even] at the doors.
+even so you also, when you see these things coming to pass, know that it is near, at the doors.

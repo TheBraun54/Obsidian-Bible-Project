@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they heard it, they marvelled, and left him, and went away.
+When they heard it, they marveled, and left him, and went away.

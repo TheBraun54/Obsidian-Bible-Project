@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he looketh to the ends of the earth, And seeth under the whole heaven;
+For he looks to the ends of the earth, and sees under the whole sky.

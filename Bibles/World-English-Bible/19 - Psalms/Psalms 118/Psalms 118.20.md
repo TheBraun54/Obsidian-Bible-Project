@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the gate of Jehovah; The righteous shall enter into it.
+This is the gate of Yahweh; the righteous will enter into it.

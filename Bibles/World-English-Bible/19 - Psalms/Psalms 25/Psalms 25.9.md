@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The meek will he guide in justice; And the meek will he teach his way.
+He will guide the humble in justice. He will teach the humble his way.

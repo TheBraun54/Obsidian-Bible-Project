@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses sent messengers from Kadesh unto the king of Edom, Thus saith thy brother Israel, Thou knowest all the travail that hath befallen us:
+Moses sent messengers from Kadesh to the king of Edom, saying: "Thus says your brother Israel: You know all the travail that has happened to us:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was told the house of David, saying, Syria is confederate with Ephraim. And his heart trembled, and the heart of his people, as the trees of the forest tremble with the wind.
+It was told the house of David, saying, "Syria is allied with Ephraim." His heart trembled, and the heart of his people, as the trees of the forest tremble with the wind.

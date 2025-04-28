@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered, If I glorify myself, my glory is nothing: it is my Father that glorifieth me; of whom ye say, that he is your God;
+Jesus answered, "If I glorify myself, my glory is nothing. It is my Father who glorifies me, of whom you say that he is our God.

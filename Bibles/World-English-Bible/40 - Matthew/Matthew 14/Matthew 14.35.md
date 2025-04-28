@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the men of that place knew him, they sent into all that region round about, and brought unto him all that were sick,
+When the people of that place recognized him, they sent into all that surrounding region, and brought to him all who were sick,

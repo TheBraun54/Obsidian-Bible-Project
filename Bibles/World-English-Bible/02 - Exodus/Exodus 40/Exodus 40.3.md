@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put therein the ark of the testimony, and thou shalt screen the ark with the veil.
+You shall put the ark of the testimony in it, and you shall screen the ark with the veil.

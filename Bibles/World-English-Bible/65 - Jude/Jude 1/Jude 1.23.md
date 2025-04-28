@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and some save, snatching them out of the fire; and on some have mercy with fear; hating even the garment spotted by the flesh.
+and some save, snatching them out of the fire with fear, hating even the clothing stained by the flesh.

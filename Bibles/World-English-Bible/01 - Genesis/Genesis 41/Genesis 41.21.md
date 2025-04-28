@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they had eaten them up, it could not be known that they had eaten them; but they were still ill-favored, as at the beginning. So I awoke.
+and when they had eaten them up, it couldn't be known that they had eaten them, but they were still ugly, as at the beginning. So I awoke.

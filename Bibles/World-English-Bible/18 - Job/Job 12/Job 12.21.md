@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He poureth contempt upon princes, And looseth the belt of the strong.
+He pours contempt on princes, and loosens the belt of the strong.

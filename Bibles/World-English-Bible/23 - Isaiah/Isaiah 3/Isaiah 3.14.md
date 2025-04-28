@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will enter into judgment with the elders of his people, and the princes thereof: It is ye that have eaten up the vineyard; the spoil of the poor is in your houses:
+Yahweh will enter into judgment with the elders of his people, and their leaders: "It is you who have eaten up the vineyard. The spoil of the poor is in your houses.

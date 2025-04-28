@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Babylon hath been a golden cup in Jehovah's hand, that made all the earth drunken: the nations have drunk of her wine; therefore the nations are mad.
+Babylon has been a golden cup in Yahweh's hand, who made all the earth drunken: the nations have drunk of her wine; therefore the nations are mad.

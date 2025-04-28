@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But of him are ye in Christ Jesus, who was made unto us wisdom from God, and righteousness and sanctification, and redemption:
+But of him, you are in Christ Jesus, who was made to us wisdom from God, and righteousness and sanctification, and redemption:

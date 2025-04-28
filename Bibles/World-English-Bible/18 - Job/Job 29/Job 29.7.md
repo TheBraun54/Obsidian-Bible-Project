@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When I went forth to the gate unto the city, When I prepared my seat in the street,
+when I went forth to the city gate, when I prepared my seat in the street.

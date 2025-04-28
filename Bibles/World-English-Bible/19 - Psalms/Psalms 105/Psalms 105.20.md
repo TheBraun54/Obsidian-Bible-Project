@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king sent and loosed him; Even the ruler of peoples, and let him go free.
+The king sent and freed him; even the ruler of peoples, and let him go free.

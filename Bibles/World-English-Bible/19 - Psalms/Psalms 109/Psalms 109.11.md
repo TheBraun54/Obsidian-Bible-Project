@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the extortioner catch all that he hath; And let strangers make spoil of his labor.
+Let the creditor seize all that he has. Let strangers plunder the fruit of his labor.

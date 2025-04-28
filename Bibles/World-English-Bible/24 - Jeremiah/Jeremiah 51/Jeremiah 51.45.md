@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My people, go ye out of the midst of her, and save yourselves every man from the fierce anger of Jehovah.
+My people, go away from the midst of her, and save yourselves every man from the fierce anger of Yahweh.

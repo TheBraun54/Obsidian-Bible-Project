@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children gather wood, and the fathers kindle the fire, and the women knead the dough, to make cakes to the queen of heaven, and to pour out drink-offerings unto other gods, that they may provoke me to anger.
+The children gather wood, and the fathers kindle the fire, and the women knead the dough, to make cakes to the queen of the sky, and to pour out drink offerings to other gods, that they may provoke me to anger.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye remember, brethren, our labor and travail: working night and day, that we might not burden any of you, we preached unto you the gospel of God.
+For you remember, brothers, our labor and travail; for working night and day, that we might not burden any of you, we preached to you the Good News of God.

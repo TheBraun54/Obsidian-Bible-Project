@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his wife the Jewess bare Jered the father of Gedor, and Heber the father of Soco, and Jekuthiel the father of Zanoah. And these are the sons of Bithiah the daughter of Pharaoh, whom Mered took.
+His wife the Jewess bore Jered the father of Gedor, and Heber the father of Soco, and Jekuthiel the father of Zanoah. These are the sons of Bithiah the daughter of Pharaoh, whom Mered took.

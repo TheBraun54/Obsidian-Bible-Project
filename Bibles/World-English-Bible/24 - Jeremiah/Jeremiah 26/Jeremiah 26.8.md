@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jeremiah had made an end of speaking all that Jehovah had commanded him to speak unto all the people, that the priests and the prophets and all the people laid hold on him, saying, Thou shalt surely die.
+It happened, when Jeremiah had made an end of speaking all that Yahweh had commanded him to speak to all the people, that the priests and the prophets and all the people laid hold on him, saying, You shall surely die.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men went and passed through the land, and described it by cities into seven portions in a book; and they came to Joshua unto the camp at Shiloh.
+The men went and passed through the land, and surveyed it by cities into seven portions in a book. They came to Joshua to the camp at Shiloh.

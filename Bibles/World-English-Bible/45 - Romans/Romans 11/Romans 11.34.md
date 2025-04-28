@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For who hath known the mind of the Lord? or who hath been his counsellor?
+"For who has known the mind of the Lord? Or who has been his counselor?"

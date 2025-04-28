@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made their father drink wine that night: and the first-born went in, and lay with her father; and he knew not when she lay down, nor when she arose.
+They made their father drink wine that night: and the firstborn went in, and lay with her father. He didn't know when she lay down, nor when she arose.

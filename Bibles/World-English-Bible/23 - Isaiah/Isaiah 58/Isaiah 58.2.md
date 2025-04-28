@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet they seek me daily, and delight to know my ways: as a nation that did righteousness, and forsook not the ordinance of their God, they ask of me righteous judgments; they delight to draw near unto God.
+Yet they seek me daily, and delight to know my ways: as a nation that did righteousness, and didn't forsake the ordinance of their God, they ask of me righteous judgments; they delight to draw near to God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Lord, I believe. And he worshipped him.
+He said, "Lord, I believe!" and he worshiped him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou not heard how I have done it long ago, and formed it of ancient times? now have I brought it to pass, that it should be thine to lay waste fortified cities into ruinous heaps.
+Haven't you heard how I have done it long ago, and formed it of ancient times? Now have I brought it to pass, that it should be yours to lay waste fortified cities into ruinous heaps.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it came to pass, when David was in Edom, and Joab the captain of the host was gone up to bury the slain, and had smitten every male in Edom
+For it happened, when David was in Edom, and Joab the captain of the army was gone up to bury the slain, and had struck every male in Edom

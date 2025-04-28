@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went on his journeys from the South even to Beth-el, unto the place where his tent had been at the beginning, between Beth-el and Ai,
+He went on his journeys from the South even to Bethel, to the place where his tent had been at the beginning, between Bethel and Ai,

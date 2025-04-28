@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, let us love one another: for love is of God; and every one that loveth is begotten of God, and knoweth God.
+Beloved, let us love one another, for love is of God; and everyone who loves is born of God, and knows God.

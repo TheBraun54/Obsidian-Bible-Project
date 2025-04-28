@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou not procured this unto thyself, in that thou hast forsaken Jehovah thy God, when he led thee by the way?
+"Haven't you procured this to yourself, in that you have forsaken Yahweh your God, when he led you by the way?

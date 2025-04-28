@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I look for Sheol as my house; If I have spread my couch in the darkness;
+If I look for Sheol as my house, if I have spread my couch in the darkness,

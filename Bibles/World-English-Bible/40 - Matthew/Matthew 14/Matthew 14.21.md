@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that did eat were about five thousand men, besides women and children.
+Those who ate were about five thousand men, besides women and children.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall cause the house to be scraped within round about, and they shall pour out the mortar, that they scrape off, without the city into an unclean place:
+and he shall cause the inside of the house to be scraped all over, and they shall pour out the mortar, that they scraped off, outside of the city into an unclean place.

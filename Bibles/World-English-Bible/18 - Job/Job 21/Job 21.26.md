@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They lie down alike in the dust, And the worm covereth them.
+They lie down alike in the dust. The worm covers them.

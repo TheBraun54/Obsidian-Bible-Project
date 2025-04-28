@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will utterly consume all things from off the face of the ground, saith Jehovah.
+I will utterly sweep away everything off of the surface of the earth, says Yahweh.

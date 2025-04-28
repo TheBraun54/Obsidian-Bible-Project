@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that lieth with any manner of beast. And all the people shall say, Amen.
+'Cursed is he who lies with any kind of animal.' All the people shall say, 'Amen.'

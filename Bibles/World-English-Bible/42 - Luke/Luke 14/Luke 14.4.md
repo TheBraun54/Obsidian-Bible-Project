@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they held their peace. And he took him, and healed him, and let him go.
+But they were silent. He took him, and healed him, and let him go.

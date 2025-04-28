@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou puttest my feet also in the stocks, And markest all my paths; Thou settest a bound to the soles of my feet:
+You also put my feet in the stocks, and mark all my paths. You set a bound to the soles of my feet,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the seventh day, that there went out some of the people to gather, and they found none.
+It happened on the seventh day, that some of the people went out to gather, and they found none.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Eleazar the priest took the gold of them, even all wrought jewels.
+Moses and Eleazar the priest took the gold of them, even all worked jewels.

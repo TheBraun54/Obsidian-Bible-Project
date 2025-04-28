@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the wicked shall not stand in the judgment, Nor sinners in the congregation of the righteous.
+Therefore the wicked shall not stand in the judgment, nor sinners in the congregation of the righteous.

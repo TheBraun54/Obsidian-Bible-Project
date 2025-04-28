@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall be a perpetual statute throughout your generations in all your dwellings, that ye shall eat neither fat nor blood.
+"'It shall be a perpetual statute throughout your generations in all your dwellings, that you shall eat neither fat nor blood.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the life is more than the food, and the body than the raiment.
+Life is more than food, and the body is more than clothing.

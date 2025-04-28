@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall rejoice before Jehovah your God, ye, and your sons, and your daughters, and your men-servants, and your maid-servants, and the Levite that is within your gates, forasmuch as he hath no portion nor inheritance with you.
+You shall rejoice before Yahweh your God, you, and your sons, and your daughters, and your male servants, and your female servants, and the Levite who is within your gates, because he has no portion nor inheritance with you.

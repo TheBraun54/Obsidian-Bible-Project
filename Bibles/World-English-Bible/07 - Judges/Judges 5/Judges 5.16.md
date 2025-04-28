@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why sattest thou among the sheepfolds, To hear the pipings for the flocks? At the watercourses of Reuben There were great searchings of heart.
+Why did you sit among the sheepfolds, To hear the whistling for the flocks? At the watercourses of Reuben There were great searchings of heart.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cloud removed from over the Tent; and, behold, Miriam was leprous, as [white as] snow: and Aaron looked upon Miriam, and, behold, she was leprous.
+The cloud departed from over the Tent; and behold, Miriam was leprous, as white as snow. Aaron looked at Miriam, and behold, she was leprous.

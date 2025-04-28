@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If now [thou hast] understanding, hear this: Hearken to the voice of my words.
+"If now you have understanding, hear this. Listen to the voice of my words.

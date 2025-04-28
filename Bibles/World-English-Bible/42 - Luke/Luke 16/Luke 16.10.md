@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is faithful in a very little is faithful also in much: and he that is unrighteous in a very little is unrighteous also in much.
+He who is faithful in a very little is faithful also in much. He who is dishonest in a very little is also dishonest in much.

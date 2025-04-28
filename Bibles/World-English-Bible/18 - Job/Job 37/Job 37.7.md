@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sealeth up the hand of every man, That all men whom he hath made may know [it] .
+He seals up the hand of every man, that all men whom he has made may know it.

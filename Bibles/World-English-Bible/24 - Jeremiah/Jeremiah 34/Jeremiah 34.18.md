@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give the men that have transgressed my covenant, that have not performed the words of the covenant which they made before me, when they cut the calf in twain and passed between the parts thereof;
+I will give the men who have transgressed my covenant, who have not performed the words of the covenant which they made before me, when they cut the calf in two and passed between its parts;

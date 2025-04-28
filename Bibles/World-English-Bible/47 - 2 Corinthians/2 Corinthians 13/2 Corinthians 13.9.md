@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we rejoice, when we are weak, and ye are strong: this we also pray for, even your perfecting.
+For we rejoice when we are weak and you are strong. And this we also pray for, even your perfecting.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is not thy wickedness great? Neither is there any end to thine iniquities.
+Isn't your wickedness great? Neither is there any end to your iniquities.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah uttereth his voice before his army; for his camp is very great; for he is strong that executeth his word; for the day of Jehovah is great and very terrible; and who can abide it?
+Yahweh thunders his voice before his army; for his forces are very great; for he is strong who obeys his command; for the day of Yahweh is great and very awesome, and who can endure it?

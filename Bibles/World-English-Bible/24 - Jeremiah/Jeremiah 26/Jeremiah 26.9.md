@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why hast thou prophesied in the name of Jehovah, saying, This house shall be like Shiloh, and this city shall be desolate, without inhabitant? And all the people were gathered unto Jeremiah in the house of Jehovah.
+Why have you prophesied in the name of Yahweh, saying, This house shall be like Shiloh, and this city shall be desolate, without inhabitant? All the people were gathered to Jeremiah in the house of Yahweh.

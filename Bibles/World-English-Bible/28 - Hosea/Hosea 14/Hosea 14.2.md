@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take with you words, and return unto Jehovah: say unto him, Take away all iniquity, and accept that which is good: so will we render [as] bullocks [the offering of] our lips.
+Take words with you, and return to Yahweh. Tell him, "Forgive all our sins, and accept that which is good: so we offer our lips like bulls.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the thirty and eighth year of Azariah king of Judah did Zechariah the son of Jeroboam reign over Israel in Samaria six months.
+In the thirty-eighth year of Azariah king of Judah did Zechariah the son of Jeroboam reign over Israel in Samaria six months.

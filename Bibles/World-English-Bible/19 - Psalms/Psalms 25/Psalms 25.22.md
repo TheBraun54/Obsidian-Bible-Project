@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Redeem Israel, O God, Out all of his troubles.
+Redeem Israel, God, out all of his troubles. By David.

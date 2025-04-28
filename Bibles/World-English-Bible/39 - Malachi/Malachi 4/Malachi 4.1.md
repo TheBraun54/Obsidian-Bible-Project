@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, the day cometh, it burneth as a furnace; and all the proud, and all that work wickedness, shall be stubble; and the day that cometh shall burn them up, saith Jehovah of hosts, that it shall leave them neither root nor branch.
+"For, behold, the day comes, it burns as a furnace; and all the proud, and all who work wickedness, will be stubble; and the day that comes will burn them up," says Yahweh of Armies, "that it shall leave them neither root nor branch.

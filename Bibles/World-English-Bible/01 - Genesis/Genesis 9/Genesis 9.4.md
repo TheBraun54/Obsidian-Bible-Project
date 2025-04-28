@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But flesh with the life thereof, [which is] the blood thereof, shall ye not eat.
+But flesh with its life, its blood, you shall not eat.

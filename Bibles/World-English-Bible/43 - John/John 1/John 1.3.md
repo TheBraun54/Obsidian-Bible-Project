@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things were made through him; and without him was not anything made that hath been made.
+All things were made through him. Without him was not anything made that has been made.

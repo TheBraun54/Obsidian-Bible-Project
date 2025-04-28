@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that know thy name will put their trust in thee; For thou, Jehovah, hast not forsaken them that seek thee.
+Those who know your name will put their trust in you, for you, Yahweh, have not forsaken those who seek you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall be unto him, and to his seed after him, the covenant of an everlasting priesthood; because he was jealous for his God, and made atonement for the children of Israel.
+and it shall be to him, and to his seed after him, the covenant of an everlasting priesthood; because he was jealous for his God, and made atonement for the children of Israel.'"

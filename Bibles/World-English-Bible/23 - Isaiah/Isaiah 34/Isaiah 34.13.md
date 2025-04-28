@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thorns shall come up in its palaces, nettles and thistles in the fortresses thereof; and it shall be a habitation of jackals, a court for ostriches.
+Thorns will come up in its palaces, nettles and thistles in its fortresses; and it will be a habitation of jackals, a court for ostriches.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was preaching in the synagogues of Galilee.
+He was preaching in the synagogues of Galilee.

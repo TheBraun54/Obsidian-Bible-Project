@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore seeing we have this ministry, even as we obtained mercy, we faint not:
+Therefore seeing we have this ministry, even as we obtained mercy, we don't faint.

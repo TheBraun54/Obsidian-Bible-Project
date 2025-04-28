@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherefore also there sprang of one, and him as good as dead, [so many] as the stars of heaven in multitude, and as the sand, which is by the sea-shore, innumerable.
+Therefore as many as the stars of the sky in multitude, and as innumerable as the sand which is by the sea shore, were fathered by one man, and him as good as dead.

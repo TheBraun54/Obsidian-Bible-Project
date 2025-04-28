@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall plant the tents of his palace between the sea and the glorious holy mountain; yet he shall come to his end, and none shall help him.
+He shall plant the tents of his palace between the sea and the glorious holy mountain; yet he shall come to his end, and none shall help him.

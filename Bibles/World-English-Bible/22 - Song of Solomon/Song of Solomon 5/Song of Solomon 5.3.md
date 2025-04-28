@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have put off my garment; How shall I put it on? I have washed my feet; how shall I defile them?
+I have taken off my robe. Indeed, must I put it on? I have washed my feet. Indeed, must I soil them?

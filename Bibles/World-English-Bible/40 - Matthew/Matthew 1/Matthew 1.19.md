@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph her husband, being a righteous man, and not willing to make her a public example, was minded to put her away privily.
+Joseph, her husband, being a righteous man, and not willing to make her a public example, intended to put her away secretly.

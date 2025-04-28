@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they straightway left the nets, and followed him.
+They immediately left their nets and followed him.

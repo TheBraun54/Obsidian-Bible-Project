@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Count it all joy, my brethren, when ye fall into manifold temptations;
+Count it all joy, my brothers, when you fall into various temptations,

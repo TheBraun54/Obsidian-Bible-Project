@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lord, hear my voice: Let thine ears be attentive To the voice of my supplications.
+Lord, hear my voice. Let your ears be attentive to the voice of my petitions.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the flesh lusteth against the Spirit, and the Spirit against the flesh; for these are contrary the one to the other; that ye may not do the things that ye would.
+For the flesh lusts against the Spirit, and the Spirit against the flesh; and these are contrary to one another, that you may not do the things that you desire.

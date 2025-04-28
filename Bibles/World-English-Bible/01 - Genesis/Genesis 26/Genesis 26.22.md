@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he removed from thence, and digged another well; and for that they strove not: and he called the name of it Rehoboth; and he said, For now Jehovah hath made room for us, and we shall be fruitful in the land.
+He left that place, and dug another well. They didn't argue over that one. He called it Rehoboth. He said, "For now Yahweh has made room for us, and we will be fruitful in the land."

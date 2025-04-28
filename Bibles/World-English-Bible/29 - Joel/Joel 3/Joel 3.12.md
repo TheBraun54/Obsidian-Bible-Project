@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the nations bestir themselves, and come up to the valley of Jehoshaphat; for there will I sit to judge all the nations round about.
+"Let the nations arouse themselves, and come up to the valley of Jehoshaphat; for there will I sit to judge all the surrounding nations.

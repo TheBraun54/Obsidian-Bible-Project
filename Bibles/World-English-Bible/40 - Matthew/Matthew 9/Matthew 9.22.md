@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus turning and seeing her said, Daughter, be of good cheer; thy faith hath made thee whole. And the woman was made whole from that hour.
+But Jesus, turning around and seeing her, said, "Daughter, cheer up! Your faith has made you well." And the woman was made well from that hour.

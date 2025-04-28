@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye had known me, ye would have known my Father also: from henceforth ye know him, and have seen him.
+If you had known me, you would have known my Father also. From now on, you know him, and have seen him."

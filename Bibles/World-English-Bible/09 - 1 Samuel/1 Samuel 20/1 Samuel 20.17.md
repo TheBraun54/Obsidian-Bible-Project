@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan caused David to swear again, for the love that he had to him; for he loved him as he loved his own soul.
+Jonathan caused David to swear again, for the love that he had to him; for he loved him as he loved his own soul.

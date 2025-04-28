@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Zion heard and was glad, And the daughters of Judah rejoiced, Because of thy judgments, O Jehovah.
+Zion heard and was glad. The daughters of Judah rejoiced, because of your judgments, Yahweh.

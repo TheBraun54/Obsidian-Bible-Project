@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then thou shalt see and be radiant, and thy heart shall thrill and be enlarged; because the abundance of the sea shall be turned unto thee, the wealth of the nations shall come unto thee.
+Then you shall see and be radiant, and your heart shall thrill and be enlarged; because the abundance of the sea shall be turned to you, the wealth of the nations shall come to you.

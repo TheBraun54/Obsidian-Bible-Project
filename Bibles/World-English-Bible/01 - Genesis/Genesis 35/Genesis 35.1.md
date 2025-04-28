@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto Jacob, Arise, go up to Beth-el, and dwell there: and make there an altar unto God, who appeared unto thee when thou fleddest from the face of Esau thy brother.
+God said to Jacob, "Arise, go up to Bethel, and live there. Make there an altar to God, who appeared to you when you fled from the face of Esau your brother."

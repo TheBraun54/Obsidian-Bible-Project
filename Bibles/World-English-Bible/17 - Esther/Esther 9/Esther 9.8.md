@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Poratha, and Adalia, and Aridatha,
+Poratha, Adalia, Aridatha,

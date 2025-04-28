@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the whole earth was of one language and of one speech.
+The whole earth was of one language and of one speech.

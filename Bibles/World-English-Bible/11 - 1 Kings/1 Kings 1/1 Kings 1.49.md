@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the guests of Adonijah were afraid, and rose up, and went every man his way.
+All the guests of Adonijah were afraid, and rose up, and each man went his way.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Haman saw that Mordecai bowed not down, nor did him reverence, then was Haman full of wrath.
+When Haman saw that Mordecai didn't bow down, nor pay him homage, Haman was full of wrath.

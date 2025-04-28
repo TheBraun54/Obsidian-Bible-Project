@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they send unto him certain of the Pharisees and of the Herodians, that they might catch him in talk.
+They sent some of the Pharisees and of the Herodians to him, that they might trap him with words.

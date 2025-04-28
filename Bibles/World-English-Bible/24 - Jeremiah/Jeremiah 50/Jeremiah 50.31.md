@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I am against thee, O thou proud one, saith the Lord, Jehovah of hosts; for thy day is come, the time that I will visit thee.
+Behold, I am against you, you proud one, says the Lord, Yahweh of Armies; for your day has come, the time that I will visit you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan smote the garrison of the Philistines that was in Geba: and the Philistines heard of it. And Saul blew the trumpet throughout all the land, saying, Let the Hebrews hear.
+Jonathan struck the garrison of the Philistines that was in Geba: and the Philistines heard of it. Saul blew the trumpet throughout all the land, saying, "Let the Hebrews hear!"

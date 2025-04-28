@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord, thou hast pleaded the causes of my soul; thou hast redeemed my life.
+Lord, you have pleaded the causes of my soul; you have redeemed my life.

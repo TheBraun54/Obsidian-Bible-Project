@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the staff of his spear was like a weaver's beam; and his spear's head [weighed] six hundred shekels of iron: and his shield-bearer went before him.
+The staff of his spear was like a weaver's beam; and his spear's head [weighed] six hundred shekels of iron: and his shield bearer went before him.

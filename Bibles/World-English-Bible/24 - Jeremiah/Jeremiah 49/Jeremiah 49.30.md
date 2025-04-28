@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Flee ye, wander far off, dwell in the depths, O ye inhabitants of Hazor, saith Jehovah; for Nebuchadrezzar king of Babylon hath taken counsel against you, and hath conceived a purpose against you.
+Flee, wander far off, dwell in the depths, you inhabitants of Hazor, says Yahweh; for Nebuchadnezzar king of Babylon has taken counsel against you, and has conceived a purpose against you.

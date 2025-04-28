@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitude rebuked them, that they should hold their peace: but they cried out the more, saying, Lord, have mercy on us, thou son of David.
+The multitude rebuked them, telling them that they should be quiet, but they cried out even more, "Lord, have mercy on us, you son of David!"

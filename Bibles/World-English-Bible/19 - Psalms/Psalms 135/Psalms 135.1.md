@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah. Praise ye the name of Jehovah; Praise [him], O ye servants of Jehovah,
+Praise Yah! Praise the name of Yahweh! Praise him, you servants of Yahweh,

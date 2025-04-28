@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore is justice far from us, neither doth righteousness overtake us: we look for light, but, behold, darkness; for brightness, but we walk in obscurity.
+Therefore is justice far from us, neither does righteousness overtake us: we look for light, but, behold, darkness; for brightness, but we walk in obscurity.

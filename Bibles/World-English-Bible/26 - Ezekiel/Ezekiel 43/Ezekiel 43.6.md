@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I heard one speaking unto me out of the house; and a man stood by me.
+I heard one speaking to me out of the house; and a man stood by me.

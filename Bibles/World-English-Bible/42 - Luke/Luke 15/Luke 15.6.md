@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he cometh home, he calleth together his friends and his neighbors, saying unto them, Rejoice with me, for I have found my sheep which was lost.
+When he comes home, he calls together his friends and his neighbors, saying to them, 'Rejoice with me, for I have found my sheep which was lost!'

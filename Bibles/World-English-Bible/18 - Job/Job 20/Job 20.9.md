@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eye which saw him shall see him no more; Neither shall his place any more behold him.
+The eye which saw him shall see him no more, neither shall his place any more see him.

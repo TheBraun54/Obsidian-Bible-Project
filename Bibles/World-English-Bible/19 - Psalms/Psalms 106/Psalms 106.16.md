@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They envied Moses also in the camp, [And] Aaron the saint of Jehovah.
+They envied Moses also in the camp, and Aaron, Yahweh's saint.

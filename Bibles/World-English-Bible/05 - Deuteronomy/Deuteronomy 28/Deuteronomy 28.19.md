@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed shalt thou be when thou comest in, and cursed shalt thou be when thou goest out.
+You shall be cursed when you come in, and you shall be cursed when you go out.

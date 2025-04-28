@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many therefore of the Jews, who came to Mary and beheld that which he did, believed on him.
+Therefore many of the Jews, who came to Mary and saw what Jesus did, believed in him.

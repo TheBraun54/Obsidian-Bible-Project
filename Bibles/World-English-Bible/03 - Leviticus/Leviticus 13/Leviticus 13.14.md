@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But whensoever raw flesh appeareth in him, he shall be unclean.
+But whenever raw flesh appears in him, he shall be unclean.

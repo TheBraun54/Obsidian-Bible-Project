@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua burnt Ai, and made it a heap for ever, even a desolation, unto this day.
+So Joshua burnt Ai, and made it a heap forever, even a desolation, to this day.

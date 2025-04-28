@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When she had thus said, she turned herself back, and beholdeth Jesus standing, and knew not that it was Jesus.
+When she had said this, she turned around and saw Jesus standing, and didn't know that it was Jesus.

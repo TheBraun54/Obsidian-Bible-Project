@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where there is no counsel, purposes are disappointed; But in the multitude of counsellors they are established.
+Where there is no counsel, plans fail; but in a multitude of counselors they are established.

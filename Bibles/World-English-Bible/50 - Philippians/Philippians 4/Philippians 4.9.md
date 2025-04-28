@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The things which ye both learned and received and heard and saw in me, these things do: and the God of peace shall be with you.
+The things which you learned, received, heard, and saw in me: do these things, and the God of peace will be with you.

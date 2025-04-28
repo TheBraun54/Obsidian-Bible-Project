@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon offered a sacrifice of twenty and two thousand oxen, and a hundred and twenty thousand sheep. So the king and all the people dedicated the house of God.
+King Solomon offered a sacrifice of twenty-two thousand head of cattle, and a hundred and twenty thousand sheep. So the king and all the people dedicated the house of God.

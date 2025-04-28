@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us therefore give diligence to enter into that rest, that no man fall after the same example of disobedience.
+Let us therefore give diligence to enter into that rest, lest anyone fall after the same example of disobedience.

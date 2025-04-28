@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that fear thee shall see me and be glad, Because I have hoped in thy word.
+Those who fear you will see me and be glad, because I have put my hope in your word.

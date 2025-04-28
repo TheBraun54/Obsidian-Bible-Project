@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David send and inquired after the woman. And one said, Is not this Bath-sheba, the daughter of Eliam, the wife of Uriah the Hittite?
+David sent and inquired after the woman. One said, "Isn't this Bathsheba, the daughter of Eliam, the wife of Uriah the Hittite?"

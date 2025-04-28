@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Nebuzaradan the captain of the guard left of the poor of the people, that had nothing, in the land of Judah, and gave them vineyards and fields at the same time.
+But Nebuzaradan the captain of the guard left of the poor of the people, who had nothing, in the land of Judah, and gave them vineyards and fields at the same time.

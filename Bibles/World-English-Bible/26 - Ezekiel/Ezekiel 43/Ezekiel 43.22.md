@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the second day thou shalt offer a he-goat without blemish for a sin-offering; and they shall cleanse the altar, as they did cleanse it with the bullock.
+On the second day you shall offer a male goat without blemish for a sin offering; and they shall cleanse the altar, as they did cleanse it with the bull.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jehovah would take up Elijah by a whirlwind into heaven, that Elijah went with Elisha from Gilgal.
+It happened, when Yahweh would take up Elijah by a whirlwind into heaven, that Elijah went with Elisha from Gilgal.

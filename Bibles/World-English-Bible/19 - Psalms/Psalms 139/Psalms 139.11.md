@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I say, Surely the darkness shall overwhelm me, And the light about me shall be night;
+If I say, "Surely the darkness will overwhelm me; the light around me will be night;"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the angel that talked with me said unto me, Cry thou, saying, Thus saith Jehovah of hosts: I am jealous for Jerusalem and for Zion with a great jealousy.
+So the angel who talked with me said to me, "Proclaim, saying, 'Thus says Yahweh of Armies: "I am jealous for Jerusalem and for Zion with a great jealousy.

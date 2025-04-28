@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah sent thee on a journey, and said, Go, and utterly destroy the sinners the Amalekites, and fight against them until they be consumed.
+and Yahweh sent you on a journey, and said, 'Go, and utterly destroy the sinners the Amalekites, and fight against them until they are consumed.'

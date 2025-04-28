@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eyes of all wait for thee; And thou givest them their food in due season.
+The eyes of all wait for you. You give them their food in due season.

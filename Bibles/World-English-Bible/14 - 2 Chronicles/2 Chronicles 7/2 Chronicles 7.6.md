@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests stood, according to their offices; the Levites also with instruments of music of Jehovah, which David the king had made to give thanks unto Jehovah, (for his lovingkindness [endureth] for ever,) when David praised by their ministry: and the priests sounded trumpets before them; and all Israel stood.
+The priests stood, according to their positions; the Levites also with instruments of music of Yahweh, which David the king had made to give thanks to Yahweh, when David praised by their ministry, saying "For his loving kindness endures for ever." The priests sounded trumpets before them; and all Israel stood.

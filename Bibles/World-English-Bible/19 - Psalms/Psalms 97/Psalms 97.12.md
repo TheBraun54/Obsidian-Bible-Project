@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be glad in Jehovah, ye righteous; And give thanks to his holy memorial [name] .
+Be glad in Yahweh, you righteous people! Give thanks to his holy Name. A Psalm.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Moses came down from mount Sinai with the two tables of the testimony in Moses' hand, when he came down from the mount, that Moses knew not that the skin of his face shone by reason of his speaking with him.
+It happened, when Moses came down from Mount Sinai with the two tablets of the testimony in Moses' hand, when he came down from the mountain, that Moses didn't know that the skin of his face shone by reason of his speaking with him.

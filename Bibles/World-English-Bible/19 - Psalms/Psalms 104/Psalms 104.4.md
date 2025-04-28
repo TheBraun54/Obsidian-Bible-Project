@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who maketh winds his messengers; Flames of fire his ministers;
+He makes his messengers winds; his servants flames of fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul and the men of Israel were gathered together, and encamped in the vale of Elah, and set the battle in array against the Philistines.
+Saul and the men of Israel were gathered together, and encamped in the valley of Elah, and set the battle in array against the Philistines.

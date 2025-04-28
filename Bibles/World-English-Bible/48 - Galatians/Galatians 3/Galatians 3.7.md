@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know therefore that they that are of faith, the same are sons of Abraham.
+Know therefore that those who are of faith, the same are children of Abraham.

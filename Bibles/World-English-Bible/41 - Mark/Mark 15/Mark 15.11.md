@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the chief priests stirred up the multitude, that he should rather release Barabbas unto them.
+But the chief priests stirred up the multitude, that he should release Barabbas to them instead.

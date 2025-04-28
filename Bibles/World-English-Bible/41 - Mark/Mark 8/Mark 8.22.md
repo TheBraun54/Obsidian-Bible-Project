@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come unto Bethsaida. And they bring to him a blind man, and beseech him to touch him.
+He came to Bethsaida. They brought a blind man to him, and begged him to touch him.

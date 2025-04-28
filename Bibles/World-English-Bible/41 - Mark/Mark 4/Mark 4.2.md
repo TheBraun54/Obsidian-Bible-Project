@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he taught them many things in parables, and said unto them in his teaching,
+He taught them many things in parables, and told them in his teaching,

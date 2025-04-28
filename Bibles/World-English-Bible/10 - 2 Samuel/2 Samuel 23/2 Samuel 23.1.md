@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the last words of David. David the son of Jesse saith, And the man who was raised on high saith, The anointed of the God of Jacob, And the sweet psalmist of Israel:
+Now these are the last words of David. David the son of Jesse says, the man who was raised on high says, the anointed of the God of Jacob, the sweet psalmist of Israel:

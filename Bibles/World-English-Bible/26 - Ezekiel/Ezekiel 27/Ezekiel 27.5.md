@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have made all thy planks of fir-trees from Senir; they have taken a cedar from Lebanon to make a mast for thee.
+They have made all your planks of fir trees from Senir; they have taken a cedar from Lebanon to make a mast for you.

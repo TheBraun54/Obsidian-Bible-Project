@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them not depart from thine eyes; Keep them in the midst of thy heart.
+Let them not depart from your eyes. Keep them in the midst of your heart.

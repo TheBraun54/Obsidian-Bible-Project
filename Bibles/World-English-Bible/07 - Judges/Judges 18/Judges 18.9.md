@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Arise, and let us go up against them; for we have seen the land, and, behold, it is very good: and are ye still? be not slothful to go and to enter in to possess the land.
+They said, "Arise, and let us go up against them; for we have seen the land, and behold, it is very good. Do you stand still? Don't be slothful to go and to enter in to possess the land.

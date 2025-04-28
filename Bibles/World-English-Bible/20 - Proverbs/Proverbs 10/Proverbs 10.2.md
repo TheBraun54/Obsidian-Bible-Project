@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Treasures of wickedness profit nothing; But righteousness delivereth from death.
+Treasures of wickedness profit nothing, but righteousness delivers from death.

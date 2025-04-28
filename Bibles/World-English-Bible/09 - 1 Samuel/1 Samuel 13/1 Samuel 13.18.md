@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and another company turned the way to Beth-horon; and another company turned the way of the border that looketh down upon the valley of Zeboim toward the wilderness.
+and another company turned the way to Beth Horon; and another company turned the way of the border that looks down on the valley of Zeboim toward the wilderness.

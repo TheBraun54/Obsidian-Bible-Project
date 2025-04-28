@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the host of the tribe of the children of Issachar was Nethanel the son of Zuar.
+Nethanel the son of Zuar was over the army of the tribe of the children of Issachar.

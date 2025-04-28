@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Benjamin, Joseph's brother, Jacob sent not with his brethren; for he said, Lest peradventure harm befall him.
+But Jacob didn't send Benjamin, Joseph's brother, with his brothers; for he said, "Lest perhaps harm happen to him."

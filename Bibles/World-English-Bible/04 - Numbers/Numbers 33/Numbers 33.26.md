@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Makheloth, and encamped in Tahath.
+They traveled from Makheloth, and encamped in Tahath.

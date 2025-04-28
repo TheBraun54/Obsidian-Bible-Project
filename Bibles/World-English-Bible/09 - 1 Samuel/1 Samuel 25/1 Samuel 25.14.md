@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But one of the young men told Abigail, Nabal's wife, saying, Behold, David sent messengers out of the wilderness to salute our master; and he railed at them.
+But one of the young men told Abigail, Nabal's wife, saying, "Behold, David sent messengers out of the wilderness to Greet our master; and he railed at them.

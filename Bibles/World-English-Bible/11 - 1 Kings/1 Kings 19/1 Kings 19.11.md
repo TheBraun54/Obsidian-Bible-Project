@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Go forth, and stand upon the mount before Jehovah. And, behold, Jehovah passed by, and a great and strong wind rent the mountains, and brake in pieces the rocks before Jehovah; but Jehovah was not in the wind: and after the wind an earthquake; but Jehovah was not in the earthquake:
+He said, "Go out, and stand on the mountain before Yahweh." Behold, Yahweh passed by, and a great and strong wind tore the mountains, and broke in pieces the rocks before Yahweh; but Yahweh was not in the wind. After the wind an earthquake; but Yahweh was not in the earthquake.

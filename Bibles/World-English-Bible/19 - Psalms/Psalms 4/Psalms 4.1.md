@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; on stringed instruments. A Psalm of David]. Answer me when I call, O God of my righteousness; Thou hast set me at large [when I was] in distress: Have mercy upon me, and hear my prayer.
+Answer me when I call, God of my righteousness. Give me relief from my distress. Have mercy on me, and hear my prayer.

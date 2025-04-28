@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thee thanks for ever, because thou hast done it; And I will hope in thy name, for it is good, in the presence of thy saints.
+I will give you thanks forever, because you have done it. I will hope in your name, for it is good, in the presence of your saints. For the Chief Musician. To the tune of "Mahalath." A contemplation by David.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye seek anything about other matters, it shall be settled in the regular assembly.
+But if you seek anything about other matters, it will be settled in the regular assembly.

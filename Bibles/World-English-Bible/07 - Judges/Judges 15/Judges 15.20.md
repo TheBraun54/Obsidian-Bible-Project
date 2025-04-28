@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he judged Israel in the days of the Philistines twenty years.
+He judged Israel in the days of the Philistines twenty years.

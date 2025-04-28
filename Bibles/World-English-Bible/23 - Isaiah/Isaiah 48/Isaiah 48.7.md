@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are created now, and not from of old; and before this day thou heardest them not; lest thou shouldest say, Behold, I knew them.
+They are created now, and not from of old; and before this day you didn't hear them; lest you should say, 'Behold, I knew them.'

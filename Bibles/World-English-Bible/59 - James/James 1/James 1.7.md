@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For let not that man think that he shall receive anything of the Lord;
+For let that man not think that he will receive anything from the Lord.

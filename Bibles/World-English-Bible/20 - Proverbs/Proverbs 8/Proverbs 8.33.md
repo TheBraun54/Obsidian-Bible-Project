@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear instruction, and be wise, And refuse it not.
+Hear instruction, and be wise. Don't refuse it.

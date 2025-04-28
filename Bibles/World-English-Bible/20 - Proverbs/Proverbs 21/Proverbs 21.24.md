@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proud and haughty man, scoffer is his name; He worketh in the arrogance of pride.
+The proud and haughty man, "scoffer" is his name; he works in the arrogance of pride.

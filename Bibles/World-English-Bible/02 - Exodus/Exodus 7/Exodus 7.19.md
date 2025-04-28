@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Say unto Aaron, Take thy rod, and stretch out thy hand over the waters of Egypt, over their rivers, over their streams, and over their pools, and over all their ponds of water, that they may become blood; and there shall be blood throughout all the land of Egypt, both in vessels of wood and in vessels of stone.
+Yahweh said to Moses, "Tell Aaron, 'Take your rod, and stretch out your hand over the waters of Egypt, over their rivers, over their streams, and over their pools, and over all their ponds of water, that they may become blood; and there shall be blood throughout all the land of Egypt, both in vessels of wood and in vessels of stone.'"

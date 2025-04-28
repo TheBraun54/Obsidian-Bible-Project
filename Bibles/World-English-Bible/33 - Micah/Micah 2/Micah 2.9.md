@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The women of my people ye cast out from their pleasant houses; from their young children ye take away my glory for ever.
+You drive the women of my people out from their pleasant houses; from their young children you take away my blessing forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto him, To whom belongest thou? and whence art thou? And he said, I am a young man of Egypt, servant to an Amalekite; and my master left me, because three days ago I fell sick.
+David asked him, "To whom do you belong? Where are you from?" He said, "I am a young man of Egypt, servant to an Amalekite; and my master left me, because three days ago I fell sick.

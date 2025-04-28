@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise him, ye heavens of heavens, And ye waters that are above the heavens.
+Praise him, you heavens of heavens, You waters that are above the heavens.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said, Ye are idle, ye are idle: therefore ye say, Let us go and sacrifice to Jehovah.
+But he said, "You are idle! You are idle! Therefore you say, 'Let us go and sacrifice to Yahweh.'

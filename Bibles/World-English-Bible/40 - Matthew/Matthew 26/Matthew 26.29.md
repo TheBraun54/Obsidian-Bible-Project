@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say unto you, I shall not drink henceforth of this fruit of the vine, until that day when I drink it new with you in my Father's kingdom.
+But I tell you that I will not drink of this fruit of the vine from now on, until that day when I drink it anew with you in my Father's Kingdom."

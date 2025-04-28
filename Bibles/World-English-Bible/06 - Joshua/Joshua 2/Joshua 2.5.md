@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it came to pass about the time of the shutting of the gate, when it was dark, that the men went out; whither the men went I know not: pursue after them quickly; for ye will overtake them.
+It happened about the time of the shutting of the gate, when it was dark, that the men went out. Where the men went, I don't know. Pursue them quickly; for you will overtake them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In whole burnt offerings and [sacrifices] for sin thou hadst no pleasure:
+You had no pleasure in whole burnt offerings and sacrifices for sin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Ahaziah the son of Ahab unto Jehoshaphat, Let my servants go with thy servants in the ships. But Jehoshaphat would not.
+Then Ahaziah the son of Ahab said to Jehoshaphat, "Let my servants go with your servants in the ships." But Jehoshaphat would not.

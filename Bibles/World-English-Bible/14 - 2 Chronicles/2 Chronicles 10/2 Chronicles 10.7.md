@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they spake unto him, saying, If thou be kind to this people, and please them, and speak good words to them, then they will be thy servants for ever.
+They spoke to him, saying, "If you are kind to this people, and please them, and speak good words to them, then they will be your servants forever."

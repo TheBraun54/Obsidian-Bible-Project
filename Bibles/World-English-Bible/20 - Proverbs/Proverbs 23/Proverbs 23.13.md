@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Withhold not correction from the child; [For] if thou beat him with the rod, he will not die.
+Don't withhold correction from a child. If you punish him with the rod, he will not die.

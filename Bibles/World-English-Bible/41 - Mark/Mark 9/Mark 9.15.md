@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway all the multitude, when they saw him, were greatly amazed, and running to him saluted him.
+Immediately all the multitude, when they saw him, were greatly amazed, and running to him greeted him.

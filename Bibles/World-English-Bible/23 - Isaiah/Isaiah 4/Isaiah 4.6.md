@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be a pavilion for a shade in the day-time from the heat, and for a refuge and for a covert from storm and from rain.
+There will be a pavilion for a shade in the daytime from the heat, and for a refuge and for a shelter from storm and from rain.

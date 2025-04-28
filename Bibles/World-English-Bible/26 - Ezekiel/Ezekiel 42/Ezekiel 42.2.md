@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before the length of a hundred cubits was the north door, and the breadth was fifty cubits.
+Before the length of one hundred cubits was the north door, and the breadth was fifty cubits.

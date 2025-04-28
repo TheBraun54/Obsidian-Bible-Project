@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Jesus returned, the multitude welcomed him; for they were all waiting for him.
+It happened, when Jesus returned, that the multitude welcomed him, for they were all waiting for him.

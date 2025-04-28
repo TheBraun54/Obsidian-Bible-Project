@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And even now I know that, whatsoever thou shalt ask of God, God will give thee.
+Even now I know that, whatever you ask of God, God will give you."

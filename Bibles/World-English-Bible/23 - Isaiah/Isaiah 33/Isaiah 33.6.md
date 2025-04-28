@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be stability in thy times, abundance of salvation, wisdom, and knowledge: the fear of Jehovah is thy treasure.
+There will be stability in your times, abundance of salvation, wisdom, and knowledge. The fear of Yahweh is your treasure.

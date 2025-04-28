@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines had war again with Israel; and David went down, and his servants with him, and fought against the Philistines. And David waxed faint;
+The Philistines had war again with Israel; and David went down, and his servants with him, and fought against the Philistines. David grew faint;

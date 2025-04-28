@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the birds after their kind, and of the cattle after their kind, of every creeping thing of the ground after its kind, two of every sort shall come unto thee, to keep them alive.
+Of the birds after their kind, of the livestock after their kind, of every creeping thing of the ground after its kind, two of every sort shall come to you, to keep them alive.

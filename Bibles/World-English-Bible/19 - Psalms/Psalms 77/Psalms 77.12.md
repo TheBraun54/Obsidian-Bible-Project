@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will meditate also upon all thy work, And muse on thy doings.
+I will also meditate on all your work, and consider your doings.

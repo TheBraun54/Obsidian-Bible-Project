@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nay, in all these things we are more than conquerors through him that loved us.
+No, in all these things, we are more than conquerors through him who loved us.

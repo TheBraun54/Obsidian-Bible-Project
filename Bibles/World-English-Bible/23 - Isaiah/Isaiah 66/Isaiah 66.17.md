@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that sanctify themselves and purify themselves [to go] unto the gardens, behind one in the midst, eating swine's flesh, and the abomination, and the mouse, they shall come to an end together, saith Jehovah.
+"Those who sanctify themselves and purify themselves [to go] to the gardens, behind one in the midst, eating pig's flesh, and the abomination, and the mouse, they shall come to an end together," says Yahweh.

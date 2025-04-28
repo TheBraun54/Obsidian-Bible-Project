@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cast you out of my sight, as I have cast out all your brethren, even the whole seed of Ephraim.
+I will cast you out of my sight, as I have cast out all your brothers, even the whole seed of Ephraim.

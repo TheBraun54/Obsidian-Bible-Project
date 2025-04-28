@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul said, John baptized with the baptism of repentance, saying unto the people that they should believe on him that should come after him, that is, on Jesus.
+Paul said, "John indeed baptized with the baptism of repentance, saying to the people that they should believe in the one who would come after him, that is, in Jesus."

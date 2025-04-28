@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake in the ears of all the assembly of Israel the words of this song, until they were finished.
+Moses spoke in the ears of all the assembly of Israel the words of this song, until they were finished.

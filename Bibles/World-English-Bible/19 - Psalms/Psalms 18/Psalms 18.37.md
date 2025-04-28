@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will pursue mine enemies, and overtake them; Neither will I turn again till they are consumed.
+I will pursue my enemies, and overtake them. Neither will I turn again until they are consumed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for man, his days are as grass; As a flower of the field, so he flourisheth.
+As for man, his days are like grass. As a flower of the field, so he flourishes.

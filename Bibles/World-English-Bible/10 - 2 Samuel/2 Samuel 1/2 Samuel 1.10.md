@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I stood beside him, and slew him, because I was sure that he could not live after that he was fallen: and I took the crown that was upon his head, and the bracelet that was on his arm, and have brought them hither unto my lord.
+So I stood beside him, and killed him, because I was sure that he could not live after that he had fallen. I took the crown that was on his head, and the bracelet that was on his arm, and have brought them here to my lord."

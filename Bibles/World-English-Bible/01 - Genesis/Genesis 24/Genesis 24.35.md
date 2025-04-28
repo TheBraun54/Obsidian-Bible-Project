@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hath blessed my master greatly; and he is become great: and he hath given him flocks and herds, and silver and gold, and men-servants and maid-servants, and camels and asses.
+Yahweh has blessed my master greatly. He has become great. He has given him flocks and herds, silver and gold, male servants and female servants, and camels and donkeys.

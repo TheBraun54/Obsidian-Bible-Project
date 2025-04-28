@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the covenant that I will make with them After those days, saith the Lord: I will put my laws on their heart, And upon their mind also will I write them; [then saith he] ,
+"This is the covenant that I will make with them: 'After those days,' says the Lord, 'I will put my laws on their heart, I will also write them on their mind;'" then he says,

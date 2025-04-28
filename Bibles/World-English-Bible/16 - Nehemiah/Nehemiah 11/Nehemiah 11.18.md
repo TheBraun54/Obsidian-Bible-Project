@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the Levites in the holy city were two hundred fourscore and four.
+All the Levites in the holy city were two hundred eighty-four.

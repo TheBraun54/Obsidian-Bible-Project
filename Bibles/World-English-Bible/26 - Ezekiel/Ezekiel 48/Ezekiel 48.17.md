@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the city shall have suburbs: toward the north two hundred and fifty, and toward the south two hundred and fifty, and toward the east two hundred and fifty, and toward the west two hundred and fifty.
+The city shall have suburbs: toward the north two hundred fifty, and toward the south two hundred fifty, and toward the east two hundred fifty, and toward the west two hundred fifty.

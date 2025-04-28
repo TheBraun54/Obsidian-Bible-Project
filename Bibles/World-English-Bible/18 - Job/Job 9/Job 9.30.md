@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I wash myself with snow water, And make my hands never so clean;
+If I wash myself with snow, and cleanse my hands with lye,

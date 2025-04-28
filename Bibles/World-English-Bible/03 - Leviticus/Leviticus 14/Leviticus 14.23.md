@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the eighth day he shall bring them for his cleansing unto the priest, unto the door of the tent of meeting, before Jehovah:
+"On the eighth day he shall bring them for his cleansing to the priest, to the door of the Tent of Meeting, before Yahweh.

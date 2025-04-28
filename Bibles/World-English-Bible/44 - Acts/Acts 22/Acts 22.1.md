@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren and fathers, hear ye the defence which I now make unto you.
+"Brothers and fathers, listen to the defense which I now make to you."

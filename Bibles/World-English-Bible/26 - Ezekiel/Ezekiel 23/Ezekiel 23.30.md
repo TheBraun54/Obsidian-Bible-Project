@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things shall be done unto thee, for that thou hast played the harlot after the nations, and because thou art polluted with their idols.
+These things shall be done to you, because you have played the prostitute after the nations, and because you are polluted with their idols.

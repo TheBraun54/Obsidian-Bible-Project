@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am Jehovah your God, who brought you forth out of the land of Egypt, to give you the land of Canaan, [and] to be your God.
+I am Yahweh your God, who brought you forth out of the land of Egypt, to give you the land of Canaan, and to be your God.

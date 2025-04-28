@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Rise up early in the morning, and stand before Pharaoh, and say unto him, Thus saith Jehovah, the God of the Hebrews, Let my people go, that they may serve me.
+Yahweh said to Moses, "Rise up early in the morning, and stand before Pharaoh, and tell him, 'This is what Yahweh, the God of the Hebrews, says: "Let my people go, that they may serve me.

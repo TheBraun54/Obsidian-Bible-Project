@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Grant not, O Jehovah, the desires of the wicked; Further not his evil device, [lest] they exalt themselves. {{Selah
+Yahweh, don't grant the desires of the wicked. Don't let their evil plans succeed, or they will become proud. Selah.

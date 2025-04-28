@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a testament is of force where there hath been death: for it doth never avail while he that made it liveth.
+For a will is in force where there has been death, for it is never in force while he who made it lives.

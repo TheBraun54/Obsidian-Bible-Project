@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that are wise among the people shall instruct many; yet they shall fall by the sword and by flame, by captivity and by spoil, [many] days.
+Those who are wise among the people shall instruct many; yet they shall fall by the sword and by flame, by captivity and by spoil, [many] days.

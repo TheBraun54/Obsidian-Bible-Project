@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They angered him also at the waters of Meribah, So that it went ill with Moses for their sakes;
+They angered him also at the waters of Meribah, so that Moses was troubled for their sakes;

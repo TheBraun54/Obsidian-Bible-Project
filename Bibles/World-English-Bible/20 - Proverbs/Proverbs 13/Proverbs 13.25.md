@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous eateth to the satisfying of his soul; But the belly of the wicked shall want.
+The righteous one eats to the satisfying of his soul, but the belly of the wicked goes hungry.

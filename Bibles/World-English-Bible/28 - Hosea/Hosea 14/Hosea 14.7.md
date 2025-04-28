@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that dwell under his shadow shall return; they shall revive [as] the grain, and blossom as the vine: the scent thereof shall be as the wine of Lebanon.
+Men will dwell in his shade. They will revive like the grain, and blossom like the vine. Their fragrance will be like the wine of Lebanon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The God that girdeth me with strength, And maketh my way perfect?
+the God who arms me with strength, and makes my way perfect?

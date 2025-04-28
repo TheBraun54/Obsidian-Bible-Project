@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the daughter of any priest, if she profane herself by playing the harlot, she profaneth her father: she shall be burnt with fire.
+"'The daughter of any priest, if she profanes herself by playing the prostitute, she profanes her father: she shall be burned with fire.

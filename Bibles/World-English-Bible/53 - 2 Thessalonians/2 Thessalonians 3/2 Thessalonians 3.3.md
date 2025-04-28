@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Lord is faithful, who shall establish you, and guard you from the evil [one] .
+But the Lord is faithful, who will establish you, and guard you from the evil one.

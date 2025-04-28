@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, This will be the manner of the king that shall reign over you: he will take your sons, and appoint them unto him, for his chariots, and to be his horsemen; and they shall run before his chariots;
+He said, "This will be the way of the king who shall reign over you: he will take your sons, and appoint them to him, for his chariots, and to be his horsemen; and they shall run before his chariots;

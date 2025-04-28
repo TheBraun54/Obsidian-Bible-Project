@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to keep the commandments of Jehovah, and his statutes, which I command thee this day for thy good?
+to keep the commandments of Yahweh, and his statutes, which I command you this day for your good?

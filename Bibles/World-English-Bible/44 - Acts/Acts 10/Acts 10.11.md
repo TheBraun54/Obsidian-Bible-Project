@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he beholdeth the heaven opened, and a certain vessel descending, as it were a great sheet, let down by four corners upon the earth:
+He saw heaven opened and a certain container descending to him, like a great sheet let down by four corners on the earth,

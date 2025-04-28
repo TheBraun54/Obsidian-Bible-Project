@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The families of the sons of Kohath shall encamp on the side of the tabernacle southward.
+The families of the sons of Kohath shall encamp on the south side of the tabernacle.

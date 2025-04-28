@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because we would fain have come unto you, I Paul once and again; and Satan hindered us.
+because we wanted to come to you--indeed, I, Paul, once and again--but Satan hindered us.

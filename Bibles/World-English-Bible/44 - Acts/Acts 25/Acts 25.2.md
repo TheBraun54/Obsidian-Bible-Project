@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief priests and the principal men of the Jews informed him against Paul; and they besought him,
+Then the high priest and the principal men of the Jews informed him against Paul, and they begged him,

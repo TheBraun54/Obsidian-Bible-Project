@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for they shall hear of thy great name, and of thy mighty hand, and of thine outstretched arm); when he shall come and pray toward this house;
+(for they shall hear of your great name, and of your mighty hand, and of your outstretched arm); when he shall come and pray toward this house;

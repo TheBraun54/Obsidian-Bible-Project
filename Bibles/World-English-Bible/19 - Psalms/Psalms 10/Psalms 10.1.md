@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why standest thou afar off, O Jehovah? Why hidest thou thyself in times of trouble?
+Why do you stand far off, Yahweh? Why do you hide yourself in times of trouble?

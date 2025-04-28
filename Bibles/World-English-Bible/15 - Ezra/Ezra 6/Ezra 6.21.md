@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel that were come again out of the captivity, and all such as had separated themselves unto them from the filthiness of the nations of the land, to seek Jehovah, the God of Israel, did eat,
+The children of Israel who had come again out of the captivity, and all such as had separated themselves to them from the filthiness of the nations of the land, to seek Yahweh, the God of Israel, ate,

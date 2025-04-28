@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Paul and Barnabas tarried in Antioch, teaching and preaching the word of the Lord, with many others also.
+But Paul and Barnabas stayed in Antioch, teaching and preaching the word of the Lord, with many others also.

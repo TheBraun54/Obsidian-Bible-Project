@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the east side four thousand and five hundred [reeds], and three gates: even the gate of Joseph, one; the gate of Benjamin, one; the gate of Dan, one.
+At the east side four thousand and five hundred [reeds], and three gates: even the gate of Joseph, one; the gate of Benjamin, one; the gate of Dan, one.

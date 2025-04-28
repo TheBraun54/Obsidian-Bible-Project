@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah concerning the sons and concerning the daughters that are born in this place, and concerning their mothers that bare them, and concerning their fathers that begat them in this land:
+For thus says Yahweh concerning the sons and concerning the daughters who are born in this place, and concerning their mothers who bore them, and concerning their fathers who became the father of them in this land:

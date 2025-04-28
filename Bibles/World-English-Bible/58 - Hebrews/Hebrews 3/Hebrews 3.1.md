@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, holy brethren, partakers of a heavenly calling, consider the Apostle and High Priest of our confession, [even] Jesus;
+Therefore, holy brothers, partakers of a heavenly calling, consider the Apostle and High Priest of our confession, Jesus;

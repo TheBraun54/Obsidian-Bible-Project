@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-what mean ye that ye crush my people, and grind the face of the poor? saith the Lord, Jehovah of hosts.
+What do you mean that you crush my people, and grind the face of the poor?" says the Lord, Yahweh of Armies.

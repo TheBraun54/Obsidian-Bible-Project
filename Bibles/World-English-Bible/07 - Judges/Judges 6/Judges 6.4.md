@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they encamped against them, and destroyed the increase of the earth, till thou come unto Gaza, and left no sustenance in Israel, neither sheep, nor ox, nor ass.
+and they encamped against them, and destroyed the increase of the earth, until you come to Gaza, and left no sustenance in Israel, neither sheep, nor ox, nor donkey.

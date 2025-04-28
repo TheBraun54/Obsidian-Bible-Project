@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The yoke of my transgressions is bound by his hand; They are knit together, they are come up upon my neck; He hath made my strength to fail: The Lord hath delivered me into their hands, against whom I am not able to stand.
+The yoke of my transgressions is bound by his hand; They are knit together, they are come up on my neck; he has made my strength to fail: The Lord has delivered me into their hands, against whom I am not able to stand.

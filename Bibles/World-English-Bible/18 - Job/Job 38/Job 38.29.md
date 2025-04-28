@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of whose womb came the ice? And the hoary frost of heaven, who hath gendered it?
+Out of whose womb came the ice? The gray frost of the sky, who has given birth to it?

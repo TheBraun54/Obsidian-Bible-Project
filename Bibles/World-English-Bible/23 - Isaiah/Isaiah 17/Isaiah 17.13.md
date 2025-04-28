@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nations shall rush like the rushing of many waters: but he shall rebuke them, and they shall flee far off, and shall be chased as the chaff of the mountains before the wind, and like the whirling dust before the storm.
+The nations will rush like the rushing of many waters: but he will rebuke them, and they will flee far off, and will be chased like the chaff of the mountains before the wind, and like the whirling dust before the storm.

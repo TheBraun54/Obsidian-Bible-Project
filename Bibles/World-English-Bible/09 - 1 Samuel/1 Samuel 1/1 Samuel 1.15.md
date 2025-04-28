@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hannah answered and said, No, my lord, I am a woman of a sorrowful spirit: I have drunk neither wine nor strong drink, but I poured out my soul before Jehovah.
+Hannah answered, "No, my lord, I am a woman of a sorrowful spirit. I have drunk neither wine nor strong drink, but I poured out my soul before Yahweh.

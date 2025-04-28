@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Oh let not the Lord be angry, and I will speak yet but this once: peradventure ten shall be found there. And he said, I will not destroy it for the ten's sake.
+He said, "Oh don't let the Lord be angry, and I will speak just once more. What if ten are found there?" He said, "I will not destroy it for the ten's sake."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto them, That is it that I spake unto you, saying, Ye are spies:
+Joseph said to them, "It is like I told you, saying, 'You are spies!'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to them that are without law, as without law, not being without law to God, but under law to Christ, that I might gain them that are without law.
+to those who are without law, as without law (not being without law toward God, but under law toward Christ), that I might win those who are without law.

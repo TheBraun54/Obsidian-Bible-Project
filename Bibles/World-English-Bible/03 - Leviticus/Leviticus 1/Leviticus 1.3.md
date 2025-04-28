@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If his oblation be a burnt-offering of the herd, he shall offer it a male without blemish: he shall offer it at the door of the tent of meeting, that he may be accepted before Jehovah.
+"'If his offering is a burnt offering from the herd, he shall offer a male without blemish. He shall offer it at the door of the Tent of Meeting, that he may be accepted before Yahweh.

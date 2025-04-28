@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For great is Jehovah, and greatly to be praised: He also is to be feared above all gods.
+For great is Yahweh, and greatly to be praised. He also is to be feared above all gods.

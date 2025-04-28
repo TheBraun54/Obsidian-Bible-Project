@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why dost thou show me iniquity, and look upon perverseness? for destruction and violence are before me; and there is strife, and contention riseth up.
+Why do you show me iniquity, and look at perversity? For destruction and violence are before me. There is strife, and contention rises up.

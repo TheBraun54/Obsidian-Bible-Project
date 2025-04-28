@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, I am with thee, and will keep thee whithersoever thou goest, and will bring thee again into this land; for I will not leave thee, until I have done that which I have spoken to thee of.
+Behold, I am with you, and will keep you, wherever you go, and will bring you again into this land. For I will not leave you, until I have done that which I have spoken of to you."

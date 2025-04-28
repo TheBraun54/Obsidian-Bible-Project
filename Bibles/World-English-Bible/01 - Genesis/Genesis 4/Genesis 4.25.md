@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Adam knew his wife again; and she bare a son, and called his name Seth: For, [said she], God hath appointed me another seed instead of Abel; for Cain slew him.
+Adam knew his wife again. She gave birth to a son, and named him Seth, "for God has appointed me another child instead of Abel, for Cain killed him."

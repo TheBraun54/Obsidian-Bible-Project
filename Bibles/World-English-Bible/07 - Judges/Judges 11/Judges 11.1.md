@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jephthah the Gileadite was a mighty man of valor, and he was the son of a harlot: and Gilead begat Jephthah.
+Now Jephthah the Gileadite was a mighty man of valor, and he was the son of a prostitute: and Gilead became the father of Jephthah.

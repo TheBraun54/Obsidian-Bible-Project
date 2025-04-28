@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have plowed wickedness, ye have reaped iniquity; ye have eaten the fruit of lies; for thou didst trust in thy way, in the multitude of thy mighty men.
+You have plowed wickedness. You have reaped iniquity. You have eaten the fruit of lies, for you trusted in your way, in the multitude of your mighty men.

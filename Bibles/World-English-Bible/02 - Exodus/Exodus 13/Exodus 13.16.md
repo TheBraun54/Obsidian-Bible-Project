@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be for a sign upon thy hand, and for frontlets between thine eyes: for by strength of hand Jehovah brought us forth out of Egypt.
+It shall be for a sign on your hand, and for symbols between your eyes: for by strength of hand Yahweh brought us forth out of Egypt."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, what do I here, saith Jehovah, seeing that my people is taken away for nought? they that rule over them do howl, saith Jehovah, and my name continually all the day is blasphemed.
+"Now therefore, what do I here," says Yahweh, "seeing that my people are taken away for nothing? those who rule over them mock," says Yahweh, "and my name continually all the day is blasphemed.

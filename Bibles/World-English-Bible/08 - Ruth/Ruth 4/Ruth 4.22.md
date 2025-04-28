@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Obed begat Jesse, and Jesse begat David.
+and Obed became the father of Jesse, and Jesse became the father of David.

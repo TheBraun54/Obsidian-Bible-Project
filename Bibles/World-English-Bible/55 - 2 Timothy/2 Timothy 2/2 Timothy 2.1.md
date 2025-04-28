@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou therefore, my child, be strengthened in the grace that is in Christ Jesus.
+You therefore, my child, be strengthened in the grace that is in Christ Jesus.

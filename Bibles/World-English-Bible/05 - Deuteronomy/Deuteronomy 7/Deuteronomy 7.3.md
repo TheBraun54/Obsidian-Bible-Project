@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither shalt thou make marriages with them; thy daughter thou shalt not give unto his son, nor his daughter shalt thou take unto thy son.
+neither shall you make marriages with them; your daughter you shall not give to his son, nor shall you take his daughter for your son.

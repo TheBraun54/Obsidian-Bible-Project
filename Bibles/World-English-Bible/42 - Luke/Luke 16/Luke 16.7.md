@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he to another, And how much owest thou? And he said, A hundred measures of wheat. He saith unto him, Take thy bond, and write fourscore.
+Then he said to another, 'How much do you owe?' He said, 'A hundred cors of wheat.' He said to him, 'Take your bill, and write eighty.'

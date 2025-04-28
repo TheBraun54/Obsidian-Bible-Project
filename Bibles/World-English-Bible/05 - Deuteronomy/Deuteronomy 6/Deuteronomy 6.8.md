@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bind them for a sign upon thy hand, and they shall be for frontlets between thine eyes.
+You shall bind them for a sign on your hand, and they shall be for symbols between your eyes.

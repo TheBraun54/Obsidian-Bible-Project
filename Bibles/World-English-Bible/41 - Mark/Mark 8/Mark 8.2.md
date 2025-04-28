@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have compassion on the multitude, because they continue with me now three days, and have nothing to eat:
+"I have compassion on the multitude, because they have stayed with me now three days, and have nothing to eat.

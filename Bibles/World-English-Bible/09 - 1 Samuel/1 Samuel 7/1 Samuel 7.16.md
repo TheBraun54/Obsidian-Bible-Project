@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went from year to year in circuit to Beth-el and Gilgal, and Mizpah; and he judged Israel in all those places.
+He went from year to year in circuit to Bethel and Gilgal, and Mizpah; and he judged Israel in all those places.

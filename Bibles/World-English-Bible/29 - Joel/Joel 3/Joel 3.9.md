@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Proclaim ye this among the nations; prepare war; stir up the mighty men; let all the men of war draw near, let them come up.
+Proclaim this among the nations: "Prepare for war! Stir up the mighty men. Let all the warriors draw near. Let them come up.

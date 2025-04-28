@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the congregation brought him without the camp, and stoned him to death with stones; as Jehovah commanded Moses.
+All the congregation brought him outside of the camp, and stoned him to death with stones; as Yahweh commanded Moses.

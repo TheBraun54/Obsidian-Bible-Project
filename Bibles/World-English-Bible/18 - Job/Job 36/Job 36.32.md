@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He covereth his hands with the lightning, And giveth it a charge that it strike the mark.
+He covers his hands with the lightning, and commands it to strike the mark.

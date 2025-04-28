@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he come to see [me], he speaketh falsehood; His heart gathereth iniquity to itself: When he goeth abroad, he telleth it.
+If he comes to see me, he speaks falsehood. His heart gathers iniquity to itself. When he goes abroad, he tells it.

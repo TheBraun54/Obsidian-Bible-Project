@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehu rode in a chariot, and went to Jezreel; for Joram lay there. And Ahaziah king of Judah was come down to see Joram.
+So Jehu rode in a chariot, and went to Jezreel; for Joram lay there. Ahaziah king of Judah had come down to see Joram.

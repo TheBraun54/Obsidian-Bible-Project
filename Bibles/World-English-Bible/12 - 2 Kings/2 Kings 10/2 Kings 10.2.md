@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now as soon as this letter cometh to you, seeing your master's sons are with you, and there are with you chariots and horses, a fortified city also, and armor;
+"Now as soon as this letter comes to you, since your master's sons are with you, and there are with you chariots and horses, a fortified city also, and armor.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the twelfth to Hashabiah, his sons and his brethren, twelve:
+the twelfth to Hashabiah, his sons and his brothers, twelve:

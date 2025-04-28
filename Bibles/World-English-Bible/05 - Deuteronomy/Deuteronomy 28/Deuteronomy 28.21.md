@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will make the pestilence cleave unto thee, until he have consumed thee from off the land, whither thou goest in to possess it.
+Yahweh will make the pestilence cling to you, until he has consumed you from off the land, where you go in to possess it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Pahath-moab, of the children of Jeshua and Joab, two thousand and eight hundred [and] eighteen.
+The children of Pahathmoab, of the children of Jeshua and Joab, two thousand eight hundred [and] eighteen.

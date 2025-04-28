@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have all things, and abound: I am filled, having received from Epaphroditus the things [that came] from you, an odor of a sweet smell, a sacrifice acceptable, well-pleasing to God.
+But I have all things, and abound. I am filled, having received from Epaphroditus the things that came from you, a sweet-smelling fragrance, an acceptable and well-pleasing sacrifice to God.

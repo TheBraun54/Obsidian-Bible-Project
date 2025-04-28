@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come unto me, all ye that labor and are heavy laden, and I will give you rest.
+"Come to me, all you who labor and are heavily burdened, and I will give you rest.

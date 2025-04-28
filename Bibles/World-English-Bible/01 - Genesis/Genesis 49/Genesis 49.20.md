@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of Asher his bread shall be fat, And he shall yield royal dainties.
+"Asher's food will be rich. He will yield royal dainties.

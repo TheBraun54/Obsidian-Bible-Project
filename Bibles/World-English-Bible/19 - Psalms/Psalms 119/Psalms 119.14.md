@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have rejoiced in the way of thy testimonies, As much as in all riches.
+I have rejoiced in the way of your testimonies, as much as in all riches.

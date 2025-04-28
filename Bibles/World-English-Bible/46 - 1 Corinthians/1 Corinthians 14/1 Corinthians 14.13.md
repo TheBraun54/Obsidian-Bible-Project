@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore let him that speaketh in a tongue pray that he may interpret.
+Therefore let him who speaks in another language pray that he may interpret.

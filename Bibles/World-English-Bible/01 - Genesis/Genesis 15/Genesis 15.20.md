@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Hittite, and the Perizzite, and the Rephaim,
+the Hittites, the Perizzites, the Rephaim,

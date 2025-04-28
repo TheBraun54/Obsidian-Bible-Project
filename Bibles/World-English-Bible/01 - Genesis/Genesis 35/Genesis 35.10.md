@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto him, Thy name is Jacob: thy name shall not be called any more Jacob, but Israel shall be thy name: and he called his name Israel.
+God said to him, "Your name is Jacob. Your name shall not be Jacob any more, but your name will be Israel." He named him Israel.

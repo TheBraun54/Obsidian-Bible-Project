@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thus shalt thou do unto them, to cleanse them: sprinkle the water of expiation upon them, and let them cause a razor to pass over all their flesh, and let them wash their clothes, and cleanse themselves.
+You shall do this to them, to cleanse them: sprinkle the water of cleansing on them, let them shave their whole bodies with a razor, and let them wash their clothes, and cleanse themselves.

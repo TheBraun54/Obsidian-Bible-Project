@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the streams of [Edom] shall be turned into pitch, and the dust thereof into brimstone, and the land thereof shall become burning pitch.
+Its streams will be turned into pitch, its dust into sulfur, And its land will become burning pitch.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God give thee of the dew of heaven, And of the fatness of the earth, And plenty of grain and new wine:
+God give you of the dew of the sky, of the fatness of the earth, and plenty of grain and new wine.

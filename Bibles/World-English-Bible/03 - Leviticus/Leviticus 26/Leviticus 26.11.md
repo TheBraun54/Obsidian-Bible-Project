@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set my tabernacle among you: and my soul shall not abhor you.
+I will set my tent among you: and my soul won't abhor you.

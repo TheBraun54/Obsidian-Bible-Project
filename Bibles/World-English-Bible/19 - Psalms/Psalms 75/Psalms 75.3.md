@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth and all the inhabitants thereof are dissolved: I have set up the pillars of it. {{Selah
+The earth and all its inhabitants quake. I firmly hold its pillars. Selah.

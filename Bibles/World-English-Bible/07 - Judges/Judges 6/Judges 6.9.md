@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I delivered you out of the hand of the Egyptians, and out of the hand of all that oppressed you, and drove them out from before you, and gave you their land;
+and I delivered you out of the hand of the Egyptians, and out of the hand of all who oppressed you, and drove them out from before you, and gave you their land;

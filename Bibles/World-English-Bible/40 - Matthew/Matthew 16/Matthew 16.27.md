@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Son of man shall come in the glory of his Father with his angels; and then shall he render unto every man according to his deeds.
+For the Son of Man will come in the glory of his Father with his angels, and then he will render to everyone according to his deeds.

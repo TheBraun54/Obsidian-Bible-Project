@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The people went about, and gathered it, and ground it in mills, or beat it in mortars, and boiled it in pots, and made cakes of it: and the taste of it was as the taste of fresh oil.
+The people went around, gathered it, and ground it in mills, or beat it in mortars, and boiled it in pots, and made cakes of it. Its taste was like the taste of fresh oil.

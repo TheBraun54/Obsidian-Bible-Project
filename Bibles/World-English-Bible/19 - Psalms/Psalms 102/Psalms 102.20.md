@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To hear the sighing of the prisoner; To loose those that are appointed to death;
+to hear the groans of the prisoner; to free those who are condemned to death;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless the children of Israel drove not out the Geshurites, nor the Maacathites: but Geshur and Maacath dwell in the midst of Israel unto this day.
+Nevertheless the children of Israel didn't drive out the Geshurites, nor the Maacathites: but Geshur and Maacath dwell in the midst of Israel to this day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Jehovah thy God walketh in the midst of thy camp, to deliver thee, and to give up thine enemies before thee; therefore shall thy camp be holy, that he may not see an unclean thing in thee, and turn away from thee.
+for Yahweh your God walks in the midst of your camp, to deliver you, and to give up your enemies before you; therefore your camp shall be holy, that he may not see an unclean thing in you, and turn away from you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while he was sitting on the judgment-seat, his wife sent unto him, saying, Have thou nothing to do with that righteous man; for I have suffered many things this day in a dream because of him.
+While he was sitting on the judgment seat, his wife sent to him, saying, "Have nothing to do with that righteous man, for I have suffered many things this day in a dream because of him."

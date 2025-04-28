@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, I testify again to every man that receiveth circumcision, that he is a debtor to do the whole law.
+Yes, I testify again to every man who receives circumcision, that he is a debtor to do the whole law.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Timna was concubine to Eliphaz Esau's son; and she bare to Eliphaz Amalek: these are the sons of Adah, Esau's wife.
+Timna was concubine to Eliphaz, Esau's son; and she bore to Eliphaz Amalek. These are the sons of Adah, Esau's wife.

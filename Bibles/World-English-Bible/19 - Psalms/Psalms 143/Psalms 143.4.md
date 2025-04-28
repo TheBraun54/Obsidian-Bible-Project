@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore is my spirit overwhelmed within me; My heart within me is desolate.
+Therefore my spirit is overwhelmed within me. My heart within me is desolate.

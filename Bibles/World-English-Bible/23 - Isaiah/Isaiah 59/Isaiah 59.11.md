@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We roar all like bears, and moan sore like doves: we look for justice, but there is none; for salvation, but it is far off from us.
+We roar all like bears, and moan bitterly like doves: we look for justice, but there is none; for salvation, but it is far off from us.

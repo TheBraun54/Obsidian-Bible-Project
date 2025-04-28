@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel took all these cities: and Israel dwelt in all the cities of the Amorites, in Heshbon, and in all the towns thereof.
+Israel took all these cities: and Israel lived in all the cities of the Amorites, in Heshbon, and in all its towns.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord grant mercy unto the house of Onesiphorus: for he oft refreshed me, and was not ashamed of my chain;
+May the Lord grant mercy to the house of Onesiphorus, for he often refreshed me, and was not ashamed of my chain,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the owner of the pit shall make it good; he shall give money unto the owner thereof, and the dead [beast] shall be his.
+the owner of the pit shall make it good. He shall give money to its owner, and the dead animal shall be his.

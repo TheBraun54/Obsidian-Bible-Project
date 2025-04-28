@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the son of Jonathan was Merib-baal; and Merib-baal begat Micah.
+The son of Jonathan was Merib Baal; and Merib Baal became the father of Micah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wild waves of the sea, foaming out their own shame; wandering stars, for whom the blackness of darkness hath been reserved for ever.
+wild waves of the sea, foaming out their own shame; wandering stars, for whom the blackness of darkness has been reserved forever.

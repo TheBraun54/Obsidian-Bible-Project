@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet seek ye his kingdom, and these things shall be added unto you.
+But seek God's Kingdom, and all these things will be added to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, while thou yet talkest there with the king, I also will come in after thee, and confirm thy words.
+Behold, while you yet talk there with the king, I also will come in after you, and confirm your words."

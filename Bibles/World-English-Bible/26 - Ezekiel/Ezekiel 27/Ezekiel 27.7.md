@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of fine linen with broidered work from Egypt was thy sail, that it might be to thee for an ensign; blue and purple from the isles of Elishah was thine awning.
+Of fine linen with embroidered work from Egypt was your sail, that it might be to you for a banner; blue and purple from the islands of Elishah was your awning.

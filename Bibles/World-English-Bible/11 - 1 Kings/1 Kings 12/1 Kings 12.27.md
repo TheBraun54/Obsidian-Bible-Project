@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if this people go up to offer sacrifices in the house of Jehovah at Jerusalem, then will the heart of this people turn again unto their lord, even unto Rehoboam king of Judah; and they will kill me, and return to Rehoboam king of Judah.
+If this people goes up to offer sacrifices in the house of Yahweh at Jerusalem, then the heart of this people will turn again to their lord, even to Rehoboam king of Judah; and they will kill me, and return to Rehoboam king of Judah."

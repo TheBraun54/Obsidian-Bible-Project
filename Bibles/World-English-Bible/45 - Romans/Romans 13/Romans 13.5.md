@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore [ye] must needs be in subjection, not only because of the wrath, but also for conscience' sake.
+Therefore you need to be in subjection, not only because of the wrath, but also for conscience' sake.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hand of Jehovah was upon me, and he brought me out in the Spirit of Jehovah, and set me down in the midst of the valley; and it was full of bones.
+The hand of Yahweh was on me, and he brought me out in the Spirit of Yahweh, and set me down in the midst of the valley; and it was full of bones.

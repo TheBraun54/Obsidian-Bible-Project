@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he bought the hill Samaria of Shemer for two talents of silver; and he built on the hill, and called the name of the city which he built, after the name of Shemer, the owner of the hill, Samaria.
+He bought the hill Samaria of Shemer for two talents of silver; and he built on the hill, and called the name of the city which he built, after the name of Shemer, the owner of the hill, Samaria.

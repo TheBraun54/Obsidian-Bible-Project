@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, my brethren, when ye come together to eat, wait one for another.
+Therefore, my brothers, when you come together to eat, wait for one another.

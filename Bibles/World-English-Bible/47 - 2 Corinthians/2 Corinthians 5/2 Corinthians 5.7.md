@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for we walk by faith, not by sight);
+for we walk by faith, not by sight.

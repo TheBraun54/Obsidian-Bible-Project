@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if she be [married] to a husband, while her vows are upon her, or the rash utterance of her lips, wherewith she hath bound her soul,
+"If she is [married] to a husband, while her vows are on her, or the rash utterance of her lips, with which she has bound her soul,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I hope in the Lord Jesus to send Timothy shortly unto you, that I also may be of good comfort, when I know your state.
+But I hope in the Lord Jesus to send Timothy to you soon, that I also may be cheered up when I know how you are doing.

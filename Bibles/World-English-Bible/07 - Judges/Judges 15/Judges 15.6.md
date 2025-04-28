@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the Philistines said, Who hath done this? And they said, Samson, the son-in-law of the Timnite, because he hath taken his wife, and given her to his companion. And the Philistines came up, and burnt her and her father with fire.
+Then the Philistines said, "Who has done this?" They said, "Samson, the son-in-law of the Timnite, because he has taken his wife, and given her to his companion." The Philistines came up, and burnt her and her father with fire.

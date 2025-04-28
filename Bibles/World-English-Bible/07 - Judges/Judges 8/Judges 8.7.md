@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon said, Therefore when Jehovah hath delivered Zebah and Zalmunna into my hand, then I will tear your flesh with the thorns of the wilderness and with briers.
+Gideon said, "Therefore when Yahweh has delivered Zebah and Zalmunna into my hand, then I will tear your flesh with the thorns of the wilderness and with briers."

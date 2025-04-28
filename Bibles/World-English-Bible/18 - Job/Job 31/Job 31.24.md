@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I have made gold my hope, And have said to the fine gold, [Thou art] my confidence;
+"If I have made gold my hope, and have said to the fine gold, 'You are my confidence;'

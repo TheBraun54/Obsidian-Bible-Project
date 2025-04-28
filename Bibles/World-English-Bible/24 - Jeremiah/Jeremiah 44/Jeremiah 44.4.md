@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit I sent unto you all my servants the prophets, rising up early and sending them, saying, Oh, do not this abominable thing that I hate.
+However I sent to you all my servants the prophets, rising up early and sending them, saying, Oh, don't do this abominable thing that I hate.

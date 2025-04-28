@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face toward Gog, of the land of Magog, the prince of Rosh, Meshech, and Tubal, and prophesy against him,
+Son of man, set your face toward Gog, of the land of Magog, the prince of Rosh, Meshech, and Tubal, and prophesy against him,

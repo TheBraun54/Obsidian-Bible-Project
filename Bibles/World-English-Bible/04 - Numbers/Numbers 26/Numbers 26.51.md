@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they that were numbered of the children of Israel, six hundred thousand and a thousand seven hundred and thirty.
+These are those who were numbered of the children of Israel, six hundred one thousand seven hundred thirty.

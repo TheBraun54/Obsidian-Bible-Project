@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore by this shall the iniquity of Jacob be forgiven, and this is all the fruit of taking away his sin: that he maketh all the stones of the altar as chalkstones that are beaten in sunder, [so that] the Asherim and the sun-images shall rise no more.
+Therefore, by this the iniquity of Jacob will be forgiven, and this is all the fruit of taking away his sin: that he makes all the stones of the altar as chalk stones that are beaten in pieces, so that the Asherim and the incense altars shall rise no more.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah preserveth all them that love him; But all the wicked will he destroy.
+Yahweh preserves all those who love him, but all the wicked he will destroy.

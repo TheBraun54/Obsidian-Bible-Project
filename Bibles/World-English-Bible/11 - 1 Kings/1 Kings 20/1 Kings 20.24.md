@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And do this thing: take the kings away, every man out of his place, and put captains in their room;
+Do this thing: take the kings away, every man out of his place, and put captains in their place.

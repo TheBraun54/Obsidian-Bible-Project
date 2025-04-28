@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I coveted no man's silver, or gold, or apparel.
+I coveted no one's silver, or gold, or clothing.

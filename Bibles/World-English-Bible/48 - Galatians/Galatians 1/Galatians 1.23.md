@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but they only heard say, He that once persecuted us now preacheth the faith of which he once made havoc;
+but they only heard: "He who once persecuted us now preaches the faith that he once tried to destroy."

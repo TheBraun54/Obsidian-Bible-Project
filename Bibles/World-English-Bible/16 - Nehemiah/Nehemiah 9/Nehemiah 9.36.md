@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, we are servants this day, and as for the land that thou gavest unto our fathers to eat the fruit thereof and the good thereof, behold, we are servants in it.
+"Behold, we are servants this day, and as for the land that you gave to our fathers to eat its fruit and its good, behold, we are servants in it.

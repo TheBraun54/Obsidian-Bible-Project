@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye reap the harvest of your land, thou shalt not wholly reap the corners of thy field, neither shalt thou gather the gleaning of thy harvest: thou shalt leave them for the poor, and for the sojourner: I am Jehovah your God.
+"'When you reap the harvest of your land, you shall not wholly reap into the corners of your field, neither shall you gather the gleanings of your harvest: you shall leave them for the poor, and for the foreigner. I am Yahweh your God.'"

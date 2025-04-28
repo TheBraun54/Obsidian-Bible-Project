@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By pride cometh only contention; But with the well-advised is wisdom.
+Pride only breeds quarrels, but with ones who take advice is wisdom.

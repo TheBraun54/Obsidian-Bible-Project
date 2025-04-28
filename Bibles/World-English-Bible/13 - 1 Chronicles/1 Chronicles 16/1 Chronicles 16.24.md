@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Declare his glory among the nations, His marvellous works among all the peoples.
+Declare his glory among the nations, and his marvelous works among all the peoples.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have heard the blasphemy: what think ye? And they all condemned him to be worthy of death.
+You have heard the blasphemy! What do you think?" They all condemned him to be worthy of death.

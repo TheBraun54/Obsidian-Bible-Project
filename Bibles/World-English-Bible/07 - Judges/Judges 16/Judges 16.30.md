@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson said, Let me die with the Philistines. And he bowed himself with all his might; and the house fell upon the lords, and upon all the people that were therein. So the dead that he slew at his death were more than they that he slew in his life.
+Samson said, "Let me die with the Philistines!" He bowed himself with all his might; and the house fell on the lords, and on all the people who were therein. So the dead that he killed at his death were more than those who he killed in his life.

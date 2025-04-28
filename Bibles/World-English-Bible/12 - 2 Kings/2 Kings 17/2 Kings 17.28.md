@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So one of the priests whom they had carried away from Samaria came and dwelt in Beth-el, and taught them how they should fear Jehovah.
+So one of the priests whom they had carried away from Samaria came and lived in Bethel, and taught them how they should fear Yahweh.

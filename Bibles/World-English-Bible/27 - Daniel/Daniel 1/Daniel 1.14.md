@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he hearkened unto them in this matter, and proved them ten days.
+So he listened to them in this matter, and proved them ten days.

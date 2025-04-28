@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her filthiness was in her skirts; she remembered not her latter end; Therefore is she come down wonderfully; she hath no comforter: Behold, O Jehovah, my affliction; for the enemy hath magnified himself.
+Her filthiness was in her skirts; she didn't remember her latter end; therefore is she come down wonderfully; she has no comforter: see, Yahweh, my affliction; for the enemy has magnified himself.

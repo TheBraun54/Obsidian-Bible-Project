@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, before Isaiah was gone out into the middle part of the city, that the word of Jehovah came to him, saying,
+It happened, before Isaiah had gone out into the middle part of the city, that the word of Yahweh came to him, saying,

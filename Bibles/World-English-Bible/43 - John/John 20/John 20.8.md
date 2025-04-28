@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then entered in therefore the other disciple also, who came first to the tomb, and he saw, and believed.
+So then the other disciple who came first to the tomb also entered in, and he saw and believed.

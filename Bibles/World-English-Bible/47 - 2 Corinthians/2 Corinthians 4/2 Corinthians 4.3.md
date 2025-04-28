@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And even if our gospel is veiled, it is veiled in them that perish:
+Even if our Good News is veiled, it is veiled in those who perish;

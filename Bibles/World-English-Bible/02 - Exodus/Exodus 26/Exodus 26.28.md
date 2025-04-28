@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the middle bar in the midst of the boards shall pass through from end to end.
+The middle bar in the midst of the boards shall pass through from end to end.

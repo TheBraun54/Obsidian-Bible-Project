@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came near to the steward of Joseph's house, and they spake unto him at the door of the house,
+They came near to the steward of Joseph's house, and they spoke to him at the door of the house,

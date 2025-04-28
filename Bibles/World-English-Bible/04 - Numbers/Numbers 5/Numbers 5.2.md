@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Command the children of Israel, that they put out of the camp every leper, and every one that hath an issue, and whosoever is unclean by the dead:
+"Command the children of Israel that they put out of the camp every leper, and everyone who has an issue, and whoever is unclean by the dead.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice ye with Jerusalem, and be glad for her, all ye that love her: rejoice for joy with her, all ye that mourn over her;
+"Rejoice with Jerusalem, and be glad for her, all you who love her: rejoice for joy with her, all you who mourn over her;

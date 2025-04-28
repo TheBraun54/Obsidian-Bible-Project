@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto them, Call me not Naomi, call me Mara; for the Almighty hath dealt very bitterly with me.
+She said to them, "Don't call me Naomi. Call me Mara; for the Almighty has dealt very bitterly with me.

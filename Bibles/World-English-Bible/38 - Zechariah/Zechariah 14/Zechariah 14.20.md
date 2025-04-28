@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall there be upon the bells of the horses, HOLY UNTO JEHOVAH; and the pots in Jehovah's house shall be like the bowls before the altar.
+In that day there will be on the bells of the horses, "HOLY TO YAHWEH;" and the pots in Yahweh's house will be like the bowls before the altar.

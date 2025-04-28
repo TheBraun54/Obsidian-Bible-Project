@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak to the children of Israel, saying, Assign you the cities of refuge, whereof I spake unto you by Moses,
+"Speak to the children of Israel, saying, 'Assign the cities of refuge, of which I spoke to you by Moses,

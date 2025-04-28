@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Zebah and Zalmunna were in Karkor, and their hosts with them, about fifteen thousand men, all that were left of all the host of the children of the east; for there fell a hundred and twenty thousand men that drew sword.
+Now Zebah and Zalmunna were in Karkor, and their armies with them, about fifteen thousand men, all who were left of all the army of the children of the east; for there fell one hundred twenty thousand men who drew sword.

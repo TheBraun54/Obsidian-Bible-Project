@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mark well, O Job, hearken unto me: Hold thy peace, and I will speak.
+Mark well, Job, and listen to me. Hold your peace, and I will speak.
